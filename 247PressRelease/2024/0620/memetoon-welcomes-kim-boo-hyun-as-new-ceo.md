@@ -1,0 +1,7 @@
+# MemeToon Welcomes Kim Boo-hyun as New CEO
+
+NEW YORK, NY, June 20, 2024 /24-7PressRelease/ -- MEME Entertainment, the operator of the global webtoon platform MemeToon, announced on the 14th that it has appointed Kim Boo-hyun, a renowned film and webtoon producer, as the new CEO. Kim Boo-hyun has a long-standing career in the Korean film industry and is also widely recognized as a prominent webtoon producer.  Kim, the new CEO, identified the potential of the global webtoon market early on. He expanded his professional reach by entering the Vietnamese market, where he operated the ClipK Webtoon Studio, specializing in webtoon production, distribution, and global marketing.  As the Chief Content Officer (CCO) of the MemeToon Foundation, Kim oversees both webtoon content and marketing. He expressed his ambitions, stating, "Drawing from my experience in supplying content to major platforms like Naver Webtoon and Kakao Webtoon, I aim to elevate MemeToon to become the number one global blockchain webtoon platform."  Meanwhile, the MemeToon Foundation expressed great anticipation, stating, "With the appointment of Kim Boo-hyun as the new CEO, we have completed our transformation into a one-stop webtoon platform that excels in production, distribution, and global marketing." 
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511844/memetoon-welcomes-kim-boo-hyun-as-new-ceo) 
+
+[Newsramp.com TLDR](https://newsramp.com/None) 
