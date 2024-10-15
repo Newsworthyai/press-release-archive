@@ -10,4 +10,12 @@ News has unique requirements and demands on provenance and authenticity. [David 
 By publishing press releases to Github, we gain advantages not available through simple blockchain registration. 
 
 1. Editable and Trackable - By publishing to Github, we have full transparency to all changes made to news over time.
-2. Collaboration - We can allow a crowd sourced entry point for individuals wishing to contribute. Imagine being able to create a pull request on news content?
+2. Collaboration - We can allow a crowd sourced entry point for individuals wishing to contribute. Imagine being able to create a pull request on news item?
+3. Expandable - Easy to add assets, commentary, comments and other content to each press release record. Pull requests?
+
+## Rules
+
+1. You may clone the repo for any valid research use or for your private use.
+2. You may create a pull request to update or 'fix' anything in this repository. As will all pull requests, it may take time for your changes to be merged into the main branch.
+3. You cannot spam the system. Pull requests deemed by reviewers to be spam in nature will be rejected.
+4. You can republish the original press releases, but you must include all links and images included in the repository document.
