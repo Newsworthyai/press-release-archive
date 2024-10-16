@@ -60,7 +60,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/unlock-the-fu
 [Original/Source Press Release](https://newsdirect.com/news/unlock-the-full-potential-of-your-crypto-with-bitget-earns-exclusive-offer-647622431)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unlock-the-full-potential-of-your-crypto-with-bitget-earn-s-exclusive-100-apr-offer/62afd031580bcef69e652f8db761a40e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/bitget-earn-offers-unprecedented-100-apr-on-usdt-for-new-users)
+ 
 
 
 

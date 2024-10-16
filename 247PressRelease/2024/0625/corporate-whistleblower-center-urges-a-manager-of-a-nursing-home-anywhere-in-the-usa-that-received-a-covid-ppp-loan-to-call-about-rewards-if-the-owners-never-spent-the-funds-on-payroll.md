@@ -7,7 +7,13 @@ WASHINGTON, DC, June 25, 2024 /24-7PressRelease/ -- The Corporate Whistleblower 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511992/corporate-whistleblower-center-urges-a-manager-of-a-nursing-home-anywhere-in-the-usa-that-received-a-covid-ppp-loan-to-call-about-rewards-if-the-owners-never-spent-the-funds-on-payroll)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/healthcare-managers-urged-to-report-ppp-loan-misuse-whistleblower-rewards-in-millions/3a4c8c483f40e558d61dbbf92ae79e61) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/corporate-whistleblower-center-alerts-nursing-home-managers-on-ppp-loan-fraud-rewards/20244445)
+
+Pickup - [advos.io](https://advos.io/en/corporate-whistleblower-center-seeks-nursing-home-managers-with-knowledge-of-ppp-loan-misuse-for-potential-rewards/20244445)
+ 
 
 
 

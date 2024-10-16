@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/game-changing
 [Original/Source Press Release](https://newsdirect.com/news/game-changing-tumor-freezing-technology-has-the-potential-to-offer-women-first-ever-minimally-invasive-alternative-to-breast-lumpectomy-surgery-883457450)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/game-changing-tumor-freezing-technology-offers-minimally-invasive-alternative-to-breast-lumpectomy/8cd57acd98351546bdbaca8dc766f7f6) 
+
+ 
 
 
 

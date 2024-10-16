@@ -29,7 +29,13 @@ Visit Our Website
 [Original/Source Press Release](https://newsroom.prkarma.com/hsr/news_release/1549)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/happy-stan-s-recycling-services-ltd-hsr-launches-two-new-user-friendly-websites/68b9738da271742bf2acfb48e36c9f23) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/hsr-launches-new-websites-to-enhance-sustainability-services-in-vancouver-lower-mainland)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/hsr-launches-new-digital-platforms-to-enhance-sustainability-services-in-vancouver-lower-mainland/20246422)
+ 
 
 
 

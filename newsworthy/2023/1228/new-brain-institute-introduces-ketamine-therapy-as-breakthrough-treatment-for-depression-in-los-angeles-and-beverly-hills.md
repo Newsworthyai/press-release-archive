@@ -15,7 +15,9 @@ A recent clinical study demonstrated that adults with treatment-resistant depres
 [Original/Source Press Release](https://newsworthy.ai/news/20231228945/new-brain-institute-introduces-ketamine-therapy-as-breakthrough-treatment-for-depression-in-los-angeles-and-beverly-hills)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-brain-institute-introduces-spravatotm-nasal-spray-treatment-for-depression/794cccb2e54e33a75fdd6cac1d1c2fb9) 
+
+ 
 
 
 

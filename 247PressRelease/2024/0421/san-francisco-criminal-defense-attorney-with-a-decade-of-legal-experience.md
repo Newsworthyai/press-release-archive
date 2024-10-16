@@ -7,7 +7,11 @@ SAN FRANCISCO, CA, April 21, 2024 /24-7PressRelease/ -- Geller Law is a full-ser
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510233/san-francisco-criminal-defense-attorney-with-a-decade-of-legal-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/geller-law-pc-quality-legal-representation-for-criminal-defense-in-the-bay-area/780e92e260eab0358906e064bb8166df) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/21/san-francisco-criminal-defense-attorney-with-a-decade-of-legal-experience)
+ 
 
 
 

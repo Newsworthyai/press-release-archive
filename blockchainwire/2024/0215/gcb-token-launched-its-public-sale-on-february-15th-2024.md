@@ -23,7 +23,11 @@ Disclaimer:The information provided in this release is not investment advice, fi
 [Original/Source Press Release](https://blockchainwire.io/press-release/gcb-token-launched-its-public-sale-on-february-15th-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gcb-token-launches-after-project-completion-ensuring-unique-investment-opportunity/e6eac439ea5469e753cbb0a02d957df8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/15/gcb-token-launches-public-sale-after-completing-project)
+ 
 
 
 

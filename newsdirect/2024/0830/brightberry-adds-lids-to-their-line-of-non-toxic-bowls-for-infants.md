@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/brightberry-a
 [Original/Source Press Release](https://newsdirect.com/news/brightberry-adds-lids-to-their-line-of-non-toxic-bowls-for-infants-360754380)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brightberry-introduces-spill-prevention-lids-for-non-toxic-infant-bowls/c51cf4e467985bd3e7d7ce69f2db3075) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/30/brightberry-launches-spill-prevention-lids-for-non-toxic-infant-bowls)
+
+Pickup - [fishervista.com](https://fishervista.com/en/brightberry-introduces-spill-prevention-lids-for-non-toxic-infant-bowls/20246401)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/brightberry-introduces-spill-prevention-lids-for-non-toxic-infant-bowls/20246401)
+
+Pickup - [advos.io](https://advos.io/en/brightberry-introduces-spill-prevention-lids-for-non-toxic-infant-bowls/20246401)
+ 
 
 
 

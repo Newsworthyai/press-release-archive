@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/sierra-metals
 [Original/Source Press Release](https://newsdirect.com/news/sierra-metals-looking-to-build-on-success-in-2023-for-a-very-productive-2024-846622463)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sierra-metals-reports-strong-financial-performance-and-strategic-initiatives-for-continued-growth/4f344eca622688e8a7442fac9cf67859) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/sierra-metals-poised-for-continued-growth-and-expansion-in-2024)
+ 
 
 
 

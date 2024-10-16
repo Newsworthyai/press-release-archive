@@ -7,7 +7,15 @@ WASHINGTON, DC, July 02, 2024 /24-7PressRelease/ -- The Corporate Whistleblower 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512216/corporate-whistleblower-center-urges-a-nursing-home-healthcare-manager-to-call-about-big-whistleblower-rewards-if-their-employer-received-a-covid-ppp-loan-no-money-went-to-payroll-staff)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/corporate-whistleblower-center-launches-initiative-to-expose-healthcare-companies-misusing-ppp-loans/aff0d054be6bca308619daac0a5602a1) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/corporate-whistleblower-center-targets-misuse-of-covid-ppp-loans-in-healthcare-sector/20244643)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/corporate-whistleblower-center-targets-healthcare-ppp-loan-fraud)
+
+Pickup - [advos.io](https://advos.io/en/corporate-whistleblower-center-seeks-tips-on-misuse-of-covid-ppp-loans-by-healthcare-companies/20244643)
+ 
 
 
 

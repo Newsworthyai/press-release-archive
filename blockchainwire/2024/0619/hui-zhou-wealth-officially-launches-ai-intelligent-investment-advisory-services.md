@@ -35,7 +35,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/hui-zhou-wealth-officially-launches-ai-intelligent-investment-advisory-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hui-zhou-wealth-launches-revolutionary-ai-intelligent-investment-advisory-service/7f95e8960ff14fea8d48a922b84834b1) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/hui-zhou-wealth-unveils-ai-intelligent-investment-advisory-service/20244285)
+
+Pickup - [advos.io](https://advos.io/en/hui-zhou-wealth-unveils-ai-intelligent-investment-advisory-services/20244285)
+ 
 
 
 

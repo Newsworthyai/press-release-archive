@@ -52,7 +52,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-cvipcvip-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-cvip-token-for-trading-on-its-platform/5b1b45a861909097a941e6a2e337310f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/05/cvip-token-lists-on-xt-com-bringing-diverse-crypto-applications)
+ 
 
 
 

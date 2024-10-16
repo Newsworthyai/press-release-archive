@@ -63,7 +63,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/teads-global-
 [Original/Source Press Release](https://newsdirect.com/news/teads-global-report-reveals-new-auto-buying-landscape-459510117)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teads-global-report-unveils-new-auto-buying-landscape/a5e7d51cc117c022e490fef17ce41989) 
+
+ 
 
 
 

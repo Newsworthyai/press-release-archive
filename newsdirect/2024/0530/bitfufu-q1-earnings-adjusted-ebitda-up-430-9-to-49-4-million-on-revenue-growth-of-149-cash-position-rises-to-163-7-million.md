@@ -49,7 +49,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitfufu-q1-ea
 [Original/Source Press Release](https://newsdirect.com/news/bitfufu-q1-earnings-adjusted-ebitda-up-430-9-to-49-4-million-on-revenue-growth-of-149-cash-position-rises-to-163-7-million-862656802)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitfufu-inc-reports-149-revenue-growth-in-q1-expands-market-presence/30cd18ee88a8fe56450f79211c80afea) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitfufu-inc-reports-149-revenue-growth-in-q1-expands-market-presence)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitfufu-inc-reports-149-revenue-growth-in-q1-expands-market-presence)
+ 
 
 
 

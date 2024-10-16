@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/justifi-raise
 [Original/Source Press Release](https://newsdirect.com/news/justifi-raises-new-capital-to-help-platforms-reach-their-fintech-potential-123105998)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/justifi-raises-10-million-to-enhance-fintech-capabilities-for-platform-customers/bc3b636b3f534e6630684bcdc30e70c0) 
+
+ 
 
 
 

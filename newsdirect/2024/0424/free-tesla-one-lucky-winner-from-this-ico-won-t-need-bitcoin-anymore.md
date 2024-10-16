@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/free-tesla-on
 [Original/Source Press Release](https://newsdirect.com/news/free-tesla-one-lucky-winner-from-this-ico-wont-need-bitcoin-anymore-892751451)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exciting-ico-offers-chance-to-win-a-tesla-model-3-and-50000-in-usdt/8428cabf24eaad8bf58e5623304d0f65) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/free-tesla-one-lucky-winner-from-this-ico-won-t-need-bitcoin-anymore)
+ 
 
 
 

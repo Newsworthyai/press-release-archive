@@ -75,7 +75,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/cosmos-hub-ap
 [Original/Source Press Release](https://newsdirect.com/news/cosmos-hub-approves-1-million-grant-to-dora-factory-for-quadratic-funding-initiative-570783498)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cosmos-hub-approves-1-million-grant-to-dora-factory-for-quadratic-funding-initiative/3d2fd8e33bc31f1a803a27ac4f28d8ee) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cosmos-hub-approves-1-million-grant-to-dora-factory-for-quadratic-funding-initiative)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cosmos-hub-approves-1-million-grant-to-dora-factory-for-quadratic-funding-initiative)
+ 
 
 
 

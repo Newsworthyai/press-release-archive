@@ -7,7 +7,9 @@ KIOWA, CO, April 27, 2024 /24-7PressRelease/ -- J. J. Robbins' latest literary m
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510446/new-anthology-of-short-stories-unveils-the-mystique-of-the-human-condition-the-wish-and-other-short-stories)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/j-j-robbins-releases-the-wish-and-other-short-stories-with-amazon-publishing/0de771056d381d1d7d1491ffd86fb0c3) 
+
+ 
 
 
 

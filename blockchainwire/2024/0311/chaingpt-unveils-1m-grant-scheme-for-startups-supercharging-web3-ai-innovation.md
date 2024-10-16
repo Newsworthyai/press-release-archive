@@ -35,7 +35,11 @@ For more information, visit: [https://www.chaingpt.org/](https://www.chaingpt.or
 [Original/Source Press Release](https://blockchainwire.io/press-release/chaingpt-unveils-1m-grant-scheme-for-startups-supercharging-web3-ai-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chaingpt-launches-1m-grant-program-for-ai-blockchain-startups/ef49d35b727fc511f4980d4fea5532a7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/chaingpt-launches-1m-grant-program-to-fuel-web3-ai-innovation)
+ 
 
 
 

@@ -67,7 +67,11 @@ johnv@otcmarkets.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/neptune-digital-assets-to-present-at-the-blockchain--digital-asset-virtual-investor-conference-april-25th-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/neptune-digital-assets-corp-to-present-at-blockchain-digital-asset-virtual-investor-conference/46e91f8bfa61a34a36ccc02690a0234d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/neptune-digital-assets-to-present-at-the-blockchain-digital-asset-virtual-investor-conference-april-25th)
+ 
 
 
 

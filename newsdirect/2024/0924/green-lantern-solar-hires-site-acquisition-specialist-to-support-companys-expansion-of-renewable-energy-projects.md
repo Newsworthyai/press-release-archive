@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/green-lantern
 [Original/Source Press Release](https://newsdirect.com/news/green-lantern-solar-hires-site-acquisition-specialist-to-support-companys-expansion-of-renewable-energy-projects-736021945)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/green-lantern-solar-adds-brian-pugmire-as-site-acquisition-specialist/c3f9c02e937052f2ad02d3bebf6a4f51) 
+
+ 
 
 
 

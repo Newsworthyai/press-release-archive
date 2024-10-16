@@ -51,7 +51,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/spatial-techn
 [Original/Source Press Release](https://newsdirect.com/news/spatial-technology-solutions-announces-upgraded-gps-tracking-services-for-enhanced-vehicle-security-in-bahrain-900204943)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sts-announces-upgraded-gps-tracking-services-in-bahrain/f838c6bede5d392b1f6911f57a628d4e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/spatial-technology-solutions-elevates-vehicle-security-with-upgraded-gps-tracking-services)
+ 
 
 
 

@@ -7,7 +7,11 @@ VANCOUVER, BC, June 13, 2024 /24-7PressRelease/ -- What type of original records
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511677/microfilm-scanning-how-much-microfilm-is-still-out-there)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/preserving-history-micro-com-systems-offers-microfilm-scanning-services-in-vancouver/f52dd1c8e123d268db5604dfecf7eb0e) 
+
+
+Pickup - [advos.io](https://advos.io/en/microfilm-scanning-the-ongoing-journey-of-preserving-historical-records/20244103)
+ 
 
 
 

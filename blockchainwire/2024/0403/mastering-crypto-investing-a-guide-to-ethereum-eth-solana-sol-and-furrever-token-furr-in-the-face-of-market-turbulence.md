@@ -45,7 +45,11 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/mastering-crypto-investing-a-guide-to-ethereum-eth-solana-sol-and-furrever-token-furrin-the-face-of-market-turbulence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-solana-and-furrever-token-a-tale-of-market-trends-challenges-and-novelty/501020396be736502548192fcbbeab6c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/navigating-crypto-s-turbulent-tides-eth-sol-and-furr-carve-distinct-paths)
+ 
 
 
 

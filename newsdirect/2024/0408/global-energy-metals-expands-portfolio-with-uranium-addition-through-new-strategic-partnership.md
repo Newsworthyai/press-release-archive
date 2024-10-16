@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/global-energy
 [Original/Source Press Release](https://newsdirect.com/news/global-energy-metals-expands-portfolio-with-uranium-addition-through-new-strategic-partnership-250809654)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-energy-metals-expands-portfolio-with-uranium-addition-through-new-strategic-partnership/5dfd55cddb86b9e01955a09ecdd6f75f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/global-energy-metals-enters-new-strategic-partnership-expanding-into-uranium)
+ 
 
 
 

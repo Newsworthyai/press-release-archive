@@ -23,7 +23,17 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/metacene-launches-mak-token-following-17m-total-funding)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metacene-launches-mak-token-on-major-cryptocurrency-exchanges/2999e10ed24b05366ee0b2afe740e427) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/metacene-launches-mak-token-signaling-new-era-in-web3-gaming)
+
+Pickup - [advos.io](https://advos.io/en/metacene-launches-mak-token-following-17m-funding-signaling-growth-in-web3-gaming/20246703)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/metacene-launches-mak-token-marking-new-era-in-web3-gaming/20246703)
+
+Pickup - [fishervista.com](https://fishervista.com/en/metacene-launches-mak-token-signaling-major-advancement-in-web3-gaming/20246703)
+ 
 
 
 

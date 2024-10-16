@@ -13,7 +13,9 @@ Brandon TMS and Psychiatry has garnered positive testimonials from numerous pati
 [Original/Source Press Release](https://newsworthy.ai/news/20231228948/brandon-tms-and-psychiatry-offers-innovative-tms-treatments-for-depression-and-other-mental-health-conditions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brandon-tms-and-psychiatry-provides-innovative-mental-health-treatments-and-comprehensive-care/5df99f4ae11d1fedc0c481c404bdfe9d) 
+
+ 
 
 
 

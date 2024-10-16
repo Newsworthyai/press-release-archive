@@ -57,7 +57,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/lnc-partners-with-cortez-exchange-to-launch-a-new-chapter-in-decentralized-ai)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lightning-network-coin-lnc-launches-on-cortez-exchange-a-major-milestone-for-decentralized-ai-technology/49b4a6c4d2c988db8368cea45b2031e6) 
+
+ 
 
 
 

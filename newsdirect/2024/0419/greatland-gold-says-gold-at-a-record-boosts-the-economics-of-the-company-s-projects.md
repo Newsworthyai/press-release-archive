@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/greatland-gol
 [Original/Source Press Release](https://newsdirect.com/news/greatland-gold-says-gold-at-a-record-boosts-the-economics-of-the-companys-projects-616286080)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greatland-gold-director-discusses-impact-of-high-gold-prices-on-company-projects/fdf51495a4df7c8ec4889273276a1417) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/greatland-gold-says-gold-at-a-record-boosts-the-economics-of-the-company-s-projects)
+ 
 
 
 

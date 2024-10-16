@@ -7,7 +7,17 @@ SAN ANTONIO, TX, August 01, 2024 /24-7PressRelease/ -- Military Spouse Advocacy 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512978/military-spouse-advocacy-network-and-the-usaa-educational-foundation-team-up-to-offer-financial-education-to-military-families)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-virtual-financial-education-program-launched-for-military-spouses/41410f5f36120bd86a8ca2df232262ed) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/military-spouses-gain-access-to-new-financial-education-program)
+
+Pickup - [fishervista.com](https://fishervista.com/en/msan-and-usaa-educational-foundation-launch-financial-education-program-for-military-families/20245409)
+
+Pickup - [advos.io](https://advos.io/en/military-spouse-advocacy-network-and-usaa-educational-foundation-launch-financial-education-program/20245409)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/military-spouse-advocacy-network-and-usaa-educational-foundation-launch-virtual-financial-education-program)
+ 
 
 
 

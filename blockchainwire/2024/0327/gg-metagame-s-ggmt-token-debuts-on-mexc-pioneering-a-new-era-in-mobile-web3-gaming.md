@@ -23,7 +23,11 @@ Website
 [Original/Source Press Release](https://blockchainwire.io/press-release/gg-metagames-ggmt-token-debuts-on-mexc-pioneering-a-new-era-in-mobile-web3-gaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gg-metagame-lists-ggmt-token-on-mexc-exchange-ushers-in-new-era-for-decentralized-gaming/242719c92cc3be97be1ef8ad941e5be7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/gg-metagame-s-ggmt-token-debuts-on-mexc-exchange-ushering-in-a-new-era-of-mobile-web3-gaming)
+ 
 
 
 

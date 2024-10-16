@@ -50,7 +50,9 @@
 [Original/Source Press Release](https://www.newmediawire.com/news/former-georgia-miami-coach-mark-richt-named-2025-paul-bear-bryant-heart-of-a-champion-7076188)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mark-richt-receives-2025-paul-bear-bryant-heart-of-a-champion-award/072f9e4ef1e61b44a616f46a466c2268) 
+
+ 
 
 
 

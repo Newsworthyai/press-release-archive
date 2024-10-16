@@ -61,7 +61,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/from-inking-n
 [Original/Source Press Release](https://newsdirect.com/news/from-inking-new-partnerships-to-hosting-federal-leaders-dragonfly-energy-is-busy-growing-the-lithium-battery-market-210132171)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dragonfly-energy-s-recent-wins-and-commitment-to-sustainability/89bce7ac9298515529a8be7a5350ffda) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dragonfly-energy-expands-lithium-battery-market-with-strategic-partnerships-and-federal-support/20244753)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/dragonfly-energy-expands-lithium-battery-market-with-new-partnerships-and-government-engagement)
+
+Pickup - [advos.io](https://advos.io/en/dragonfly-energy-expands-lithium-battery-market-with-key-partnerships-and-government-support/20244753)
+ 
 
 
 

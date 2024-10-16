@@ -49,7 +49,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/asia-broadban
 [Original/Source Press Release](https://newsdirect.com/news/asia-broadband-inc-otc-aabb-a-gold-and-digial-asset-duel-threat-447714804)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-prices-surge-asia-broadband-inc-makes-strides-in-traditional-mining-and-digital-assets/5a3c0f5d4100884bdc93932465e63513) 
+
+
+Pickup - [advos.io](https://advos.io/en/asia-broadband-inc-sees-record-growth-in-gold-production-and-digital-asset-ventures/20244869)
+
+Pickup - [fishervista.com](https://fishervista.com/en/asia-broadband-inc-expands-gold-production-and-digital-asset-ventures/20244869)
+
+Pickup - [citybuzz.co](https://citybuzz.co/asia-broadband-inc-emerges-as-a-dual-threat-in-gold-mining-and-digital-assets)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gold-prices-surge-asia-broadband-inc-makes-strides-in-traditional-mining-and-digital-assets)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gold-prices-surge-asia-broadband-inc-makes-strides-in-traditional-mining-and-digital-assets)
+ 
 
 
 

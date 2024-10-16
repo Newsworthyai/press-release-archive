@@ -7,7 +7,9 @@ ALLENTOWN, PA, April 18, 2024 /24-7PressRelease/ -- Global MX, a leading Part 14
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510145/global-mx-welcomes-shellie-lewis-as-director-mx-sales)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/industry-veteran-shellie-lewis-joins-global-mx-as-director-mx-sales/009d8311bd746868b2349c3dbcc54989) 
+
+ 
 
 
 

@@ -8,7 +8,9 @@ PETALUMA, CA, September 23, 2024 /24-7PressRelease/ -- Labcon North America (www
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514493/labcon-and-polycarbin-partnerto-advance-a-circular-supply-chain-for-laboratory-plastics)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/labcon-north-america-announces-strategic-partnership-with-polycarbin-to-advance-circular-economy-for-lab-research/d9e61f51570a8a4d42d82f2abc15af6a) 
+
+ 
 
 
 

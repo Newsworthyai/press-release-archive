@@ -46,7 +46,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/panasonic-gea
 [Original/Source Press Release](https://newsdirect.com/news/panasonic-gears-up-to-play-a-pivotal-role-supporting-the-olympic-and-paralympic-games-paris-2024-520882131)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/panasonic-to-supply-av-solutions-for-olympic-games-paris-2024/839d7040b0e6e3675d782b1d8661051d) 
+
+ 
 
 
 

@@ -7,7 +7,17 @@ AUSTIN, TX, August 07, 2024 /24-7PressRelease/ -- At Consensus 2024, a gathering
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513160/fftv-explores-advanced-ai-director-studio-applications-in-short-series-at-consensus-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fttv-unveils-ai-director-studio-at-consensus-2024/66a6f0858abb2140fb612fed2ec6a95f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/fftv-showcases-ai-director-studio-for-short-series-production-at-consensus-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/fftv-showcases-ai-driven-innovations-in-short-series-production-at-consensus-2024/20245547)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/fftv-showcases-ai-powered-short-series-production-at-consensus-2024)
+
+Pickup - [advos.io](https://advos.io/en/fftv-unveils-ai-director-studio-at-consensus-2024-revolutionizing-short-series-production/20245547)
+ 
 
 
 

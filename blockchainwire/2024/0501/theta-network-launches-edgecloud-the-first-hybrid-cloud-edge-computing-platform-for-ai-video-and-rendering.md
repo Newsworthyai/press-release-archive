@@ -43,7 +43,9 @@ For all information about this release, please contact marco.lucchesini@eakdigit
 [Original/Source Press Release](https://blockchainwire.io/press-release/theta-network-launches-edgecloud-the-first-hybrid-cloud-edge-computing-platform-for-ai-video-and-rendering)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/theta-network-launches-theta-edgecloud-the-first-hybrid-computing-platform-for-ai-and-video/187381aa05a743e280ee7f75c01020cb) 
+
+ 
 
 
 

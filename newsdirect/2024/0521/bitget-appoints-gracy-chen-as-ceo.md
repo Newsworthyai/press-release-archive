@@ -31,7 +31,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-appoin
 [Original/Source Press Release](https://newsdirect.com/news/bitget-appoints-gracy-chen-as-ceo-904684111)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-appoints-gracy-chen-as-ceo-leading-the-crypto-revolution/88d6dfb3b5af116f23c69af50d6f874c) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitget-appoints-gracy-chen-as-ceo-leading-the-crypto-revolution)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitget-appoints-gracy-chen-as-ceo-leading-the-crypto-revolution)
+ 
 
 
 

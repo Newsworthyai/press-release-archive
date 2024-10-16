@@ -41,7 +41,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/investgpt-your-free-ai-powered-chatbot-for-amazing-investment-opportunities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-ai-chatbot-investgpt-now-available-to-canadian-investors/3afb060077e2244ad85fde2ed4e7bca2) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/investgpt-launches-ai-powered-chatbot-to-democratize-investment-advice-for-canadians/20244774)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/investgpt-launches-free-ai-powered-investment-chatbot-for-canadian-investors)
+
+Pickup - [advos.io](https://advos.io/en/investgpt-ai-powered-chatbot-revolutionizes-investment-for-canadians/20244774)
+ 
 
 
 

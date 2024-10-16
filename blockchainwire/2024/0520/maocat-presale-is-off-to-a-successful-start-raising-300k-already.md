@@ -33,7 +33,13 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/maocat-presale-is-off-to-a-successful-start-raising-300k-already)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/maocat-launches-presale-raises-over-300k-for-first-cat-themed-memecoin-on-ethereum/2b47a26adb5c06aa7a725385c1475ca1) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/maocat-launches-presale-raises-over-300k-for-first-cat-themed-memecoin-on-ethereum)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/maocat-launches-presale-raises-over-300k-for-first-cat-themed-memecoin-on-ethereum)
+ 
 
 
 

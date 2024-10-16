@@ -23,7 +23,21 @@ Founded in 2017, CoinW is a globally recognized [cryptocurrency exchange](https
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-joins-token2049-singapore-as-platinum-sponsor)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-make-bold-debut-at-token2049-in-singapore-showcasing-influence-in-the-middle-east-and-hosting-exclusive-after-party/5156843d7a1abf86ddcc0283bb6407d7) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-to-make-bold-debut-at-token2049-in-singapore-showcasing-influence-in-the-middle-east-and-hosting-exclusive-after-party)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-to-make-bold-debut-at-token2049-in-singapore-showcasing-influence-in-the-middle-east-and-hosting-exclusive-after-party)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/coinw-set-to-make-significant-impact-at-token2049-singapore-as-platinum-sponsor)
+
+Pickup - [fishervista.com](https://fishervista.com/en/coinw-to-showcase-innovations-at-token2049-singapore-as-platinum-sponsor/20246733)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/coinw-set-to-make-significant-impact-at-token2049-singapore-as-platinum-sponsor/20246733)
+
+Pickup - [advos.io](https://advos.io/en/coinw-joins-token2049-singapore-as-platinum-sponsor-expands-influence-in-middle-east/20246733)
+ 
 
 
 

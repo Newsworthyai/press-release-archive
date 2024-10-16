@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/annette-clayt
 [Original/Source Press Release](https://newsdirect.com/news/annette-clayton-joins-flash-board-of-directors-900510218)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annette-clayton-joins-flash-board-of-directors/fce94992ade0e28c276cd6a0f06e1927) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/automotive-and-tech-veteran-annette-clayton-joins-flash-board)
+ 
 
 
 

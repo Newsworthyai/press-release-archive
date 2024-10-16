@@ -23,7 +23,11 @@ McEwen Mining (NYSE: MUX) (TSX: MUX) is an asset-rich diversified gold and silve
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-ceo-showcases-strategic-approach-to-industry/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-mining-ceo-urges-transformation-of-mining-industry-s-public-perception/a86ac0d5fc601507a7c67d38605dd323) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mcewen-mining-ceo-advocates-for-transforming-public-perception-of-mining-industry/20246214)
+ 
 
 
 

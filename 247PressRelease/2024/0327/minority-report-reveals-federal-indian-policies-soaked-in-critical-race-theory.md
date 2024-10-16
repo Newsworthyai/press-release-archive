@@ -7,7 +7,11 @@ WASHINGTON, DC, March 27, 2024 /24-7PressRelease/ -- A minority report to the co
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509532/minority-report-reveals-federal-indian-policies-soaked-in-critical-race-theory)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-minority-report-reveals-detrimental-effects-of-federal-indian-policies-on-native-children/dc9b33302e92a40209f064a29a49b040) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/minority-report-exposes-flaws-in-federal-indian-policies)
+ 
 
 
 

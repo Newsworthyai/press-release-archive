@@ -7,7 +7,11 @@ BERLIN, GERMANY, March 25, 2024 /24-7PressRelease/ -- SuperReturn, the world's l
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509488/private-capitals-most-senior-gathering-returns-to-berlin-for-superreturn-international-june-4-7)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/superreturn-international-2024-world-s-premier-private-equity-conference-in-berlin/cdb7469c3d624914d9ca763a670a0859) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/superreturn-international-returns-to-berlin-for-premier-private-capital-gathering)
+ 
 
 
 

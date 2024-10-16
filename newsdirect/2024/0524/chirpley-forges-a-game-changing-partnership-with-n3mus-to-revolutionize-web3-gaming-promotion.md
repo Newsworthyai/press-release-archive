@@ -43,7 +43,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/chirpley-forg
 [Original/Source Press Release](https://newsdirect.com/news/chirpley-forges-a-game-changing-partnership-with-n3mus-to-revolutionize-web3-gaming-promotion-914112779)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chirpley-and-n3mus-forge-game-changing-partnership-to-revolutionize-web3-gaming-promotion/291584567137a62a92ee5e4ad0a2dfad) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/chirpley-and-n3mus-forge-game-changing-partnership-to-revolutionize-web3-gaming-promotion)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/chirpley-and-n3mus-forge-game-changing-partnership-to-revolutionize-web3-gaming-promotion)
+ 
 
 
 

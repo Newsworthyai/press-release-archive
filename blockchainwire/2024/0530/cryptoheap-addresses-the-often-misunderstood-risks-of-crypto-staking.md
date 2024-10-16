@@ -35,7 +35,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptoheap-addresses-the-often-misunderstood-risks-of-crypto-staking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptoheap-sheds-light-on-cryptocurrency-staking-risks/b34e4942c19e2e0f833722e6da363d59) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cryptoheap-sheds-light-on-cryptocurrency-staking-risks)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cryptoheap-sheds-light-on-cryptocurrency-staking-risks)
+ 
 
 
 

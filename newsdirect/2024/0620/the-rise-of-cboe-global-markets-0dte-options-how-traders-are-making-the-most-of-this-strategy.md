@@ -44,7 +44,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-rise-of-c
 [Original/Source Press Release](https://newsdirect.com/news/the-rise-of-cboe-global-markets-0dte-options-how-traders-are-making-the-most-of-this-strategy-765058500)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-rise-of-cboe-global-markets-0dte-options-how-traders-are-making-the-most-of-this-strategy/41a7b06798ac6b86b16afdb72cd59fa8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cboe-global-markets-0dte-options-a-new-frontier-for-sophisticated-trading-strategies/20244319)
+
+Pickup - [advos.io](https://advos.io/en/cboe-global-markets-elevates-0dte-options-trading-what-traders-need-to-know/20244319)
+ 
 
 
 

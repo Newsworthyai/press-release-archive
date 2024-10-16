@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-sync-syncus-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-announces-listing-of-sync-token-on-its-platform-in-the-innovation-zone-defi/d2f0287293b6feee1cf9018de9ef9ac5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/xt-com-lists-sync-token-embracing-sustainable-defi-growth)
+ 
 
 
 

@@ -7,7 +7,15 @@ ATLANTA, GA, July 23, 2024 /24-7PressRelease/ -- Punyam Academy is happy to laun
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512736/punyam-academy-is-excited-to-introduce-its-new-e-learning-course-on-carbon-footprint-professional-training)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/punyam-academy-launches-certified-carbon-footprint-professional-training/953788c805119190d398d0a51bdb6c26) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/punyam-academy-launches-comprehensive-carbon-footprint-professional-training-course)
+
+Pickup - [fishervista.com](https://fishervista.com/en/punyam-academy-launches-comprehensive-carbon-footprint-professional-training-online-course/20245168)
+
+Pickup - [advos.io](https://advos.io/en/punyam-academy-launches-comprehensive-online-carbon-footprint-professional-training/20245168)
+ 
 
 
 

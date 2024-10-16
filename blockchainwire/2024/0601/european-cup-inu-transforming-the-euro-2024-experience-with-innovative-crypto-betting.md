@@ -39,7 +39,13 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/european-cup-inu-transforming-the-euro-2024-experience-with-innovative-crypto-betting)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/european-cup-inu-eci-the-future-of-football-fandom/b34e70e64d938d7cbca1fc8325efd5ed) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/european-cup-inu-eci-the-future-of-football-fandom)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/european-cup-inu-eci-the-future-of-football-fandom)
+ 
 
 
 

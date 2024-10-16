@@ -7,7 +7,15 @@ PHOENIX, AZ, July 03, 2024 /24-7PressRelease/ -- In a world where the clash betw
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512185/new-book-alert-drake-reeds-blueprint-for-christian-athletes-to-overcome-modern-challenges)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-basketball-player-drake-reed-releases-transformative-book-for-christian-athletes/4b50a3b227bc464e8d1b4cc5ead4c570) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/drake-reed-s-new-book-offers-faith-based-guidance-for-christian-athletes/20244685)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/former-pro-basketball-player-drake-reed-s-new-book-becomes-international-bestseller)
+
+Pickup - [advos.io](https://advos.io/en/drake-reed-s-new-book-offers-christian-athletes-a-guide-to-overcoming-modern-challenges/20244685)
+ 
 
 
 

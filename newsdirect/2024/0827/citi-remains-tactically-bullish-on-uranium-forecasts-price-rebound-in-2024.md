@@ -77,7 +77,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/citi-remains-
 [Original/Source Press Release](https://newsdirect.com/news/citi-remains-tactically-bullish-on-uranium-forecasts-price-rebound-in-2024-197424439)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/citi-remains-tactically-bullish-on-uranium-forecasts-price-rebound-in-2024/66b0a3ab90ca4b86c88b3b223bcc7314) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/citi-predicts-uranium-price-rebound-in-2024-amid-market-fluctuations)
+
+Pickup - [fishervista.com](https://fishervista.com/en/citi-predicts-uranium-market-rebound-generation-uranium-positioned-for-growth/20246196)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/citi-forecasts-uranium-price-rebound-in-2024-generation-uranium-advances-yath-project/20246196)
+
+Pickup - [advos.io](https://advos.io/en/citi-predicts-uranium-price-rebound-in-2024-highlights-strategic-moves-by-generation-uranium/20246196)
+ 
 
 
 

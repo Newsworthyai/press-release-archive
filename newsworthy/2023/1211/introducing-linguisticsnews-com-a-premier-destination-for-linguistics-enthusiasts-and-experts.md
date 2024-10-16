@@ -23,7 +23,11 @@ Stay updated with the latest in linguistics and language studies at www.Linguist
 [Original/Source Press Release](https://newsworthy.ai/news/20231211838/introducing-linguisticsnews-com-a-premier-destination-for-linguistics-enthusiasts-and-experts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-platform-linguisticsnews-com-unveiled-for-language-enthusiasts/0f1a764e34c347b5c7828c8fa713112d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/11/linguisticsnews-com-a-comprehensive-hub-for-language-enthusiasts-and-experts)
+ 
 
 
 

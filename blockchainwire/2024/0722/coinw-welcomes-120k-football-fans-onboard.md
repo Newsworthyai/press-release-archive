@@ -19,7 +19,19 @@ About CoinW
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-welcomes-120k-football-fans-onboard)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-s-goal-rush-challenge-concludes-with-35000-entrants-sharing-1-million-prize-pool/016b08eb29e64f45f7252fb802b93043) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/coinw-s-euro-2024-themed-trading-competition-attracts-120000-new-users)
+
+Pickup - [fishervista.com](https://fishervista.com/en/coinw-s-euro-2024-goal-rush-challenge-draws-120000-new-users-and-120-billion-in-trading-volume/20245157)
+
+Pickup - [advos.io](https://advos.io/en/coinw-s-goal-rush-challenge-attracts-120000-new-users-and-120-billion-trading-volume/20245157)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-s-goal-rush-challenge-concludes-with-35000-entrants-sharing-1-million-prize-pool)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-s-goal-rush-challenge-concludes-with-35000-entrants-sharing-1-million-prize-pool)
+ 
 
 
 

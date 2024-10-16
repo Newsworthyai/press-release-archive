@@ -25,7 +25,9 @@ In conclusion, Golden Block Services PTY LTD is poised to lead the way in the cr
 [Original/Source Press Release](https://blockchainwire.io/press-release/golden-block-services-pty-ltd-unveils-innovative-technology-for-enhanced-security-and-efficiency-in-cryptocurrency-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-block-services-pty-ltd-launches-advanced-security-technology-and-expands-cryptocurrency-offerings/f9f6f7f199aa16bda3b05669ec3561aa) 
+
+ 
 
 
 

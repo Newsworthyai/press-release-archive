@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptosafe-secures-20-million-in-updated-funding-round-valuation-hits-95-million)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptosafe-ltd-secures-20-million-in-latest-funding-round/21cc61610224bbb4eb8b70c171664563) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/24/cryptosafe-secures-20-million-valuation-soars-to-95-million)
+ 
 
 
 

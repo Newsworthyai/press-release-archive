@@ -7,7 +7,9 @@ DUBAI, UAE, May 23, 2024 /24-7PressRelease/ -- Etihad Credit Insurance (ECI), th
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511094/etihad-credit-insurance-records-21-fold-growth-in-gross-exposure-by-end-of-2023-to-reach-aed-96-billion-in-5-years)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/etihad-credit-insurance-reveals-21-fold-increase-in-gross-exposure-in-2023/e47ba132e2785903271517ebca38bda7) 
+
+ 
 
 
 

@@ -86,7 +86,9 @@ To learn more about SUP Miner, please visit their official website at https://w
 [Original/Source Press Release](https://blockchainwire.io/press-release/sup-miner-launches-innovative-cloud-mining-solutions-for-easy-passive-income)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sup-miner-revolutionizes-cryptocurrency-mining-with-user-friendly-cloud-platform/5bfd5db75555dde4e0fc88ecea59b871) 
+
+ 
 
 
 

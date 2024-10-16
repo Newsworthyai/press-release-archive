@@ -33,7 +33,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/ksl-capital-p
 [Original/Source Press Release](https://newsdirect.com/news/ksl-capital-partners-and-soneva-resorts-a-cautionary-tale-of-due-diligence-174457314)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ksl-capital-partners-and-soneva-resorts-a-cautionary-tale-of-due-diligence/8914b60fa563363c860f5d55a2014313) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/11/ksl-capital-partners-investment-in-soneva-resorts-raises-questions-about-due-diligence-practices)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ksl-capital-partners-faces-scrutiny-over-soneva-resorts-investment/20244894)
+
+Pickup - [advos.io](https://advos.io/en/ksl-capital-partners-investment-in-soneva-resorts-raises-questions-on-due-diligence/20244894)
+ 
 
 
 

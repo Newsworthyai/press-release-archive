@@ -7,7 +7,9 @@ NORTH VANCOUVER, BC, May 15, 2024 /24-7PressRelease/ -- The countdown has begun 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510892/direct-liquidation-brings-celebrity-flair-and-unbeatable-discounts-to-north-vancouvers-lynne-valley)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/direct-liquidation-announces-grand-opening-of-new-store-in-north-vancouver/b52fe1ff4bf6b159dd68ae59847987d4) 
+
+ 
 
 
 

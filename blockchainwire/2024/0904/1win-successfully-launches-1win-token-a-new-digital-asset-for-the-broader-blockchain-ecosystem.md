@@ -33,7 +33,11 @@ Media Contact - [partners@1wintoken.com]()
 [Original/Source Press Release](https://blockchainwire.io/press-release/1win-successfully-launches-1win-token-a-new-digital-asset-for-the-broader-blockchain-ecosystem-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/1win-launches-1win-token-enters-blockchain-and-crypto-markets/fc972470a60444595e51cd0b6ac2edfc) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/1win-expands-into-blockchain-with-launch-of-1win-token/20246722)
+ 
 
 
 

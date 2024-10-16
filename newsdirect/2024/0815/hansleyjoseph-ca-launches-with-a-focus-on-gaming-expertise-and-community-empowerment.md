@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/hansleyjoseph
 [Original/Source Press Release](https://newsdirect.com/news/hansleyjoseph-ca-launches-with-a-focus-on-gaming-expertise-and-community-empowerment-176869598)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hansleyjoseph-ca-launches-as-ultimate-resource-for-street-gang-and-mafia-game-enthusiasts/fe9ab6909ab8b581e5f85bac78516f74) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/new-gaming-platform-hansleyjoseph-ca-caters-to-street-gang-and-mafia-game-enthusiasts)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hansleyjoseph-ca-launches-as-a-premier-hub-for-street-gang-and-mafia-game-enthusiasts/20245767)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-gaming-platform-hansleyjoseph-ca-caters-to-street-gang-and-mafia-game-enthusiasts/20245767)
+
+Pickup - [advos.io](https://advos.io/en/hansleyjoseph-ca-launches-as-premier-platform-for-street-gang-and-mafia-style-game-enthusiasts/20245767)
+ 
 
 
 

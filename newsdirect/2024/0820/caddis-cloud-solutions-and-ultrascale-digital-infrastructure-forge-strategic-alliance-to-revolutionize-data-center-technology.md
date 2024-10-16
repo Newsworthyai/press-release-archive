@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/caddis-cloud-
 [Original/Source Press Release](https://newsdirect.com/news/caddis-cloud-solutions-and-ultrascale-digital-infrastructure-forge-strategic-alliance-to-revolutionize-data-center-technology-143237801)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/caddis-cloud-solutions-and-ultrascale-digital-infrastructure-forge-strategic-alliance-to-revolutionize-data-center-technology/3e0153ee658eaec55b02412b01028cfb) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/caddis-cloud-solutions-and-ultrascale-digital-infrastructure-partner-to-transform-data-center-industry/20245834)
+
+Pickup - [advos.io](https://advos.io/en/caddis-cloud-solutions-and-ultrascale-digital-infrastructure-unite-to-innovate-data-center-technology/20245834)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/caddis-cloud-solutions-and-ultrascale-digital-infrastructure-partner-to-transform-data-center-industry)
+
+Pickup - [fishervista.com](https://fishervista.com/en/caddis-cloud-solutions-and-ultrascale-digital-infrastructure-form-strategic-partnership-to-transform-data-center-technology/20245834)
+ 
 
 
 

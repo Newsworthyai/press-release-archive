@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/elixir-energy
 [Original/Source Press Release](https://newsdirect.com/news/elixir-energy-could-have-deepest-unstimulated-gas-flow-in-onshore-australia-east-of-perth-basin-390551409)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elixir-energy-makes-groundbreaking-gas-discovery-in-queensland/9a0de7406f20ef28e372d7a2bebdcc06) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/elixir-energy-s-grandis-project-uncovers-potential-game-changer-for-australian-gas-industry)
+ 
 
 
 

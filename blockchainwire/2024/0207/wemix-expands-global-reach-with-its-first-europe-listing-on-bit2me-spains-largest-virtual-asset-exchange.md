@@ -24,7 +24,11 @@ WEMADE aims to accelerate the mass adoption of blockchain technology, and is bui
 [Original/Source Press Release](https://blockchainwire.io/press-release/wemix-expands-global-reach-with-its-first-europe-listing-on-bit2me-spains-largest-virtual-asset-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemix-foundation-listed-on-bit2me-expanding-access-to-spanish-speakers/f2ddff88bb59d38fdfeee7d1b3a1d80e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/07/wemix-expands-global-reach-with-first-european-listing-on-spain-s-bit2me-exchange)
+ 
 
 
 

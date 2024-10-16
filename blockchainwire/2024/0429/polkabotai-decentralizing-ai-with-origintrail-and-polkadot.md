@@ -13,7 +13,9 @@ Stay updated with the latest developments by following PolkaBotAI on X.
 [Original/Source Press Release](https://blockchainwire.io/press-release/polkabotai---decentralizing-ai-with-origintrail-and-polkadot)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/origintrail-s-verifiable-internet-for-ai-revolutionizes-polkabot-ai-on-polkadot/addbb4d4a38ab9287878f3b7f1b689c8) 
+
+ 
 
 
 

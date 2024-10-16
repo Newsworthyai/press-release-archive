@@ -51,7 +51,17 @@ Charles Song, the founder, chairman and CEO of Linklogis, said, “Looking ahead
 [Original/Source Press Release](https://blockchainwire.io/press-release/linklogis-releases-2024-interim-results-with-a-revenue-of-rmb410-million-and-cash-reserves-of-rmb51-billion)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/linklogis-inc-achieves-strong-interim-results-and-signs-acquisition-agreement/620134b4654e7c18492d7b950917b995) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/linklogis-reports-strong-growth-in-first-half-of-2024-plans-strategic-acquisition)
+
+Pickup - [fishervista.com](https://fishervista.com/en/linklogis-reports-growth-in-2024-interim-results-announces-strategic-acquisition-and-technological-innovations/20246381)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/linklogis-reports-strong-growth-in-first-half-of-2024-plans-strategic-acquisition/20246381)
+
+Pickup - [advos.io](https://advos.io/en/linklogis-reports-strong-interim-results-and-strategic-acquisition-plans/20246381)
+ 
 
 
 

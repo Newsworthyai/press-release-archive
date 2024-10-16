@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/neurooness-in
 [Original/Source Press Release](https://newsdirect.com/news/neurooness-innovative-electrode-brain-monitoring-seeks-to-provide-insights-into-neurological-disorders-938157066)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/neuroone-s-innovative-electrode-brain-monitoring-revolutionizes-neurological-disorders/91bd84cfcceda69827df4af49b9eabe9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/neuroone-s-brain-monitoring-tech-aims-to-improve-epilepsy-diagnosis-and-treatment)
+ 
 
 
 

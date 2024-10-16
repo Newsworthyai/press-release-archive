@@ -47,7 +47,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-btc-vs-ethereum-eth-vs-o2t---who-will-control-majority-market-cap-after-btc-halving)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-btc-halving-battle-for-market-dominance-with-ethereum-eth-and-option2trade-o2t/1a3ca2a362fb734a48ec36e6ee2a1c4d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/the-crypto-triforce-bitcoin-ethereum-and-option2trade-vie-for-market-dominance)
+ 
 
 
 

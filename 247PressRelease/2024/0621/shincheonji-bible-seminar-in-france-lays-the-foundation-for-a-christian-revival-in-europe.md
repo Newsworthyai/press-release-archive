@@ -7,7 +7,13 @@ PARIS, FRANCE, June 21, 2024 /24-7PressRelease/ -- "The teachings that explain t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511909/shincheonji-bible-seminar-in-france-lays-the-foundation-for-a-christian-revival-in-europe)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/european-bible-seminar-sparks-interest-and-collaboration-among-pastors/2920110b9dd3c1e98d22d8f1f5a3dde7) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/shincheonji-bible-seminar-in-france-aims-to-revitalize-european-christianity/20244358)
+
+Pickup - [advos.io](https://advos.io/en/shincheonji-bible-seminar-in-france-sparks-potential-christian-revival-in-europe/20244358)
+ 
 
 
 

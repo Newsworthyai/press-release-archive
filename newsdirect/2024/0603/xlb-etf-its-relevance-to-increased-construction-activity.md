@@ -79,7 +79,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/xlb-etf-its-r
 [Original/Source Press Release](https://newsdirect.com/news/xlb-etf-its-relevance-to-increased-construction-activity-772310290)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/materials-select-sector-spdr-fund-xlb-and-its-relevance-to-increased-construction-activity/f01ba021915582f00af0d4f8fa380351) 
+
+
+Pickup - [advos.io](https://advos.io/en/xlb-etf-impact-on-construction-industry-growth/20243639)
+ 
 
 
 

@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/diamond-lake-
 [Original/Source Press Release](https://newsdirect.com/news/diamond-lake-minerals-otc-dlmi-and-boxabl-team-up-to-bring-affordable-housing-to-the-masses-and-digital-tokens-to-investors-394454132)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/diamond-lake-minerals-and-boxabl-team-up-to-bring-affordable-housing-to-the-masses-and-digital-tokens-to-investors/a1c1a277e46733da7ed0a194cde5a5fd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/diamond-lake-minerals-otc-dlmi-and-boxabl-team-up-to-bring-affordable-housing-to-the-masses-and-digital-tokens-to-investors)
+ 
 
 
 

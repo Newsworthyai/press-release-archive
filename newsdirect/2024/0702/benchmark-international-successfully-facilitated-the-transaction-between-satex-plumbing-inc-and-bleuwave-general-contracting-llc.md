@@ -37,7 +37,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-satex-plumbing-inc-and-bleuwave-general-contracting-llc-471726751)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-facilitates-transaction-between-satex-plumbing-inc-and-bleuwave-general-contracting-llc/43c8ea107005db3ea44d5dcc717f147c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-strategic-acquisition-of-satex-plumbing-by-bleuwave-general-contracting/20244674)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/satex-plumbing-acquired-by-bleuwave-general-contracting-in-strategic-texas-expansion)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-satex-plumbing-and-bleuwave-general-contracting-transaction/20244674)
+ 
 
 
 

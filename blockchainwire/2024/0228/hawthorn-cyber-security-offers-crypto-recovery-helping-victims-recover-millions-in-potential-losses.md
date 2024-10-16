@@ -21,7 +21,11 @@ Founded in 2016, Hawthorn Cyber Security Limited is a reputable business. Occasi
 [Original/Source Press Release](https://blockchainwire.io/press-release/hawthorn-cyber-security-offers-crypto-recovery-helping-victims-recover-millions-in-potential-losses)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hawthorn-cyber-security-recovering-cryptocurrency-and-preventing-cybercrime/a7a36c19009c2be1d318026a2e2ce3e8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/28/hawthorn-cyber-security-recovering-crypto-assets-and-preventing-cybercrime)
+ 
 
 
 

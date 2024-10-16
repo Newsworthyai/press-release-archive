@@ -29,7 +29,9 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-announces-hiring-of-new-chief-human-resources-officer/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-inc-appoints-sophie-ames-as-chief-human-resources-officer/bb94e76d65edca8b68bbd3ecba0a4cfc) 
+
+ 
 
 
 

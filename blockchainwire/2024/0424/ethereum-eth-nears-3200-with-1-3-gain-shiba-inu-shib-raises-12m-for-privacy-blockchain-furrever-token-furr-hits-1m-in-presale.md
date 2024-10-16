@@ -51,7 +51,11 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/ethereum-eth-nears-3200-with-13-gain-shiba-inu-shib-raises-12m-for-privacy-blockchain-furrever-token-furr-hits-1m-in-presale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-market-update-ethereum-recovery-shiba-inu-blockchain-fundraise-furrever-token-success/f7de56c846da0f619935101cf8d0782c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/ethereum-eth-nears-3200-with-1-3-gain-shiba-inu-shib-raises-12m-for-privacy-blockchain-furrever-token-furr-hits-1m-in-presale)
+ 
 
 
 

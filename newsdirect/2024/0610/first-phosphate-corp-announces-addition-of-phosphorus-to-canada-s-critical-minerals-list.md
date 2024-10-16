@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/first-phospha
 [Original/Source Press Release](https://newsdirect.com/news/first-phosphate-corp-announces-addition-of-phosphorus-to-canadas-critical-minerals-list-372679357)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/first-phosphate-corp-announces-addition-of-phosphorus-to-canada-s-critical-minerals-list/f4a3f4607910b27ebabce132aecf6e12) 
+
+
+Pickup - [advos.io](https://advos.io/en/phosphorus-added-to-canada-s-critical-minerals-list-boosting-first-phosphate-corp-s-prospects/20244002)
+ 
 
 
 

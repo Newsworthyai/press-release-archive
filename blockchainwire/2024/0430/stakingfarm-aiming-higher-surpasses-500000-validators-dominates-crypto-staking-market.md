@@ -68,7 +68,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-aiming-higher-surpasses-500000-validators-dominates-crypto-staking-market)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-surpasses-one-million-validators-in-major-milestone/a5416563557af5396f2e4c438240901b) 
+
+ 
 
 
 

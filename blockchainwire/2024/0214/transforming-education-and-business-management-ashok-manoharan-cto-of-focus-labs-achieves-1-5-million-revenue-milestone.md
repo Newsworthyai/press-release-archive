@@ -33,7 +33,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/transforming-education-and-business-management-ashok-manoharan-cto-of-focus-labs-achieves-15-million-revenue-milestone)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ashok-manoharan-s-innovative-apps-reshaping-education-and-business-management/250c58e54d8f4bedcf9e95f4eca85d56) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/14/ashok-manoharan-s-innovative-apps-drive-transformation-in-education-and-business)
+ 
 
 
 

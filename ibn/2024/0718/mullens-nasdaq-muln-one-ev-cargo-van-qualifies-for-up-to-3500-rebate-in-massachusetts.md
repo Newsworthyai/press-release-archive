@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullens-nasdaq-muln-one-ev-cargo-van-qualifies-for-up-to-3500-rebate-in-massachusetts/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-s-2024-mullen-one-cargo-van-approved-for-3500-cash-voucher-under-massachusetts-mor-ev-program/9542847d0b2b19f64e49a958125c5e12) 
+
+ 
 
 
 

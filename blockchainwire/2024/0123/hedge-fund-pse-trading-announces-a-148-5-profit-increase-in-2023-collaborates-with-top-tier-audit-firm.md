@@ -17,7 +17,11 @@ This profitable year is a testament to PSE Trading's strategic acumen, innovatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/hedge-fund-pse-trading-announces-a-1485-profit-increase-in-2023-collaborates-with-top-tier-audit-firm)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pse-trading-reports-148-5-profit-surge-in-core-strategy-product-for-2023/18853b1eeb57791efae832b6da1cd8d3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/23/pse-trading-achieves-remarkable-148-5-profit-surge-collaborates-with-top-audit-firm)
+ 
 
 
 

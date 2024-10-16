@@ -23,7 +23,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/new-meme-leaders-emerge-from-upcoming-base-chain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinbase-s-basechain-welcomes-meme-leader-brett-to-the-crypto-space/00e84a5237647bf780f196322d354969) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/08/brett-emerges-as-potential-meme-leader-on-coinbase-s-basechain)
+ 
 
 
 

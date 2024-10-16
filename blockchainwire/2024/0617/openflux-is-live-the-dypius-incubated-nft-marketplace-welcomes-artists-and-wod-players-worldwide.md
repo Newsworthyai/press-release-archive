@@ -35,7 +35,15 @@ Stay up to date with the project’s development and news on community events he
 [Original/Source Press Release](https://blockchainwire.io/press-release/openflux-is-live-the-dypius-incubated-nft-marketplace-welcomes-artists-and-wod-players-worldwide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/openflux-launches-as-first-nft-marketplace-on-conflux-espace/919264a88ed6d09a665dc9658dd811ef) 
+
+
+Pickup - [advos.io](https://advos.io/en/openflux-nft-marketplace-launches-backed-by-dypius-conflux-network-and-swappi-dex/20244195)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/openflux-launches-as-first-nft-marketplace-on-conflux-espace)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/openflux-launches-as-first-nft-marketplace-on-conflux-espace)
+ 
 
 
 

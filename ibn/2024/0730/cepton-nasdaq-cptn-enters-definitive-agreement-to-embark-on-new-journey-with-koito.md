@@ -29,7 +29,9 @@ Cepton (NASDAQ: CPTN), a Silicon Valley innovator and leader in high performance
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/cepton-nasdaq-cptn-enters-definitive-agreement-to-embark-on-new-journey-with-koito/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cepton-announces-acquisition-agreement-with-koito-manufacturing-co-ltd/fe4d0dbfbf63acd2659064189bf92435) 
+
+ 
 
 
 

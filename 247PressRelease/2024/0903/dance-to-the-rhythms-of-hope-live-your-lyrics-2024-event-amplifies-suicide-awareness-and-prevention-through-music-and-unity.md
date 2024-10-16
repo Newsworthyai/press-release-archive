@@ -7,7 +7,17 @@ LAFAYETTE, CO, September 03, 2024 /24-7PressRelease/ -- This September, as we ob
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513944/dance-to-the-rhythms-of-hope-live-your-lyrics-2024-event-amplifies-suicide-awareness-and-prevention-through-music-and-unity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/2024-live-your-lyrics-event-uniting-for-suicide-prevention-through-music/0924af4c9d2f857f8b0e9cd8a6af0e23) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/live-your-lyrics-2024-music-event-to-amplify-suicide-awareness-and-prevention/20246471)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/live-your-lyrics-2024-music-event-champions-suicide-awareness-and-prevention/20246471)
+
+Pickup - [advos.io](https://advos.io/en/live-your-lyrics-2024-amplifying-suicide-awareness-through-music-and-unity/20246471)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/live-your-lyrics-2024-music-event-shines-light-on-suicide-awareness-and-prevention)
+ 
 
 
 

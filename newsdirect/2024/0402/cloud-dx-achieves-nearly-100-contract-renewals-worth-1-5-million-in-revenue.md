@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/cloud-dx-achi
 [Original/Source Press Release](https://newsdirect.com/news/cloud-dx-achieves-nearly-100-contract-renewals-worth-1-5-million-in-revenue-665565933)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloud-dx-ceo-discusses-100-contract-renewal-goal-and-exciting-developments/f30d73c86c467b7b70d55dd3e58f0fa6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/cloud-dx-secures-lucrative-contract-renewals-solidifying-its-position-in-healthcare-innovation)
+ 
 
 
 

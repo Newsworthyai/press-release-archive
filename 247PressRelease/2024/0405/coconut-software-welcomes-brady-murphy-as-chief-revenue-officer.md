@@ -7,7 +7,11 @@ TORONTO, ON, April 05, 2024 /24-7PressRelease/ -- Coconut Software, a leading pr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509827/coconut-software-welcomes-brady-murphy-as-chief-revenue-officer)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coconut-software-appoints-brady-murphy-as-chief-revenue-officer/5b991e93cf78c8e60f65596e94294803) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/coconut-software-taps-brady-murphy-to-lead-revenue-growth)
+ 
 
 
 

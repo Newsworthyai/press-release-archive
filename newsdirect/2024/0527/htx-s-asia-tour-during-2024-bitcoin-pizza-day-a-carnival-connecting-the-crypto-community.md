@@ -25,7 +25,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/htxs-asia-tou
 [Original/Source Press Release](https://newsdirect.com/news/htxs-asia-tour-during-2024-bitcoin-pizza-day-a-carnival-connecting-the-crypto-community-719765560)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-s-asia-tour-during-2024-bitcoin-pizza-day-a-carnival-connecting-the-crypto-community/c2963022467945ceefbc7035d3efe6b0) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-s-asia-tour-during-2024-bitcoin-pizza-day-a-carnival-connecting-the-crypto-community)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-s-asia-tour-during-2024-bitcoin-pizza-day-a-carnival-connecting-the-crypto-community)
+ 
 
 
 

@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/saint-paul-pu
 [Original/Source Press Release](https://newsdirect.com/news/saint-paul-public-housing-agency-and-comcast-announce-technology-partnership-518924806)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-and-saint-paul-public-housing-agency-partner-to-provide-wifi-connectivity/8a4e9cfa0422fe25f512189d00ad9d19) 
+
+
+Pickup - [advos.io](https://advos.io/en/saint-paul-public-housing-agency-partners-with-comcast-to-provide-wifi-access/20244048)
+ 
 
 
 

@@ -35,7 +35,11 @@ This report is for informational use only. This is not investment advice or an o
 [Original/Source Press Release](https://blockchainwire.io/press-release/enzo-villani-veteran-fintech-entrepreneur-joins-marketmind-as-chairman-and-co-founder)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/enzo-villani-joins-marketmind-technologies-as-chairman-and-co-founder/08a7c10cba94406ec553168ac78d5af1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/27/enzo-villani-joins-marketmind-to-empower-public-companies-in-the-age-of-retail-investor-dominance)
+ 
 
 
 

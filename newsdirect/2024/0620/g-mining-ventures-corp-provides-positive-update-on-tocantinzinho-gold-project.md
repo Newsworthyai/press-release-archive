@@ -21,7 +21,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/g-mining-vent
 [Original/Source Press Release](https://newsdirect.com/news/g-mining-ventures-corp-provides-positive-update-on-tocantinzinho-gold-project-975228408)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/g-mining-ventures-corp-ceo-shares-positive-update-on-tocantinzinho-gold-project/b885fe24442e899bffc99c1fb9439b6b) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/g-mining-ventures-corp-announces-progress-on-tocantinzinho-gold-project/20244334)
+
+Pickup - [advos.io](https://advos.io/en/g-mining-ventures-corp-announces-positive-progress-on-tocantinzinho-gold-project/20244334)
+ 
 
 
 

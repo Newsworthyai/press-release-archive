@@ -61,7 +61,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/trump-endorses-crypto-on-truth-social-is-branded-good-for-bitcoin-and-altcoins-like-ethereum-and-blockdag-network)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trump-s-endorsement-of-bitcoin-and-altcoins-on-truth-social-sparks-excitement/9933c2e76e0a3e886333a2c13f6aaf5b) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/trump-endorses-bitcoin-and-cryptocurrencies-potentially-shaping-future-of-digital-assets/20244261)
+
+Pickup - [advos.io](https://advos.io/en/trump-endorses-crypto-on-truth-social-branded-good-for-bitcoin-and-altcoins-like-ethereum-and-blockdag-network/20244261)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/trump-s-endorsement-of-bitcoin-and-altcoins-on-truth-social-sparks-excitement)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/trump-s-endorsement-of-bitcoin-and-altcoins-on-truth-social-sparks-excitement)
+ 
 
 
 

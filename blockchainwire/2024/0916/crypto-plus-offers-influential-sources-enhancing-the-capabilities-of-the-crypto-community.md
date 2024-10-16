@@ -27,7 +27,17 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-plus-offers-influential-sources-enhancing-the-capabilities-of-the-crypto-community)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-plus-pioneering-in-the-crypto-market-with-specialized-content-and-solutions/5f913aac8866f62ed6f80b02d89c31d8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/crypto-plus-emerges-as-influential-platform-in-cryptocurrency-education-and-analysis)
+
+Pickup - [fishervista.com](https://fishervista.com/en/crypto-plus-emerges-as-influential-platform-in-cryptocurrency-education-and-analysis/20246849)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/crypto-plus-emerges-as-influential-platform-for-cryptocurrency-education-and-market-insights/20246849)
+
+Pickup - [advos.io](https://advos.io/en/crypto-plus-emerges-as-influential-platform-for-cryptocurrency-education-and-analysis/20246849)
+ 
 
 
 

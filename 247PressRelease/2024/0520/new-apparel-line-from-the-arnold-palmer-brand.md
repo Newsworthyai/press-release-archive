@@ -7,7 +7,9 @@ ORLANDO, FL, May 20, 2024 /24-7PressRelease/ -- The Arnold Palmer Group today an
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/507824/new-apparel-line-from-the-arnold-palmer-brand)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arnold-palmer-group-launches-new-ad-palmer-collection-with-full-turn-custom-apparel/c905abba6d67dcbab7ce7d9345e5d106) 
+
+ 
 
 
 

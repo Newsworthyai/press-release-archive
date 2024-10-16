@@ -28,7 +28,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/cure-alzheime
 [Original/Source Press Release](https://newsdirect.com/news/cure-alzheimers-fund-announces-19th-straight-year-of-record-results-362472627)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cure-alzheimers-fund-achieves-record-breaking-year-in-2023/25d9d11655df3ca118e19b36309c83a5) 
+
+
+Pickup - [advos.io](https://advos.io/en/cure-alzheimers-fund-achieves-19th-consecutive-year-of-record-breaking-fundraising/20244881)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cure-alzheimers-fund-achieves-19th-consecutive-year-of-record-breaking-fundraising-and-research-support/20244881)
+
+Pickup - [citybuzz.co](https://citybuzz.co/cure-alzheimer-s-fund-achieves-record-breaking-fundraising-for-19th-consecutive-year)
+ 
 
 
 

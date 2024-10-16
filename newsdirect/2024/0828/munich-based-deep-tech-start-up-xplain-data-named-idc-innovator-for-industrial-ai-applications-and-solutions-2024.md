@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/munich-based-
 [Original/Source Press Release](https://newsdirect.com/news/munich-based-deep-tech-start-up-xplain-data-named-idc-innovator-for-industrial-ai-applications-and-solutions-2024-525713798)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xplain-data-gmbh-named-idc-innovator-in-industrial-ai-applications-and-solutions-report/ea8bf4999dd250d74a7c1a45604597e3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/xplain-data-recognized-as-idc-innovator-for-industrial-ai-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/xplain-data-named-idc-innovator-for-industrial-ai-applications-and-solutions-2024/20246341)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/xplain-data-recognized-as-idc-innovator-for-industrial-ai-solutions/20246341)
+
+Pickup - [advos.io](https://advos.io/en/xplain-data-named-idc-innovator-for-industrial-ai-applications-and-solutions-2024/20246341)
+ 
 
 
 

@@ -7,7 +7,17 @@ SEOUL, KOREA, August 24, 2024 /24-7PressRelease/ -- BYAHT, a technology startup,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513744/worlds-first-alternative-credit-scoring-solution-based-on-creator-advertiser-transaction-data-glowb-launches-secures-funding)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/byaht-launches-glow-b-transformative-credit-scoring-solution/e8364d52430d28a20319cc7bc99269ab) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/24/glow-b-launches-revolutionary-credit-scoring-solution-for-creators-and-advertisers)
+
+Pickup - [fishervista.com](https://fishervista.com/en/byaht-launches-glow-b-a-revolutionary-credit-scoring-solution-based-on-creator-advertiser-data/20245956)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/glow-b-launches-revolutionary-alternative-credit-scoring-for-creators-and-advertisers/20245956)
+
+Pickup - [advos.io](https://advos.io/en/byaht-launches-glow-b-an-alternative-credit-scoring-solution-for-creators-and-advertisers/20245956)
+ 
 
 
 

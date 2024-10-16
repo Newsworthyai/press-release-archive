@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/empire-metals
 [Original/Source Press Release](https://newsdirect.com/news/empire-metals-focuses-on-titanium-potential-at-pitfield-project-after-strategic-refinement-141236322)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/empire-metals-focuses-on-titanium-potential-at-pitfield-project-after-strategic-refinement/9104f259a660471deab3c3866d62b768) 
+
+ 
 
 
 

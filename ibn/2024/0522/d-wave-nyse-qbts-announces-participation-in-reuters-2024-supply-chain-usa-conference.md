@@ -29,7 +29,9 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-announces-participation-in-reuters-2024-supply-chain-usa-conference/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-inc-to-present-at-reuters-supply-chain-usa-2024-conference/ffa64460f43b57f7f3bae275f167d468) 
+
+ 
 
 
 

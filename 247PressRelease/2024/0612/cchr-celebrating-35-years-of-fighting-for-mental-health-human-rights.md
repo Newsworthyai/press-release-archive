@@ -7,7 +7,11 @@ CLEARWATER, FL, June 12, 2024 /24-7PressRelease/ -- The Florida chapter of the C
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511623/cchr-celebrating-35-years-of-fighting-for-mental-health-human-rights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cchr-florida-celebrates-35-years-as-mental-health-watchdog/5f64b05912fbec41fef1d5ba13006b37) 
+
+
+Pickup - [advos.io](https://advos.io/en/cchr-florida-celebrates-35-years-of-advocacy-for-mental-health-rights/20244055)
+ 
 
 
 

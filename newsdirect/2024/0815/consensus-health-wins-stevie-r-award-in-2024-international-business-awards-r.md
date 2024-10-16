@@ -39,7 +39,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/consensus-hea
 [Original/Source Press Release](https://newsdirect.com/news/consensus-health-wins-stevie-r-award-in-2024-international-business-awards-r-392452446)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/consensus-health-wins-bronze-stevie-r-award-in-2024-international-business-awards-r/18d8386ee93f81153db02a353d576b26) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/consensus-health-recognized-with-bronze-stevie-r-award-in-2024-international-business-awards)
+
+Pickup - [fishervista.com](https://fishervista.com/en/consensus-health-secures-bronze-stevie-r-award-in-2024-international-business-awards-r/20245769)
+
+Pickup - [advos.io](https://advos.io/en/consensus-health-secures-stevie-r-award-at-2024-international-business-awards-r/20245769)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/consensus-health-recognized-with-bronze-stevie-r-award-in-2024-international-business-awards/20245769)
+ 
 
 
 

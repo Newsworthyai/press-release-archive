@@ -7,7 +7,11 @@ SHENZHEN, CHINA, April 04, 2024 /24-7PressRelease/ -- Battle Talent, a VR sword 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509778/battle-talent-introducing-mixed-reality-mode-for-vr-sword-fighting)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cydream-unveils-mixed-reality-mode-in-battle-talent-vr-sword-fighting-game/6f6cd6746cc9563659564d0b208acf32) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/battle-talent-introduces-groundbreaking-mixed-reality-mode-for-vr-sword-fighting)
+ 
 
 
 

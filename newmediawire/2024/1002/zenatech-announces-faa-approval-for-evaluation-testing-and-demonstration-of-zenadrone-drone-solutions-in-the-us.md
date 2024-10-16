@@ -55,7 +55,9 @@ TORONTO, Ontario - (NewMediaWire) - October 2, 2024 - ZenaTech, Inc. (Nasdaq: ZE
 [Original/Source Press Release](https://www.newmediawire.com/news/zenatech-announces-faa-approval-for-evaluation-testing-and-demonstration-of-zenadrone-drone-solutions-in-the-us-7076142)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zenatech-s-zenadrone-granted-faa-exemption-for-commercial-drone-applications-in-the-us/b9f2608e3da4fcb8ab658cbc9c58c0ee) 
+
+ 
 
 
 

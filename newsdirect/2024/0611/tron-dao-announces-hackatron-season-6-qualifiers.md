@@ -152,7 +152,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-anno
 [Original/Source Press Release](https://newsdirect.com/news/tron-dao-announces-hackatron-season-6-qualifiers-381734748)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hackatron-season-6-tron-dao-announces-qualifiers/a2f2b7dc44b47eb44c7ea043cf38272f) 
+
+
+Pickup - [advos.io](https://advos.io/en/tron-dao-reveals-hackatron-season-6-qualifiers-highlighting-innovations-in-blockchain/20244033)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/hackatron-season-6-tron-dao-announces-qualifiers)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/hackatron-season-6-tron-dao-announces-qualifiers)
+ 
 
 
 

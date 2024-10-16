@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/springtime-ho
 [Original/Source Press Release](https://newsdirect.com/news/springtime-home-renovation-bathroom-edition-284096797)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hgtv-star-scott-mcgillivray-teams-up-with-bath-fitter-for-mess-free-bathroom-renovation-tips/098d0bc8900c81cf950d596eea68d910) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/achieve-a-stunning-bathroom-renovation-with-bath-fitter)
+ 
 
 
 

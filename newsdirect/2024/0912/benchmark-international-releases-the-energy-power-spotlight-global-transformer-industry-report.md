@@ -36,7 +36,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-releases-the-energy-and-power-spotlight-global-transformer-industry-report-365625735)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-releases-global-transformer-industry-report/e9f8d8f005f48b2601b4a8e9464d5ef0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/benchmark-international-unveils-comprehensive-global-transformer-industry-report)
+
+Pickup - [fishervista.com](https://fishervista.com/en/global-transformer-industry-set-for-steady-growth-amid-rising-electricity-demand/20246797)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/global-transformer-industry-set-for-steady-growth-amid-rising-electricity-demand/20246797)
+
+Pickup - [advos.io](https://advos.io/en/global-transformer-industry-set-for-growth-challenges-ahead-benchmark-international-report/20246797)
+ 
 
 
 

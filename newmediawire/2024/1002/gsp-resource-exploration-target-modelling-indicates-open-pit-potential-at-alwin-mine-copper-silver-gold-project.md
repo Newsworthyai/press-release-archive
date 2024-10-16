@@ -61,7 +61,9 @@ This news release contains “forward‐looking information or statements” wit
 [Original/Source Press Release](https://www.newmediawire.com/news/gsp-resource-exploration-target-modelling-indicates-open-pit-potential-at-alwin-mine-copper-silver-gold-project-7076137)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gsp-resource-corp-announces-open-pit-potential-at-alwin-mine-copper-silver-gold-project/091df9f15b11595885171c66eacb5cfc) 
+
+ 
 
 
 

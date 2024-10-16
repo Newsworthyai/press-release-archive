@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/former-u-s-co
 [Original/Source Press Release](https://newsdirect.com/news/former-u-s-comptroller-general-walker-elected-federal-fiscal-sustainability-foundation-chairman-618229190)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-u-s-comptroller-general-walker-elected-federal-fiscal-sustainability-foundation-chairman/6715fcf28ac96e19acec18d13549186d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/former-u-s-comptroller-general-elected-to-lead-fiscal-sustainability-foundation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/former-u-s-comptroller-general-david-m-walker-elected-chairman-of-federal-fiscal-sustainability-foundation/20245359)
+
+Pickup - [advos.io](https://advos.io/en/former-u-s-comptroller-general-david-m-walker-appointed-chairman-of-federal-fiscal-sustainability-foundation/20245359)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/former-u-s-comptroller-general-elected-to-lead-fiscal-sustainability-foundation)
+ 
 
 
 

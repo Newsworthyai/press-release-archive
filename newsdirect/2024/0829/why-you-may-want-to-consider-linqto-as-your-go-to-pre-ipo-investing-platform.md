@@ -59,7 +59,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/why-you-may-w
 [Original/Source Press Release](https://newsdirect.com/news/why-you-may-want-to-consider-linqto-as-your-go-to-pre-ipo-investing-platform-883258227)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/linqto-revolutionizes-private-equity-investing-for-individual-investors/2ad70d9b14fe1d527c68aea8d3bc1011) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/linqto-emerges-as-accessible-pre-ipo-investment-platform-for-individual-investors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/linqto-aims-to-democratize-pre-ipo-investing-with-affordable-and-accessible-platform/20246373)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/linqto-aims-to-democratize-pre-ipo-investing-for-individual-investors/20246373)
+
+Pickup - [advos.io](https://advos.io/en/linqto-aims-to-democratize-pre-ipo-investing-with-accessible-and-affordable-platform/20246373)
+ 
 
 
 

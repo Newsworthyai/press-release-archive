@@ -69,7 +69,13 @@ CoinGecko: https://www.coingecko.com/en/coins/metfiInstagram: https://www.instag
 [Original/Source Press Release](https://blockchainwire.io/press-release/marine-moguls-erc-404-launch-with-29-million-in-prizes-for-token-holders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marine-moguls-launches-on-erc-404-protocol-offering-over-2-9-million-in-prizes/006008a4d8855dfae56f6a9690c949a3) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/marine-moguls-launches-on-erc-404-protocol-offering-over-2-9-million-in-prizes)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/marine-moguls-launches-on-erc-404-protocol-offering-over-2-9-million-in-prizes)
+ 
 
 
 

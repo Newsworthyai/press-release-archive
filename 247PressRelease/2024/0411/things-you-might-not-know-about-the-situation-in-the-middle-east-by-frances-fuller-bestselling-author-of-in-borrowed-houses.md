@@ -7,7 +7,11 @@ WILMINGTON, NC, April 11, 2024 /24-7PressRelease/ -- The Middle East grabs headl
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509909/things-you-might-not-know-about-the-situation-in-the-middle-east-by-frances-fuller-bestselling-author-of-in-borrowed-houses)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-frances-fuller-shares-surprising-insights-on-the-middle-east-and-aging/3b878e76bd79b47fa7baf62614fede11) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/the-middle-east-what-you-might-not-know)
+ 
 
 
 

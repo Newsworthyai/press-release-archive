@@ -39,7 +39,17 @@ Ronin is an EVM blockchain specifically forged for gaming. Developed by Sky Mavi
 [Original/Source Press Release](https://blockchainwire.io/press-release/-earn-alliance-and-sky-mavis-partner-to-create-a-reward-based-experience-for-gamers-on-ronin-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/earn-alliance-and-sky-mavis-announce-partnership-for-ronin-week/9b566d5cfafd5dd2b1bffffb4f72d11c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/earn-alliance-and-sky-mavis-launch-reward-based-gaming-experience-on-ronin/20244430)
+
+Pickup - [advos.io](https://advos.io/en/earn-alliance-and-sky-mavis-launch-game-changing-partnership-with-ronin-week-promotion/20244430)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/earn-alliance-and-sky-mavis-announce-partnership-for-ronin-week)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/earn-alliance-and-sky-mavis-announce-partnership-for-ronin-week)
+ 
 
 
 

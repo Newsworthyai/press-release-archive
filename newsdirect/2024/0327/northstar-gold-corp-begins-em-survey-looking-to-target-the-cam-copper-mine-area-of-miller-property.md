@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/northstar-gol
 [Original/Source Press Release](https://newsdirect.com/news/northstar-gold-corp-begins-em-survey-looking-to-target-the-cam-copper-mine-area-of-miller-property-527749272)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/northstar-gold-corp-initiates-em-survey-at-cam-copper-mine/70840f1d2a002a6550f4a56d62e76cca) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/northstar-gold-corp-commences-electromagnetic-surveys-at-cam-copper-mine-area)
+ 
 
 
 

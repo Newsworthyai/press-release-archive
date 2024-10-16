@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/linqtos-plan-
 [Original/Source Press Release](https://newsdirect.com/news/linqtos-plan-to-bring-more-wealth-generation-opportunities-to-a-generation-of-investors-thats-wary-of-traditional-financial-institutions-394832727)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/linqto-s-mission-shaping-the-future-of-private-investments/c26311b8d57148d47b6d7ab4c0cbdb9a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/linqto-aims-to-democratize-private-equity-investing-for-younger-generations)
+
+Pickup - [fishervista.com](https://fishervista.com/en/linqto-aims-to-democratize-private-market-investments-for-younger-generations/20245963)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/linqto-aims-to-democratize-private-market-investing-for-younger-generations/20245963)
+
+Pickup - [advos.io](https://advos.io/en/linqto-aims-to-democratize-private-market-investments-for-millennials-and-gen-z/20245963)
+ 
 
 
 

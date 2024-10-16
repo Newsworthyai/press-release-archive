@@ -29,7 +29,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/x-officially-made-xpayments-x-account-speculation-of-crypto-integration-and-memecoin-xpay-surges-10000)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elon-musk-s-everything-app-x-creates-dedicated-account-for-upcoming-payments-feature-fueling-crypto-speculation/c33dd539ec4f1cce8f6158a89b5650d0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/26/x-sparks-crypto-speculation-with-xpayments-account-memecoin-xpay-soars)
+ 
 
 
 

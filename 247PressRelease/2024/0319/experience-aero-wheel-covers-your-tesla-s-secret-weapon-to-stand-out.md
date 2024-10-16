@@ -7,7 +7,11 @@ AKRON, OH, March 19, 2024 /24-7PressRelease/ -- As a Tesla Model Y owner, I've a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509339/experience-aero-wheel-covers-your-teslas-secret-weapon-to-stand-out)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tesery-s-aero-wheel-covers-enhancing-appearance-safety-and-performance-for-tesla-owners/c49e6941200d03b62a0cbb42276c9b88) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/unleash-your-tesla-s-uniqueness-with-aero-wheel-covers)
+ 
 
 
 

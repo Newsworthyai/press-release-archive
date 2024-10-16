@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/xalles-holdin
 [Original/Source Press Release](https://newsdirect.com/news/xalles-holdings-nurturing-tech-startups-towards-lucrative-exits-896542006)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xalles-holdings-nurturing-tech-startups-towards-lucrative-exits/7ffe517accde5979beb85f8f4087327a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/xalles-holdings-guiding-tech-startups-to-profitable-exits)
+ 
 
 
 

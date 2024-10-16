@@ -33,7 +33,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/trading-veter
 [Original/Source Press Release](https://newsdirect.com/news/trading-veteran-shares-how-looking-to-insiders-can-be-a-winning-strategy-580984874)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/insider-trading-expert-ross-givens-shares-investment-strategies-in-exclusive-interview/a37417f18d312ee025b1b5dd7b57d21b) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/expert-analyst-ross-givens-advocates-for-insider-trading-insights-as-a-winning-strategy/20244494)
+
+Pickup - [advos.io](https://advos.io/en/trading-expert-ross-givens-advocates-insider-trading-strategy-for-high-probability-investments/20244494)
+ 
 
 
 

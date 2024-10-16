@@ -23,7 +23,11 @@ Stay ahead in the EdTech revolution with www.EdtechBrief.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231214813/edtechbrief-com-the-destination-for-cutting-edge-edtech-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-platform-edtechbrief-com-unveiled-as-the-premier-source-for-educational-technology-insights/ecf0f11d11c2feae811cd7358234b475) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/14/edtechbrief-com-emerges-as-premier-destination-for-edtech-insights)
+ 
 
 
 

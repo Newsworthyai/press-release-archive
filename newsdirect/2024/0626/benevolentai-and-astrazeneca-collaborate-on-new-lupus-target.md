@@ -23,7 +23,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/benevolentai-
 [Original/Source Press Release](https://newsdirect.com/news/benevolentai-and-astrazeneca-collaborate-on-new-lupus-target-365737729)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benevolentai-and-astrazeneca-collaborate-on-new-lupus-target/bb4456cebd9edafb70f4d3a089f8a294) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/benevolentai-and-astrazeneca-collaborate-on-novel-lupus-treatment-target/20244489)
+
+Pickup - [advos.io](https://advos.io/en/benevolentai-and-astrazeneca-collaborate-on-new-lupus-target/20244489)
+ 
 
 
 

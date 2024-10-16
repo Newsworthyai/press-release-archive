@@ -7,7 +7,9 @@ In the realm of cryptocurrencies, where innovation often clashes with the absurd
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-quacktastic-memecoin-taking-flight-to-lead-the-way)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-s-quack-token-making-waves-with-quirky-mission-and-transparent-approach/daa3ab9cb1f4be889c6c26cebf348f2a) 
+
+ 
 
 
 

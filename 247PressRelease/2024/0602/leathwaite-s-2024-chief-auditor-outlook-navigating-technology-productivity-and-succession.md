@@ -7,7 +7,11 @@ LONDON, ENGLAND, June 02, 2024 /24-7PressRelease/ -- Leathwaite, the leading con
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511343/leathwaites-2024-chief-auditor-outlook-navigating-technology-productivity-and-succession)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leathwaite-releases-2024-chief-auditor-outlook/5fe74395ee8d2965e51843cd00e976ce) 
+
+
+Pickup - [advos.io](https://advos.io/en/leathwaite-s-2024-chief-auditor-outlook-reveals-technology-productivity-and-succession-challenges/20243607)
+ 
 
 
 

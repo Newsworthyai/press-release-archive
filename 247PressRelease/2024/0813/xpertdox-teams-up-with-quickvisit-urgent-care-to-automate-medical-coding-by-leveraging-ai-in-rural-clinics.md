@@ -7,7 +7,17 @@ PHOENIX, AZ, August 13, 2024 /24-7PressRelease/ -- XpertDox, a leading AI-powere
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513342/xpertdox-teams-up-with-quickvisit-urgent-care-to-automate-medical-coding-by-leveraging-ai-in-rural-clinics)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xpertdox-partners-with-quickvisit-urgent-care-to-enhance-medical-coding-processes/00a20a89c0b6138b66387fd6c99e2d0d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/xpertdox-and-quickvisit-urgent-care-partner-to-revolutionize-medical-coding-in-rural-clinics)
+
+Pickup - [fishervista.com](https://fishervista.com/en/xpertdox-partners-with-quickvisit-urgent-care-to-revolutionize-medical-coding-in-rural-clinics/20245671)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/xpertdox-and-quickvisit-urgent-care-partner-to-revolutionize-medical-coding-in-rural-healthcare/20245671)
+
+Pickup - [advos.io](https://advos.io/en/xpertdox-partners-with-quickvisit-urgent-care-to-automate-medical-coding-in-rural-clinics-using-ai/20245671)
+ 
 
 
 

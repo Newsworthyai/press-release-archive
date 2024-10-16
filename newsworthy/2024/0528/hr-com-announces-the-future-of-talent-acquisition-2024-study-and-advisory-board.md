@@ -42,7 +42,11 @@ Contact: info@hr.com HR.com Newsroom
 [Original/Source Press Release](https://newsworthy.ai/news/202405281176/hr-com-announces-the-future-of-talent-acquisition-2024-study-and-advisory-board)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-announces-future-of-talent-acquisition-2024-advisory-board/70e792649990e35d012a654428f4b767) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-com-unveils-future-of-talent-acquisition-2024-study-and-advisory-board/20243456)
+ 
 
 
 

@@ -48,7 +48,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/okaycoin-set-to-launch-innovative-liquid-restaking-service-for-ethereum-and-eth-derivatives)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/okaycoin-to-launch-liquid-restaking-service-for-ethereum-and-derivatives/dfa2b2faf399cdc82367018ece9053d2) 
+
+
+Pickup - [advos.io](https://advos.io/en/okaycoin-introduces-liquid-restaking-service-for-ethereum-and-eth-derivatives/20243944)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/okaycoin-to-launch-liquid-restaking-service-for-ethereum-and-derivatives)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/okaycoin-to-launch-liquid-restaking-service-for-ethereum-and-derivatives)
+ 
 
 
 

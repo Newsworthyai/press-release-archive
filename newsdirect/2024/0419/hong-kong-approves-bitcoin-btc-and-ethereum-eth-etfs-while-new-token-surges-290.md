@@ -57,7 +57,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/hong-kong-app
 [Original/Source Press Release](https://newsdirect.com/news/hong-kong-approves-bitcoin-btc-and-ethereum-eth-etfs-while-new-token-surges-290-208617481)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-approves-btc-and-eth-etfs-kangamoon-presale-gains-momentum/1a406378f06e16262e7ef7aaae7685c1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/hong-kong-approves-bitcoin-btc-and-ethereum-eth-etfs-while-new-token-surges-290)
+ 
 
 
 

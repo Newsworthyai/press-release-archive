@@ -25,7 +25,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-gaga-the-new-meme-coin-heroine-joins-forces-with-pepe-to-tackle-memcoin-dogs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gaga-emerges-to-combat-meme-coins-brings-message-of-hope-and-unity/e4044f2d7a0e992b5c4d79b5968834cc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/13/gaga-the-new-meme-coin-heroine-joins-forces-with-pepe)
+ 
 
 
 

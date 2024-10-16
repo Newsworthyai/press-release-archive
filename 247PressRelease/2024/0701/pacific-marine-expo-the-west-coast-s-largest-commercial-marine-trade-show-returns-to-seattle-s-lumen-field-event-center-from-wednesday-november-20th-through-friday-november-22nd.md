@@ -7,7 +7,13 @@ SEATTLE, WA, July 01, 2024 /24-7PressRelease/ -- With the creation of new WorkBo
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512159/pacific-marine-expo-the-west-coasts-largest-commercial-marine-trade-show-returns-to-seattles-lumen-field-event-center-from-wednesday-november-20th-through-friday-november-22nd)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/2024-pacific-marine-expo-promises-to-be-most-engaging-ever-for-maritime-industry/71d3cbdb5d359f59a2d027dc5b060b80) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/pacific-marine-expo-2024-to-feature-new-workboat-west-programming-and-partnership-with-washington-maritime-blue/20244658)
+
+Pickup - [advos.io](https://advos.io/en/pacific-marine-expo-2024-to-feature-new-workboat-west-and-partnership-with-washington-maritime-blue/20244658)
+ 
 
 
 

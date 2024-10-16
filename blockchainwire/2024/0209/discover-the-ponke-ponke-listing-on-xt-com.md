@@ -56,7 +56,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-ponkeponke-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-ponke-token-on-its-platform-ceo-emphasizes-unique-nature-of-meme-coins/746d52c591456c9b80cdfdb5f65ca964) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/09/ponke-meme-coin-listing-on-xt-com-crypto-exchange)
+ 
 
 
 

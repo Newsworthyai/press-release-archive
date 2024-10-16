@@ -55,7 +55,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-at-d
 [Original/Source Press Release](https://newsdirect.com/news/tron-dao-at-dc-blockchain-summit-847605502)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tron-dao-shines-as-silver-sponsor-at-dc-blockchain-summit/340401116bbb985d2a01d096061c49ed) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tron-dao-shines-as-silver-sponsor-at-dc-blockchain-summit)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tron-dao-shines-as-silver-sponsor-at-dc-blockchain-summit)
+ 
 
 
 

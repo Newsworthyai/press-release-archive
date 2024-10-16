@@ -61,7 +61,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/blue-hat-inte
 [Original/Source Press Release](https://newsdirect.com/news/blue-hat-interactive-bhat-emerges-as-a-disruptive-force-in-the-gold-market-871321276)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blue-hat-interactive-nasdaq-bhat-disrupts-gold-market-with-innovative-approach/bef7fc406d83739e43615a7b1c9e65e7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/16/blue-hat-interactive-revolutionizes-gold-market-with-innovative-technology-and-strategic-partnerships)
+
+Pickup - [fishervista.com](https://fishervista.com/en/blue-hat-interactive-disrupts-gold-market-with-technological-innovations/20245790)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/blue-hat-interactive-disrupts-gold-market-with-innovative-technology-and-partnerships/20245790)
+
+Pickup - [advos.io](https://advos.io/en/blue-hat-interactive-disrupts-gold-market-with-technological-innovations/20245790)
+ 
 
 
 

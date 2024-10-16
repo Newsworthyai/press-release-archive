@@ -49,7 +49,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-metaworld-mwcc-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-metaworld-s-mwcc-token-in-innovation-zone/78d56c8f82c88c59af9ed4fb2fb0f31c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/25/metaworld-s-mwcc-token-debuts-on-xt-com-cryptocurrency-exchange)
+ 
 
 
 

@@ -29,7 +29,11 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/alpha-sigma-capital-research-artificial-intelligence-index-aai-performance-was-650-in-2023)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alpha-sigma-capital-research-launches-asc-ai-index-to-track-top-tokens-in-ai-sector/8ab634d78846b0977b534a2a27c35b6a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/20/alpha-sigma-capital-s-ai-index-soars-650-in-2023)
+ 
 
 
 

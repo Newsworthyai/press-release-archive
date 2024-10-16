@@ -59,7 +59,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/monogram-orth
 [Original/Source Press Release](https://newsdirect.com/news/monogram-orthopedics-nasdaq-mgrm-lands-key-clinical-trial-partnership-with-indias-leading-orthopedic-hospital-group-to-advance-its-surgical-robot-tech-131470443)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/monogram-technologies-and-shalby-limited-partner-for-robotic-orthopedic-surgery-clinical-trial/95aae3b99624d8bf76d267b082999239) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/monogram-orthopedics-partners-with-india-s-shalby-limited-for-robotic-surgery-clinical-trials)
+
+Pickup - [fishervista.com](https://fishervista.com/en/monogram-orthopedics-partners-with-shalby-limited-to-advance-robotic-surgery/20246348)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/monogram-orthopedics-partners-with-india-s-shalby-limited-for-robotic-surgery-clinical-trials/20246348)
+
+Pickup - [advos.io](https://advos.io/en/monogram-orthopedics-partners-with-india-s-shalby-limited-for-clinical-trials-of-advanced-surgical-robot/20246348)
+ 
 
 
 

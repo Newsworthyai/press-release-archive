@@ -41,7 +41,9 @@ For more information and to schedule a consultation, visit Barlen Group or cont
 [Original/Source Press Release](https://blockchainwire.io/press-release/barlen-group-unveils-expert-crypto-strategies-to-maximize-profits-for-european-investors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/barlen-group-launches-expert-crypto-strategies-for-european-investors/8c2775b5518431e893eb3ca35b3b358d) 
+
+ 
 
 
 

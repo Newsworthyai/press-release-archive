@@ -60,7 +60,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-sets-high-yield-standards-for-ethereum-staking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-redefines-passive-income-with-exceptional-ethereum-staking-rates/86ca58b1912554cef9bd815977f1f154) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/stakingfarm-offers-exceptional-ethereum-staking-yields)
+ 
 
 
 

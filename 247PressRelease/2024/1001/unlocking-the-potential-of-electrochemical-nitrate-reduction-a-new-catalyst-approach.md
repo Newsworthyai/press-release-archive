@@ -7,7 +7,9 @@ KNOXVILLE, TN, October 01, 2024 /24-7PressRelease/ -- In a major step toward sus
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514814/unlocking-the-potential-of-electrochemical-nitrate-reduction-a-new-catalyst-approach)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-breakthrough-in-electrochemical-nitrate-reduction-for-sustainable-chemistry/3d269fca7c98433f6daa79647f51bc51) 
+
+ 
 
 
 

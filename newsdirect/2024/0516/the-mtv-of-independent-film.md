@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-mtv-of-in
 [Original/Source Press Release](https://newsdirect.com/news/the-mtv-of-independent-film-437577639)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/transparent-film-festival-to-launch-abfab-com-a-game-changing-streaming-platform/909366ce42ed984c854cb893de8d7078) 
+
+ 
 
 
 

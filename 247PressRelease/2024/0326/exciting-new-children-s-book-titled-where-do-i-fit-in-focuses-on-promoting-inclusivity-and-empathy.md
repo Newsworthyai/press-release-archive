@@ -7,7 +7,11 @@ KINGWOOD, TX, March 26, 2024 /24-7PressRelease/ -- In a world filled with divers
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509542/exciting-new-childrens-book-titled-where-do-i-fit-in-focuses-on-promoting-inclusivity-and-empathy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-children-s-book-encourages-inclusion-and-kindness/d5964920ab597ce96c37d0793caf5982) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/new-children-s-book-promotes-inclusivity-and-empathy)
+ 
 
 
 

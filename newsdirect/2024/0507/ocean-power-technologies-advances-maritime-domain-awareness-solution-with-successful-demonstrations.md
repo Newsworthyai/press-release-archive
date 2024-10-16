@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-t
 [Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-advances-maritime-domain-awareness-solution-with-successful-demonstrations-854233610)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ocean-power-technologies-advances-maritime-domain-awareness-solution-with-successful-demonstrations/eaca1408222eefa0121903cf42642e37) 
+
+ 
 
 
 

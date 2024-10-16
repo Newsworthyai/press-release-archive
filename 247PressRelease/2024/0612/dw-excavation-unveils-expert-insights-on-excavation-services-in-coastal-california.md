@@ -7,7 +7,11 @@ MONTEREY, CA, June 12, 2024 /24-7PressRelease/ -- DW Excavation, a leading provi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511634/dw-excavation-unveils-expert-insights-on-excavation-services-in-coastal-california)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dw-excavation-releases-comprehensive-blog-on-excavation-work-in-coastal-california/de0ee683f1d154557fe496c1767e66bc) 
+
+
+Pickup - [advos.io](https://advos.io/en/dw-excavation-shares-insights-on-coastal-california-construction/20244063)
+ 
 
 
 

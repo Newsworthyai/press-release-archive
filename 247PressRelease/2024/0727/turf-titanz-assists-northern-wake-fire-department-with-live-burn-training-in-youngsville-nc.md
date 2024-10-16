@@ -7,7 +7,17 @@ RALEIGH, NC, July 27, 2024 /24-7PressRelease/ -- Turf Titanz, a premier lawn car
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512862/turf-titanz-assists-northern-wake-fire-department-with-live-burn-training-in-youngsville-nc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/turf-titanz-partners-with-northern-wake-fire-department-for-live-burn-training/68f8f2ca230e7004bfcc5ce9a4355763) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/27/turf-titanz-collaborates-with-northern-wake-fire-department-for-critical-live-burn-training)
+
+Pickup - [fishervista.com](https://fishervista.com/en/turf-titanz-partners-with-northern-wake-fire-department-for-live-burn-training/20245306)
+
+Pickup - [advos.io](https://advos.io/en/turf-titanz-collaborates-with-northern-wake-fire-department-for-crucial-training/20245306)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/turf-titanz-collaborates-with-northern-wake-fire-department-for-critical-live-burn-training)
+ 
 
 
 

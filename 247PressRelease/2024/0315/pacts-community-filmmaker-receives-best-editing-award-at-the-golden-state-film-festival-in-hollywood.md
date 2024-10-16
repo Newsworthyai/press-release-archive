@@ -7,7 +7,11 @@ LOS ANGELES, CA, March 15, 2024 /24-7PressRelease/ -- On February 29, 2024, a me
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509283/pacts-community-filmmaker-receives-best-editing-award-at-the-golden-state-film-festival-in-hollywood)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/member-of-pacts-international-premieres-award-winning-documentary-at-golden-state-film-festival/e84f6160416713f468aaf892c264d0c6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/pacts-filmmaker-wins-award-for-exposing-covert-torture)
+ 
 
 
 

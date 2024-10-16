@@ -43,7 +43,17 @@ Founded by visionary entrepreneur Bailey Nahi, THAT is dedicated to transforming
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-that-shifting-from-cash-to-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/that-launches-as-pioneering-layer-1-blockchain-with-vision-for-mass-adoption/8f5ee2220c1994a9e9017c354adc13f2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/that-launches-as-innovative-layer-1-blockchain-to-replace-cash-with-cryptocurrency)
+
+Pickup - [fishervista.com](https://fishervista.com/en/that-launches-as-new-layer-1-blockchain-aims-to-replace-cash-with-cryptocurrency/20246846)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/that-launches-as-innovative-layer-1-blockchain-aiming-to-replace-cash/20246846)
+
+Pickup - [advos.io](https://advos.io/en/that-launches-as-new-layer-1-blockchain-aiming-to-replace-cash/20246846)
+ 
 
 
 

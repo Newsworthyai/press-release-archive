@@ -65,7 +65,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-horizon-a
 [Original/Source Press Release](https://newsdirect.com/news/new-horizon-aircraft-nasdaq-hovr-poised-for-growth-with-hybrid-aircraft-technology-amid-small-cap-strength-716098326)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-horizon-puts-pedal-to-the-metal-on-evtol-aircraft/b389776cd3d2da3b8dfedc43948100de) 
+
+ 
 
 
 

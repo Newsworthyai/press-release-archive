@@ -7,7 +7,17 @@ HALTOM CITY, TX, August 20, 2024 /24-7PressRelease/ -- In 2023, Austin became th
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511436/texas-cities-are-reducing-parking-mandates-haltom-city-should-follow-suit)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/texas-cities-embrace-parking-reform-haltom-city-urged-to-follow-suit/fc67bc7d85cf5a70bba0bf75eaf00ace) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/texas-cities-eliminate-parking-minimums-haltom-city-urged-to-follow-suit/20245822)
+
+Pickup - [advos.io](https://advos.io/en/haltom-city-urged-to-follow-texas-cities-in-reducing-parking-mandates/20245822)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/texas-cities-eliminate-parking-minimums-haltom-city-urged-to-follow-suit)
+
+Pickup - [fishervista.com](https://fishervista.com/en/haltom-city-urged-to-follow-texas-trend-in-reducing-parking-mandates/20245822)
+ 
 
 
 

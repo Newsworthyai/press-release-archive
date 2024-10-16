@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/newmark-secur
 [Original/Source Press Release](https://newsdirect.com/news/newmark-security-wraps-up-strong-year-as-positive-momentum-continues-908383416)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newmark-security-wraps-up-strong-year-with-positive-momentum-continuing/e30b12312bc1c57032c4058d765c6821) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/newmark-security-reports-strong-financial-performance-and-expansion-in-fy-2024/20243150)
+ 
 
 
 

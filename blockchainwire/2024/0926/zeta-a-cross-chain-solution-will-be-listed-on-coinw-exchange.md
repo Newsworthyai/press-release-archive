@@ -31,7 +31,9 @@ About ZetaChain
 [Original/Source Press Release](https://blockchainwire.io/press-release/zeta-a-cross-chain-solution-will-be-listed-on-coinw-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-lists-zeta-on-innovation-zone-for-cross-chain-smart-contracts/9eb89ba3098350f4112c7a2f63025636) 
+
+ 
 
 
 

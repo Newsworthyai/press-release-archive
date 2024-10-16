@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/hispanic-publ
 [Original/Source Press Release](https://newsdirect.com/news/hispanic-public-relations-association-announces-2024-bravo-awards-honorees-179331136)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hispanic-public-relations-association-announces-2024-bravo-award-honorees/5e66d544d4e7febfa575b87256857c90) 
+
+
+Pickup - [advos.io](https://advos.io/en/hispanic-public-relations-association-unveils-2024-bravo-awards-honorees/20244028)
+ 
 
 
 

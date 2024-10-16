@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/taillight-asc
 [Original/Source Press Release](https://newsdirect.com/news/taillight-ascends-to-top-5-naming-firms-and-top-15-branding-firms-worldwide-on-clutch-865252855)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/taillight-ranks-among-top-5-naming-firms-and-top-15-branding-firms-by-clutch/d38937f4efe67f7f08baae01bf88d60f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/taillight-ranks-among-top-global-branding-and-naming-firms-by-clutch/20245581)
+
+Pickup - [advos.io](https://advos.io/en/taillight-rises-to-top-ranks-in-global-branding-and-naming-firms/20245581)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/taillight-emerges-as-global-leader-in-branding-and-naming-services/20245581)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/taillight-soars-to-global-top-rankings-in-naming-and-branding-on-clutch)
+ 
 
 
 

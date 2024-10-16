@@ -7,7 +7,15 @@ WASHINGTON, DC, July 17, 2024 /24-7PressRelease/ -- Michael D. David is a well-k
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512570/michael-d-david-leading-quantum-prosperity-consortium-investment-education-foundation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-investor-michael-d-david-a-leading-figure-in-the-financial-sector/a2ed4a081aef2ed08615b0651d395619) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/michael-d-david-a-trailblazer-in-investment-education-and-market-analysis)
+
+Pickup - [fishervista.com](https://fishervista.com/en/michael-d-david-leading-the-quantum-prosperity-consortium-investment-education-foundation/20245004)
+
+Pickup - [advos.io](https://advos.io/en/michael-d-david-pioneering-investor-leading-quantum-prosperity-consortium/20245004)
+ 
 
 
 

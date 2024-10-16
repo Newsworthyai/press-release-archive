@@ -47,7 +47,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/major-indexes
 [Original/Source Press Release](https://newsdirect.com/news/major-indexes-crashed-on-recession-fears-weeks-before-gold-hit-another-all-time-high-how-you-can-protect-your-wealth-with-the-precious-metal-168763179)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-emerges-as-safe-haven-asset-amid-market-turmoil/59067c23b96287af9f9f96f54e6ee3af) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/gold-reaches-record-high-amid-market-volatility-and-economic-uncertainty)
+
+Pickup - [fishervista.com](https://fishervista.com/en/market-volatility-spurs-interest-in-gold-as-a-safe-haven-asset-amid-recession-fears/20246568)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/gold-reaches-record-high-amid-market-volatility-and-economic-uncertainty/20246568)
+
+Pickup - [advos.io](https://advos.io/en/gold-emerges-as-a-safe-haven-amid-market-turbulence-in-2024/20246568)
+ 
 
 
 

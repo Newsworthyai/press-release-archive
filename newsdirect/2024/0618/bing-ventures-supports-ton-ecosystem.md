@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/bing-ventures
 [Original/Source Press Release](https://newsdirect.com/news/bing-ventures-supports-ton-ecosystem-571617386)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bing-ventures-announces-comprehensive-support-for-ton-ecosystem/9fce55062b19f104965a8685a5be2ea4) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bing-ventures-announces-comprehensive-support-for-ton-ecosystem/20244254)
+
+Pickup - [advos.io](https://advos.io/en/bing-ventures-backs-ton-ecosystem-with-comprehensive-support/20244254)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bing-ventures-announces-comprehensive-support-for-ton-ecosystem)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bing-ventures-announces-comprehensive-support-for-ton-ecosystem)
+ 
 
 
 

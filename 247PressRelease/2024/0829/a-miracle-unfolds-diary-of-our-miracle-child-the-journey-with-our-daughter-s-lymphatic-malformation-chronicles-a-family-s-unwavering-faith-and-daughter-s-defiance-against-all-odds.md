@@ -7,7 +7,17 @@ AUSTIN, TX, August 29, 2024 /24-7PressRelease/ -- Against a tide of fear and dou
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513887/a-miracle-unfolds-diary-of-our-miracle-child-the-journey-with-our-daughters-lymphatic-malformation-chronicles-a-familys-unwavering-faith-and-daughters-defiance-against-all-odds)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/family-s-inspiring-journey-through-lymphatic-malformation-diagnosis/b5787d19b35de4f673ae23273b7a830f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/new-memoir-chronicles-family-s-battle-against-daughter-s-rare-lymphatic-malformation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-memoir-chronicles-family-s-journey-through-daughter-s-rare-lymphatic-malformation/20246368)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/new-memoir-chronicles-family-s-fight-against-rare-lymphatic-malformation/20246368)
+
+Pickup - [advos.io](https://advos.io/en/new-memoir-chronicles-family-s-journey-through-daughter-s-rare-diagnosis/20246368)
+ 
 
 
 

@@ -7,7 +7,11 @@ VIRGINIA BEACH, VA, April 11, 2024 /24-7PressRelease/ -- In 2024, Melone Hatley,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509971/melone-hatley-pc-announces-10k-women-in-business-scholarship-for-its-10th-anniversary)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/melone-hatley-p-c-to-offer-10k-scholarship-for-women-pursuing-business-degrees/a837f57297c050d614097d4ae7fd8294) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/melone-hatley-pc-announces-10k-women-in-business-scholarship-for-10th-anniversary)
+ 
 
 
 

@@ -15,7 +15,9 @@ In conclusion, Ketamine Assisted Psychotherapy offers a groundbreaking and perso
 [Original/Source Press Release](https://newsworthy.ai/news/202402171001/ketamine-assisted-psychotherapy-in-denver-a-powerful-treatment-option-for-mental-health-challenges)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/balanced-mental-wellness-introduces-ketamine-assisted-psychotherapy-in-denver/9291a502ca84fbf36dec3e0b16f7c18f) 
+
+ 
 
 
 

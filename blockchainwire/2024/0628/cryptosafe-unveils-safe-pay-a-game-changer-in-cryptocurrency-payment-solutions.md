@@ -49,7 +49,17 @@ SafePaycontact-us@safe-pay.ai
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptosafe-unveils-safe-pay-a-game-changer-in-cryptocurrency-payment-solutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptosafe-ltd-launches-safe-pay-revolutionizing-cryptocurrency-payments/5e9920a92d8890a44342017e1d65d2b8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cryptosafe-ltd-launches-safe-pay-to-transform-cryptocurrency-payments/20244570)
+
+Pickup - [advos.io](https://advos.io/en/cryptosafe-ltd-launches-safe-pay-to-streamline-cryptocurrency-payments/20244570)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cryptosafe-ltd-launches-safe-pay-revolutionizing-cryptocurrency-payments)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cryptosafe-ltd-launches-safe-pay-revolutionizing-cryptocurrency-payments)
+ 
 
 
 

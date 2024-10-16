@@ -84,7 +84,11 @@ PlayStore: [https://play.google.com/store/apps/details?id=com.jojojojo.VOS](http
 [Original/Source Press Release](https://blockchainwire.io/press-release/play-earn-conquer-victory-of-suckers-mega-gaming-competition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jjcverse-revolutionizes-gaming-earnings-with-web3-and-nfts/13d022e902b10b462fb555733b82da4e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/10/play-earn-conquer-jjcverse-unveils-victory-of-sucker-gaming-revolution)
+ 
 
 
 

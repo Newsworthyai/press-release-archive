@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bevel-rebrand
 [Original/Source Press Release](https://newsdirect.com/news/bevel-rebrands-under-avenue-z-driving-new-era-of-media-convergence-146301631)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avenue-z-unifies-and-rebrands-bevel-to-drive-media-convergence/86de30b4b90ca351b6e52b7c9afea96f) 
+
+
+Pickup - [advos.io](https://advos.io/en/avenue-z-unifies-bevel-to-drive-new-era-of-media-convergence/20243631)
+ 
 
 
 

@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/comcast-compl
 [Original/Source Press Release](https://newsdirect.com/news/comcast-completes-major-fiber-network-expansion-in-spring-hill-kansas-770200313)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-completes-major-fiber-network-expansion-in-spring-hill-kansas/2ebd911e02ffc8bbe5eff36de4a4ac41) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/comcast-completes-major-fiber-network-expansion-in-spring-hill-kansas)
+ 
 
 
 

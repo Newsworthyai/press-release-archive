@@ -42,7 +42,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-launch-of-comew-on-raydium-dex-marks-a-new-era-in-tax-free-cryptocurrency-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-comew-launch-on-raydium-dex-tax-free-trading-and-significant-partnerships/a38f3e4f37b704691be024fde7f6df74) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/launch-of-comew-on-raydium-dex-marks-a-new-era-in-tax-free-cryptocurrency-trading)
+ 
 
 
 

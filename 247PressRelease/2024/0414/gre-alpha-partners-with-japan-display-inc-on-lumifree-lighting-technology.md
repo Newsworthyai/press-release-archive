@@ -7,7 +7,11 @@ TOKYO, JAPAN, April 14, 2024 /24-7PressRelease/ -- GRE Alpha has partnered with 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509855/gre-alpha-partners-with-japan-display-inc-on-lumifree-lighting-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gre-alpha-and-japan-display-inc-partner-to-advance-lumifree-technology/c80114a9e82595830118a7f83d38a3fa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/14/gre-alpha-partners-with-japan-display-inc-on-lumifree-lighting-technology)
+ 
 
 
 

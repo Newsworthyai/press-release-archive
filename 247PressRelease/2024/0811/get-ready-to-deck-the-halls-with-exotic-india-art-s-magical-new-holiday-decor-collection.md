@@ -7,7 +7,17 @@ ROSEVILLE, MN, August 11, 2024 /24-7PressRelease/ -- Exotic India Art is a renow
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513284/get-ready-to-deck-the-halls-with-exotic-india-arts-magical-new-holiday-decor-collection)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exotic-india-art-launches-mesmerizing-holiday-home-decor-collection/78bb6df864ae90d9445fc66a0d320d3d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/11/exotic-india-art-unveils-enchanting-holiday-decor-collection)
+
+Pickup - [fishervista.com](https://fishervista.com/en/exotic-india-art-unveils-new-holiday-decor-collection/20245635)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/exotic-india-art-unveils-enchanting-holiday-decor-collection-for-global-homes/20245635)
+
+Pickup - [advos.io](https://advos.io/en/exotic-india-art-unveils-new-holiday-decor-collection/20245635)
+ 
 
 
 

@@ -57,7 +57,9 @@ Email:Support: [admin@dfcmail.](https://www.globenewswire.com/Tracker?data=Z1s4
 [Original/Source Press Release](https://blockchainwire.io/press-release/dfc-app-has-launched-a-new-mobile-app-now-available-on-google-play-and-the-apple-app-store)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dfc-launches-ukdfc-pro-mobile-app-for-real-time-trading-and-asset-management/091f48088f29644f61e1b2c750d5526a) 
+
+ 
 
 
 

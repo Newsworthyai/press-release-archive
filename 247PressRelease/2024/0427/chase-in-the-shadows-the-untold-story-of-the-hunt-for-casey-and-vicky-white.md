@@ -7,7 +7,9 @@ KILLEN, AL, April 27, 2024 /24-7PressRelease/ -- In a gripping true-crime narrat
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510443/chase-in-the-shadows-the-untold-story-of-the-hunt-for-casey-and-vicky-white)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/retired-sheriff-s-new-book-unveils-riveting-true-crime-manhunt/37b62a821137ebb6f861fee6c275aa1d) 
+
+ 
 
 
 

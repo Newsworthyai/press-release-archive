@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/apple-rush-co
 [Original/Source Press Release](https://newsdirect.com/news/apple-rush-company-inc-announces-acquisition-of-trucking-company-to-fuel-growth-acquisition-expected-to-increase-top-line-revenues-by-over-10-million-dollars-in-2025-821444887)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/apple-rush-company-announces-acquisition-of-trucking-company/3317b5c988b138426d40380343e32efb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/apple-rush-company-acquires-stotland-trucking-to-boost-revenue-and-expand-logistics)
+
+Pickup - [fishervista.com](https://fishervista.com/en/apple-rush-company-inc-acquires-stotland-trucking-to-boost-revenue-by-10-million-in-2025/20245460)
+
+Pickup - [advos.io](https://advos.io/en/apple-rush-company-acquires-stotland-trucking-to-boost-revenue-and-growth/20245460)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/apple-rush-company-acquires-stotland-trucking-to-boost-revenue-and-vertical-integration)
+ 
 
 
 

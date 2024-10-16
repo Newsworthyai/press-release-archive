@@ -53,7 +53,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/exabits-and-myshells-breakthrough-from-billions-to-100k-in-llm-training-costs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exabits-partners-with-myshell-to-achieve-breakthrough-in-llm-training/bb0dc379da1cf5b6ee4e592a3601ad49) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/exabits-and-myshell-s-breakthrough-from-billions-to-100k-in-llm-training-costs)
+ 
 
 
 

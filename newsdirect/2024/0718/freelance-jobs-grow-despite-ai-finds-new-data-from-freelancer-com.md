@@ -647,7 +647,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/freelance-job
 [Original/Source Press Release](https://newsdirect.com/news/freelance-jobs-grow-despite-ai-finds-new-data-from-freelancer-com-116679759)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/freelance-jobs-grow-despite-ai-finds-new-data-from-freelancer-com/4a8a0c0a88b8861cb9ebfc54faa2d3ad) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/freelance-jobs-surge-despite-ai-advancements-freelancer-com-report-reveals)
+
+Pickup - [fishervista.com](https://fishervista.com/en/freelance-jobs-thrive-despite-ai-advancements-reports-freelancer-com/20245051)
+
+Pickup - [advos.io](https://advos.io/en/freelance-jobs-thrive-despite-ai-advancements-reports-freelancer-com/20245051)
+ 
 
 
 

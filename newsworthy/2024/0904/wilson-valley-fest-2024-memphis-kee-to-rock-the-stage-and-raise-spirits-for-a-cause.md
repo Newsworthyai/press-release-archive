@@ -41,7 +41,17 @@ About [Wilson Valley Mercantile](https://wilsonvalleyfest.com/):Wilson Valley Me
 [Original/Source Press Release](https://newsworthy.ai/news/202409041253/wilson-valley-fest-2024-memphis-kee-to-rock-the-stage-and-raise-spirits-for-a-cause)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wilson-valley-fest-2024-music-whiskey-and-community-unite-for-a-cause/c362aa541c7ffdfbd3e87f13338e412e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/wilson-valley-fest-2024-memphis-kee-to-headline-charity-event-for-texas-wildfire-victims)
+
+Pickup - [fishervista.com](https://fishervista.com/en/wilson-valley-fest-2024-music-and-whiskey-for-a-cause/20246510)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/memphis-kee-to-headline-wilson-valley-fest-2024-supporting-texas-wildfire-victims/20246510)
+
+Pickup - [advos.io](https://advos.io/en/wilson-valley-fest-2024-music-whiskey-and-community-for-a-cause/20246510)
+ 
 
 
 

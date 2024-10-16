@@ -33,7 +33,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/catalyst-mark
 [Original/Source Press Release](https://newsdirect.com/news/catalyst-marketing-agency-named-2024-colorado-companies-to-watch-winner-358792592)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/catalyst-marketing-agency-named-2024-colorado-companies-to-watch-winner/a16bcaf6050dbb795d5f2db97a1fea4f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/catalyst-marketing-agency-recognized-as-2024-colorado-companies-to-watch-winner/20244548)
+
+Pickup - [advos.io](https://advos.io/en/catalyst-marketing-agency-receives-2024-colorado-companies-to-watch-award/20244548)
+ 
 
 
 

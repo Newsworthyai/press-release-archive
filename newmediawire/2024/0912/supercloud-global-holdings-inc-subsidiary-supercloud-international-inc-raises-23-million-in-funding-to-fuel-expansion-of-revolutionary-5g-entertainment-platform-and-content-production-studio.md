@@ -37,7 +37,17 @@ This press release contains forward-looking statements that are subject to risks
 [Original/Source Press Release](https://www.newmediawire.com/news/supercloud-global-holdings-inc-subsidiary-supercloud-international-inc-raises-23-million-in-funding-to-fuel-expansion-of-revolutionary-5g-entertainment-platform-and-content-production-studio-7076046)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/supercloud-global-holdings-inc-raises-23-million-to-expand-5g-powered-umaxx-tv/a477a6c7ef937314060da5606383d04e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/supercloud-global-holdings-secures-23-million-in-funding-for-5g-entertainment-platform-expansion)
+
+Pickup - [fishervista.com](https://fishervista.com/en/supercloud-global-holdings-secures-23-million-in-funding-for-5g-entertainment-platform-expansion/20246790)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/supercloud-global-holdings-secures-23-million-to-expand-5g-entertainment-platform/20246790)
+
+Pickup - [advos.io](https://advos.io/en/supercloud-global-holdings-secures-23-million-in-funding-for-5g-entertainment-platform-expansion/20246790)
+ 
 
 
 

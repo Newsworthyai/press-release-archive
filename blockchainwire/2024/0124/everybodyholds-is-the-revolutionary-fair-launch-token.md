@@ -88,7 +88,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/everybodyholds-is-the-revolutionary-fair-launch-token)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-meme-token-everybodyholds-hold-combatting-cryptocurrency-snipers-and-scammers/eb350534c5d4d7b928252999668bbece) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/24/everybodyholds-the-revolutionary-fair-launch-token-defying-crypto-norms)
+ 
 
 
 

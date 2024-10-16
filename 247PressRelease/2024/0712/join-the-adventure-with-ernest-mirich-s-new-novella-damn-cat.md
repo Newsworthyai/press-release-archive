@@ -7,7 +7,15 @@ LOS ANGELES, CA, July 12, 2024 /24-7PressRelease/ -- Dive into the heart of Los 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512446/join-the-adventure-with-ernest-mirichs-new-novella-damn-cat)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-novella-damn-cat-a-hilarious-urban-adventure-in-los-angeles/07e76179971e7fb7d580b7b1c79fa36a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/ernest-mirich-s-damn-cat-novella-offers-hilarious-urban-adventure-through-los-angeles)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ernest-mirich-s-new-novella-damn-cat-offers-hilarious-urban-escapades/20244913)
+
+Pickup - [advos.io](https://advos.io/en/ernest-mirich-unveils-hilarious-urban-adventure-in-new-novella-damn-cat/20244913)
+ 
 
 
 

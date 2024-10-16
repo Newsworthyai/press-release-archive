@@ -21,7 +21,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/group-eleven-
 [Original/Source Press Release](https://newsdirect.com/news/group-eleven-hopeful-for-a-second-major-discovery-at-carrickittle-west-prospect-in-ireland-682460405)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/group-eleven-hopeful-for-second-major-zinc-discovery-in-ireland/50fb7ef0b797555e7df2fda3ecf98ec2) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/group-eleven-resources-optimistic-about-major-zinc-discovery-in-ireland/20244736)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/group-eleven-resources-aims-for-second-major-zinc-discovery-in-ireland)
+
+Pickup - [advos.io](https://advos.io/en/group-eleven-eyes-second-major-zinc-discovery-at-carrickittle-west-in-ireland/20244736)
+ 
 
 
 

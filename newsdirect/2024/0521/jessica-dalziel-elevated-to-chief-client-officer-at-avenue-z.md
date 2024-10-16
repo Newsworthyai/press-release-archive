@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/jessica-dalzi
 [Original/Source Press Release](https://newsdirect.com/news/jessica-dalziel-elevated-to-chief-client-officer-at-avenue-z-650540779)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jessica-dalziel-elevated-to-chief-client-officer-at-avenue-z/9a02a2e9131a9d6a20cef283c52dea37) 
+
+ 
 
 
 

@@ -61,7 +61,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/l7-global-public-beta-progressing-smoothly-an-overview-of-new-functions-and-features)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/l7-global-s-public-beta-impressive-milestones/8cdb5b63f369c9100eb716e0a10ff1a6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/26/l7-global-s-public-beta-delivering-an-exceptional-user-experience)
+ 
 
 
 

@@ -15,7 +15,11 @@ BitMart will also hold exclusive platform activities for BMX and an AMA event wi
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmarts-platform-token-bmx-ecosystem-upgrade-bmx-has-been-listed-on-kucoin)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmart-lists-bmx-token-on-kucoin-expanding-ecosystem-and-utility/b084cdbd1f6252a9b36adacb250942ab) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/02/bitmart-exchange-s-bmx-token-listed-on-kucoin-ecosystem-upgrade-announced)
+ 
 
 
 

@@ -7,7 +7,15 @@ MINNEAPOLIS, MN, July 03, 2024 /24-7PressRelease/ -- The poems and prose from th
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512206/bd%C3%B3te-yateen-poetry-and-prose-by-angela-ellen-grey-and-editor-paige-peterson-is-available-now-at-all-major-online-retailers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/captivating-indigenous-historical-fiction-novel-in-verse-bdote/cb7d71ce6d130d449f03e2f77cd1d063) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-ya-novel-bdote-explores-dakota-sioux-history-through-poetry/20244686)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/new-ya-novel-bdote-bridges-past-and-present-through-dakota-sioux-poetry)
+
+Pickup - [advos.io](https://advos.io/en/bdote-angela-ellen-grey-s-new-ya-teen-poetry-and-prose-now-available/20244686)
+ 
 
 
 

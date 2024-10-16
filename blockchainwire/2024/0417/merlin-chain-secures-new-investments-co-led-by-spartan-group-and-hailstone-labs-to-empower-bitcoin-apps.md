@@ -45,7 +45,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/merlin-chain-secures-new-investments-co-led-by-spartan-group-and-hailstone-labs-to-empower-bitcoin-apps)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/merlin-chain-secures-new-funding-round-led-by-spartan-group-and-hailstone-labs/06b5a7b9b84fcfecdbf3ffd95855e11a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/merlin-chain-secures-new-investments-to-empower-bitcoin-apps)
+ 
 
 
 

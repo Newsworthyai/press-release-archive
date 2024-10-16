@@ -33,7 +33,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/aberdeen-limi
 [Original/Source Press Release](https://newsdirect.com/news/aberdeen-limited-secures-landmark-victory-in-european-court-case-184322499)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aberdeen-limited-triumphs-in-european-court-case/44bf9e3a169a2567f0168a1bc2552cca) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/aberdeen-limited-wins-landmark-case-in-european-court/20244377)
+
+Pickup - [advos.io](https://advos.io/en/aberdeen-limited-wins-major-european-court-case-securing-operational-rights-within-the-eu/20244377)
+ 
 
 
 

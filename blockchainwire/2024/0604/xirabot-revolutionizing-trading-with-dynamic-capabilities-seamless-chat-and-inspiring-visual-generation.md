@@ -9,7 +9,9 @@ Empowering Traders with Dynamic TradingXiraBot equips traders with an array of p
 [Original/Source Press Release](https://blockchainwire.io/press-release/xirabot-revolutionizing-trading-with-dynamic-capabilities-seamless-chat-and-inspiring-visual-generation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xirabot-revolutionizes-trading-with-dynamic-technology-and-token-presale-details/d58c7040726e9528ced8d3aa5bccbe87) 
+
+ 
 
 
 

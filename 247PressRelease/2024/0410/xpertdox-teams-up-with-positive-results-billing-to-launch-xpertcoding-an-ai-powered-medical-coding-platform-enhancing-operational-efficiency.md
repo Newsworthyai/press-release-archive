@@ -7,7 +7,11 @@ BIRMINGHAM, AL, April 10, 2024 /24-7PressRelease/ -- XpertDox, a leader in AI-dr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509933/xpertdox-teams-up-with-positive-results-billing-to-launch-xpertcoding-an-ai-powered-medical-coding-platform-enhancing-operational-efficiency)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xpertdox-forms-strategic-alliance-with-positive-results-billing-for-advanced-ai-medical-coding-software-integration/c48f1842595653a8bb5bb4788931656f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/xpertdox-and-positive-results-billing-launch-ai-powered-medical-coding-platform)
+ 
 
 
 

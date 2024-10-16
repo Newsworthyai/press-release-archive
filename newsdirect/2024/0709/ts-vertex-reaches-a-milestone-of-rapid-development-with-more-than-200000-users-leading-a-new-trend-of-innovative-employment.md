@@ -73,7 +73,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/ts-vertex-rea
 [Original/Source Press Release](https://newsdirect.com/news/ts-vertex-reaches-a-milestone-of-rapid-development-with-more-than-200-000-users-leading-a-new-trend-of-innovative-employment-825750476)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ts-vertex-reaches-milestone-with-200000-users/b829a302dfdf51ccd2e4a36952d4258a) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/ts-vertex-surpasses-200000-users-pioneering-innovative-employment-trends/20244811)
+
+Pickup - [advos.io](https://advos.io/en/ts-vertex-surpasses-200000-users-pioneers-innovative-employment-trends/20244811)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/ts-vertex-surpasses-200000-users-reshaping-global-employment-trends)
+ 
 
 
 

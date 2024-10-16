@@ -7,7 +7,9 @@ INDIAN SPRINGS VILLAGE, AL, October 11, 2024 /24-7PressRelease/ -- Twelve studen
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515192/twelve-students-from-indian-springs-school-have-been-named-2025-national-merit-semifinalists)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/indian-springs-school-students-named-2025-national-merit-r-semifinalists/73ce28f1482efe088dc2873548d929a3) 
+
+ 
 
 
 

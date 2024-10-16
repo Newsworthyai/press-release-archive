@@ -7,7 +7,11 @@ AUSTIN, TX, March 19, 2024 /24-7PressRelease/ -- GOTRAX, a leader in the industr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509362/gotrax-to-sponsor-daniil-kvyat-in-nascar-xfinity-race-at-cota)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gotrax-partners-with-daniil-kvyat-for-nascar-xfinity-series-race-at-circuit-of-the-americas/13437b8bdda9032bd9647470ced4dc5b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/gotrax-partners-with-daniil-kvyat-for-nascar-xfinity-race)
+ 
 
 
 

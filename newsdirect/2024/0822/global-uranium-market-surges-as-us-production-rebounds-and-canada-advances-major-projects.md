@@ -85,7 +85,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/global-uraniu
 [Original/Source Press Release](https://newsdirect.com/news/global-uranium-market-surges-as-us-production-rebounds-and-canada-advances-major-projects-889995103)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-uranium-market-surges-as-us-production-rebounds-and-canada-advances-major-projects/3b1c6026a6b4ea540ec86499b8fc3365) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/global-uranium-market-sees-resurgence-as-us-production-rebounds-and-canada-advances-major-projects)
+
+Pickup - [fishervista.com](https://fishervista.com/en/global-uranium-market-experiences-resurgence-with-key-developments-in-us-and-canada/20245895)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/uranium-market-sees-resurgence-as-us-production-soars-and-canada-advances-major-projects/20245895)
+
+Pickup - [advos.io](https://advos.io/en/global-uranium-market-surges-with-us-production-rebound-and-canadian-project-developments/20245895)
+ 
 
 
 

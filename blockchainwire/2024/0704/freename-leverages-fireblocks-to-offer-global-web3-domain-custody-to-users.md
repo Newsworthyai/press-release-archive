@@ -31,7 +31,19 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/freename-leverages-fireblocks-to-offer-global-web3-domain-custody-to-users)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/freename-collaborates-with-fireblocks-to-enhance-web3-domain-security/8b57cd4cb7b95987cdd2f1cba89fbac8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/freename-partners-with-fireblocks-to-enhance-web3-domain-security/20244709)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/04/freename-partners-with-fireblocks-to-enhance-web3-domain-security)
+
+Pickup - [advos.io](https://advos.io/en/freename-partners-with-fireblocks-to-enhance-web3-domain-security/20244709)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/freename-collaborates-with-fireblocks-to-enhance-web3-domain-security)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/freename-collaborates-with-fireblocks-to-enhance-web3-domain-security)
+ 
 
 
 

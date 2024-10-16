@@ -7,7 +7,17 @@ LOS ANGELES, CA, July 25, 2024 /24-7PressRelease/ -- As a premier dating app for
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512807/seniormatch-senior-people-over-55-prefer-dating-someone-60-minutes-away)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/seniormatch-survey-reveals-dating-trends-and-relationship-demands-for-senior-singles-over-50/67c52854c73550298401d06bd6338a4d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/senior-dating-trends-over-55s-embrace-long-distance-romance)
+
+Pickup - [fishervista.com](https://fishervista.com/en/seniormatch-survey-reveals-dating-preferences-of-seniors-over-55/20245232)
+
+Pickup - [advos.io](https://advos.io/en/seniormatch-reveals-senior-dating-trends-distance-and-serious-relationships-preferred/20245232)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/seniormatch-survey-reveals-dating-preferences-of-singles-over-55)
+ 
 
 
 

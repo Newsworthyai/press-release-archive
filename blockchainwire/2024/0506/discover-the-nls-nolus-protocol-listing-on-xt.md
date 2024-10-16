@@ -53,7 +53,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-nls-nolus-protocol-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nolus-protocol-s-nls-listed-on-xt-trading-platform/5bf3ef39876abcac1f8d598ac1efed17) 
+
+ 
 
 
 

@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cloud-dx-repo
 [Original/Source Press Release](https://newsdirect.com/news/cloud-dx-reports-significant-revenue-and-profit-growth-in-2023-756884873)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloud-dx-achieves-remarkable-revenue-and-profit-growth-in-2023/7fdc1d1079b9212e82ba4a4bd790b80b) 
+
+ 
 
 
 

@@ -65,7 +65,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-stakingfarm-aiming-to-reinforce-its-status-as-the-best-crypto-staking-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-sets-new-standards-in-cryptocurrency-staking/97ce2ad8bad805cce4c3ca5563d3cb80) 
+
+ 
 
 
 

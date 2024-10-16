@@ -7,7 +7,9 @@ NEW YORK, NY, October 04, 2024 /24-7PressRelease/ -- In a landmark development, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514944/financial-giants-join-central-bank-initiative-to-revolutionize-cross-border-payments-with-tokenization-fraud-prevention-and-regulatory-focus)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/financial-institutions-and-tech-firms-join-initiative-to-explore-cross-border-payment-tokenization/e670b50e9723102d819f6438bfc1eb0c) 
+
+ 
 
 
 

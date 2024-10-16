@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/pantoro-boost
 [Original/Source Press Release](https://newsdirect.com/news/pantoro-boosts-capital-raise-to-100-million-for-norseman-project-expansion-626533763)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pantoro-increases-capital-raise-to-100-million-for-norseman-project-expansion/7789d9ad3975b71c65ea197cf347b43a) 
+
+ 
 
 
 

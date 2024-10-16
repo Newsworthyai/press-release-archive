@@ -7,7 +7,11 @@ NEW YORK, NY, April 02, 2024 /24-7PressRelease/ -- 1978 was born out of Selectre
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509701/ace-hotel-new-york-second-world-productions-are-proud-to-announce-1978-a-spring-dance-party-series-celebrating-the-genesis-evolution-of-dance-dj-culture-launching-april-13th)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/1978-parties-a-celebration-of-rare-grooves-disco-and-hip-hop/391c6faf90abebb263dddc119c3bd992) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/ace-hotel-new-york-launches-1978-dance-party-series-celebrating-dj-culture)
+ 
 
 
 

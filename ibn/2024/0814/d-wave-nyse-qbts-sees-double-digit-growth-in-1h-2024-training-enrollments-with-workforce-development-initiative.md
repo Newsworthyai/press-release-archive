@@ -29,7 +29,11 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-sees-double-digit-growth-in-1h-2024-training-enrollments-with-workforce-development-initiative/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-sees-double-digit-growth-in-1h-2024-training-enrollments/1fc73faa40dd94b7a3734d39eeeffe7c) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/d-wave-quantum-reports-surge-in-enrollment-for-quantum-programming-courses/20246217)
+ 
 
 
 

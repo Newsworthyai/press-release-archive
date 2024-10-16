@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/voesh-new-yor
 [Original/Source Press Release](https://newsdirect.com/news/voesh-new-york-to-launch-innovative-body-roller-creme-line-for-every-body-800427178)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/voesh-new-york-introduces-innovative-body-roller-creme-line-for-diy-body-care/57277f0c3484f864b515a01c37187172) 
+
+ 
 
 
 

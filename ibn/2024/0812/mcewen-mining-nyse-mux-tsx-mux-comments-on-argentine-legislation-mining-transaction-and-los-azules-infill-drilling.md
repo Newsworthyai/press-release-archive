@@ -27,7 +27,9 @@ McEwen Mining (NYSE: MUX) (TSX: MUX), a gold and silver producer with operations
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-comments-on-argentine-legislation-mining-transaction-and-los-azules-infill-drilling/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-mining-shares-updates-on-mining-situation-in-argentina-and-los-azules-project/f2a787365d026e06f5df27e7d9063dc0) 
+
+ 
 
 
 

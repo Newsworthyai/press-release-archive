@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/power-one-res
 [Original/Source Press Release](https://newsdirect.com/news/power-one-resources-corp-ceo-discusses-promising-projects-and-developments-in-exclusive-interview-706650450)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/power-one-resources-corp-ceo-discusses-promising-projects-and-developments-in-exclusive-interview/fcb6606ab469a65703635a87830dce5d) 
+
+ 
 
 
 

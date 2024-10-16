@@ -35,7 +35,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/pstake-financ
 [Original/Source Press Release](https://newsdirect.com/news/pstake-finance-to-launch-premier-btc-liquid-staking-solution-in-collaboration-with-babylon-878488523)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pstake-finance-to-launch-premier-btc-liquid-staking-solution-in-collaboration-with-babylon/06e899656b030926485eaa08738c2a56) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/pstake-finance-to-launch-premier-btc-liquid-staking-solution-in-collaboration-with-babylon)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/pstake-finance-to-launch-premier-btc-liquid-staking-solution-in-collaboration-with-babylon)
+ 
 
 
 

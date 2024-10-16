@@ -35,7 +35,11 @@ Official Website: [https://p2p.org/products/eigenlayer](https://p2p.org/products
 [Original/Source Press Release](https://blockchainwire.io/press-release/p2porg-unveils-deep-restaking-integrations-for-institutional-eth-restaking-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/p2p-org-launches-restaking-via-eigenlayer-a-pioneering-move-in-institutional-staking/218d376efd50a065206d062b2315071a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/p2p-org-pioneers-restaking-integration-for-institutional-ethereum-staking)
+ 
 
 
 

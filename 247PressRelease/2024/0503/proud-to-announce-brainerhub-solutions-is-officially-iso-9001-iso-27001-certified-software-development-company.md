@@ -7,7 +7,9 @@ AHMEDABAD, INDIA, May 03, 2024 /24-7PressRelease/ -- In software development, ma
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510568/proud-to-announce-brainerhub-solutions-is-officially-iso-9001-iso-27001-certified-software-development-company)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brainerhub-solutions-attains-iso-9001-and-iso-27001-certifications/c0a9b85fd7528115353f82576f097faf) 
+
+ 
 
 
 

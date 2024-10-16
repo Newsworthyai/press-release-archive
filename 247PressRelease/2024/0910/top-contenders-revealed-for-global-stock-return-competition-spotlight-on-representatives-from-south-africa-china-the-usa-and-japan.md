@@ -7,7 +7,17 @@ JOHANNESBURG, SOUTH AFRICA, September 10, 2024 /24-7PressRelease/ -- As the Glob
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514145/top-contenders-revealed-for-global-stock-return-competition-spotlight-on-representatives-from-south-africa-china-the-usa-and-japan)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-stock-return-competition-draws-top-investors-from-10-countries/699d76b7ba986d12e618fe531a2d1c39) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/global-stock-return-competition-showcases-top-investors-from-south-africa-china-usa-and-japan)
+
+Pickup - [fishervista.com](https://fishervista.com/en/global-stock-return-competition-highlights-investment-strategies-from-south-africa-china-usa-and-japan/20246653)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/global-stock-return-competition-showcases-top-investors-from-south-africa-china-usa-and-japan/20246653)
+
+Pickup - [advos.io](https://advos.io/en/top-contenders-emerge-in-global-stock-return-competition-spotlight-on-diverse-investment-styles/20246653)
+ 
 
 
 

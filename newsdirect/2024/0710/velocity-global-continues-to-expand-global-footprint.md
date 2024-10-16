@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/velocity-glob
 [Original/Source Press Release](https://newsdirect.com/news/velocity-global-continues-to-expand-global-footprint-176780854)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/velocity-global-expands-global-footprint-with-new-entities-and-compliance-in-japan/8fd68eac0f210f7a09d885dddbebd3e4) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/velocity-global-expands-operations-to-el-salvador-and-georgia-secures-haken-license-in-japan/20244836)
+
+Pickup - [advos.io](https://advos.io/en/velocity-global-expands-operations-to-el-salvador-and-georgia-secures-compliance-in-japan/20244836)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/velocity-global-expands-operations-to-el-salvador-and-georgia-enhances-compliance-in-japan)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/velocity-global-expands-operations-to-el-salvador-and-georgia-enhances-compliance-in-japan/20244836)
+ 
 
 
 

@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, h
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-receives-po-from-european-distributor-for-29-mullen-gos/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-receives-order-for-29-gos-from-european-distribution-partner/fe6eb3fa91019dc2b76a2a00edb32523) 
+
+ 
 
 
 

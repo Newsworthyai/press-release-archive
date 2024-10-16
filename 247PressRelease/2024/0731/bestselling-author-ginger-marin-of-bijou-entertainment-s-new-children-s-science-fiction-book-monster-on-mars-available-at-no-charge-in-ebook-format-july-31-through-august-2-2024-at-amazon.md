@@ -7,7 +7,17 @@ WILMINGTON, NC, July 31, 2024 /24-7PressRelease/ -- Bijou Entertainment has anno
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512918/bestselling-author-ginger-marin-of-bijou-entertainments-new-childrens-science-fiction-book-monster-on-mars-available-at-no-charge-in-ebook-format-july-31-through-august-2-2024-at-amazon)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-kids-sci-fi-ebook-monster-on-mars-available-for-free-on-amazon/d7fcfc1e4f079570b0569986548edf3f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/bestselling-author-ginger-marin-s-monster-on-mars-free-for-limited-time-on-amazon)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bestselling-author-ginger-marin-releases-free-children-s-sci-fi-ebook-monster-on-mars/20245385)
+
+Pickup - [advos.io](https://advos.io/en/bestselling-author-ginger-marin-s-monster-on-mars-available-for-free-on-amazon/20245385)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bijou-entertainment-offers-free-ebook-of-monster-on-mars-for-limited-time)
+ 
 
 
 

@@ -7,7 +7,17 @@ NEW YORK, NY, September 10, 2024 /24-7PressRelease/ -- In Cheongju, South Korea,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514162/crowds-of-80000-gather-for-worship-at-shincheonji-church-of-jesus)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-church-chairman-lee-man-hee-impresses-80000-at-worship-gathering-in-south-korea/4622be17e730151617501f94e07d7b7b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/shincheonji-church-of-jesus-draws-80000-worshippers-for-biblical-revelation-teachings)
+
+Pickup - [fishervista.com](https://fishervista.com/en/80000-gather-for-worship-at-shincheonji-church-in-south-korea/20246634)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/shincheonji-church-of-jesus-draws-80000-worshippers-in-south-korea/20246634)
+
+Pickup - [advos.io](https://advos.io/en/80000-gather-in-south-korea-for-shincheonji-churchs-30th-anniversary-worship/20246634)
+ 
 
 
 

@@ -7,7 +7,13 @@ LOS ANGELES, CA, June 26, 2024 /24-7PressRelease/ -- Peck Law Corporation stands
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512022/peck-law-corporation-the-leading-advocates-for-nursing-home-abuse-victims-in-the-coachella-valley)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peck-law-corporation-leading-the-fight-against-nursing-home-abuse-in-coachella-valley/58a8619db474380d5201890c4779fde4) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/peck-law-corporation-champions-for-nursing-home-abuse-victims-in-coachella-valley/20244481)
+
+Pickup - [advos.io](https://advos.io/en/peck-law-corporation-championing-justice-for-nursing-home-abuse-victims-in-coachella-valley/20244481)
+ 
 
 
 

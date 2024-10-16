@@ -17,7 +17,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/kingsgate-con
 [Original/Source Press Release](https://newsdirect.com/news/kingsgate-consolidated-advances-chatree-gold-mine-operations-991673559)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kingsgate-consolidated-advances-chatree-gold-mine-operations-in-thailand-and-chile/65a4627704202b485fcc6949f97ca4eb) 
+
+ 
 
 
 

@@ -33,7 +33,21 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/sunny-lights-up-the-tron-blockchain-with-a-booming-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sunny-token-launches-on-tron-blockchain-creating-a-new-defi-sensation/5a67dcaac19264bb42dc5d77c1aa810d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/sunny-token-launches-on-tron-blockchain-creating-a-new-defi-sensation)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/sunny-token-launches-on-tron-blockchain-creating-a-new-defi-sensation)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/24/sunny-token-launches-on-tron-blockchain-bringing-new-energy-to-defi)
+
+Pickup - [fishervista.com](https://fishervista.com/en/sunny-debuts-on-tron-blockchain-sparking-excitement-in-defi-community/20245930)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/sunny-token-launches-on-tron-blockchain-bringing-new-energy-to-defi/20245930)
+
+Pickup - [advos.io](https://advos.io/en/sunny-token-launches-on-tron-blockchain-promising-new-opportunities-in-defi/20245930)
+ 
 
 
 

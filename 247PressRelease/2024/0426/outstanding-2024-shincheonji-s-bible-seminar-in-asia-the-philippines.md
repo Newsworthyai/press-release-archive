@@ -7,7 +7,9 @@ BRISBANE, AUSTRALIA, April 26, 2024 /24-7PressRelease/ -- Shincheonji Chairman L
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510368/outstanding-2024-shincheonjis-bible-seminar-in-asia-the-philippines)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-chairman-lee-man-hee-delivers-powerful-sermon-on-revelation-in-the-philippines/bfb45b65ab0439820970e3d13d806760) 
+
+ 
 
 
 

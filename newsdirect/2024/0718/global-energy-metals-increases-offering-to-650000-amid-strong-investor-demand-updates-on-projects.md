@@ -25,7 +25,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/global-energy
 [Original/Source Press Release](https://newsdirect.com/news/global-energy-metals-increases-offering-to-650-000-amid-strong-investor-demand-updates-on-projects-216586810)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-energy-metals-ceo-increases-offering-to-650000-amid-strong-investor-demand/a03cc7e977c1e7b8159dc7fee23deb3f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/global-energy-metals-expands-offering-to-650000-as-battery-metal-demand-surges)
+
+Pickup - [fishervista.com](https://fishervista.com/en/global-energy-metals-increases-offering-to-650000-amid-strong-investor-demand/20245100)
+
+Pickup - [advos.io](https://advos.io/en/global-energy-metals-raises-offering-to-650000-amid-strong-investor-demand/20245100)
+ 
 
 
 

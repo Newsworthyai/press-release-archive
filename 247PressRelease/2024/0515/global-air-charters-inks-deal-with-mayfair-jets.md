@@ -7,7 +7,9 @@ ST. PAUL, MN, May 15, 2024 /24-7PressRelease/ -- Global Air Charters proudly ann
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510883/global-air-charters-inks-deal-with-mayfair-jets)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-air-charters-and-mayfair-jets-partner-to-expand-private-flights-in-europe-middle-east-and-asia/7f996fdaee84860414284fb824f16338) 
+
+ 
 
 
 

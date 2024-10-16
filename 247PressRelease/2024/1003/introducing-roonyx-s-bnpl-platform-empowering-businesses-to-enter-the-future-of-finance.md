@@ -7,7 +7,9 @@ ST. PETERSBURG, FL, October 03, 2024 /24-7PressRelease/ -- ROONYX, a leading tec
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514910/introducing-roonyxs-bnpl-platform-empowering-businesses-to-enter-the-future-of-finance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/roonyx-launches-innovative-buy-now-pay-later-platform/14fbd4fa8ffa7066314dfa59a9235dd8) 
+
+ 
 
 
 

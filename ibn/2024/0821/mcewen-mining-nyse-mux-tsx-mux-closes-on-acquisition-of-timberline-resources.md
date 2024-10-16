@@ -25,7 +25,13 @@ McEwen Mining (NYSE: MUX) (TSX: MUX), a gold and silver producer with operations
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-closes-on-acquisition-of-timberline-resources/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-mining-completes-acquisition-of-timberline-resources-corporation/bf230ad94dc2acaa288ff8225b316752) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/mcewen-mining-expands-nevada-presence-with-timberline-resources-acquisition)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mcewen-mining-expands-nevada-presence-with-timberline-resources-acquisition/20246211)
+ 
 
 
 

@@ -37,7 +37,19 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/leprechaun-lpc-to-launch-web3-telegram-based-dashboard-and-contract-automation-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leprechaun-token-lpc-launches-automated-crypto-prize-pool-and-telegram-based-dashboard/666a6e0729accdf18ad28164d88bbed6) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/leprechaun-token-lpc-unveils-web3-telegram-based-dashboard-and-automated-prize-pool-system/20244834)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/leprechaun-token-introduces-automated-crypto-prize-pool-and-web3-telegram-dashboard)
+
+Pickup - [advos.io](https://advos.io/en/leprechaun-token-launches-web3-telegram-based-dashboard-and-automated-prize-pool/20244834)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/leprechaun-token-lpc-launches-automated-crypto-prize-pool-and-telegram-based-dashboard)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/leprechaun-token-lpc-launches-automated-crypto-prize-pool-and-telegram-based-dashboard)
+ 
 
 
 

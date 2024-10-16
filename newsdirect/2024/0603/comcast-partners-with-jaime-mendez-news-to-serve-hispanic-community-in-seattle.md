@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/comcast-partn
 [Original/Source Press Release](https://newsdirect.com/news/comcast-partners-with-jaime-mendez-news-to-serve-hispanic-community-in-seattle-806154045)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-partners-with-jaime-mendez-news-to-serve-hispanic-community-in-seattle/34fd6c53b9c3429fd304bf03105fc134) 
+
+
+Pickup - [advos.io](https://advos.io/en/comcast-partners-with-jaime-mendez-news-to-serve-hispanic-community-in-seattle/20243633)
+ 
 
 
 

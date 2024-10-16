@@ -17,7 +17,11 @@ Evexia Wellness Center Fresno offers hope and healing for individuals seeking qu
 [Original/Source Press Release](https://newsworthy.ai/news/202401231021/evexia-wellness-center-fresno-introduces-innovative-new-treatment-for-depression-in-clovis-ca)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-depression-treatment-introduced-in-clovis-area/a0a83e20427dcf749eadc28d76e22f8d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/23/evexia-wellness-center-fresno-pioneers-innovative-depression-treatment-in-clovis)
+ 
 
 
 

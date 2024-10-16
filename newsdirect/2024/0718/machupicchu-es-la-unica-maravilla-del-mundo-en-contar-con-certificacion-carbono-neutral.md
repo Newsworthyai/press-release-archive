@@ -29,7 +29,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/machupicchu-e
 [Original/Source Press Release](https://newsdirect.com/news/machupicchu-es-la-unica-maravilla-del-mundo-en-contar-con-certificacion-carbono-neutral-249463393)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/santuario-historico-de-machupicchu-en-peru-obtiene-certificacion-de-destino-carbono-neutral/f63fa483a3cca9bab109f94254013d40) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/machu-picchu-achieves-carbon-neutral-certification-setting-global-sustainability-standard)
+
+Pickup - [fishervista.com](https://fishervista.com/en/machu-picchu-achieves-carbon-neutral-certification/20245095)
+
+Pickup - [advos.io](https://advos.io/en/machupicchu-receives-carbon-neutral-certification-leading-global-sustainable-tourism/20245095)
+ 
 
 
 

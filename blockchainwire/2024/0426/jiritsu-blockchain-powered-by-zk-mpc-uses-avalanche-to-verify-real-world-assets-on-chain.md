@@ -43,7 +43,9 @@ Everready Website
 [Original/Source Press Release](https://blockchainwire.io/press-release/jiritsu-blockchain-powered-by-zk-mpc-uses-avalanche-to-verify-real-world-assets-on-chain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jiritsu-network-launches-layer-1-with-avalanche-s-subnet-technology/9fefae0747fc9ac710c6152bff5cdf6d) 
+
+ 
 
 
 

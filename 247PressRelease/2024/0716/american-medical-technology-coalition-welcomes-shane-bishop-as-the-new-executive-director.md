@@ -7,7 +7,15 @@ Custom Health CEO Shane Bishop Appointed Executive Director of the American Medi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512568/american-medical-technology-coalition-welcomes-shane-bishop-as-the-new-executive-director)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shane-bishop-appointed-executive-director-of-amtc/b0bc35567d15f534e5eebe5a58d858bb) 
+
+
+Pickup - [advos.io](https://advos.io/en/shane-bishop-appointed-executive-director-of-american-medical-technology-coalition/20244967)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/custom-health-ceo-shane-bishop-named-executive-director-of-american-medical-technology-coalition)
+
+Pickup - [fishervista.com](https://fishervista.com/en/shane-bishop-appointed-executive-director-of-american-medical-technology-coalition/20244967)
+ 
 
 
 

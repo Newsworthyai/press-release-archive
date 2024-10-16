@@ -73,7 +73,9 @@ Name: Zan KowalskiEmail: contact@penguiana.comWebsite: https://penguiana.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/penguianas-pengu-token-presale-launches-poised-to-challenge-slothana-on-the-solana-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/penguiana-the-next-viral-sensation-on-solana/53f54f8d29119cb9a91b8380a7cfaff2) 
+
+ 
 
 
 

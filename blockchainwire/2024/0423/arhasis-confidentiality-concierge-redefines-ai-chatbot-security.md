@@ -29,7 +29,11 @@ Arhasi is a pioneering AI startup focused on the rapid development of secure, go
 [Original/Source Press Release](https://blockchainwire.io/press-release/arhasis-confidentiality-concierge-redefines-ai-chatbot-security)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arhasi-introduces-groundbreaking-confidentiality-concierge-service-for-ai-security/fb166ead56df4d46f1c3945846cddd2f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/arhasi-s-confidentiality-concierge-redefines-ai-chatbot-security)
+ 
 
 
 

@@ -47,7 +47,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/socrates-leads-debate2earn-revolution-with-new-pioneer-pen)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/socrates-announces-pioneer-pen-upgrade-and-new-community-engagement-features/957844f48879eb3465aab36068162dcc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/11/socrates-pioneers-debate-to-earn-revolution-with-innovative-nft-pens)
+ 
 
 
 

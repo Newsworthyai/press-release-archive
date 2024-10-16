@@ -45,7 +45,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcx-launches-new-staking-service)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/upcx-launches-new-staking-service-for-competitive-apy/9b5fafdf4d40e937742c60bad4559341) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/04/upcx-launches-staking-service-with-competitive-apys)
+ 
 
 
 

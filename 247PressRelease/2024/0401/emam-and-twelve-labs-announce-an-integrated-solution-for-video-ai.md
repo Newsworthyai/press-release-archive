@@ -7,7 +7,11 @@ NEW YORK, NY, April 01, 2024 /24-7PressRelease/ -- EMAM, Inc. and Twelve Labs In
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509698/emam-and-twelve-labs-announce-an-integrated-solution-for-video-ai)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/emam-and-twelve-labs-to-showcase-ai-powered-video-content-solution-at-nab-show/da1c5b50dee41b3f2af3e0148f314de9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/emam-and-twelve-labs-unveil-integrated-video-ai-solution)
+ 
 
 
 

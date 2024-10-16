@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/helix-explora
 [Original/Source Press Release](https://newsdirect.com/news/helix-explorations-david-minchin-eyes-helium-riches-in-montana-after-oversubscribed-ipo-760057472)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/helix-exploration-plc-eyes-helium-riches-in-montana-after-oversubscribed-ipo/f6bb72593f5074f7271eccb2df795a5c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/helix-exploration-s-david-minchin-eyes-helium-riches-in-montana-after-oversubscribed-ipo)
+ 
 
 
 

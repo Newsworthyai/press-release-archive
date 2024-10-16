@@ -7,7 +7,11 @@ BROOKLYN, NY, March 25, 2024 /24-7PressRelease/ -- Scott Chudnoff, MD, MSc, has 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509507/obgyn-scott-chudnoff-named-a-castle-connolly-top-doctor-for-second-time)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-scott-chudnoff-named-2024-castle-connolly-top-doctor-for-second-year/c485659b5851a0faa61fa2056b544819) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/maimonides-ob-gyn-scott-chudnoff-honored-as-castle-connolly-top-doctor-again)
+ 
 
 
 

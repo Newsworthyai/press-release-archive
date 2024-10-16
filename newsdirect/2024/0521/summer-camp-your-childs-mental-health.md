@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/summer-camp-a
 [Original/Source Press Release](https://newsdirect.com/news/summer-camp-and-your-childs-mental-health-349793553)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/seriousfun-childrens-network-providing-life-changing-camp-experiences-for-kids-with-serious-medical-conditions/344f7dd634bdd535cf7c7d4a48b3029c) 
+
+ 
 
 
 

@@ -34,7 +34,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/apple-rush-co
 [Original/Source Press Release](https://newsdirect.com/news/apple-rush-company-inc-secures-a-solid-future-with-long-awaited-agreement-for-the-acquisition-of-all-ip-from-corr-brands-inc-112299358)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/apple-rush-company-inc-secures-ownership-of-corr-brands-trademarks/f1b8c9f1c2bbb2b15a59a48e47b259d1) 
+
+ 
 
 
 

@@ -7,7 +7,17 @@ FORT YATES, ND, September 09, 2024 /24-7PressRelease/ -- Bestselling author and 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514107/dr-bradley-nelson-presents-the-rezvolution-sept-17-18-at-standing-rock-indian-reservation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-bradley-nelson-to-share-energy-healing-techniques-at-the-rezvolution-event/7fc430af8881eb39a621c7dadf1f3377) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/energy-healing-expert-dr-bradley-nelson-to-host-free-event-at-standing-rock-reservation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-bradley-nelson-to-present-the-rezvolution-at-standing-rock-indian-reservation/20246608)
+
+Pickup - [advos.io](https://advos.io/en/dr-bradley-nelson-to-lead-the-rezvolution-healing-event-at-standing-rock-indian-reservation/20246608)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/energy-healing-expert-dr-bradley-nelson-to-host-free-event-at-standing-rock-reservation/20246608)
+ 
 
 
 

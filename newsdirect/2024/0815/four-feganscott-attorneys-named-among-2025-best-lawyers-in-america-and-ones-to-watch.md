@@ -30,7 +30,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/four-fegansco
 [Original/Source Press Release](https://newsdirect.com/news/four-feganscott-attorneys-named-among-2025-best-lawyers-in-america-and-ones-to-watch-847806898)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/feganscott-attorneys-named-among-2025-best-lawyers-in-america/782452eedb00e3de75aef254654b332c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/feganscott-attorneys-recognized-in-2025-best-lawyers-in-america-guide)
+
+Pickup - [fishervista.com](https://fishervista.com/en/four-feganscott-attorneys-recognized-in-2025-best-lawyers-in-america-guide/20245772)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/feganscott-attorneys-recognized-in-2025-best-lawyers-lists/20245772)
+
+Pickup - [advos.io](https://advos.io/en/four-feganscott-attorneys-recognized-in-2025-best-lawyers-in-america-and-ones-to-watch-lists/20245772)
+ 
 
 
 

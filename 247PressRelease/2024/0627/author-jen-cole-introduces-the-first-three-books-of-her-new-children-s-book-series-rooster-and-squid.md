@@ -7,7 +7,13 @@ MAGNOLIA, TX, June 27, 2024 /24-7PressRelease/ -- Author Jen Cole grew up in Kin
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512075/author-jen-cole-introduces-the-first-three-books-of-her-new-childrens-book-series-rooster-and-squid)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/retired-veterinarian-jen-cole-releases-new-book-series-rooster-and-squid/fa88cf472f06726d58287cf443ba268d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/jen-cole-releases-first-three-books-of-rooster-and-squid-children-s-series/20244525)
+
+Pickup - [advos.io](https://advos.io/en/author-jen-cole-launches-new-children-s-book-series-rooster-and-squid/20244525)
+ 
 
 
 

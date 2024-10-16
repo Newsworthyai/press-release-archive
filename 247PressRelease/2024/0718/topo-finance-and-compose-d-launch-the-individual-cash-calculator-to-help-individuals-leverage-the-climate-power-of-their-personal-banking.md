@@ -7,7 +7,15 @@ NEW YORK, NY, July 18, 2024 /24-7PressRelease/ -- Topo Finance and Compose[d] ar
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512608/topo-finance-and-composed-launch-the-individual-cash-calculator-to-help-individuals-leverage-the-climate-power-of-their-personal-banking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-tool-released-to-measure-climate-impact-of-personal-banking/c51c210d7f8702e45dedcd32cca61747) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/new-calculator-reveals-climate-impact-of-personal-banking-choices)
+
+Pickup - [fishervista.com](https://fishervista.com/en/topo-finance-and-compose-d-unveil-tool-to-measure-climate-impact-of-personal-banking/20245035)
+
+Pickup - [advos.io](https://advos.io/en/topo-finance-and-compose-d-unveil-tool-to-measure-climate-impact-of-personal-banking/20245035)
+ 
 
 
 

@@ -7,7 +7,17 @@ LHASA, CHINA, August 09, 2024 /24-7PressRelease/ -- Great Tibet Tour is excited 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513244/tibetan-tourism-in-the-first-half-of-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/significant-increase-in-inbound-tibet-travel-in-first-half-of-2024/e8abd018809434f7559bf9f83d4ca851) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/tibet-experiences-surge-in-international-tourism-reflecting-global-appeal)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tibet-sees-remarkable-growth-in-tourism-in-early-2024/20245602)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/tibet-tourism-surges-in-first-half-of-2024-reflecting-global-appeal/20245602)
+
+Pickup - [advos.io](https://advos.io/en/tibet-sees-massive-surge-in-inbound-tourism-in-early-2024/20245602)
+ 
 
 
 

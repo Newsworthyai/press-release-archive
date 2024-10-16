@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/wire-media-gr
 [Original/Source Press Release](https://newsdirect.com/news/wire-media-group-expands-u-s-reach-to-50m-in-2024-526427502)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wire-industries-hits-milestone-with-wire-media-group/73f8d572ceec17efb38e00b6caa8af06) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/wire-media-group-achieves-milestone-reaches-50m-u-s-sports-fans-in-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/wire-media-group-expands-reach-to-over-50-million-u-s-sports-fans-in-2024/20245439)
+
+Pickup - [advos.io](https://advos.io/en/wire-media-group-expands-u-s-reach-to-over-50-million-in-2024/20245439)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/wire-media-group-achieves-milestone-reaches-50m-sports-fans-in-2024)
+ 
 
 
 

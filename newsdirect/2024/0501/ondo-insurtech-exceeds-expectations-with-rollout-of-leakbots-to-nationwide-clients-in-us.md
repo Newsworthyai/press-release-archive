@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ondo-insurtec
 [Original/Source Press Release](https://newsdirect.com/news/ondo-insurtech-exceeds-expectations-with-rollout-of-leakbots-to-nationwide-clients-in-us-513273060)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ondo-insurtech-exceeds-expectations-with-rollout-of-leakbots-to-nationwide-clients-in-us/33f77e16ba22f405df141417265c17e0) 
+
+ 
 
 
 

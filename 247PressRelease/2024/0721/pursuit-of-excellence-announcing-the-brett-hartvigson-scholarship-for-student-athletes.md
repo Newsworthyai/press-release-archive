@@ -7,7 +7,15 @@ SEATTLE, WA, July 21, 2024 /24-7PressRelease/ -- In a testament to the enduring 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512718/pursuit-of-excellence-announcing-the-brett-hartvigson-scholarship-for-student-athletes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brett-hartvigson-scholarship-1000-award-for-student-athletes/4a9ae1a29bde78cff214beaf858b3ab7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/21/new-1000-scholarship-launched-for-student-athletes-balancing-academic-and-athletic-excellence)
+
+Pickup - [fishervista.com](https://fishervista.com/en/brett-hartvigson-scholarship-for-student-athletes-announced/20245135)
+
+Pickup - [advos.io](https://advos.io/en/brett-hartvigson-scholarship-empowers-student-athletes-with-1000-award/20245135)
+ 
 
 
 

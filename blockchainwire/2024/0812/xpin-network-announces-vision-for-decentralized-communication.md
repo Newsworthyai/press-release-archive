@@ -33,7 +33,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/xpin-network-announces-vision-for-decentralized-communication)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionizing-connectivity-with-xpin-network-s-decentralized-wireless-platform/0c802b26584bf02d4fdc939f27213911) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/xpin-network-unveils-blockchain-based-decentralized-wireless-platform-to-revolutionize-global-communications)
+
+Pickup - [fishervista.com](https://fishervista.com/en/xpin-network-introduces-decentralized-wireless-network-platform-to-revolutionize-telecommunications/20245667)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/xpin-network-unveils-blockchain-based-decentralized-wireless-platform/20245667)
+
+Pickup - [advos.io](https://advos.io/en/xpin-network-unveils-blockchain-based-decentralized-wireless-network/20245667)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/revolutionizing-connectivity-with-xpin-network-s-decentralized-wireless-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/revolutionizing-connectivity-with-xpin-network-s-decentralized-wireless-platform)
+ 
 
 
 

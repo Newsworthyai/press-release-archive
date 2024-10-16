@@ -39,7 +39,9 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/alpha-transform-holdings-announces-strategic-investments-in-ai)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ath-ceo-enzo-villani-joins-board-of-advisors-for-cloudbench-and-arhasi/92b35651491e4446ef2e8cbd7feab398) 
+
+ 
 
 
 

@@ -7,7 +7,9 @@ DEKALB, IL, August 13, 2024 /24-7PressRelease/ -- This new line of skincare prod
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513287/1935-cbd-launches-new-topical-collection-featuring-botanical-ingredients-and-flower-only-cbd)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-1935-cbd-s-new-cbd-topical-collection-for-clean-plant-based-skincare-solutions/555068b94c491bac987b430b17c6960f) 
+
+ 
 
 
 

@@ -43,7 +43,11 @@ Email - Business@futurexpro.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/futurex-pro-set-to-revolutionize-crypto-trading-with-launch-of-innovative-exchange-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/futurex-pro-announces-official-launch-of-pioneering-crypto-exchange-platform/53132b439c4dff23a92c7b8a2204a440) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/futurex-pro-launches-innovative-crypto-exchange-platform-with-no-kyc-requirements)
+ 
 
 
 

@@ -57,7 +57,13 @@ Discord: https://discord.gg/Q7BxghMVyu
 [Original/Source Press Release](https://blockchainwire.io/press-release/are-blockdag-network-and-bitcoin-millionaire-makers-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unlocking-millionaire-making-potential-in-the-digital-asset-industry/3bb03f5eaa86b1de8ef427f6c65b46ad) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/unlocking-millionaire-making-potential-in-the-digital-asset-industry)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/unlocking-millionaire-making-potential-in-the-digital-asset-industry)
+ 
 
 
 

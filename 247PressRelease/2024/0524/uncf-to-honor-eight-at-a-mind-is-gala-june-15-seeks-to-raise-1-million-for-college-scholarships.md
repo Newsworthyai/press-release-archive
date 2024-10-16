@@ -7,7 +7,9 @@ CHICAGO, IL, May 24, 2024 /24-7PressRelease/ -- As a major event during the year
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511136/uncf-to-honor-eight-at-a-mind-is-gala-june-15-seeks-to-raise-1-million-for-college-scholarships)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uncf-chicago-to-honor-leaders-and-organizations-at-a-mind-is-gala/bbf914e8ba5b8a097bde94d27c6c2a75) 
+
+ 
 
 
 

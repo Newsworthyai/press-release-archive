@@ -17,7 +17,11 @@ Dr. Tola is committed to offering innovative and effective treatment options for
 [Original/Source Press Release](https://newsworthy.ai/news/202402141062/renowned-psychiatrist-dr-tola-introduces-tms-therapy-as-a-non-invasive-and-medication-free-option-for-treating-depression)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/distinguished-psychiatrist-dr-tola-offers-groundbreaking-tms-therapy-for-depression-relief/6ec7f9c95e79393d037dca315e9f859c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/14/renowned-psychiatrist-offers-tms-therapy-for-depression-relief)
+ 
 
 
 

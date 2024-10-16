@@ -7,7 +7,11 @@ Welcome to Chiba Neko, a revolutionary platform that breaks down language barrie
 [Original/Source Press Release](https://blockchainwire.io/press-release/chiba-necko-chiba-breaking-language-barriers-in-the-crypto-community)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chiba-neko-revolutionizes-global-communication-with-chiba-lingo-translator/134e2085cc84d0bf0bf1399419d9b290) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/04/chiba-neko-bridging-language-barriers-in-the-crypto-community)
+ 
 
 
 

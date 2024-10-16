@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-announces-new-lease-program/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-launches-bizev-turnkey-lease-program-for-mullen-one-class-1-ev-cargo-van/62998dee919528e81fbf5707758dbd53) 
+
+ 
 
 
 

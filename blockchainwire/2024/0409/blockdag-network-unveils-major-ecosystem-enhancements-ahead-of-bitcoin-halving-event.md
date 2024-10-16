@@ -35,7 +35,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-network-unveils-major-ecosystem-enhancements-ahead-of-bitcoin-halving-event--)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-announces-ecosystem-improvements-ahead-of-bitcoin-halving/62d270f674bf95467547369632a66b3a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/blockdag-network-unveils-ecosystem-upgrades-ahead-of-bitcoin-halving)
+ 
 
 
 

@@ -7,7 +7,13 @@ LAS VEGAS, NV, June 27, 2024 /24-7PressRelease/ -- Dr. Leonard G. Horowitz, who 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512065/bird-flu-top-analyst-predicts-election-interference)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/expert-warns-of-election-interference-from-bird-flu/20db3ab7e3e4c3592d50b9ce61b928e8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-leonard-g-horowitz-warns-of-potential-election-interference-due-to-bird-flu/20244519)
+
+Pickup - [advos.io](https://advos.io/en/expert-predicts-election-interference-via-bird-flu-pandemic/20244519)
+ 
 
 
 

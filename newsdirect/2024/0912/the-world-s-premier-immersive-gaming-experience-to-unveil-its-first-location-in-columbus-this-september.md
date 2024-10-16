@@ -54,7 +54,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-worlds-pr
 [Original/Source Press Release](https://newsdirect.com/news/the-worlds-premier-immersive-gaming-experience-to-unveil-its-first-location-in-columbus-this-september-614067230)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/activate-unveils-new-columbus-location-in-september-2024/bc9031403084b517ae3ac3044730eddf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/activate-to-launch-immersive-gaming-experience-in-columbus-ohio)
+
+Pickup - [fishervista.com](https://fishervista.com/en/activate-brings-immersive-gaming-experience-to-columbus/20246773)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/activate-brings-innovative-live-action-gaming-to-columbus/20246773)
+
+Pickup - [advos.io](https://advos.io/en/activate-to-launch-immersive-gaming-experience-in-columbus/20246773)
+ 
 
 
 

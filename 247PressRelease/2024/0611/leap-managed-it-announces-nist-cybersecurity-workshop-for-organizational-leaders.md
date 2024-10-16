@@ -7,7 +7,11 @@ INDIANAPOLIS, IN, June 11, 2024 /24-7PressRelease/ -- LEAP Managed IT, a leader 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511586/leap-managed-it-announces-nist-cybersecurity-workshop-for-organizational-leaders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/empower-your-organization-s-cybersecurity-with-leap-managed-it-s-nist-workshop/69e13de2341c631f74077bff65ed885a) 
+
+
+Pickup - [advos.io](https://advos.io/en/leap-managed-it-announces-nist-cybersecurity-workshop-for-organizational-leaders/20244010)
+ 
 
 
 

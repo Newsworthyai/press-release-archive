@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/methode-elect
 [Original/Source Press Release](https://newsdirect.com/news/methode-electronics-inc-has-been-implicated-in-a-securities-fraud-class-action-lawsuit-heres-how-investors-can-get-more-information-569706161)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/methode-electronics-inc-implicated-in-securities-fraud-lawsuit/52c6b5db164de9f6a9f157e32494fb7f) 
+
+ 
 
 
 

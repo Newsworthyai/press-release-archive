@@ -55,7 +55,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/haruko-expand
 [Original/Source Press Release](https://newsdirect.com/news/haruko-expands-into-southeast-asia-with-6m-funding-round-to-eliminate-inefficiencies-in-digital-asset-management-354556206)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/haruko-secures-6m-funding-to-expand-into-southeast-asia/9d96bc542cf3f52ad3b5902c0f61ecf0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/haruko-secures-6-million-in-funding-expands-digital-asset-management-platform-to-southeast-asia)
+
+Pickup - [fishervista.com](https://fishervista.com/en/haruko-secures-6m-funding-to-expand-digital-asset-management-in-southeast-asia/20244956)
+
+Pickup - [advos.io](https://advos.io/en/haruko-secures-6m-in-funding-expands-into-southeast-asia/20244956)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/haruko-secures-6m-funding-to-expand-into-southeast-asia)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/haruko-secures-6m-funding-to-expand-into-southeast-asia)
+ 
 
 
 

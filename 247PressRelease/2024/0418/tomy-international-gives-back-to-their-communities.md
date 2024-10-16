@@ -7,7 +7,11 @@ OAK BROOK, IL, April 18, 2024 /24-7PressRelease/ -- Throughout the first quarter
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510123/tomy-international-gives-back-to-their-communities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tomy-international-employees-volunteer-time-and-donate-75000-to-support-children-and-families/984ee93aa3db18531cbfcea296282f66) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/tomy-international-gives-back-to-their-communities)
+ 
 
 
 

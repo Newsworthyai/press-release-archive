@@ -49,7 +49,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-marks-11t
 [Original/Source Press Release](https://newsdirect.com/news/htx-marks-11th-anniversary-with-launch-of-battle-of-glory-for-kols-offering-200-000-usdt-to-foster-cooperation-and-mutual-success-939373528)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-celebrates-11th-anniversary-with-battle-of-glory-for-kols/9f5af3c374531fdfdb94ccc36e67d8b1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/htx-celebrates-11th-anniversary-with-200000-usdt-prize-pool-for-key-opinion-leaders)
+
+Pickup - [fishervista.com](https://fishervista.com/en/htx-celebrates-11th-anniversary-with-battle-of-glory-for-kols-offering-200000-usdt/20244982)
+
+Pickup - [advos.io](https://advos.io/en/htx-celebrates-11th-anniversary-with-battle-of-glory-event-for-kols-offering-200000-usdt-in-prizes/20244982)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-celebrates-11th-anniversary-with-battle-of-glory-for-kols)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-celebrates-11th-anniversary-with-battle-of-glory-for-kols)
+ 
 
 
 

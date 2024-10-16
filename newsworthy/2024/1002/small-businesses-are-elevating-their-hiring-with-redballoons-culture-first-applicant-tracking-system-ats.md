@@ -15,7 +15,9 @@ About RedBalloon.workFounded In 2021, RedBalloon has quickly become America's la
 [Original/Source Press Release](https://newsworthy.ai/news/202410021297/small-businesses-are-elevating-their-hiring-with-redballoons-culture-first-applicant-tracking-system-ats)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/redballoon-work-launches-redballoon-ats-for-values-first-hiring-revolution/f0cd0356e19b3eb8f8d31a6d591941e2) 
+
+ 
 
 
 

@@ -7,7 +7,15 @@ WASHINGTON, DC, July 09, 2024 /24-7PressRelease/ -- The Corporate Whistleblower 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512349/corporate-whistleblower-center-urges-an-employee-who-saw-their-bank-employer-originate-fraudulent-covid-ppp-loans-for-nursing-homes-to-call-about-whistleblower-rewards-it-might-be-millions-of-dollars)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/whistleblower-center-urges-bank-employees-to-expose-ppp-loan-fraud/cee176ac61f53d7094033049bc8cfab7) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/whistleblower-center-calls-out-massive-covid-ppp-loan-fraud-in-nursing-homes/20244783)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/corporate-whistleblower-center-seeks-employees-to-report-ppp-loan-fraud)
+
+Pickup - [advos.io](https://advos.io/en/corporate-whistleblower-center-calls-for-reports-on-fraudulent-covid-ppp-loans-in-banking-sector/20244783)
+ 
 
 
 

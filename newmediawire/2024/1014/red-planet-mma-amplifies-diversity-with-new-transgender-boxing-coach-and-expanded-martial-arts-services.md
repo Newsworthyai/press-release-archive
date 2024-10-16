@@ -23,7 +23,9 @@ BROOKLYN, NY - (NewMediaWire) - October 14, 2024 - To view the full announcement
 [Original/Source Press Release](https://www.newmediawire.com/news/red-planet-mma-amplifies-diversity-with-new-transgender-boxing-coach-and-expanded-martial-arts-services-7076222)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/red-planet-mma-expands-roster-and-services-emphasizing-inclusivity-and-community-involvement/dcf1fa768be9070cb992e845080f571f) 
+
+ 
 
 
 

@@ -7,7 +7,9 @@ BOSTON, MA, October 15, 2024 /24-7PressRelease/ -- Boston's Abby Volta is releas
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515258/abby-voltas-new-single-is-out-this-halloween)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boston-artist-abby-volta-to-release-second-single-rabbit-catcher/3e88c96935ddec6a200028f50bb91389) 
+
+ 
 
 
 

@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-meme-coin
 [Original/Source Press Release](https://newsdirect.com/news/new-meme-coin-launch-rocky-surges-past-20m-market-cap-in-3-days-defying-the-market-trends-488745869)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-meme-coin-rocky-surges-past-20m-market-cap-in-3-days-defying-market-trends/97ee8e44f7ee8d7034108b323fb89675) 
+
+ 
 
 
 

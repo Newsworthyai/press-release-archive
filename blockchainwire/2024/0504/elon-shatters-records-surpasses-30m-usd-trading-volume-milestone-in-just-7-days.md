@@ -35,7 +35,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/elon-shatters-records-surpasses-30m-usd-trading-volume-milestone-in-just-7-days-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meme-inspired-elon-cryptocurrency-shakes-up-digital-landscape/e98da09a58567b18e3888faeb22cbb45) 
+
+ 
 
 
 

@@ -7,7 +7,9 @@ PORTLAND, OR, May 21, 2024 /24-7PressRelease/ -- Nurses week ran from May 6th to
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511053/arcadia-senior-living-showers-nurses-with-appreciation-during-national-nurses-week)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arcadia-senior-living-celebrates-nurses-week-with-appreciation-and-gratitude/450283365f1e127a3b943a8aab25d1a8) 
+
+ 
 
 
 

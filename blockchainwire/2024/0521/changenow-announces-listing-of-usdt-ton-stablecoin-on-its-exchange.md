@@ -49,7 +49,13 @@ To learn more, visit ChangeNOW’s website and follow them on Twitter to discove
 [Original/Source Press Release](https://blockchainwire.io/press-release/changenow-announces-listing-of-usdt-ton-stablecoin-on-its-exchange-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/changenow-announces-listing-of-usdt-ton-stablecoin-with-zero-service-commission-promotion/08712f0a0e3c5c75d2fc6544838c7284) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/changenow-announces-listing-of-usdt-ton-stablecoin-with-zero-service-commission-promotion)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/changenow-announces-listing-of-usdt-ton-stablecoin-with-zero-service-commission-promotion)
+ 
 
 
 

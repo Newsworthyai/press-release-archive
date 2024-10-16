@@ -32,7 +32,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/ethereum-price-predictions-for-2024-comprehensive-insights-with-mexc-research)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-price-surge-after-bitcoin-etf-approval-sparks-optimism/61e1f846cad0e627dfa9351d1cedfeef) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/12/ethereum-s-bullish-trajectory-experts-predict-soaring-prices-in-2024)
+ 
 
 
 

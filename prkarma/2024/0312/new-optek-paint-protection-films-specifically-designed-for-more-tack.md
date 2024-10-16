@@ -33,7 +33,11 @@ Visit Our Website
 [Original/Source Press Release](https://newsroom.prkarma.com/counterflowmarketing/news_release/1425)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/optek-films-unveils-revolutionary-paint-protection-film-defying-conventional-limitations/17299cc46c422dcb8baba6b599145179) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/optek-films-unveils-groundbreaking-paint-protection-film-with-unparalleled-adhesion)
+ 
 
 
 

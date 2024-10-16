@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/mako-gold-adv
 [Original/Source Press Release](https://newsdirect.com/news/mako-gold-advances-napie-gold-and-korhogo-manganese-projects-167548979)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mako-gold-advances-napie-gold-and-korhogo-manganese-projects/0eed94b5d9ea6f52dd08b9cb3816333f) 
+
+ 
 
 
 

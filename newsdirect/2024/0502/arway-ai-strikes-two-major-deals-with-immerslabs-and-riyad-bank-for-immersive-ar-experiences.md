@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/arway-ai-stri
 [Original/Source Press Release](https://newsdirect.com/news/arway-ai-strikes-two-major-deals-with-immerslabs-and-riyad-bank-for-immersive-ar-experiences-598787139)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arway-ai-announces-major-ar-partnerships-with-immerslabs-and-riyad-bank/8be32d3d0f89c05b5b97fd7648bd9ac4) 
+
+ 
 
 
 

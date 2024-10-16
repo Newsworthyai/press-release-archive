@@ -7,7 +7,9 @@ SOUTHAMPTON, PA, April 26, 2024 /24-7PressRelease/ -- NewAge Industries, Inc. (t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510397/newage-industries-announces-the-grand-opening-of-new-coevorden-netherlands-hub)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newage-industries-inc-announces-grand-opening-of-european-hub-in-coevorden-netherlands/3f412268eb600e0dc09323b55c14f07e) 
+
+ 
 
 
 

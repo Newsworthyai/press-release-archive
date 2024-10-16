@@ -7,7 +7,17 @@ VANCOUVER, BC, August 20, 2024 /24-7PressRelease/ -- With prescription drug pric
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513640/trusted-source-for-discounted-medications-how-saverxcanadato-connects-you-to-canadian-pharmacies)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/saverxcanada-to-affordable-alternative-to-high-u-s-drug-prices/db3170967d66427e3fdb67578a734eef) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/saverxcanada-to-offers-americans-access-to-affordable-canadian-medications)
+
+Pickup - [fishervista.com](https://fishervista.com/en/saverxcanada-to-offers-affordable-medication-solutions-for-americans/20245856)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/saverxcanada-to-bridges-gap-to-affordable-medications-for-americans/20245856)
+
+Pickup - [advos.io](https://advos.io/en/saverxcanada-to-offers-affordable-medication-solutions-for-americans/20245856)
+ 
 
 
 

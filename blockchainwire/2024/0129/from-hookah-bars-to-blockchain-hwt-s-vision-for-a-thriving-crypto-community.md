@@ -38,7 +38,11 @@ Those interested in learning more about Huqqa World Token can join its Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/from-hookah-bars-to-blockchain-hwts-vision-for-a-thriving-crypto-community)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nargilem-introduces-huqqa-world-token-hwt-backed-by-soil-and-tobacco/75548163d5cf6aedfd984030f5f73a74) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/29/from-hookah-bars-to-blockchain-nargilem-embraces-crypto-with-huqqa-world-token)
+ 
 
 
 

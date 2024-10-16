@@ -37,7 +37,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-highlights-bitcoin-price-volatility-ethereum-etf-hopes-and-furrever-tokens-12m-presale-finale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-market-update-bitcoin-faces-price-risks-ethereum-etf-hopes-furrever-token-s-successful-presale/aeed1e2b00fa028dfd0664e65ea5cc9b) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cryptocurrency-market-update-bitcoin-faces-price-risks-ethereum-etf-hopes-furrever-token-s-successful-presale)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cryptocurrency-market-update-bitcoin-faces-price-risks-ethereum-etf-hopes-furrever-token-s-successful-presale)
+ 
 
 
 

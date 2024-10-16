@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/bioharvest-sc
 [Original/Source Press Release](https://newsdirect.com/news/bioharvest-sciences-reports-robust-q1-2024-financial-growth-and-strategic-expansion-plans-690540132)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bioharvest-sciences-reports-robust-q1-2024-financial-growth-and-strategic-expansion-plans/51d1f06ddd53e693cb2351db5148d1dd) 
+
+ 
 
 
 

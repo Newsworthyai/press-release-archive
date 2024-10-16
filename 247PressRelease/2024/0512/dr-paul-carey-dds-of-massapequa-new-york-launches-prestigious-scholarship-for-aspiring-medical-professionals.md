@@ -7,7 +7,9 @@ MASSAPEQUA, NY, May 12, 2024 /24-7PressRelease/ -- Dr. Paul Carey DDS, a disting
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510808/dr-paul-carey-dds-of-massapequa-new-york-launches-prestigious-scholarship-for-aspiring-medical-professionals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-paul-carey-dds-announces-scholarship-for-medical-students/e7d126abbd028abc039099578ecc85bd) 
+
+ 
 
 
 

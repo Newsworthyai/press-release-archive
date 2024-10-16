@@ -23,7 +23,9 @@ Jiritsu Network is a Layer 1 blockchain technology company specialized in the to
 [Original/Source Press Release](https://blockchainwire.io/press-release/michael-lustig-former-blackrock-executive-joins-jiritsu-network-board-to-drive-institutional-adoption)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-blackrock-managing-director-joins-jiritsu-network-s-executive-board/5a6a5641669ecfda69d9edff9abafe5a) 
+
+ 
 
 
 

@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/immunic-highl
 [Original/Source Press Release](https://newsdirect.com/news/immunic-highlights-imu-856-gastrointestinal-candidate-to-mark-international-celiac-day-387800937)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/immunic-highlights-imu-856-gastrointestinal-candidate-to-mark-international-celiac-day/cbec94ced3a67a72c722208d65a5108f) 
+
+ 
 
 
 

@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/alexander-spe
 [Original/Source Press Release](https://newsdirect.com/news/alexander-spellane-welcomes-marketing-thought-leader-tyler-sickmeyer-on-the-right-wing-voice-podcast-728721317)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marketing-thought-leader-tyler-sickmeyer-shares-insights-on-the-right-wing-voice-podcast/0bb0919a5621497e7373e4ac302d2e94) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/marketing-expert-tyler-sickmeyer-discusses-conservative-values-in-business-on-the-right-wing-voice-podcast)
+
+Pickup - [fishervista.com](https://fishervista.com/en/the-right-wing-voice-podcast-features-marketing-expert-tyler-sickmeyer/20245445)
+
+Pickup - [advos.io](https://advos.io/en/marketing-expert-tyler-sickmeyer-joins-alexander-spellane-on-the-right-wing-voice-podcast/20245445)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/marketing-strategist-tyler-sickmeyer-discusses-conservative-business-support-on-the-right-wing-voice-podcast)
+ 
 
 
 

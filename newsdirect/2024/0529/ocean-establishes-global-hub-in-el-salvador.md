@@ -39,7 +39,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/ocean-establi
 [Original/Source Press Release](https://newsdirect.com/news/ocean-establishes-global-hub-in-el-salvador-835244021)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ocean-establishes-global-hub-in-el-salvador-for-bitcoin-mining-expansion/51f61e77455d178ff1ca9422b7dc2021) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ocean-establishes-global-hub-in-el-salvador-for-bitcoin-mining-expansion)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ocean-establishes-global-hub-in-el-salvador-for-bitcoin-mining-expansion)
+ 
 
 
 

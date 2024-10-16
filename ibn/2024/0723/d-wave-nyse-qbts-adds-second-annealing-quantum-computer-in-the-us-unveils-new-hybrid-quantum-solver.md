@@ -29,7 +29,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-adds-second-annealing-quantum-computer-in-the-us-unveils-new-hybrid-quantum-solver/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-introduces-new-hybrid-quantum-solver-and-deploys-second-u-s-based-advantage-quantum-computer/7b742a4c052c1b1778f565b000412668) 
+
+ 
 
 
 

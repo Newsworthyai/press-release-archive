@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/avalanches-su
 [Original/Source Press Release](https://newsdirect.com/news/avalanches-surge-sparks-raboos-rabt-100x-crypto-revolution-against-a-backdrop-of-tethers-stability-875865397)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avalanche-s-surge-sparks-raboo-s-rabt-100x-crypto-revolution-against-a-backdrop-of-tether-s-stability/3dfaa01fe87042c4251f5beac3cc4fcb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/07/raboo-s-presale-ignites-crypto-frenzy-amid-avalanche-s-meme-coin-boom)
+ 
 
 
 

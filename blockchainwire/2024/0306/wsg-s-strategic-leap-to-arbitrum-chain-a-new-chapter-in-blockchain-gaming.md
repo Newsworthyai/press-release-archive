@@ -46,7 +46,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/wsgs-strategic-leap-to-arbitrum-chain-a-new-chapter-in-blockchain-gaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wall-street-games-announces-strategic-migration-to-arbitrum-chain/81da011fa191951f72a9417d38a92694) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/06/wall-street-games-embraces-arbitrum-chain-for-enhanced-gaming-experience)
+ 
 
 
 

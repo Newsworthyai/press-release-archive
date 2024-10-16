@@ -43,7 +43,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/large-whale-buy-ins-detected-in-bitcoin-and-blockdag-network-analysts-40-million-is-just-the-start-this-is-a-global-crypto-sensation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-surpasses-69000-and-blockdag-network-hits-40-million-presale/dd34957e49f4c314d778633e965851f0) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-surpasses-69000-and-blockdag-network-hits-40-million-presale)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-surpasses-69000-and-blockdag-network-hits-40-million-presale)
+ 
 
 
 

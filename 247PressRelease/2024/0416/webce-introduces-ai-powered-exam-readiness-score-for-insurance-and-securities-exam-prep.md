@@ -7,7 +7,11 @@ DALLAS, TX, April 16, 2024 /24-7PressRelease/ -- WebCE, a leader in online profe
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510076/webce-introduces-ai-powered-exam-readiness-score-for-insurance-and-securities-exam-prep)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/webce-introduces-ai-powered-exam-readiness-score-for-insurance-and-securities-exam-prep/da23adf8c01aad1120659db4b1c182aa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/webce-revolutionizes-insurance-and-securities-exam-prep-with-ai-powered-exam-readiness-score)
+ 
 
 
 

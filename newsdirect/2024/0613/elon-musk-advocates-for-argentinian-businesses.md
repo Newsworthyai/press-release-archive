@@ -49,7 +49,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/elon-musk-adv
 [Original/Source Press Release](https://newsdirect.com/news/elon-musk-advocates-for-argentinian-businesses-732115816)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elon-musk-advocates-for-argentinian-businesses/641eaab06ddeae3e473fdd68aa73a806) 
+
+
+Pickup - [advos.io](https://advos.io/en/elon-musk-advocates-for-argentinian-businesses-endorses-economic-reforms/20244117)
+ 
 
 
 

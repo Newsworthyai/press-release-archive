@@ -7,7 +7,15 @@ SAN DIEGO, CA, July 15, 2024 /24-7PressRelease/ -- With the 2024 wedding season 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512486/2024-jewelry-trends-antique-diamond-cuts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renewed-interest-in-antique-diamond-cuts-for-2024-wedding-season/a5aadff0335fb8524fb6d46d3a530ecc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/antique-diamond-cuts-emerge-as-top-2024-jewelry-trend-for-engagement-rings)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rising-popularity-of-antique-diamond-cuts-in-2024-wedding-season/20244952)
+
+Pickup - [advos.io](https://advos.io/en/antique-diamond-cuts-spark-renewed-interest-among-2024-couples/20244952)
+ 
 
 
 

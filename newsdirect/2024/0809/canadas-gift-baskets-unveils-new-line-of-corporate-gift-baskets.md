@@ -42,7 +42,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/canadas-gift-
 [Original/Source Press Release](https://newsdirect.com/news/canadas-gift-baskets-unveils-new-line-of-corporate-gift-baskets-544149563)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/canadas-gift-baskets-launches-new-line-of-corporate-gift-baskets/cf18349ab3cc1d1fab635237c3ee8c74) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/canada-s-gift-baskets-launches-new-corporate-gift-line-to-enhance-business-relationships)
+
+Pickup - [fishervista.com](https://fishervista.com/en/canadas-gift-baskets-launches-new-customizable-corporate-gift-baskets/20245607)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/canada-s-gift-baskets-launches-new-corporate-gift-line-to-enhance-business-relationships/20245607)
+
+Pickup - [advos.io](https://advos.io/en/canadas-gift-baskets-launches-new-line-of-corporate-gift-baskets/20245607)
+ 
 
 
 

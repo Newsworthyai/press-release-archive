@@ -59,7 +59,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/tcg-world-pro
 [Original/Source Press Release](https://newsdirect.com/news/tcg-world-proudly-announces-partnership-with-styngr-and-downtown-446137227)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tcg-world-partners-with-styngr-and-downtown-to-launch-music-collectible-in-2024/d77ad649ff8110b966549fd2076cec1e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/tcg-world-partners-with-styngr-downtown-to-revolutionize-gaming-with-music-integration)
+ 
 
 
 

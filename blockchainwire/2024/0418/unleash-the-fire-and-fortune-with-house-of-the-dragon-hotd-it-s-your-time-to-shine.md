@@ -35,7 +35,11 @@ Telegram: https://t.me/HotDragontoken.Disclaimer: The information provided in th
 [Original/Source Press Release](https://blockchainwire.io/press-release/unleash-the-fire-and-fortune-with-house-of-the-dragon-hotd---its-your-time-to-shine-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unleash-the-power-of-house-of-the-dragon-s-legendary-nft-collection-and-innovative-rewards/203d218b8dec869bcffea32a961345c6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/unleash-the-fire-and-fortune-with-house-of-the-dragon-hotd-it-s-your-time-to-shine)
+ 
 
 
 

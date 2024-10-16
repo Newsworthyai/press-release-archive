@@ -21,7 +21,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/kakaue-building-the-future-of-finance-redefining-the-new-frontier-of-cryptocurrency-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kakaue-exchange-unveils-major-brand-upgrade-for-cryptocurrency-traders/253ba15d8a316548b2ab20ff6416e516) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/22/kakaue-unveils-brand-upgrade-redefining-cryptocurrency-trading-experience)
+ 
 
 
 

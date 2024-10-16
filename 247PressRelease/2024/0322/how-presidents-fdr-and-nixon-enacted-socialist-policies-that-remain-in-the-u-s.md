@@ -7,7 +7,11 @@ PHOENIX, AZ, March 22, 2024 /24-7PressRelease/ -- In his newly released groundbr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509476/how-presidents-fdr-and-nixon-enacted-socialist-policies-that-remain-in-the-us)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/legal-scholar-reveals-socialist-undertones-in-us-policies/41413ef30d48c62df9958d8021d57b3d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/presidents-fdr-and-nixon-s-socialist-policies-still-shaping-america)
+ 
 
 
 

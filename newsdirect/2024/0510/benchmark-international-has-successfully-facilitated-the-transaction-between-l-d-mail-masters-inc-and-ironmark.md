@@ -29,7 +29,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-has-successfully-facilitated-the-transaction-between-landd-mail-masters-inc-and-ironmark-852117012)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ironmark-acquires-l-d-mail-masters-inc-to-enhance-customer-offerings/5224d33bebe7dcb022c91517246e32b0) 
+
+ 
 
 
 

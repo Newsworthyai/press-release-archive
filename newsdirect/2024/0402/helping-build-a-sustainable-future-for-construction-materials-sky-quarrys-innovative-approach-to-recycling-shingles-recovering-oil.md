@@ -59,7 +59,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/helping-build
 [Original/Source Press Release](https://newsdirect.com/news/helping-build-a-sustainable-future-for-construction-materials-sky-quarrys-innovative-approach-to-recycling-shingles-recovering-oil-784690608)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sky-quarry-inc-leads-the-charge-in-recycling-shingles-and-recovering-oil/66661f9822720a0c5c860a5252ed5826) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/sky-quarry-s-innovative-approach-to-recycling-shingles-and-recovering-oil)
+ 
 
 
 

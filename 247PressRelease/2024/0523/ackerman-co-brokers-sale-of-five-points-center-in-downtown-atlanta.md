@@ -7,7 +7,9 @@ ATLANTA, GA, May 23, 2024 /24-7PressRelease/ -- Ackerman & Co. has brokered the 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511125/ackerman-co-brokers-sale-of-five-points-center-in-downtown-atlanta)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ackerman-co-brokers-18-4-million-sale-of-15-peachtree-street-at-five-points-in-atlanta/9ec478ddc2362978a60e92442a1673d1) 
+
+ 
 
 
 

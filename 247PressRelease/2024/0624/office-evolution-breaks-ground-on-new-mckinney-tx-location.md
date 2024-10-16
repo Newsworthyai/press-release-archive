@@ -7,7 +7,13 @@ MCKINNEY, TX, June 24, 2024 /24-7PressRelease/ -- Office Evolution®, a leader i
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511899/office-evolution-breaks-ground-on-new-mckinney-tx-location)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/office-evolution-to-open-innovative-workspace-in-mckinney-tx/bf8339c5e674d83878ab7edf07f77d52) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/office-evolution-begins-construction-on-new-mckinney-tx-workspace/20244403)
+
+Pickup - [advos.io](https://advos.io/en/office-evolution-expands-with-new-mckinney-tx-location/20244403)
+ 
 
 
 

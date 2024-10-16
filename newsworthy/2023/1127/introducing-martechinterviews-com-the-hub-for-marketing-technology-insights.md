@@ -23,7 +23,11 @@ Unlock the world of martech knowledge at www.MartechInterviews.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231127846/introducing-martechinterviews-com-the-hub-for-marketing-technology-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-martechinterviews-com-a-new-platform-for-marketing-technology-insights/1d1305f330c7d147e1e3224ccd1caf34) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/27/martechinterviews-com-a-treasure-trove-of-marketing-technology-insights)
+ 
 
 
 

@@ -25,7 +25,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/abvc-biopharm
 [Original/Source Press Release](https://newsdirect.com/news/abvc-biopharmas-ceo-discusses-new-drug-development-and-ai-integration-924472038)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/abvc-biopharma-and-aibtl-biopharma-to-conduct-innovative-clinical-study-on-depression-in-cancer-patients/5cd2c7d907b2967155ada2712ae10a03) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/abvc-biopharma-and-aibtl-biopharma-launch-ai-integrated-study-on-depression-in-cancer-patients)
+
+Pickup - [fishervista.com](https://fishervista.com/en/abvc-biopharma-and-aibtl-biopharma-launch-ai-driven-study-on-depression-in-cancer-patients/20245085)
+
+Pickup - [advos.io](https://advos.io/en/abvc-biopharma-and-aibtl-biopharma-initiate-ai-driven-study-on-depression-in-cancer-patients/20245085)
+ 
 
 
 

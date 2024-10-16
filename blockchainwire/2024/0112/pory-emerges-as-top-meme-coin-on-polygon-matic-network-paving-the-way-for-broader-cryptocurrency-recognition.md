@@ -31,7 +31,11 @@ Offcial website: [https://porygon.io/](https://porygon.io/) Disclaimer: The in
 [Original/Source Press Release](https://blockchainwire.io/press-release/pory-emerges-as-top-meme-coin-on-polygon-matic-network-paving-the-way-for-broader-cryptocurrency-recognition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pory-becomes-leading-meme-coin-on-polygon-network/3d86cfedd76a4a7d83a9d7e641950229) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/12/pory-meme-coin-emerges-as-polygon-s-top-meme-token)
+ 
 
 
 

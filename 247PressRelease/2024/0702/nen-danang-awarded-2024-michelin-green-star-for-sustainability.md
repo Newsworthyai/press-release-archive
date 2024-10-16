@@ -7,7 +7,15 @@ HO CHI MINH CITY, VIETNAM, July 02, 2024 /24-7PressRelease/ -- Vietnam's 2024 MI
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512177/n%C3%A9n-danang-awarded-2024-michelin-green-star-for-sustainability)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nen-danang-awarded-vietnam-s-2024-michelin-green-star-for-excellence-in-sustainability/12c505bb61205790c5dd179e621becd6) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/nen-danang-awarded-2024-michelin-green-star-for-sustainability/20244638)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/nen-danang-receives-vietnam-s-first-michelin-green-star-for-sustainable-gastronomy)
+
+Pickup - [advos.io](https://advos.io/en/nen-danang-awarded-2024-michelin-green-star-for-sustainability/20244638)
+ 
 
 
 

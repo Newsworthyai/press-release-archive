@@ -35,7 +35,11 @@ Don't miss this opportunity to be at the forefront of Ethereum's staking evoluti
 [Original/Source Press Release](https://blockchainwire.io/press-release/join-the-ethereum-validator--node-operator-summit-at-eth-denver-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-validator-node-operator-summit-at-eth-denver-2024-engaging-agenda-and-esteemed-partners-announced/b61a56b3879c4bd113a5aaad39125570) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/27/ethereum-staking-leaders-converge-at-eth-denver-summit)
+ 
 
 
 

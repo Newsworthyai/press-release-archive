@@ -37,7 +37,11 @@ WhiteBIT is one of the largest European crypto exchanges originating from Ukrain
 [Original/Source Press Release](https://blockchainwire.io/press-release/your-cryptocurrency-could-help-ukrainians-to-protect-their-home-and-stay-connected-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ukraine-partners-with-whitebit-and-serhiy-prytula-charity-foundation-to-fund-radio-communications-equipment-for-military/2c07b558b8126984925de168e274f070) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/cryptocurrency-fundraiser-helps-ukrainian-defenders-stay-connected)
+ 
 
 
 

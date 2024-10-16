@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/srivaru-holdi
 [Original/Source Press Release](https://newsdirect.com/news/srivaru-holdings-completes-internal-testing-of-its-prana-2-0-electric-motorcycle-376488396)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/srivaru-holdings-completes-internal-testing-of-prana-2-0-electric-motorcycle/e222778bcf8617fdbf5eaa9ecd3f14cd) 
+
+ 
 
 
 

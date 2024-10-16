@@ -43,7 +43,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/therma-bright
 [Original/Source Press Release](https://newsdirect.com/news/therma-bright-inc-tsxv-thrm-otcqb-tbrif-major-approvals-make-tbrif-a-stock-to-watch-846772299)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/therma-bright-inc-tsxv-thrm-otcqb-tbrif-major-approvals-make-tbrif-a-stock-to-watch/6c61b20a6ce3d1528668aaa110814df8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/therma-bright-s-venowave-vw5-device-receives-major-reimbursement-approval-signaling-growth-potential-in-medical-device-sector)
+
+Pickup - [fishervista.com](https://fishervista.com/en/therma-bright-secures-key-approvals-and-partnerships-setting-stage-for-significant-growth/20246614)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/therma-bright-secures-major-reimbursement-approval-for-venowave-vw5-device/20246614)
+
+Pickup - [advos.io](https://advos.io/en/therma-bright-inc-secures-key-approvals-and-partnerships-boosting-growth-potential/20246614)
+ 
 
 
 

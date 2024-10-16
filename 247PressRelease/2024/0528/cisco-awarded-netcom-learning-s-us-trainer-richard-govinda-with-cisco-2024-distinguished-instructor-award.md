@@ -7,7 +7,9 @@ NEW YORK, NY, May 28, 2024 /24-7PressRelease/ -- NetCom Learning, a globally ren
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511194/cisco-awarded-netcom-learnings-us-trainer-richard-govinda-with-cisco-2024-distinguished-instructor-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/netcom-learning-trainer-richard-govinda-receives-cisco-2024-distinguished-instructor-award/56eb3548352d8572fba4d87288237296) 
+
+ 
 
 
 

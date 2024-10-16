@@ -20,7 +20,11 @@ A renowned industry leader and innovator in game development, WEMADE is leading 
 [Original/Source Press Release](https://blockchainwire.io/press-release/wemix30-welcomes-sygnum-as-node-council-partner-wonder-18)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sygnum-joins-wemix3-0-mainnet-as-node-council-partner/fc19a5cffbb6cc557c2a6446f4c3a494) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/07/wemix3-0-welcomes-sygnum-as-node-council-partner)
+ 
 
 
 

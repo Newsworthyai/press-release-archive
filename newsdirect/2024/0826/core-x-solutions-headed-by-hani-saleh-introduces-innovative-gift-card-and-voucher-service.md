@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/core-x-soluti
 [Original/Source Press Release](https://newsdirect.com/news/core-x-solutions-headed-by-hani-saleh-introduces-innovative-gift-card-and-voucher-service-813059821)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/core-x-solutions-launches-innovative-gift-card-and-voucher-service/a746d33b8e64e4aab5ca05b1cb201419) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/core-x-solutions-launches-revolutionary-gift-card-and-voucher-platform)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/core-x-solutions-unveils-revolutionary-gift-card-and-voucher-platform/20245932)
+
+Pickup - [advos.io](https://advos.io/en/core-x-solutions-unveils-new-gift-card-and-voucher-service-under-hani-saleh-s-leadership/20245932)
+
+Pickup - [fishervista.com](https://fishervista.com/en/core-x-solutions-unveils-advanced-gift-card-and-voucher-platform/20245932)
+ 
 
 
 

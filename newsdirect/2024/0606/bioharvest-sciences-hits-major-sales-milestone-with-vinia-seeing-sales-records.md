@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/bioharvest-sc
 [Original/Source Press Release](https://newsdirect.com/news/bioharvest-sciences-hits-major-sales-milestone-with-vinia-seeing-sales-records-133242608)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bioharvest-sciences-achieves-record-sales-with-vinia-r-product-ceo-announces/2de27414a8a31aa8a5cfb8d914e74ae6) 
+
+ 
 
 
 

@@ -7,7 +7,15 @@ YUEQING, CHINA, July 16, 2024 /24-7PressRelease/ -- Yueqing Roppex Electric Co.,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512516/yueqing-roppex-electric-co-ltd-announces-completion-of-new-factory-building)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/roppex-electric-completes-new-state-of-the-art-factory-building/7d48246595a74541073b43dfe6c2b831) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/yueqing-roppex-electric-co-ltd-completes-new-50000-square-meter-factory)
+
+Pickup - [fishervista.com](https://fishervista.com/en/yueqing-roppex-electric-co-ltd-completes-state-of-the-art-factory-building/20244969)
+
+Pickup - [advos.io](https://advos.io/en/yueqing-roppex-electric-co-ltd-unveils-new-state-of-the-art-factory/20244969)
+ 
 
 
 

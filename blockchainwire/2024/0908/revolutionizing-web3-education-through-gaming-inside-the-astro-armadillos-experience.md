@@ -61,7 +61,17 @@ White Paper | Tokenomics | Linktree | Telegram | Twitter | YouTube | Disco
 [Original/Source Press Release](https://blockchainwire.io/press-release/revolutionizing-web3-education-through-gaming-inside-the-astro-armadillos-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/astro-armadillos-revolutionizing-web3-education-through-gaming-and-storytelling/e72fbed83e6250f4c2d4ef4967f62ddd) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/astro-armadillos-transforming-web3-education-through-gaming-and-storytelling/20246699)
+
+Pickup - [advos.io](https://advos.io/en/astro-armadillos-revolutionizing-web3-education-through-gaming/20246699)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/08/astro-armadillos-revolutionizing-web3-education-through-interactive-gaming)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/astro-armadillos-revolutionizing-web3-education-through-interactive-gaming/20246699)
+ 
 
 
 

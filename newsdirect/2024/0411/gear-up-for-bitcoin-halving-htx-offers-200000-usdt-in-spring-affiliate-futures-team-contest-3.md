@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/gear-up-for-b
 [Original/Source Press Release](https://newsdirect.com/news/gear-up-for-bitcoin-halving-htx-offers-200-000-usdt-in-spring-affiliate-futures-team-contest-3-500413484)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-launches-spring-affiliate-futures-team-contest-with-200000-usdt-prize-pool/8234ff98eaf982d443d88dfee906cecf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/htx-launches-200000-usdt-spring-affiliate-futures-team-contest-3)
+ 
 
 
 

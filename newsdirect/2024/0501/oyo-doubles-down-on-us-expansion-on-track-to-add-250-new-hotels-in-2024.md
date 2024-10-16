@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/oyo-doubles-d
 [Original/Source Press Release](https://newsdirect.com/news/oyo-doubles-down-on-us-expansion-on-track-to-add-250-new-hotels-in-2024-154378316)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/oyo-to-add-250-hotels-in-us-in-2024-expanding-footprint/0921e5b5f126bb831cd1bfe839184de4) 
+
+ 
 
 
 

@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/gold-at-2-350
 [Original/Source Press Release](https://newsdirect.com/news/gold-at-2-350-has-further-to-go-says-auag-funds-founder-and-ceo-161836938)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/auag-funds-ceo-eric-strand-discusses-gold-market-dynamics-and-outlook/f22e4f3e690d824a73772ad31052e2e1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/gold-s-upward-trajectory-continues-hitting-2500-predicted-by-auag-funds-ceo)
+ 
 
 
 

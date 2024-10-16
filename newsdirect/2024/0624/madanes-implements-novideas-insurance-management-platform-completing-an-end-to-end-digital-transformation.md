@@ -41,7 +41,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/madanes-imple
 [Original/Source Press Release](https://newsdirect.com/news/madanes-implements-novideas-insurance-management-platform-completing-an-end-to-end-digital-transformation-716733395)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/madanes-implements-novidea-s-insurance-management-platform-completing-digital-transformation/205c964a5842b4bb311f6cc1dc214b1e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/madanes-insurance-agency-completes-digital-transformation-with-novidea-s-platform/20244419)
+
+Pickup - [advos.io](https://advos.io/en/madanes-completes-digital-transformation-with-novidea-s-insurance-management-platform/20244419)
+ 
 
 
 

@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/exploring-the
 [Original/Source Press Release](https://newsdirect.com/news/exploring-the-influential-leadership-legacy-of-wilbert-t-lee-a-philippine-congressional-force-205242654)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/philippine-congressman-wilbert-t-lee-s-legacy-of-integrity-and-leadership/92853694ef00c339dbee201a0c269a61) 
+
+ 
 
 
 

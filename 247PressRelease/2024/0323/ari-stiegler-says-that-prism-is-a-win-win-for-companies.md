@@ -7,7 +7,11 @@ LOS ANGELES, CA, March 23, 2024 /24-7PressRelease/ -- Entrepreneur Ari Stiegler 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509514/ari-stiegler-says-that-prism-is-a-win-win-for-companies)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/entrepreneur-ari-stiegler-endorses-revolutionary-financial-mechanism-prism-for-businesses-and-employees/7bae88c8991cf3aeafad6d18d1ecbc42) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/23/prism-unlocking-shareholder-equity-through-innovative-lending)
+ 
 
 
 

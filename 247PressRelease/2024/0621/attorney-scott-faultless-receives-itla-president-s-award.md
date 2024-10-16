@@ -7,7 +7,13 @@ INDIANAPOLIS, IN, June 21, 2024 /24-7PressRelease/ -- Personal injury attorney S
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511904/attorney-scott-faultless-receives-itla-presidents-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scott-a-faultless-receives-itla-president-s-award-for-the-third-time/a0201e81147fba69f02fa1014e2506e0) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/attorney-scott-faultless-receives-itla-president-s-award-for-third-time/20244360)
+
+Pickup - [advos.io](https://advos.io/en/attorney-scott-faultless-honored-with-itla-president-s-award-for-third-time/20244360)
+ 
 
 
 

@@ -45,7 +45,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/valuezone-announces-zero-trading-fee-week-for-all-crypto-transactions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/valuezone-announces-zero-trading-fee-for-one-week-to-encourage-active-cryptocurrency-trading/a54288202a35f5aa696aaa014f140600) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/valuezone-announces-zero-trading-fee-for-one-week-to-encourage-active-cryptocurrency-trading)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/valuezone-announces-zero-trading-fee-for-one-week-to-encourage-active-cryptocurrency-trading)
+ 
 
 
 

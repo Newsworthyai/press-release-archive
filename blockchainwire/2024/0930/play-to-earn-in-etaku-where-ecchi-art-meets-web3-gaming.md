@@ -39,7 +39,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/play-to-earn-in-etaku---where-ecchi-art-meets-web3-gaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/etaku-a-paradise-for-anime-and-ecchi-enthusiasts/ce53258d5461c8a21b5c3adf544ac13e) 
+
+ 
 
 
 

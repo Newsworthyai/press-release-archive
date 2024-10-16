@@ -35,7 +35,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/kevel-launche
 [Original/Source Press Release](https://newsdirect.com/news/kevel-launches-kai-to-boost-performance-optimization-relevance-and-revenue-for-retail-media-networks-801227933)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kevel-launches-kai-to-boost-performance-optimization-relevance-and-revenue-for-retail-media-networks/819984790b9edfba701176be74daf6c5) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/kevel-unveils-kai-to-elevate-retail-media-network-performance/20244801)
+
+Pickup - [advos.io](https://advos.io/en/kevel-unveils-kai-a-game-changer-for-retail-media-networks/20244801)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/kevel-introduces-ai-powered-suite-kai-to-enhance-retail-media-networks)
+ 
 
 
 

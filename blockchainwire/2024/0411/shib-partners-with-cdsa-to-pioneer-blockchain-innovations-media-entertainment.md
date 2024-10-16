@@ -17,7 +17,11 @@ SHIB, a world-leading ecosystem of decentralized finance (DeFi) cryptocurrencies
 [Original/Source Press Release](https://blockchainwire.io/press-release/shib-partners-with-cdsa-to-pioneer-blockchain-innovations-media--entertainment-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shib-partners-with-cdsa-to-explore-blockchain-enabled-media-opportunities/f20deb0dabd2fef96efd0692b7566dbb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/shib-partners-with-cdsa-to-pioneer-blockchain-innovations-in-media-entertainment)
+ 
 
 
 

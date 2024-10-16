@@ -71,7 +71,21 @@ Open Campus is a DAO and community-led protocol creating a decentralized educati
 [Original/Source Press Release](https://blockchainwire.io/press-release/kip-protocols-10m-dao-proposal-approved-to-transform-education-for-250-million-students-globally)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kip-protocol-and-open-campus-unite-to-revolutionize-global-education/266e3bd4e20d6b38f68ab2b9883716e0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/kip-protocol-secures-10-million-to-revolutionize-education-for-250-million-students-worldwide)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kip-protocol-s-10m-dao-proposal-approved-to-revolutionize-global-education-for-250-million-students/20245558)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/kip-protocol-secures-10-million-to-transform-global-education-with-ai-and-web3/20245558)
+
+Pickup - [advos.io](https://advos.io/en/kip-protocol-s-10m-initiative-set-to-revolutionize-education-for-250-million-students/20245558)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/kip-protocol-and-open-campus-unite-to-revolutionize-global-education)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/kip-protocol-and-open-campus-unite-to-revolutionize-global-education)
+ 
 
 
 

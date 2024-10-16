@@ -123,7 +123,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/nafas-2024-ia
 [Original/Source Press Release](https://newsdirect.com/news/nafas-2024-iande-media-day-unveils-cutting-edge-fleet-innovations-and-insights-377069084)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nafa-s-i-e-media-day-unveils-cutting-edge-fleet-innovations/416e5367a4f2c08da9856e3fadab01b8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/nafa-s-2024-i-e-media-day-unveils-cutting-edge-fleet-innovations-insights)
+ 
 
 
 

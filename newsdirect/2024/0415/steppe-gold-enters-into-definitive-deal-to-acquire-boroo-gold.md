@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/steppe-gold-e
 [Original/Source Press Release](https://newsdirect.com/news/steppe-gold-enters-into-definitive-deal-to-acquire-boroo-gold-871704968)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/steppe-gold-s-strategic-acquisition-and-expansion-plans-unveiled/da39b72cad959ae7f7b83d0d8d3ffcd1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/steppe-gold-enters-into-definitive-deal-to-acquire-boroo-gold)
+ 
 
 
 

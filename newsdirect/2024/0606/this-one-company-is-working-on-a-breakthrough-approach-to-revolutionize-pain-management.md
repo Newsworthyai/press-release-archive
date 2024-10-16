@@ -40,7 +40,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/this-one-comp
 [Original/Source Press Release](https://newsdirect.com/news/this-one-company-is-working-on-a-breakthrough-approach-to-revolutionize-pain-management-840932661)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/autonomix-medical-innovates-nervous-system-disease-treatment/37c15dafc72df326fdfdcad9d9a16ce6) 
+
+
+Pickup - [advos.io](https://advos.io/en/autonomix-medical-s-innovative-technology-set-to-transform-pain-management-and-treatment-of-nervous-system-disorders/20243892)
+ 
 
 
 

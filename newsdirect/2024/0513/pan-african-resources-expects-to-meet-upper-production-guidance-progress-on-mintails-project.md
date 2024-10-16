@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/pan-african-r
 [Original/Source Press Release](https://newsdirect.com/news/pan-african-resources-expects-to-meet-upper-production-guidance-progress-on-mintails-project-123614425)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pan-african-resources-expects-to-meet-upper-production-guidance-progress-on-mintails-project/687a3cd2b6d9a2cc3b51f442074d1cbd) 
+
+ 
 
 
 

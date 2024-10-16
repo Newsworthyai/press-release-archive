@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/days-after-su
 [Original/Source Press Release](https://newsdirect.com/news/days-after-successful-ipo-fly-e-rings-the-closing-nasdaq-bell-and-celebrates-e-two-wheel-markets-future-521929340)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fly-e-group-inc-rings-nasdaq-bell-after-successful-ipo/3611e3cb49668eaf908d5b262e59b895) 
+
+
+Pickup - [advos.io](https://advos.io/en/fly-e-celebrates-ipo-success-and-bright-future-of-e-two-wheel-market/20244158)
+ 
 
 
 

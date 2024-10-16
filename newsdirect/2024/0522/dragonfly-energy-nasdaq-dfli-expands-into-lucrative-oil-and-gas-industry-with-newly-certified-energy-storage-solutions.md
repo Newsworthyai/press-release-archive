@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/dragonfly-ene
 [Original/Source Press Release](https://newsdirect.com/news/dragonfly-energy-nasdaq-dfli-expands-into-lucrative-oil-and-gas-industry-with-newly-certified-energy-storage-solutions-835218701)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dragonfly-energy-expands-into-oil-and-gas-industry-with-certified-energy-storage-solutions/e2e071af950a11d65b125eb9dab7a08b) 
+
+ 
 
 
 

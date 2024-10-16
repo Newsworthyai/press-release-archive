@@ -7,7 +7,11 @@ JACKSONVILLE, FL, June 06, 2024 /24-7PressRelease/ -- Keith L. Jones, CPA, the r
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511458/keith-l-jones-cpa-announces-exclusive-sponsorship-of-tax-mob-2024-cocktail-party)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/keith-l-jones-cpa-announces-exclusive-sponsorship-agreement-with-tax-mob-llc-for-tax-mob-2024-event/bff135b29c767d8f2f1b11a832b574a9) 
+
+
+Pickup - [advos.io](https://advos.io/en/keith-l-jones-cpa-secures-exclusive-sponsorship-for-tax-mob-2024-cocktail-party/20243871)
+ 
 
 
 

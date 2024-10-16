@@ -21,7 +21,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/diamond-lake-
 [Original/Source Press Release](https://newsdirect.com/news/diamond-lake-minerals-and-horizon-fintex-announce-3-75-million-share-exchange-agreement-555998071)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/diamond-lake-minerals-and-horizon-fintex-announce-3-75-million-share-exchange-agreement/a62f98fef4fe7560b24ee188e5fbc328) 
+
+
+Pickup - [advos.io](https://advos.io/en/diamond-lake-minerals-and-horizon-fintex-forge-3-75-million-share-exchange-partnership/20244128)
+ 
 
 
 

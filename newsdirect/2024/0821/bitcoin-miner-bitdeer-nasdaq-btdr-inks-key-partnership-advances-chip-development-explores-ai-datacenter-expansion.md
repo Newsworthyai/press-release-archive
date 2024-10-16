@@ -57,7 +57,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitcoin-miner
 [Original/Source Press Release](https://newsdirect.com/news/bitcoin-miner-bitdeer-nasdaq-btdr-inks-key-partnership-advances-chip-development-explores-ai-datacenter-expansion-542509505)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-miner-bitdeer-nasdaq-btdr-inks-key-partnership-advances-chip-development-explores-ai-datacenter-expansion/61f310ca6a15e157d8fc677ad9fd251c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/bitdeer-technologies-group-advances-bitcoin-mining-and-ai-datacenter-initiatives)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitdeer-advances-in-bitcoin-mining-and-ai-datacenter-expansion-amid-market-volatility/20245872)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bitdeer-technologies-group-advances-bitcoin-mining-and-ai-datacenter-initiatives/20245872)
+
+Pickup - [advos.io](https://advos.io/en/bitdeer-advances-bitcoin-mining-and-ai-datacenter-expansion/20245872)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-miner-bitdeer-nasdaq-btdr-inks-key-partnership-advances-chip-development-explores-ai-datacenter-expansion)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-miner-bitdeer-nasdaq-btdr-inks-key-partnership-advances-chip-development-explores-ai-datacenter-expansion)
+ 
 
 
 

@@ -7,7 +7,11 @@ NEW YORK, NY, March 27, 2024 /24-7PressRelease/ -- Companies have historically t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509597/topo-finance-unveils-the-carbon-bankroll-20-awareness-to-action-a-groundbreaking-report-highlighting-the-power-of-corporate-financial-management-as-a-lever-for-climate-action)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/topo-finance-report-companies-financial-management-as-a-climate-action-lever/52b127619917c45a58bfeb3ae7eeffb5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/topo-finance-unveils-groundbreaking-report-on-corporate-financial-management-s-power-for-climate-action)
+ 
 
 
 

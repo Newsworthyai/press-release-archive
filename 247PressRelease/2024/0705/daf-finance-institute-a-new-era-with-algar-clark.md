@@ -7,7 +7,15 @@ FREMONT, CA, July 05, 2024 /24-7PressRelease/ -- Algar Clark, a rare investment 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512287/daf-finance-institute-a-new-era-with-algar-clark)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investment-prodigy-algar-clark-s-journey-to-creating-ai-profit-algorithms-4-0/16fefa39b89e6b6f489af2c65df67195) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/daf-finance-institute-ushers-in-new-era-with-algar-clark/20244719)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/daf-finance-institute-revolutionizes-quantitative-trading-with-ai-driven-algorithms)
+
+Pickup - [advos.io](https://advos.io/en/daf-finance-institute-pioneers-ai-driven-investment-with-algar-clark/20244719)
+ 
 
 
 

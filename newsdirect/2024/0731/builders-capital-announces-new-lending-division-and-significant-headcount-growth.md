@@ -29,7 +29,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/builders-capi
 [Original/Source Press Release](https://newsdirect.com/news/builders-capital-announces-new-lending-division-and-significant-headcount-growth-366575635)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/builders-capital-expands-loan-production-operations-and-adds-40-new-team-members/277a86f3c3231ca990c0db5a6d6df58e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/builders-capital-expands-operations-with-new-lending-division-and-40-team-members)
+
+Pickup - [fishervista.com](https://fishervista.com/en/builders-capital-expands-operations-with-new-lending-division-and-significant-workforce-growth/20245400)
+
+Pickup - [advos.io](https://advos.io/en/builders-capital-expands-with-new-lending-division-and-significant-team-growth/20245400)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/builders-capital-expands-with-new-lending-division-adds-40-team-members)
+ 
 
 
 

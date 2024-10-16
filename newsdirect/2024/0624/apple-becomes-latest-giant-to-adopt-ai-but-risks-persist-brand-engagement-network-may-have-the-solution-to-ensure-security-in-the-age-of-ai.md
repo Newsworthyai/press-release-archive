@@ -51,7 +51,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/apple-becomes
 [Original/Source Press Release](https://newsdirect.com/news/apple-becomes-latest-giant-to-adopt-ai-but-risks-persist-brand-engagement-network-may-have-the-solution-to-ensure-security-in-the-age-of-ai-383198577)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/openai-s-chatgpt-gaining-momentum-as-major-companies-embrace-ai/eddbf3e5a4bbaa0403f43dda5e0d6515) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/apple-embraces-ai-with-openai-partnership-amid-rising-security-concerns/20244422)
+
+Pickup - [advos.io](https://advos.io/en/apple-joins-ai-revolution-amid-security-concerns-ben-presents-a-secure-solution/20244422)
+ 
 
 
 

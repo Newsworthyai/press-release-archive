@@ -13,7 +13,9 @@ In addition to ketamine therapy, Innovative Psychedelics also provides Spravato 
 [Original/Source Press Release](https://newsworthy.ai/news/20231229950/innovative-psychedelics-introduces-ketamine-for-pain-treatment-at-its-chicago-clinic)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-psychedelics-offers-groundbreaking-ketamine-treatment-for-chronic-pain/25ec06a8c11404328b26a02df8c87acc) 
+
+ 
 
 
 

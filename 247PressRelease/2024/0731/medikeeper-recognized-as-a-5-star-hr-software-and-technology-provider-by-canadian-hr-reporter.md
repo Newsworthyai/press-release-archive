@@ -7,7 +7,19 @@ SAN DIEGO, CA, July 31, 2024 /24-7PressRelease/ -- MediKeeper, a leading technol
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513001/medikeeper-recognized-as-a-5-star-hr-software-and-technology-provider-by-canadian-hr-reporter)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/medikeeper-recognized-as-5-star-hr-software-and-technology-provider-by-canadian-hr-reporter/257fdd658242253a78192dfbad5da356) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/medikeeper-earns-5-star-recognition-in-corporate-wellness-platforms-from-canadian-hr-reporter)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/medikeeper-earns-5-star-recognition-in-corporate-wellness-platforms-by-canadian-hr-reporter/20245383)
+
+Pickup - [fishervista.com](https://fishervista.com/en/medikeeper-awarded-5-star-hr-software-and-technology-provider-by-canadian-hr-reporter/20245383)
+
+Pickup - [advos.io](https://advos.io/en/medikeeper-earns-5-star-recognition-as-top-hr-software-and-technology-provider/20245383)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/medikeeper-earns-5-star-rating-for-corporate-wellness-platforms-from-canadian-hr-reporter)
+ 
 
 
 

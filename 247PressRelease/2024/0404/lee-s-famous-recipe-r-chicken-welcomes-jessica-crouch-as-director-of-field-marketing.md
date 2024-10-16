@@ -7,7 +7,11 @@ SHALIMAR, FL, April 04, 2024 /24-7PressRelease/ -- Lee's Famous Recipe® Chicken
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509813/lees-famous-recipe-chicken-welcomes-jessica-crouch-as-director-of-field-marketing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lee-s-famous-recipe-chicken-appoints-jessica-crouch-as-director-of-field-marketing/ed3f0230140f6bebb96c098c2973ec35) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/lee-s-famous-recipe-r-chicken-appoints-jessica-crouch-as-director-of-field-marketing)
+ 
 
 
 

@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/firebird-meta
 [Original/Source Press Release](https://newsdirect.com/news/firebird-metals-reveal-feasibility-outcomes-during-china-visit-345975445)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/firebird-metals-reveals-feasibility-outcomes-during-china-visit/7d302d357334b612d0386310b66e4e7c) 
+
+ 
 
 
 

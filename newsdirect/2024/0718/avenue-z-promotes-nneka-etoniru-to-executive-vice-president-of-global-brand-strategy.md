@@ -35,7 +35,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/avenue-z-prom
 [Original/Source Press Release](https://newsdirect.com/news/avenue-z-promotes-nneka-etoniru-to-executive-vice-president-of-global-brand-strategy-421357347)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avenue-z-appoints-nneka-etoniru-as-evp-global-brand-strategy/a1ef56d78ee8363bef475c34009c07a7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/avenue-z-elevates-nneka-etoniru-to-executive-vice-president-strengthening-global-brand-strategy)
+
+Pickup - [fishervista.com](https://fishervista.com/en/avenue-z-promotes-nneka-etoniru-to-executive-vice-president-of-global-brand-strategy/20245090)
+
+Pickup - [advos.io](https://advos.io/en/avenue-z-elevates-nneka-etoniru-to-evp-of-global-brand-strategy/20245090)
+ 
 
 
 

@@ -43,7 +43,11 @@ Twitter: [SHIBA BUDZ "$BUDZ" (@ShibaBudz) / X](https://twitter.com/ShibaBudz)Dis
 [Original/Source Press Release](https://blockchainwire.io/press-release/will-shib-investors-double-ethereum-eth-profits-in-new-shiba-inu-shib-like-memecoin)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiba-budz-budz-the-next-big-investment-opportunity-for-shib-investors/1e4c627057aaf483d6ba62bf101c079c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/shiba-budz-budz-the-new-meme-coin-promising-to-double-ethereum-eth-profits)
+ 
 
 
 

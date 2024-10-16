@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/recce-pharmac
 [Original/Source Press Release](https://newsdirect.com/news/recce-pharmaceuticals-doses-highest-cohort-in-phase-i-ii-uti-urosepsis-trial-982363248)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/recce-pharmaceuticals-administers-highest-dose-in-phase-i-ii-uti-urosepsis-trial/e0da89139e8b0404e6973d4f72946d46) 
+
+ 
 
 
 

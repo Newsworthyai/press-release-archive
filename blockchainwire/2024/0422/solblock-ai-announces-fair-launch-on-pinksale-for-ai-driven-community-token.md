@@ -32,7 +32,11 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/solblock-ai-announces-fair-launch-on-pinksale-for-ai-driven-community-token-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solblock-ai-unveils-token-fair-launch-on-pinksale/26080a1c643da89e9f639bc707e47eef) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/solblock-ai-announces-fair-launch-on-pinksale-for-ai-driven-community-token)
+ 
 
 
 

@@ -25,7 +25,17 @@ McEwen Mining (NYSE: MUX) (TSX: MUX), a gold and silver producer with operations
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-chooses-ypf-luz-to-provide-renewable-energy-for-los-azules-project/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-mining-reaches-agreement-with-ypf-luz-for-renewable-energy-at-los-azules-copper-project/0c1a0a759820104bb05a8f945fb91454) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/mcewen-mining-partners-with-ypf-luz-for-renewable-energy-at-los-azules-copper-project)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mcewen-mining-partners-with-ypf-luz-for-renewable-energy-at-los-azules-project/20246329)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/mcewen-mining-partners-with-ypf-luz-for-renewable-energy-at-los-azules-copper-project/20246329)
+
+Pickup - [advos.io](https://advos.io/en/mcewen-mining-partners-with-ypf-luz-for-renewable-energy-at-los-azules-project/20246329)
+ 
 
 
 

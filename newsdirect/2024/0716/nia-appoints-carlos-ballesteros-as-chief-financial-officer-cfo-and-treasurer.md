@@ -43,7 +43,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/nia-appoints-
 [Original/Source Press Release](https://newsdirect.com/news/nia-appoints-carlos-ballesteros-as-chief-financial-officer-cfo-and-treasurer-377657151)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nonprofits-insurance-alliance-appoints-carlos-ballesteros-as-cfo-and-treasurer/7d2303975ca46f25ce6050917bd4f420) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/nonprofits-insurance-alliance-welcomes-carlos-ballesteros-as-new-cfo-and-treasurer)
+
+Pickup - [fishervista.com](https://fishervista.com/en/nia-appoints-carlos-ballesteros-as-chief-financial-officer-and-treasurer/20244995)
+
+Pickup - [advos.io](https://advos.io/en/nonprofits-insurance-alliance-appoints-carlos-ballesteros-as-cfo-and-treasurer/20244995)
+ 
 
 
 

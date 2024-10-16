@@ -35,7 +35,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/puerto-ricos-
 [Original/Source Press Release](https://newsdirect.com/news/puerto-ricos-day-at-the-ballpark-texas-rangers-globe-life-field-friday-july-19th-2024-511899630)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prcda-sponsors-puerto-ricos-day-at-the-ballpark-at-globe-life-field/4d6c268ce7f59b9d1a5ebcbb683014a7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/texas-rangers-to-host-puerto-rico-s-day-at-the-ballpark-in-july-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/prcda-announces-puerto-rico-s-day-at-the-ballpark-at-globe-life-field/20245024)
+
+Pickup - [advos.io](https://advos.io/en/puerto-ricos-day-at-the-ballpark-to-honor-baseball-legacy/20245024)
+ 
 
 
 

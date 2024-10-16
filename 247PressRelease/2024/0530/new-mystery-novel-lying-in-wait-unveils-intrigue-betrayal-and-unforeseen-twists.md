@@ -7,7 +7,9 @@ RIPLEY, TN, May 30, 2024 /24-7PressRelease/ -- Author Elizabeth Lawson introduce
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511270/new-mystery-novel-lying-in-wait-unveils-intrigue-betrayal-and-unforeseen-twists)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-author-elizabeth-lawson-releases-new-mystery-novel-lying-in-wait/f7fc674e4f86d93fdfe411f862a75cce) 
+
+ 
 
 
 

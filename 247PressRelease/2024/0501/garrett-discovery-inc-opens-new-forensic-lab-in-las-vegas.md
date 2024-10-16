@@ -7,7 +7,9 @@ LAS VEGAS, NV, May 01, 2024 /24-7PressRelease/ -- Garrett Discovery Inc., a nati
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510549/garrett-discovery-inc-opens-new-forensic-lab-in-las-vegas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/garrett-discovery-inc-expands-practice-with-new-forensics-lab-in-las-vegas/582215d3f0b366f2d523b35dd11b453c) 
+
+ 
 
 
 

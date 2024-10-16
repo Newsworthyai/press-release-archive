@@ -7,7 +7,17 @@ BURNABY, BC, July 24, 2024 /24-7PressRelease/ -- Acclaimed author Steve Casandra
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512786/visionary-author-steve-casandra-lesko-releases-two-transformative-books)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/acclaimed-author-steve-casandra-lesko-releases-groundbreaking-books/eee4cdc478074f668c5a374748f4496b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/author-steve-casandra-lesko-releases-two-books-inspired-by-extraterrestrial-encounters)
+
+Pickup - [fishervista.com](https://fishervista.com/en/steve-casandra-lesko-releases-two-books-offering-extraterrestrial-wisdom-for-personal-and-global-transformation/20245207)
+
+Pickup - [advos.io](https://advos.io/en/steve-casandra-lesko-releases-two-transformative-books/20245207)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/author-steve-casandra-lesko-releases-two-books-inspired-by-extraterrestrial-encounters)
+ 
 
 
 

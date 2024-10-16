@@ -51,7 +51,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/briefly-bio-l
 [Original/Source Press Release](https://newsdirect.com/news/briefly-bio-launches-with-1-2m-funding-to-help-scientists-reproduce-complex-experiments-557826042)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/briefly-bio-launches-with-1-2m-funding-to-help-scientists-reproduce-complex-experiments/a846b9648398590820003e678b772f42) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/briefly-bio-secures-1-2m-in-funding-to-address-scientific-reproducibility-crisis)
+
+Pickup - [fishervista.com](https://fishervista.com/en/briefly-bio-secures-1-2m-funding-to-address-scientific-reproducibility-crisis/20245018)
+
+Pickup - [advos.io](https://advos.io/en/briefly-bio-secures-1-2m-funding-to-address-reproducibility-crisis-in-science/20245018)
+ 
 
 
 

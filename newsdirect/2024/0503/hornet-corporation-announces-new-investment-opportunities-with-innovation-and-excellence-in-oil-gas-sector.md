@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/hornet-corpor
 [Original/Source Press Release](https://newsdirect.com/news/hornet-corporation-announces-new-investment-opportunities-with-innovation-and-excellence-in-oil-and-gas-sector-372981775)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hornet-corporation-unveils-new-investment-opportunities-in-oil-and-gas-sector/177166d0b0b674e50b88a4ab47de5b98) 
+
+ 
 
 
 

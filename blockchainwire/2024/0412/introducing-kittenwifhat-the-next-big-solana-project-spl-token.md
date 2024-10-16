@@ -9,7 +9,11 @@ Our project draws on the experience of the same team behind Baby BNB, which saw 
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-kittenwifhat-the-next-big-solana-project-spl-token)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-kittenwifhat-the-next-big-thing-on-solana-blockchain/375641ed890be64f707703d22ab0f061) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/kittenwifhat-the-next-big-solana-project-spl-token)
+ 
 
 
 

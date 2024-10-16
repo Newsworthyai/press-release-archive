@@ -67,7 +67,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/db-schenker-s
 [Original/Source Press Release](https://newsdirect.com/news/db-schenker-showcases-thought-leadership-in-import-export-logistics-through-new-video-series-on-the-port-of-halifax-618653442)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/db-schenker-launches-exclusive-video-series-on-port-of-halifax/7fc92a00ccdb5d48bf4130506c2f7eb5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/port-of-halifax-emerges-as-key-player-in-global-trade-db-schenker-video-series-highlights-economic-impact-and-innovation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/db-schenker-launches-video-series-highlighting-the-strategic-importance-of-the-port-of-halifax/20244998)
+
+Pickup - [advos.io](https://advos.io/en/db-schenker-introduces-video-series-highlighting-the-port-of-halifaxs-role-in-global-trade/20244998)
+ 
 
 
 

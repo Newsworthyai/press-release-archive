@@ -27,7 +27,21 @@ Disclaimer: This publication is for informational purpose only and is not intend
 [Original/Source Press Release](https://blockchainwire.io/press-release/redotpay-strengthens-kycaml-screening-with-lsegs-world-check-intelligence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/redotpay-enhances-kyc-aml-screening-with-integration-of-lseg-s-world-check-intelligence-platform/b0fe4aeab0108997994376aca8993743) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/redotpay-enhances-kyc-aml-screening-with-integration-of-lseg-s-world-check-intelligence-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/redotpay-enhances-kyc-aml-screening-with-integration-of-lseg-s-world-check-intelligence-platform)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/redotpay-enhances-kyc-aml-screening-with-lseg-s-world-check-intelligence)
+
+Pickup - [fishervista.com](https://fishervista.com/en/redotpay-enhances-compliance-with-lseg-s-world-check-intelligence-integration/20245209)
+
+Pickup - [advos.io](https://advos.io/en/redotpay-enhances-kyc-aml-screening-with-lseg-s-world-check-intelligence/20245209)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/redotpay-enhances-kyc-aml-screening-with-lseg-s-world-check-intelligence)
+ 
 
 
 

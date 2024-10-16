@@ -7,7 +7,17 @@ CLEARWATER, FL, July 25, 2024 /24-7PressRelease/ -- The Florida chapter of the C
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512804/the-citizens-commission-on-human-rights-is-hosting-an-event-in-honor-of-purple-heart-day)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cchr-hosts-purple-heart-day-event-honoring-u-s-military-and-veterans/3a51d86ecb661da0bd0dcaae901cc2e3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/cchr-florida-to-host-purple-heart-day-event-honoring-military-personnel-and-veterans)
+
+Pickup - [fishervista.com](https://fishervista.com/en/citizens-commission-on-human-rights-to-host-purple-heart-day-event-in-clearwater/20245230)
+
+Pickup - [advos.io](https://advos.io/en/citizens-commission-on-human-rights-hosts-purple-heart-day-banquet/20245230)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cchr-florida-to-host-purple-heart-day-event-honoring-military-personnel-and-veterans)
+ 
 
 
 

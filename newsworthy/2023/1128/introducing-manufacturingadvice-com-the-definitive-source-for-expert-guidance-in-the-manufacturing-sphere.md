@@ -23,7 +23,11 @@ To discover more and dive deep into the world of manufacturing expertise, visit 
 [Original/Source Press Release](https://newsworthy.ai/news/20231128841/introducing-manufacturingadvice-com-the-definitive-source-for-expert-guidance-in-the-manufacturing-sphere)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-manufacturingadvice-com-a-new-platform-for-manufacturing-expertise/e8b9cf0b5bad14009117ce50ca6b303f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/28/manufacturingadvice-com-emerges-as-premier-knowledge-hub-for-manufacturing-professionals)
+ 
 
 
 

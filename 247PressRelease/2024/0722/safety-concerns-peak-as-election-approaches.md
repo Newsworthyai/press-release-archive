@@ -7,7 +7,15 @@ DURHAM, NC, July 22, 2024 /24-7PressRelease/ -- As the pivotal election on Tuesd
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512727/safety-concerns-peak-as-election-approaches)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/surge-in-security-measures-and-the-role-of-private-security-contractors/8d7a8b94950454960acfa77acc800407) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/security-concerns-surge-as-2024-election-approaches-private-contractors-fill-critical-gaps)
+
+Pickup - [fishervista.com](https://fishervista.com/en/heightened-security-measures-dominate-as-u-s-election-nears/20245137)
+
+Pickup - [advos.io](https://advos.io/en/heightened-security-measures-in-response-to-election-safety-concerns/20245137)
+ 
 
 
 

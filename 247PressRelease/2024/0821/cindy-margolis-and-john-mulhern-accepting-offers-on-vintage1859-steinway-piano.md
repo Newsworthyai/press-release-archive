@@ -7,7 +7,17 @@ NEWARK, NJ, August 21, 2024 /24-7PressRelease/ -- Cindy Margolis and John Mulher
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513584/cindy-margolis-and-john-mulhern-accepting-offers-on-vintage1859-steinway-piano)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rare-vintage1859-steinway-piano-for-sale-by-cindy-margolis-and-john-mulhern/d2eb796fcf0cda7cac6e4dce7426fa99) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/historic-1859-steinway-concert-grand-piano-up-for-sale)
+
+Pickup - [fishervista.com](https://fishervista.com/en/historic-1859-steinway-piano-owned-by-prominent-figures-now-available-for-purchase/20245868)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/rare-1859-steinway-piano-with-historical-provenance-offered-for-sale/20245868)
+
+Pickup - [advos.io](https://advos.io/en/1859-steinway-piano-once-owned-by-renowned-scottish-architect-up-for-sale/20245868)
+ 
 
 
 

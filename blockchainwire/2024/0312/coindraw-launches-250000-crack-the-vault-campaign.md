@@ -11,7 +11,11 @@ With a solid foundation of commitment to security, efficiency, and client conten
 [Original/Source Press Release](https://blockchainwire.io/press-release/coindraw-launches-250000-crack-the-vault-campaign)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coindraw-and-raging-bull-slots-announce-250000-crack-the-vault-promotion/b485b71875c0b9b75a15ba499f52a3cf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/coindraw-and-raging-bull-slots-launch-250000-crack-the-vault-campaign)
+ 
 
 
 

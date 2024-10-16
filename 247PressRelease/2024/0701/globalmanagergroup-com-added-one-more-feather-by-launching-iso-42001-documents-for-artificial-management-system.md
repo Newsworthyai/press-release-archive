@@ -7,7 +7,13 @@ NEW YORK, NY, July 01, 2024 /24-7PressRelease/ -- Globalmanagergroup.com is happ
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512163/globalmanagergroupcom-added-one-more-feather-by-launching-iso-42001-documents-for-artificial-management-system)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/globalmanagergroup-com-launches-iso-iec-42001-2023-documentation-kit-for-ai-management-system/94d0f88194b232c6fd9dee27dfb6ec9b) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/global-manager-group-launches-iso-42001-documentation-kit-for-ai-management-systems/20244654)
+
+Pickup - [advos.io](https://advos.io/en/global-manager-group-launches-iso-42001-documentation-kit-for-ai-management-systems/20244654)
+ 
 
 
 

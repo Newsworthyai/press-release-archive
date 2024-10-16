@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/comcast-opens
 [Original/Source Press Release](https://newsdirect.com/news/comcast-opens-new-xfinity-store-in-crystal-minn-618655957)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-opens-new-xfinity-store-in-crystal-minn/89db3b89e2a0515d49d5b2f83c930aed) 
+
+ 
 
 
 

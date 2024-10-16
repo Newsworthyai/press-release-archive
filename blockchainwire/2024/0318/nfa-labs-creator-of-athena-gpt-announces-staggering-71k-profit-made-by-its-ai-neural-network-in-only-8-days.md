@@ -27,7 +27,11 @@ Telegram - [https://t.me/nfalabs](https://t.me/nfalabs)X - [https://twitter.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/nfa-labs-creator-of-athena-gpt-announces-staggering-71k-profit-made-by-its-ai-neural-network-in-only-8-days)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nfa-labs-unveils-athena-algorithm-and-nfai-token-growth/af12b4a014ed7e22ea3b04daf349cf9e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/nfa-labs-athena-gpt-ai-generates-71k-profit-in-just-8-days)
+ 
 
 
 

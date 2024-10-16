@@ -50,7 +50,13 @@ Stay connected with B2BinPay and utilize modern blockchain payment processing so
 [Original/Source Press Release](https://blockchainwire.io/press-release/b2binpay-v20-release-improved-functionality-with-trx-staking-and-expanded-blockchain-support-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/b2binpay-introduces-trx-staking-and-expands-blockchain-support/506bcb8746c3157ee049ffb47ee445b7) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/b2binpay-introduces-trx-staking-and-expands-blockchain-support)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/b2binpay-introduces-trx-staking-and-expands-blockchain-support)
+ 
 
 
 

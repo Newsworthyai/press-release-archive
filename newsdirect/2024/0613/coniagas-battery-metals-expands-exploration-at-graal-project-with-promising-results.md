@@ -21,7 +21,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/coniagas-batt
 [Original/Source Press Release](https://newsdirect.com/news/coniagas-battery-metals-expands-exploration-at-graal-project-with-promising-results-733282155)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coniagas-battery-metals-expanding-exploration-at-graal-project-with-promising-results/e0078f16ad2932edddbe00bb59d72d75) 
+
+
+Pickup - [advos.io](https://advos.io/en/coniagas-battery-metals-accelerates-exploration-at-graal-project-with-promising-results/20244132)
+ 
 
 
 

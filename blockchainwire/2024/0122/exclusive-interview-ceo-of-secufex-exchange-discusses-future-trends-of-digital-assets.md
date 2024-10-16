@@ -29,7 +29,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/exclusive-interview-ceo-of-secufex-exchange-discusses-future-trends-of-digital-assets)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/secufex-exchange-ceo-discusses-future-of-digital-assets-and-global-expansion-in-exclusive-interview/481240c1ce18163a1604f69198617768) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/22/secufex-exchange-ceo-unveils-vision-for-digital-asset-adoption-and-global-expansion)
+ 
 
 
 

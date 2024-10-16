@@ -85,7 +85,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitcoin-price
 [Original/Source Press Release](https://newsdirect.com/news/bitcoin-price-could-surpass-150k-by-the-end-of-the-year-171128465)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-bull-run-experts-predict-price-surge-to-150k-neptune-digital-assets-corp-seizes-growth-opportunity/a118744f94da0b4d4e2b88db8bcb99ce) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/bitcoin-s-meteoric-rise-continues-experts-predict-150k-by-year-end)
+ 
 
 
 

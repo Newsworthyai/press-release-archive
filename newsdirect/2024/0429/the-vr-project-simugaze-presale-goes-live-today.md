@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-vr-projec
 [Original/Source Press Release](https://newsdirect.com/news/the-vr-project-simugaze-presale-goes-live-today-545124469)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/simugaze-launches-to-transform-virtual-gaming-and-realistic-simulation/eaa2be666e639fa1e4cb603bab352f8b) 
+
+ 
 
 
 

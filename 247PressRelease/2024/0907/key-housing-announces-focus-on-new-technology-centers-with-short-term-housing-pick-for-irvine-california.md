@@ -7,7 +7,17 @@ IRVINE, CA, September 07, 2024 /24-7PressRelease/ -- Key Housing, a top provider
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514116/key-housing-announces-focus-on-new-technology-centers-with-short-term-housing-pick-for-irvine-california)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/key-housing-announces-featured-technology-listing-in-irvine-for-corporate-travelers/754c50ac7613ca90f6ee858b89b13e0e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/07/key-housing-selects-the-residences-on-jamboree-as-featured-technology-listing-for-irvine-s-growing-tech-sector)
+
+Pickup - [fishervista.com](https://fishervista.com/en/key-housing-highlights-the-residences-on-jamboree-for-tech-professionals-in-irvine/20246601)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/key-housing-selects-irvine-s-the-residences-on-jamboree-as-featured-technology-listing-for-august-2024/20246601)
+
+Pickup - [advos.io](https://advos.io/en/key-housing-highlights-the-residences-on-jamboree-for-tech-professionals-in-irvine/20246601)
+ 
 
 
 

@@ -23,7 +23,11 @@ Elevate your marketing prowess. Begin your journey at www.CMOTimes.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231219793/cmotimes-com-launches-the-ultimate-resource-for-chief-marketing-officers-and-marketing-enthusiasts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cmotimes-com-launches-as-the-ultimate-online-hub-for-marketing-leaders/bc6a48a192328485fa2ff15cccbad272) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/19/cmotimes-com-launches-as-ultimate-resource-for-marketing-leaders)
+ 
 
 
 

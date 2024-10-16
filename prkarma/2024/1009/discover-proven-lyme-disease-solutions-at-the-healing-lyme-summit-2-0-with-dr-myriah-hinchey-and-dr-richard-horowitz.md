@@ -41,7 +41,9 @@ Canada
 [Original/Source Press Release](https://newsroom.prkarma.com/drtalks/news_release/1574)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/healing-lyme-summit-2-0-free-online-event-featuring-top-health-experts/49ecdee86a0ae02ff400010c90ab3657) 
+
+ 
 
 
 

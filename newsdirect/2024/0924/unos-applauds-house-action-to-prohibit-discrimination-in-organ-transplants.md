@@ -29,7 +29,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/unos-applauds
 [Original/Source Press Release](https://newsdirect.com/news/unos-applauds-house-action-to-prohibit-discrimination-in-organ-transplants-276767569)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unos-applauds-house-action-to-prohibit-discrimination-in-organ-transplants/3152c73c3ab09eac86dedc50f66d1b4f) 
+
+ 
 
 
 

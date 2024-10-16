@@ -49,7 +49,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/theriva-biolo
 [Original/Source Press Release](https://newsdirect.com/news/theriva-biologics-receives-rare-pediatric-drug-designation-from-fda-for-treatment-of-retinoblastoma-806554394)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/theriva-biologics-receives-rare-pediatric-drug-designation-from-fda-for-treatment-of-retinoblastoma/47490b756c459cd8d0a875716decd3ae) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/theriva-biologics-secures-rare-pediatric-drug-designation-for-retinoblastoma-treatment)
+
+Pickup - [fishervista.com](https://fishervista.com/en/theriva-biologics-receives-fda-rare-pediatric-drug-designation-for-retinoblastoma-treatment/20245936)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/theriva-biologics-receives-fda-rare-pediatric-drug-designation-for-retinoblastoma-treatment/20245936)
+
+Pickup - [advos.io](https://advos.io/en/theriva-biologics-receives-fda-s-rare-pediatric-drug-designation-for-retinoblastoma-treatment/20245936)
+ 
 
 
 

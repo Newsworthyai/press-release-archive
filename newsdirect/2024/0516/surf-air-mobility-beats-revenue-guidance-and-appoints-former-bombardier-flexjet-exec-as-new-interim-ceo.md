@@ -83,7 +83,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/surf-air-mobi
 [Original/Source Press Release](https://newsdirect.com/news/surf-air-mobility-beats-revenue-guidance-and-appoints-former-bombardier-flexjet-exec-as-new-interim-ceo-986940586)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/surf-air-mobility-appoints-deanna-white-as-interim-ceo-and-reports-first-quarter-highlights/f8210a6627a906a6512a4b53a4a5f37d) 
+
+ 
 
 
 

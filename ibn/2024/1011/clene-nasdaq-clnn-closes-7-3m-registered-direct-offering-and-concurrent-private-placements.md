@@ -26,7 +26,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/clene-nasdaq-clnn-closes-7-3m-registered-direct-offering-and-concurrent-private-placements/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clene-inc-closes-7-3-million-funding-round-for-neurodegenerative-disease-treatment/e0e7637308aaa6d222488f243730fff8) 
+
+ 
 
 
 

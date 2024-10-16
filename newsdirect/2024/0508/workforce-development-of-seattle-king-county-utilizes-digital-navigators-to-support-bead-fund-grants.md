@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/workforce-dev
 [Original/Source Press Release](https://newsdirect.com/news/workforce-development-of-seattle-king-county-utilizes-digital-navigators-to-support-bead-fund-grants-417641469)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wdc-and-comcast-collaborate-to-bridge-the-digital-divide-in-seattle-king-county/b16c91828e971eebae675e0b666e06da) 
+
+ 
 
 
 

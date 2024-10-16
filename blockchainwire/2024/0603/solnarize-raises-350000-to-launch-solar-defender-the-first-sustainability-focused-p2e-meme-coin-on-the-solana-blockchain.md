@@ -43,7 +43,13 @@ Medium: https://medium.com/@solnarize
 [Original/Source Press Release](https://blockchainwire.io/press-release/-solnarize-raises-350000-to-launch-solar-defender-the-first-sustainability-focused-p2e-meme-coin-on-the-solana-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solnarize-raises-350000-for-solar-defender-the-first-sustainable-play-to-earn-game-on-solana-blockchain/8dc8fd8dffc25f802f79f18e6e1f87b3) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/solnarize-raises-350000-for-solar-defender-the-first-sustainable-play-to-earn-game-on-solana-blockchain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/solnarize-raises-350000-for-solar-defender-the-first-sustainable-play-to-earn-game-on-solana-blockchain)
+ 
 
 
 

@@ -39,7 +39,17 @@ DUBAI, UAE - (NewMediaWire) - September 03, 2024 - Blackwell 3D Construction Cor
 [Original/Source Press Release](https://www.newmediawire.com/news/blackwell-3d-provides-corporate-update-eyes-asian-market-7075988)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blackwell-3d-construction-corp-announces-key-initiatives-for-growth-and-transparency/29c76e5299b6d550129a48073d8fd3c1) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/blackwell-3d-announces-strategic-initiatives-and-eyes-asian-market-expansion/20246475)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/blackwell-3d-construction-corp-announces-strategic-initiatives-and-potential-asian-market-expansion/20246475)
+
+Pickup - [advos.io](https://advos.io/en/blackwell-3d-announces-key-initiatives-and-potential-asian-market-expansion/20246475)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/blackwell-3d-construction-corp-announces-strategic-initiatives-and-potential-asian-market-expansion)
+ 
 
 
 

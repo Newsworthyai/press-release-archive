@@ -7,7 +7,17 @@ NEW YORK, NY, August 27, 2024 /24-7PressRelease/ -- Prepare to be mesmerized as 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513812/wadena-sets-the-stage-ablaze-with-her-captivating-new-single-smoke-n-chill-hempstead-ny-august-30-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-mbk-entertainment-artist-wadena-set-to-release-highly-anticipated-single-smoke-n-chill/2314216d97c53a50b674468bb25cee65) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/wadena-returns-with-mesmerizing-new-single-smoke-n-chill/20245983)
+
+Pickup - [advos.io](https://advos.io/en/wadena-returns-with-anticipated-single-smoke-n-chill/20245983)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/wadena-collaborates-with-grammy-winning-producer-zaytoven-on-new-single-smoke-n-chill)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/former-mbk-entertainment-artist-wadena-returns-with-new-single-smoke-n-chill/20245983)
+ 
 
 
 

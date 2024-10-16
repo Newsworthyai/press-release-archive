@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/taking-the-ai
 [Original/Source Press Release](https://newsdirect.com/news/taking-the-ai-industry-by-storm-the-story-behind-ilearningengines-rise-to-a-420-million-enterprise-221536244)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ilearning-engines-ai-platform-goes-public-after-merger-with-arrowroot-acquisition-corp/0e1bee9a0ce53b9314104462561b28da) 
+
+ 
 
 
 

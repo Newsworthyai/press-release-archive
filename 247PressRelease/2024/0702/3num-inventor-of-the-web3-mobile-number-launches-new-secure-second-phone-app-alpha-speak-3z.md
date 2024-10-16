@@ -7,7 +7,19 @@ AUSTIN, TX, July 02, 2024 /24-7PressRelease/ -- 3NUM, the pioneer behind the rev
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512204/3num-inventor-of-the-web3-mobile-number-launches-new-secure-second-phone-app-alpha-speak3z)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/3num-launches-alpha-version-of-speak-3z-app-redefining-communication-with-web3-mobile-numbers/005df70bae65ac553ee2cc15b0f276ae) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/3num-introduces-speak-3z-app-for-enhanced-web3-and-traditional-communication/20244645)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/3num-launches-alpha-version-of-secure-web3-communication-app-speak-3z)
+
+Pickup - [advos.io](https://advos.io/en/3num-unveils-speak-3z-alpha-a-new-era-of-secure-web3-communication/20244645)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/3num-launches-alpha-version-of-speak-3z-app-redefining-communication-with-web3-mobile-numbers)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/3num-launches-alpha-version-of-speak-3z-app-redefining-communication-with-web3-mobile-numbers)
+ 
 
 
 

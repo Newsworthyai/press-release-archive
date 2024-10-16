@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/inspired-repo
 [Original/Source Press Release](https://newsdirect.com/news/inspired-reports-strong-2023-performance-as-it-gears-up-for-further-success-in-2024-229913566)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/inspired-plc-ceo-discusses-strong-2023-performance-and-outlook-for-2024/7e20355437747406d84bac40cf09de5d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/inspired-celebrates-robust-2023-performance-poised-for-further-growth)
+ 
 
 
 

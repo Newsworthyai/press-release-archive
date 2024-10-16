@@ -69,7 +69,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/transforming-
 [Original/Source Press Release](https://newsdirect.com/news/transforming-oncology-stocks-to-watch-in-the-oncology-sector-287138863)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-oncology-companies-leading-the-charge-in-pioneering-cancer-treatments/c23e5598e311cce152f2524ca81cdfaf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/oncology-sector-sees-promising-advancements-from-key-players)
+
+Pickup - [fishervista.com](https://fishervista.com/en/oncology-sector-advances-key-companies-driving-innovation-in-cancer-treatment/20246768)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/innovative-oncology-companies-poised-to-transform-cancer-treatment/20246768)
+
+Pickup - [advos.io](https://advos.io/en/innovative-oncology-companies-poised-to-reshape-cancer-treatment-landscape/20246768)
+ 
 
 
 

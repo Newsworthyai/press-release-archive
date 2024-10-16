@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/sports-bettin
 [Original/Source Press Release](https://newsdirect.com/news/sports-betting-gaming-and-esports-a-deep-dive-203211104)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benzinga-to-host-webinar-on-evolving-landscape-of-sports-betting-gaming-esports/8afe07c727752a4d31dd93b87171794d) 
+
+ 
 
 
 

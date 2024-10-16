@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/agents-who-ar
 [Original/Source Press Release](https://newsdirect.com/news/agents-who-are-realtors-r-preview-housing-market-trends-for-the-summer-and-beyond-598745024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/realtors-r-preview-housing-market-trends-for-the-summer-and-beyond/c79b9c48151d78755d2d50e42776febf) 
+
+ 
 
 
 

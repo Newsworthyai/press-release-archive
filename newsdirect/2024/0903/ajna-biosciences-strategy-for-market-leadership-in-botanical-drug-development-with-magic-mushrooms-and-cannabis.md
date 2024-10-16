@@ -65,7 +65,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ajna-bioscien
 [Original/Source Press Release](https://newsdirect.com/news/ajna-biosciences-strategy-for-market-leadership-in-botanical-drug-development-with-magic-mushrooms-and-cannabis-858873025)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ajna-biosciences-leading-botanical-drug-development-with-magic-mushrooms-and-cannabis/003282975bd5da1832bbd409b1f8804d) 
+
+ 
 
 
 

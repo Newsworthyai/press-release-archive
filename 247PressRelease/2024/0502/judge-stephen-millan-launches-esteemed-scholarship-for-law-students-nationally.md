@@ -7,7 +7,9 @@ MIAMI, FL, May 02, 2024 /24-7PressRelease/ -- Stephen Millan, a distinguished fi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510595/judge-stephen-millan-launches-esteemed-scholarship-for-law-students-nationally)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/judge-stephen-millan-announces-scholarship-for-law-students/5ef6716f433b7a9d071f6067c395ce97) 
+
+ 
 
 
 

@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/avation-advan
 [Original/Source Press Release](https://newsdirect.com/news/avation-advances-its-fleet-with-low-emission-aircraft-and-strategic-financial-moves-932471978)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avation-plc-advances-fleet-with-low-emission-aircraft-and-strategic-financial-moves/40b388e052a29bf7af98748472432cf3) 
+
+ 
 
 
 

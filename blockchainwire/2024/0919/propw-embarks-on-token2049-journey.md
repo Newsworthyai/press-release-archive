@@ -25,7 +25,9 @@ Telegram：https://t.me/PropWGlobal
 [Original/Source Press Release](https://blockchainwire.io/press-release/propw-embarks-on-token2049-journey-2)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/propw-announces-participation-at-token2049-singapore/def64d9ccde1c370c328bb3973ed8e68) 
+
+ 
 
 
 

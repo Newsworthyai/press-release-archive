@@ -45,7 +45,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/rack-room-sho
 [Original/Source Press Release](https://newsdirect.com/news/rack-room-shoes-announces-dr-heinz-horst-deichmann-scholarship-program-winners-866473989)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rack-room-shoes-announces-scholarship-program-winners/20b1dc3f560e224e130ce6687ea733cc) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/rack-room-shoes-announces-winners-of-dr-heinz-horst-deichmann-scholarship-program/20244499)
+
+Pickup - [advos.io](https://advos.io/en/rack-room-shoes-announces-winners-of-dr-heinz-horst-deichmann-scholarship-program/20244499)
+ 
 
 
 

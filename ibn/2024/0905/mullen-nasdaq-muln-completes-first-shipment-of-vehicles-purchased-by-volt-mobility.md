@@ -25,7 +25,17 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, a
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-completes-first-shipment-of-vehicles-purchased-by-volt-mobility/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-ships-initial-3000-ev-vans-and-trucks-to-volt-mobility-in-uae/e2b9bd3972278451315831fb2bb640d1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/mullen-automotive-initiates-210-million-contract-with-volt-mobility-shipping-first-evs-to-uae)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mullen-automotive-completes-initial-shipment-to-volt-mobility-in-210-million-deal/20246572)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/mullen-automotive-begins-fulfillment-of-210-million-ev-contract-with-volt-mobility/20246572)
+
+Pickup - [advos.io](https://advos.io/en/mullen-automotive-delivers-first-ev-shipment-to-volt-mobility-under-210-million-contract/20246572)
+ 
 
 
 

@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/trust-and-wil
 [Original/Source Press Release](https://newsdirect.com/news/trust-and-will-named-to-the-2024-cnbc-disruptor-50-list-for-pioneering-online-estate-planning-513105555)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trust-will-named-to-2024-cnbc-disruptor-50-list-for-pioneering-online-estate-planning/6c7ccdd09cb8e7a87fd41b0678c928a2) 
+
+ 
 
 
 

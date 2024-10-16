@@ -23,7 +23,11 @@ Eligibility detailsFor more on how you can apply to take part in the hackathon, 
 [Original/Source Press Release](https://blockchainwire.io/press-release/build-on-icp---the-first-icp-hackathon-in-portugal)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/inaugural-build-on-icp-hackathon-set-to-cultivate-new-talent-on-ic-protocol/2ddcc6039953f195d8e5a62a4a6cf4c2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/20/portugal-hosts-inaugural-icp-hackathon-to-cultivate-web3-talent)
+ 
 
 
 

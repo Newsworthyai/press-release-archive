@@ -35,7 +35,9 @@ Roger Pondel, PondelWilkinson Inc.
 [Original/Source Press Release](https://www.newmediawire.com/news/bridgecore-capital-finances-36-unit-apartment-complex-in-los-angeles-7076066)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bridgecore-capital-inc-closes-6-5m-refinance-of-los-angeles-apartment-building/4ae80265d7e013442919b8b8ca3b499a) 
+
+ 
 
 
 

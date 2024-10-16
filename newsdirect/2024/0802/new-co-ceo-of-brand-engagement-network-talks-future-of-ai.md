@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-co-ceo-of
 [Original/Source Press Release](https://newsdirect.com/news/new-co-ceo-of-brand-engagement-network-talks-future-of-ai-424471657)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brand-engagement-network-co-ceo-shares-vision-for-ai-future/a90738961fa584083952700f90784634) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/brand-engagement-network-s-new-co-ceo-discusses-ai-s-future-in-consumer-engagement)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-co-ceo-of-brand-engagement-network-outlines-vision-for-ai-future/20245463)
+
+Pickup - [advos.io](https://advos.io/en/new-co-ceo-of-brand-engagement-network-discusses-ai-future/20245463)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/brand-engagement-network-s-new-co-ceo-discusses-ai-s-future-in-business)
+ 
 
 
 

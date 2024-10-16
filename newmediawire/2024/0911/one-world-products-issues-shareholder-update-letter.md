@@ -51,7 +51,9 @@ ClearThink IRbloper@clearthink.capital602-785-4120
 [Original/Source Press Release](https://www.newmediawire.com/news/one-world-products-issues-shareholder-update-letter-7076033)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/one-world-products-inc-accelerates-revenue-growth-with-operational-strategy-shift-in-colombia/6b3d1b7c48d44384c628e98a0d1d2ca3) 
+
+ 
 
 
 

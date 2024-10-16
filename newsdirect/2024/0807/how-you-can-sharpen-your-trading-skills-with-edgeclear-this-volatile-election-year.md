@@ -65,7 +65,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-you-can-s
 [Original/Source Press Release](https://newsdirect.com/news/how-you-can-sharpen-your-trading-skills-with-edgeclear-this-volatile-election-year-688615861)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/market-volatility-spurs-need-for-trade-discipline-and-analytical-software-says-edgeclear/caf9cf70fea2e8ed7592ccf5f5d06353) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/edgeclear-offers-tools-to-enhance-trading-discipline-amid-market-volatility)
+
+Pickup - [fishervista.com](https://fishervista.com/en/sharpen-your-trading-skills-with-edgeclear-amidst-market-volatility/20245553)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/edgeclear-offers-tools-to-enhance-trading-discipline-amid-market-volatility)
+
+Pickup - [advos.io](https://advos.io/en/edgeclear-offers-tools-to-navigate-market-volatility-during-election-year/20245553)
+ 
 
 
 

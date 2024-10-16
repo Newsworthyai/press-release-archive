@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/activate-reco
 [Original/Source Press Release](https://newsdirect.com/news/activate-recognized-among-canadas-top-growing-companies-by-the-globe-and-mail-425548438)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/activate-named-one-of-canada-s-top-growing-companies-for-2024/2ad9456a752a764240ee4b50c7a83a06) 
+
+ 
 
 
 

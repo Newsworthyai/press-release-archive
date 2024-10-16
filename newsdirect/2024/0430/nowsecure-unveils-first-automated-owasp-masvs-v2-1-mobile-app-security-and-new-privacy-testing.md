@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nowsecure-unv
 [Original/Source Press Release](https://newsdirect.com/news/nowsecure-unveils-first-automated-owasp-masvs-v2-1-mobile-app-security-and-new-privacy-testing-206599761)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nowsecure-unveils-first-automated-owasp-masvs-v2-1-mobile-app-security-and-new-privacy-testing/81258ba4fb4d7d21595b40d5a3deb090) 
+
+ 
 
 
 

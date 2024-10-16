@@ -39,7 +39,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/nasbp-and-sfa
 [Original/Source Press Release](https://newsdirect.com/news/nasbp-and-sfaa-publish-bond-information-kit-for-state-broadband-offices-and-isps-participating-in-bead-program-309719492)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nasbp-and-sfaa-release-surety-bond-information-kit-for-bead-program/59ad7edcb8463816f5391a7741da3a0e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/nasbp-sfaa-release-surety-bond-information-kit-for-bead-program/20244806)
+
+Pickup - [advos.io](https://advos.io/en/nasbp-and-sfaa-release-bond-information-kit-for-bead-program-participants/20244806)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/nasbp-and-sfaa-release-surety-bond-information-kit-for-bead-program-participants)
+ 
 
 
 

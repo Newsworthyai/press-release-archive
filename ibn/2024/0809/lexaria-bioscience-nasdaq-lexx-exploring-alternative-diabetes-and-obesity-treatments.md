@@ -31,7 +31,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-bioscience-nasdaq-lexx-exploring-alternative-diabetes-and-obesity-treatments/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lexaria-explores-alternatives-for-diabetes-and-obesity-management/df866fdba91d31a0012d5edf2292e834) 
+
+ 
 
 
 

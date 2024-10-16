@@ -15,7 +15,9 @@ Scott Integrated Pain Management also offers a multidisciplinary approach to the
 [Original/Source Press Release](https://newsworthy.ai/news/20231221919/scott-integrated-pain-management-offers-innovative-solutions-for-crps-pain-management)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scott-integrated-pain-management-offers-personalized-treatment-for-crps/4ad7ebe96634fb1bc0b330115322db7c) 
+
+ 
 
 
 

@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/super-league-
 [Original/Source Press Release](https://newsdirect.com/news/super-league-enterprises-reports-strong-q1-2024-financials-expands-marketing-via-gaming-platforms-110828777)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/super-league-enterprises-reports-strong-q1-2024-financials-expands-marketing-via-gaming-platforms/4e87e5695ac6bc1830ec51129cfa8433) 
+
+ 
 
 
 

@@ -7,7 +7,15 @@ SOUTH LAKE TAHOE, NV, July 18, 2024 /24-7PressRelease/ -- American Century Inves
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512637/american-century-investments-celebrates-big-wins-at-the-35th-annual-american-century-championship-held-in-south-lake-tahoe)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-century-championship-celebrates-record-attendance-and-philanthropic-success/8c60ab50bbcb77f4864d6940e6873298) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/american-century-championship-sets-new-records-in-attendance-and-charitable-giving)
+
+Pickup - [fishervista.com](https://fishervista.com/en/american-century-investments-celebrates-landmark-achievements-at-35th-annual-american-century-championship/20245036)
+
+Pickup - [advos.io](https://advos.io/en/american-century-investments-triumphs-at-35th-annual-american-century-championship-in-south-lake-tahoe/20245036)
+ 
 
 
 

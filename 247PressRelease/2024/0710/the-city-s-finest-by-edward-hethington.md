@@ -7,7 +7,15 @@ CHARLESTON, SC, July 10, 2024 /24-7PressRelease/ -- Edward Hethington's highly a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512399/the-citys-finest-by-edward-hethington)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-memoir-by-charleston-police-officer-chronicles-30-year-career/7af50b3f8aa7f87d16cb5448abf0a016) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/edward-hethington-releases-memoir-the-city-s-finest/20244818)
+
+Pickup - [advos.io](https://advos.io/en/edward-hethington-releases-memoir-the-city-s-finest-reflecting-on-30-years-in-charleston-police-department/20244818)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/former-charleston-police-officer-unveils-memoir-chronicling-three-decades-of-law-enforcement)
+ 
 
 
 

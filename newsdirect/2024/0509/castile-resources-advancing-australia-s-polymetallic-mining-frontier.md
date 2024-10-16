@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/castile-resou
 [Original/Source Press Release](https://newsdirect.com/news/castile-resources-advancing-australias-polymetallic-mining-frontier-488406192)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/castile-resources-advances-australia-s-polymetallic-mining-frontier/6f2b56435eada28f1b2b78c7fe08e37a) 
+
+ 
 
 
 

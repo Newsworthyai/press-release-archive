@@ -7,7 +7,15 @@ BILLINGS, MT, July 04, 2024 /24-7PressRelease/ -- Goldsmith Gallery Jewelers is 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512274/goldsmith-gallery-jewelers-celebrates-34-years-in-billings-with-major-sale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/goldsmith-gallery-jewelers-celebrates-34th-anniversary-with-up-to-50-off-sale/29384c5faf6f156a2a3033208e330134) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/goldsmith-gallery-jewelers-marks-34-years-in-billings-with-major-anniversary-sale/20244706)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/04/goldsmith-gallery-jewelers-marks-34-years-with-major-anniversary-sale)
+
+Pickup - [advos.io](https://advos.io/en/goldsmith-gallery-jewelers-celebrates-34-years-in-billings-with-major-sale/20244706)
+ 
 
 
 

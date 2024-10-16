@@ -15,7 +15,9 @@ Individuals considering KAT should consult with healthcare professionals to asse
 [Original/Source Press Release](https://newsworthy.ai/news/202402241089/suniasols-groundbreaking-ketamine-assisted-treatment-kat-unveils-rapid-antidepressant-effects)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/groundbreaking-therapy-ketamine-assisted-treatment-kat-offers-rapid-relief-for-depression/ffa8c2af86f94ca1f90c9465f2fc994c) 
+
+ 
 
 
 

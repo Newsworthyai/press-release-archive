@@ -65,7 +65,21 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/solidton-unveils-2025-2026-plan-for-multi-feature-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solidton-project-set-to-redefine-defi-and-metaverse-integration/ee302bc462c671bf78ed93fceb822d8e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/02/solidton-announces-ambitious-2025-2026-plan-for-integrated-defi-and-metaverse-ecosystem)
+
+Pickup - [fishervista.com](https://fishervista.com/en/solidton-announces-ambitious-2025-2026-multi-feature-ecosystem-plan/20246432)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/solidton-reveals-ambitious-2025-2026-roadmap-for-integrated-defi-and-metaverse-ecosystem/20246432)
+
+Pickup - [advos.io](https://advos.io/en/solidton-unveils-2025-2026-multi-feature-ecosystem-plan/20246432)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/solidton-project-set-to-redefine-defi-and-metaverse-integration)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/solidton-project-set-to-redefine-defi-and-metaverse-integration)
+ 
 
 
 

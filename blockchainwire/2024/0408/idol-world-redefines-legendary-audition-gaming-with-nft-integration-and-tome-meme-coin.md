@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/idol-world---redefines-legendary-audition-gaming-with-nft-integration-and-tome-meme-coin)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/idol-world-redefines-audition-gaming-with-tome-meme-coin-and-nft-integration/9448279c02af5afff8fe9a4cecb33ab9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/idol-world-revolutionizes-audition-gaming-with-nfts-and-tome-meme-coin)
+ 
 
 
 

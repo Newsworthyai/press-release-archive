@@ -47,7 +47,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/critics-become-obsessed-with-new-ai-driven-token-positioned-to-challenge-bitcoin-btc-and-ethereums-eth-market-cap-holdings)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/option2trade-o2t-surges-in-popularity-as-rival-to-bitcoin-and-ethereum/32e5c48f23b38513b81bf45cba6628d5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/ai-driven-option2trade-challenges-bitcoin-and-ethereum-dominance)
+ 
 
 
 

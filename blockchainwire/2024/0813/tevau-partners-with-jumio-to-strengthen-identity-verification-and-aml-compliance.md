@@ -37,7 +37,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/tevau-partners-with-jumio-to-strengthen-identity-verification-and-aml-compliance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tevau-partners-with-jumio-for-secure-onboarding-experience/f0a3d559d22245a8384e300baf331d62) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/tevau-partners-with-jumio-to-enhance-identity-verification-and-aml-compliance-in-blockchain-payments)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tevau-partners-with-jumio-to-elevate-identity-verification-and-aml-compliance-in-blockchain-payments/20245670)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/tevau-partners-with-jumio-to-enhance-identity-verification-for-blockchain-payment-solutions/20245670)
+
+Pickup - [advos.io](https://advos.io/en/tevau-partners-with-jumio-to-enhance-identity-verification-and-aml-compliance/20245670)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tevau-partners-with-jumio-for-secure-onboarding-experience)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tevau-partners-with-jumio-for-secure-onboarding-experience)
+ 
 
 
 

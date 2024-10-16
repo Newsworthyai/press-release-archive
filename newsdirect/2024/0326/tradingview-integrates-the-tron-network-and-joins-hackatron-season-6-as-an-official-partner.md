@@ -67,7 +67,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/tradingview-i
 [Original/Source Press Release](https://newsdirect.com/news/tradingview-integrates-the-tron-network-and-joins-hackatron-season-6-as-an-official-partner-448180686)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tradingview-joins-hackatron-season-6-as-official-partner/84b0c2baad0cfe2fdc3933023f66dc7c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/tradingview-partners-with-tron-dao-for-hackatron-season-6)
+ 
 
 
 

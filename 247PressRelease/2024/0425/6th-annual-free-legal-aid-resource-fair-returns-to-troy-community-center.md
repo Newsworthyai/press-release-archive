@@ -7,7 +7,9 @@ TROY, MI, April 25, 2024 /24-7PressRelease/ -- This event is FREE and open to th
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510354/6th-annual-free-legal-aid-resource-fair-returns-to-troy-community-center)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/6th-annual-free-legal-aid-resource-fair-offers-invaluable-support-to-local-residents/6e6c458e4aae7f2bd0ab256e282af7c4) 
+
+ 
 
 
 

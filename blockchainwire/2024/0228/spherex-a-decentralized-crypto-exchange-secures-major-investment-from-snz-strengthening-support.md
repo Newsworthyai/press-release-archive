@@ -27,7 +27,11 @@ SNZ is a crypto-native, research-driven investment company with 200+ portfolios.
 [Original/Source Press Release](https://blockchainwire.io/press-release/spherex-a-decentralized-crypto-exchange-secures-major-investment-from-snz-strengthening-support--)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/spherex-secures-major-investments-to-revolutionize-decentralized-trading/1580ce359d84532f535730e0eb04fe7a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/28/spherex-secures-major-investment-from-snz-bolstering-its-decentralized-crypto-exchange-platform)
+ 
 
 
 

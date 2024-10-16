@@ -23,7 +23,17 @@ BitMart Exchange is a premier global digital assets trading platform. With milli
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-celebrates-blast-tge-and-launches-exclusive-event-with-spherex)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmart-and-spherex-collaborate-to-celebrate-blast-tge-with-exclusive-event/445b37a071968d09094dd67795dfebcc) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitmart-and-spherex-collaborate-for-blast-tge-celebration-with-major-rewards/20244374)
+
+Pickup - [advos.io](https://advos.io/en/bitmart-and-spherex-team-up-for-blast-tge-exclusive-event/20244374)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitmart-and-spherex-collaborate-to-celebrate-blast-tge-with-exclusive-event)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitmart-and-spherex-collaborate-to-celebrate-blast-tge-with-exclusive-event)
+ 
 
 
 

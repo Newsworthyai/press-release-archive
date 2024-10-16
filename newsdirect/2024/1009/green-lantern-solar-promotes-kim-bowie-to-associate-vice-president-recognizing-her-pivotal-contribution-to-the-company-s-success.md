@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/green-lantern
 [Original/Source Press Release](https://newsdirect.com/news/green-lantern-solar-promotes-kim-bowie-to-associate-vice-president-recognizing-her-pivotal-contribution-to-the-companys-success-329357535)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/green-lantern-solar-promotes-kim-bowie-to-associate-vice-president/a5aa176bad289ac53988dbdeb118433e) 
+
+ 
 
 
 

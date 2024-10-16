@@ -44,7 +44,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-poolx-
 [Original/Source Press Release](https://newsdirect.com/news/bitget-poolx-lists-apu-apustaja-apu-for-stake-to-mine-rewards-494215804)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-poolx-lists-apu-apustaja-apu-for-stake-to-mine-rewards/4ce03f5f1f377d327defe02a0bb0042d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/bitget-poolx-lists-apu-apustaja-apu-for-stake-to-mine-rewards)
+ 
 
 
 

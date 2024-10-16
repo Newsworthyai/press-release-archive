@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/atfx-appoints
 [Original/Source Press Release](https://newsdirect.com/news/atfx-appoints-ergin-erdemir-as-head-of-latam-to-drive-growth-and-value-694088875)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atfx-appoints-ergin-erdemir-as-head-of-latin-america-to-drive-growth-and-value/ab0c9a0d4d98e719c3482134301fcb8b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/atfx-bolsters-latam-presence-with-ergin-erdemir-s-appointment)
+ 
 
 
 

@@ -45,7 +45,13 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/maocat-unveils-plan-to-become-the-next-top-ethereum-based-memecoin)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/maocat-the-next-big-thing-in-ethereum-based-memecoins/ea1af3f2465676cb8aae888870be60d2) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/maocat-the-next-big-thing-in-ethereum-based-memecoins)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/maocat-the-next-big-thing-in-ethereum-based-memecoins)
+ 
 
 
 

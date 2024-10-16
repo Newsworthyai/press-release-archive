@@ -17,7 +17,11 @@ For more information about TMS Therapy and the services provided by IV Plus, ple
 [Original/Source Press Release](https://newsworthy.ai/news/202402151064/iv-plus-clinic-introduces-innovative-tms-therapy-in-las-vegas-nv-for-non-invasive-mental-health-treatment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iv-plus-introduces-revolutionary-tms-therapy-for-depression-anxiety-and-ptsd/4e77ca9103b9512fc5e631a414fb689a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/15/iv-plus-clinic-pioneers-tms-therapy-for-mental-health-in-las-vegas)
+ 
 
 
 

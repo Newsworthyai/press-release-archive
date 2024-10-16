@@ -77,7 +77,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/inflation-slo
 [Original/Source Press Release](https://newsdirect.com/news/inflation-slows-small-cap-rally-but-smcp-etf-offers-strategic-entry-point-683293918)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alphamark-actively-managed-small-cap-etf-smcp-offers-strategic-entry-point-for-investors/fae9278c6e4d7e1348422370ba4ab4e3) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/smcp-etf-a-strategic-entry-point-amid-small-cap-volatility/20244605)
+
+Pickup - [advos.io](https://advos.io/en/inflation-slows-small-cap-rally-but-smcp-etf-offers-strategic-entry-point/20244605)
+ 
 
 
 

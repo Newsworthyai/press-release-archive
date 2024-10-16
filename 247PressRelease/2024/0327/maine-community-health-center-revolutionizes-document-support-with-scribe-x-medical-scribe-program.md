@@ -7,7 +7,13 @@ NEWPORT, ME, March 27, 2024 /24-7PressRelease/ -- Scribe-X, the nation's premier
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509587/maine-community-health-center-revolutionizes-document-support-with-scribex-medical-scribe-program)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scribe-x-partners-with-hometown-health-to-address-provider-burnout/c7ad8d26fe12cb4d70b06dfccbc673e1) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hometown-health-center-partners-with-scribe-x-to-combat-provider-burnout/20241032)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/maine-health-center-embraces-scribe-x-to-combat-provider-burnout)
+ 
 
 
 

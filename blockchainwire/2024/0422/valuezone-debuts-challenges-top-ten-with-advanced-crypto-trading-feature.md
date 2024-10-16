@@ -31,7 +31,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/valuezone-debuts-challenges-top-ten-with-advanced-crypto-trading-feature)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/valuezone-launches-advanced-cryptocurrency-trading-platform/fb778206657c5f51cc6b6e4247ecd381) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/valuezone-debuts-challenges-top-ten-with-advanced-crypto-trading-feature)
+ 
 
 
 

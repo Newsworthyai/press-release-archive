@@ -39,7 +39,21 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-future-of-btcfi-solvs-integrated-bitcoin-staking-platform--)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solv-protocol-launches-integrated-bitcoin-staking-platform-for-defi-expansion/66278b6dbf54a63521b93136a951768b) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/solv-protocol-unveils-integrated-bitcoin-staking-platform-to-revolutionize-defi/20246748)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/solv-protocol-launches-integrated-bitcoin-staking-platform-paving-the-way-for-btcfi/20246748)
+
+Pickup - [advos.io](https://advos.io/en/solv-protocol-launches-integrated-bitcoin-staking-platform-pioneering-btcfi/20246748)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/solv-protocol-launches-integrated-bitcoin-staking-platform-revolutionizing-btcfi)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/solv-protocol-launches-integrated-bitcoin-staking-platform-for-defi-expansion)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/solv-protocol-launches-integrated-bitcoin-staking-platform-for-defi-expansion)
+ 
 
 
 

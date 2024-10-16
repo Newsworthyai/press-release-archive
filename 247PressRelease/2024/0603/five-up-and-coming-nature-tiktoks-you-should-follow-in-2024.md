@@ -7,7 +7,11 @@ LOS ANGELES, CA, June 03, 2024 /24-7PressRelease/ -- As we celebrate World Envir
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511361/five-up-and-coming-nature-tiktoks-you-should-follow-in-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/top-5-nature-tiktok-creators-to-follow-in-2024/8c0d18557bf17b462ba2e08210a0b7fe) 
+
+
+Pickup - [advos.io](https://advos.io/en/top-5-up-and-coming-nature-tiktoks-to-follow-in-2024/20243616)
+ 
 
 
 

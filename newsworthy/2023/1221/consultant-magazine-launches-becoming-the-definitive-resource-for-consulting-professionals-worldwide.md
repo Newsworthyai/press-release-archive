@@ -23,7 +23,11 @@ Empower your consultancy journey. Dive in at www.ConsultantMagazine.co.
 [Original/Source Press Release](https://newsworthy.ai/news/20231221795/consultant-magazine-launches-becoming-the-definitive-resource-for-consulting-professionals-worldwide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/consultant-magazine-the-new-hub-for-consulting-expertise-and-insights/7fe1d9f0380a85b29e8da8d81c488751) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/21/consultant-magazine-emerges-as-premier-knowledge-hub-for-global-consulting-professionals)
+ 
 
 
 

@@ -7,7 +7,17 @@ SAN JOSE, CA, August 22, 2024 /24-7PressRelease/ -- Dr. Camera is a technical ex
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513507/abacus-semiconductor-announces-addition-of-dr-kevin-camera-to-its-executive-management-team)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/veteran-leader-in-hardware-software-engineering-joins-abacus-semiconductor-to-disrupt-ai-infrastructure-market/d4c08c0f5e89ea9227ea8645f3de66e3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/abacus-semiconductor-strengthens-executive-team-with-addition-of-dr-kevin-camera)
+
+Pickup - [fishervista.com](https://fishervista.com/en/abacus-semiconductor-welcomes-dr-kevin-camera-to-executive-team/20245886)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/abacus-semiconductor-strengthens-executive-team-with-addition-of-dr-kevin-camera/20245886)
+
+Pickup - [advos.io](https://advos.io/en/abacus-semiconductor-welcomes-dr-kevin-camera-to-executive-team/20245886)
+ 
 
 
 

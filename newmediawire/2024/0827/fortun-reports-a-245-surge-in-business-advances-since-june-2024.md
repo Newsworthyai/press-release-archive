@@ -63,7 +63,13 @@ MIAMI, FL - (NewMediaWire) - August 27, 2024 - Luminar Media Group, Inc. (OTC M
 [Original/Source Press Release](https://www.newmediawire.com/news/fortun-reports-a-245-surge-in-business-advances-since-june-2024-7075967)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/luminar-media-group-inc-reports-245-growth-in-business-advances-for-july-and-august-2024/4dd862db06c4d141ea8f09d5f210c525) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/fortun-advance-reports-245-growth-in-business-advances-projects-strong-q3-performance)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/fortun-advance-reports-substantial-growth-in-business-funding-operations/20246456)
+ 
 
 
 

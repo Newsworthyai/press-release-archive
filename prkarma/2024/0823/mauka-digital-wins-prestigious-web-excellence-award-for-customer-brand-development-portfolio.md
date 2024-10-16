@@ -32,7 +32,11 @@ United States
 [Original/Source Press Release](https://newsroom.prkarma.com/maukadigital_newsroom/news_release/1537)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mauka-digital-honored-with-web-excellence-award-for-brand-development-portfolio/5387aaaab5678045e88e2d3006c91a07) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/mauka-digital-secures-web-excellence-award-for-brand-development-portfolio/20246425)
+ 
 
 
 

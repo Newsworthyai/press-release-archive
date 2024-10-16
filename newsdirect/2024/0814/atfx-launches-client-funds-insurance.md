@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/atfx-launches
 [Original/Source Press Release](https://newsdirect.com/news/atfx-launches-client-funds-insurance-208322201)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atfx-launches-client-funds-insurance-for-enhanced-fund-security/1bc3406e4291cfedcb5cfe09d712e919) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/atfx-introduces-client-funds-insurance-offering-up-to-1-million-protection-per-claimant)
+
+Pickup - [fishervista.com](https://fishervista.com/en/atfx-introduces-1-million-client-funds-insurance-to-enhance-trading-security/20245725)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/atfx-introduces-client-funds-insurance-offering-up-to-1-million-protection-per-claimant/20245725)
+
+Pickup - [advos.io](https://advos.io/en/atfx-introduces-1-million-client-funds-insurance/20245725)
+ 
 
 
 

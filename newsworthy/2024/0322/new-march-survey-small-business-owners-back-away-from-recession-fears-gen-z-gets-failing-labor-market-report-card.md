@@ -37,7 +37,13 @@ There’s much more in the complete report of the Freedom Economy Index, which c
 [Original/Source Press Release](https://newsworthy.ai/news/20240322977/new-march-survey-small-business-owners-back-away-from-recession-fears-gen-z-gets-failing-labor-market-report-card)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/small-business-owners-show-mixed-sentiment-in-latest-freedom-economy-index-survey/8bb34be585201c66fa99483b9036ad87) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/small-business-owners-show-cautious-optimism-as-recession-fears-ease-gen-z-faces-workplace-challenges/2024919)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/small-business-owners-regain-economic-optimism-gen-z-struggles-in-workplace)
+ 
 
 
 

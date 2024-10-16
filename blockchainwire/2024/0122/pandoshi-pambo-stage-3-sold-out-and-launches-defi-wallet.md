@@ -41,7 +41,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/pandoshi-pambo-stage-3-sold-out-and-launches-defi-wallet)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pandoshi-pambo-stage-3-sold-out-defi-wallet-launched/c39b9e4608188f8761ed0078a2836a3e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/22/pandoshi-marks-milestones-with-stage-3-presale-sellout-and-defi-wallet-launch)
+ 
 
 
 

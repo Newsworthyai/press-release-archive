@@ -7,7 +7,9 @@ NEW YORK, NY, April 21, 2024 /24-7PressRelease/ -- The Shincheonji 2024 Continen
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510235/shincheonji-church-of-jesus-hosts-1st-continental-bible-seminar-in-the-philippines)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-2024-continental-bible-seminar-asia-i-hosted-by-chairman-lee-man-hee-in-the-philippines/413ad00f22ff240be4697ef2845e415a) 
+
+ 
 
 
 

@@ -87,7 +87,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcx-mainnet-launch-imminent-revolutionizing-payments-and-financial-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/upcx-to-launch-high-speed-mainnet-revolutionizing-global-finance/13487b34dcc6204be46b6bd835b82890) 
+
+ 
 
 
 

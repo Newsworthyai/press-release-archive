@@ -7,7 +7,17 @@ NAGS HEAD, NC, August 14, 2024 /24-7PressRelease/ -- ADAP Advocacy today, as par
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513358/adap-advocacy-shines-spotlight-on-340b-covered-entities-executive-comp)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-report-reveals-340b-program-s-impact-on-executive-compensation-and-charity-care-provision/df5c2cc3992b65e085f40efb3d5ce6ae) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/340b-drug-pricing-program-linked-to-massive-revenue-increases-and-executive-pay-hikes-report-finds)
+
+Pickup - [fishervista.com](https://fishervista.com/en/adap-advocacy-exposes-alarming-trends-in-340b-program-soaring-revenues-and-executive-pay-declining-charity-care/20245707)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/340b-drug-pricing-program-linked-to-massive-revenue-increases-for-healthcare-entities/20245707)
+
+Pickup - [advos.io](https://advos.io/en/adap-advocacy-report-highlights-surge-in-340b-program-revenues-and-executive-compensation/20245707)
+ 
 
 
 

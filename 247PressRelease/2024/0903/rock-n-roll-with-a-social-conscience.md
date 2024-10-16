@@ -7,7 +7,17 @@ VANCOUVER, BC, September 03, 2024 /24-7PressRelease/ -- Rich Chambers' music is 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513937/rock-n-roll-with-a-social-conscience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rich-chambers-latest-single-an-ode-to-rishell-celebrates-the-strength-of-the-human-spirit/4968c6b1729dd679d714c1bb186d7ccc) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/rich-chambers-latest-single-an-ode-to-rishell-resonates-with-social-conscience-and-rock-energy/20246467)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/rich-chambers-tackles-teen-pregnancy-in-latest-rock-single-an-ode-to-rishell/20246467)
+
+Pickup - [advos.io](https://advos.io/en/rich-chambers-releases-socially-conscious-rock-single-an-ode-to-rishell/20246467)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/rich-chambers-releases-socially-conscious-rock-single-an-ode-to-rishell)
+ 
 
 
 

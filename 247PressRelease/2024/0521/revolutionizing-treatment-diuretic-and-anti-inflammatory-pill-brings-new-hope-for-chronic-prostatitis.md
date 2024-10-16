@@ -7,7 +7,9 @@ LOS ANGELES, CA, May 21, 2024 /24-7PressRelease/ -- The FDA recently released a 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511020/revolutionizing-treatment-diuretic-and-anti-inflammatory-pill-brings-new-hope-for-chronic-prostatitis)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fda-data-reveals-antibiotic-resistance-crisis-tcm-offers-new-hope/cb97bcb64ca59ddf9ded6ab5010e32d9) 
+
+ 
 
 
 

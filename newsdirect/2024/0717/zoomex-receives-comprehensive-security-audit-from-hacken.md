@@ -76,7 +76,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/zoomex-receiv
 [Original/Source Press Release](https://newsdirect.com/news/zoomex-receives-comprehensive-security-audit-from-hacken-718353926)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zoomex-enhances-security-with-successful-audit-by-hacken/16f064b5ce62d8d5b5d550f156da9d25) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/zoomex-strengthens-security-measures-following-comprehensive-hacken-audit)
+
+Pickup - [fishervista.com](https://fishervista.com/en/zoomex-enhances-security-measures-following-comprehensive-audit-by-hacken/20245000)
+
+Pickup - [advos.io](https://advos.io/en/zoomex-completes-comprehensive-security-audit-by-hacken-reinforces-commitment-to-user-safety/20245000)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/zoomex-enhances-security-with-successful-audit-by-hacken)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/zoomex-enhances-security-with-successful-audit-by-hacken)
+ 
 
  
 

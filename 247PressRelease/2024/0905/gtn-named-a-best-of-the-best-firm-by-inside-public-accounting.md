@@ -7,7 +7,17 @@ MINNEAPOLIS, MN, September 05, 2024 /24-7PressRelease/ -- Global Tax Network (GT
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514030/gtn-named-a-best-of-the-best-firm-by-inside-public-accounting)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gtn-named-best-of-the-best-firm-for-2024-by-inside-public-accounting/c9ab59aad21b6b1e00f2f6afa43940ba) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/global-tax-network-recognized-as-top-performer-in-inside-public-accounting-s-best-of-the-best-firms)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gtn-earns-prestigious-best-of-the-best-firm-award-from-inside-public-accounting-for-2024/20246542)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/global-tax-network-recognized-as-top-performer-in-accounting-industry/20246542)
+
+Pickup - [advos.io](https://advos.io/en/gtn-recognized-as-a-best-of-the-best-firm-by-inside-public-accounting/20246542)
+ 
 
 
 

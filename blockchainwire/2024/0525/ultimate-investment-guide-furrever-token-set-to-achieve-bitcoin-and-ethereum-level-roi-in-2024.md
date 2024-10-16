@@ -35,7 +35,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/ultimate-investment-guide-furrever-token-set-to-achieve-bitcoin-and-ethereum-level-roi-in-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-and-ethereum-price-updates-furrever-token-presale-in-focus/f511d2d4eadd3db408143f35a7deceee) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-and-ethereum-price-updates-furrever-token-presale-in-focus)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-and-ethereum-price-updates-furrever-token-presale-in-focus)
+ 
 
 
 

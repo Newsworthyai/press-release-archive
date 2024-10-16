@@ -35,7 +35,13 @@ OriginTrail is an ecosystem building a Verifiable Internet for AI, providing an 
 [Original/Source Press Release](https://blockchainwire.io/press-release/singularitynet-and-origintrail-advancing-decentralized-knowledge-graphs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/singularitynet-and-trace-labs-announce-strategic-partnership-for-the-development-of-the-knowledge-layer-in-ai/c8771df7b3296542ec3b8c735a2fd72d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/singularitynet-and-trace-labs-announce-strategic-partnership-for-the-development-of-the-knowledge-layer-in-ai)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/singularitynet-and-trace-labs-announce-strategic-partnership-for-the-development-of-the-knowledge-layer-in-ai)
+ 
 
 
 

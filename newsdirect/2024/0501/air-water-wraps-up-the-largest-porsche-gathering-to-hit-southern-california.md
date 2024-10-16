@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/air-water-wra
 [Original/Source Press Release](https://newsdirect.com/news/air-water-wraps-up-the-largest-porsche-gathering-to-hit-southern-california-767521294)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/air-water-porsche-enthusiast-show-draws-over-11000-attendees/e637ad93e11551b286c51355ca2f7631) 
+
+ 
 
 
 

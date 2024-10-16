@@ -7,7 +7,11 @@ MIDLAND, MI, March 26, 2024 /24-7PressRelease/ -- Richard Switzky's debut novel,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509541/new-fantasy-adventure-series-woofs-chronicles-transports-readers-to-a-multidimensional-realm)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-fantasy-novel-takes-readers-on-an-epic-adventure-through-the-world-of-drea-madad/92b1ea5a9c4a8828af92dddd66db63a9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/unleash-your-imagination-woof-s-chronicles-blends-fantasy-and-canine-camaraderie)
+ 
 
 
 

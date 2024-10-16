@@ -7,7 +7,17 @@ DALLAS, TX, August 30, 2024 /24-7PressRelease/ -- MorganHill, a pioneering leade
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513908/morganhill-unveils-iso-27001-risk-assessment-template-for-instant-download-to-streamline-security-risk-management)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/morganhill-launches-iso-27001-risk-assessment-template-for-streamlined-information-security/7e4766a9caf5191a374b5c6a5574a240) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/30/morganhill-launches-downloadable-iso-27001-risk-assessment-template-to-enhance-information-security-management)
+
+Pickup - [fishervista.com](https://fishervista.com/en/morganhill-launches-iso-27001-risk-assessment-template-for-easy-download/20246396)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/morganhill-launches-iso-27001-risk-assessment-template-for-enhanced-information-security-management/20246396)
+
+Pickup - [advos.io](https://advos.io/en/morganhill-launches-iso-27001-risk-assessment-template-for-immediate-use/20246396)
+ 
 
 
 

@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/european-gree
 [Original/Source Press Release](https://newsdirect.com/news/european-green-transition-encouraged-by-channel-sampling-at-olserums-djupedal-prospect-460549779)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/european-green-transition-encouraged-by-channel-sampling-at-olserum-s-djupedal-prospect/19c16b65af8eda435210c9f49aedc518) 
+
+ 
 
 
 

@@ -33,7 +33,11 @@ Diamond Beach Holdings, LLC is a subsidiary of the International Bancshares Corp
 [Original/Source Press Release](https://newsworthy.ai/news/202402211099/diamond-beach-holdings-and-ashlar-development-fills-canals-in-whitecap-npi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-canal-connects-bay-to-whitecap-npi-development-on-padre-island/809b4ca6c7ca5bc69bf5c466e8855725) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/21/canals-come-to-life-at-whitecap-npi-on-north-padre-island)
+ 
 
 
 

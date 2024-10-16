@@ -7,7 +7,11 @@ WILMINGTON, NC, June 14, 2024 /24-7PressRelease/ -- All of us would agree that g
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511660/bestselling-author-dr-barbara-becker-holstein-announces-new-interview-with-award-winning-childrens-book-author-julia-cook-on-resilience-and-self-esteem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-barbara-becker-holstein-interviews-julia-cook-on-resilience-and-self-esteem-podcast/1c918cf2110f61293477fcdf55ba6b59) 
+
+
+Pickup - [advos.io](https://advos.io/en/bestselling-author-dr-barbara-becker-holstein-interviews-julia-cook-on-resilience-and-self-esteem/20244151)
+ 
 
 
 

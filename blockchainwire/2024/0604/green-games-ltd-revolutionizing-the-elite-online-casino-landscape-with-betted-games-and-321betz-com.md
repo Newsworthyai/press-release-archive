@@ -63,7 +63,9 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/green-games-ltd-revolutionizing-the-elite-online-casino-landscape-with-bettedgames-and-321betzcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/green-games-ltd-launches-betted-games-and-321betz-com-paving-the-way-for-a-new-era-in-online-gaming/fee4fa192fdab074974ccd50224075b6) 
+
+ 
 
 
 

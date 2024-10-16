@@ -7,7 +7,9 @@ TEMPE, AZ, October 08, 2024 /24-7PressRelease/ -- Associated Asset Management (A
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515049/aam-announces-senior-leadership-promotions-to-support-continued-developer-services-growth-and-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aam-announces-promotions-of-shelley-reith-and-marsha-smith-to-senior-leadership-positions/79fdbfae8c1ab7199f647b42b74f5fd0) 
+
+ 
 
 
 

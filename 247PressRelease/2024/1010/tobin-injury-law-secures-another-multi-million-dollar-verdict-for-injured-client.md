@@ -7,7 +7,9 @@ ATLANTA, GA, October 10, 2024 /24-7PressRelease/ -- Tobin Injury Law proudly ann
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515132/tobin-injury-law-secures-another-multi-million-dollar-verdict-for-injured-client)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tobin-injury-law-wins-2m-verdict-for-client-in-gwinnett-county/962b7a4e7014fa5b9357786222d22ebe) 
+
+ 
 
 
 

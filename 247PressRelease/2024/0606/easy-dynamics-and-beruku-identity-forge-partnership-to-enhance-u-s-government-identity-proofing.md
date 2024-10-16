@@ -7,7 +7,11 @@ MCLEAN, VA, June 06, 2024 /24-7PressRelease/ -- Easy Dynamics is excited to shar
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511477/easy-dynamics-and-beruku-identity-forge-partnership-to-enhance-us-government-identity-proofing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/easy-dynamics-and-beruku-identity-partner-to-revolutionize-identity-proofing-for-u-s-government-international-users/48d8be59319d2c50f5711c8622febb04) 
+
+
+Pickup - [advos.io](https://advos.io/en/easy-dynamics-and-beruku-identity-announce-partnership-to-boost-u-s-government-identity-proofing/20243876)
+ 
 
 
 

@@ -63,7 +63,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/you-may-be-sp
 [Original/Source Press Release](https://newsdirect.com/news/you-may-be-spending-more-on-property-taxes-than-you-need-to-save-on-taxes-with-ownwell-and-only-pay-out-of-what-you-save-697570541)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/property-taxes-balloon-after-pandemic-home-price-gains/4c5a221a9ae360f0767f2b7eac1b1541) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/homeowners-could-be-overpaying-on-property-taxes-ownwell-offers-solution/20244797)
+
+Pickup - [advos.io](https://advos.io/en/homeowners-can-save-on-property-taxes-with-ownwell-s-no-upfront-fee-service/20244797)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/property-tax-assessments-may-be-inaccurate-costing-homeowners-thousands)
+ 
 
 
 

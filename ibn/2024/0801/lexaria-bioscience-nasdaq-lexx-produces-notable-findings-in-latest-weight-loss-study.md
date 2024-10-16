@@ -34,7 +34,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-bioscience-nasdaq-lexx-produces-notable-findings-in-latest-weight-loss-study/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lexaria-bioscience-releases-positive-interim-results-from-weight-a24-1-animal-study/1cfbc70b542c83f7e54240c46d5ef7ea) 
+
+ 
 
 
 

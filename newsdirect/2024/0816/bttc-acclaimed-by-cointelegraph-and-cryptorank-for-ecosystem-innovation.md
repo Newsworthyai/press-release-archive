@@ -33,7 +33,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/bttc-acclaime
 [Original/Source Press Release](https://newsdirect.com/news/bttc-acclaimed-by-cointelegraph-and-cryptorank-for-ecosystem-innovation-896496635)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bittorrent-chain-bttc-innovations-highlighted-by-cointelegraph-and-cryptorank/434c18812b18ee978a0323ab6aa3ca22) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/16/bittorrent-chain-bttc-gains-recognition-for-innovative-blockchain-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bttc-recognized-by-cointelegraph-and-cryptorank-for-blockchain-innovations/20245791)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bittorrent-chain-receives-recognition-for-advancing-blockchain-interoperability/20245791)
+
+Pickup - [advos.io](https://advos.io/en/bttc-recognized-for-ecosystem-innovation-by-cointelegraph-and-cryptorank/20245791)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bittorrent-chain-bttc-innovations-highlighted-by-cointelegraph-and-cryptorank)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bittorrent-chain-bttc-innovations-highlighted-by-cointelegraph-and-cryptorank)
+ 
 
 
 

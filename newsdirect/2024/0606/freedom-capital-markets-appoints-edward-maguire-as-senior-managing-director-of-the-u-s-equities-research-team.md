@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/freedom-capit
 [Original/Source Press Release](https://newsdirect.com/news/freedom-capital-markets-appoints-edward-maguire-as-senior-managing-director-of-the-u-s-equities-research-team-264140884)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/freedom-capital-markets-appoints-edward-maguire-as-senior-managing-director/5dd9c2075d21a2a5f4e5b9c0696112aa) 
+
+
+Pickup - [advos.io](https://advos.io/en/freedom-capital-markets-appoints-edward-maguire-as-senior-managing-director-of-u-s-equities-research-team/20243887)
+ 
 
 
 

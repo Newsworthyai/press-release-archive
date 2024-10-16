@@ -29,7 +29,17 @@ Everest Group is an international research company that specializes in strategic
 [Original/Source Press Release](https://newsworthy.ai/news/202408261245/3-story-software-3ss-recognized-as-a-major-contender-in-everest-groups-2024-vms-peak-matrix-r-assessment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/3-story-software-recognized-as-major-contender-in-everest-group-s-2024-vms-peak-matrix-r-assessment/c92fe812ae27108eeaab5a3ec7d52bea) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/3-story-software-named-major-contender-in-everest-group-s-2024-vms-assessment)
+
+Pickup - [fishervista.com](https://fishervista.com/en/3-story-software-recognized-as-major-contender-in-everest-groups-2024-vms-peak-matrix-r-assessment/20245941)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/3-story-software-named-major-contender-in-everest-group-s-2024-vms-assessment/20245941)
+
+Pickup - [advos.io](https://advos.io/en/3-story-software-named-major-contender-in-everest-groups-2024-vms-peak-matrix-assessment/20245941)
+ 
 
 
 

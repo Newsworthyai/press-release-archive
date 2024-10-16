@@ -23,7 +23,13 @@ RChilli is the trusted partner for parsing, matching, and data enrichment, provi
 [Original/Source Press Release](https://newsworthy.ai/news/20240117992/rchillis-master-stroke-in-oracle-recruiting-rchilli-candidate-recharge)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-releases-candidate-recharge-for-oracle-to-revolutionize-candidate-database-management/3327bb7ed5370318a1de195047ed068c) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-unveils-candidate-recharge-for-oracle-recruiting-revolutionizing-candidate-database-management/2024269)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/17/rchilli-launches-candidate-recharge-to-streamline-oracle-recruiting)
+ 
 
 
 

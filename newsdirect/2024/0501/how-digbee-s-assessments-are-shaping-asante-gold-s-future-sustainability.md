@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-digbees-a
 [Original/Source Press Release](https://newsdirect.com/news/how-digbees-assessments-are-shaping-asante-golds-future-sustainability-588928363)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/digbee-s-impact-on-asante-gold-s-sustainability/403ff6700390ecb2a53c7cde7d7dbe80) 
+
+ 
 
 
 

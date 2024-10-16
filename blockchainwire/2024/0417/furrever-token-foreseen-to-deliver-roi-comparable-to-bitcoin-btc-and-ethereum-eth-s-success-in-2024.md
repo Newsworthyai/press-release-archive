@@ -31,7 +31,11 @@ Media Contact:Robert Smithhttps://furrevertoken.com/[support@furrevertoken.com](
 [Original/Source Press Release](https://blockchainwire.io/press-release/furrever-token-foreseen-to-deliver-roi-comparable-to-bitcoin-btc-and-ethereum-eths-success-in-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/furrever-token-furr-shines-amidst-market-downturn/07c8788f51d93da240bb4663e65c0e5a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/furrever-token-poised-to-deliver-impressive-returns-amid-crypto-market-volatility)
+ 
 
 
 

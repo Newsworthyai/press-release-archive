@@ -7,7 +7,11 @@ LONDON, ENGLAND, June 02, 2024 /24-7PressRelease/ -- Renowned for its pivotal ro
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511339/leathwaite-leads-with-2024-market-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leathwaite-s-2024-market-analysis-reveals-changing-financial-landscape-in-the-uk-and-europe/f08605c1cea3ae1387a01895c260a18d) 
+
+
+Pickup - [advos.io](https://advos.io/en/leathwaite-releases-2024-market-analysis-insights-and-implications/20243605)
+ 
 
 
 

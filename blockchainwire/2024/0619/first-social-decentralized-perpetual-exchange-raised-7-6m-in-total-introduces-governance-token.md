@@ -33,7 +33,17 @@ tanisha@zkx.fi
 [Original/Source Press Release](https://blockchainwire.io/press-release/first-social-decentralized-perpetual-exchange-raised-76m-in-total-introduces-governance-token-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zkx-raises-7-6m-in-funding-launches-zkx-token-and-initiatives/dfbdfb56e454687a34595d207a02c23e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/zkx-raises-7-6m-launches-governance-token-to-revolutionize-social-decentralized-perpetual-trading/20244278)
+
+Pickup - [advos.io](https://advos.io/en/zkx-raises-7-6m-launches-governance-token-to-revolutionize-defi-trading/20244278)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/zkx-raises-7-6m-in-funding-launches-zkx-token-and-initiatives)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/zkx-raises-7-6m-in-funding-launches-zkx-token-and-initiatives)
+ 
 
 
 

@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/pegasus-resou
 [Original/Source Press Release](https://newsdirect.com/news/pegasus-resources-releases-positive-results-from-sampling-program-at-energy-sand-in-utah-738138728)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pegasus-resources-announces-high-grade-uranium-findings-in-utah-project/4f1dc4dffd3265113c6b0c5b2550b93f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/pegasus-resources-uncovers-promising-uranium-potential-at-energy-sands-project)
+ 
 
 
 

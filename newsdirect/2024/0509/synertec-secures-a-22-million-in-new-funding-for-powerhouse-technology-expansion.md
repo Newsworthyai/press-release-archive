@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/synertec-secu
 [Original/Source Press Release](https://newsdirect.com/news/synertec-secures-a-22-million-in-new-funding-for-powerhouse-technology-expansion-558584711)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/synertec-secures-a-22-million-in-new-funding-for-powerhouse-technology-expansion/9e59c182f59ae67b9d64bb2d76dc6b78) 
+
+ 
 
 
 

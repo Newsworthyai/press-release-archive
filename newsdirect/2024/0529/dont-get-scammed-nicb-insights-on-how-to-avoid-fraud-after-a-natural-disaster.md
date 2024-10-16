@@ -69,7 +69,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/dont-get-scam
 [Original/Source Press Release](https://newsdirect.com/news/dont-get-scammed-nicb-insights-on-how-to-avoid-fraud-after-a-natural-disaster-341745413)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nicb-warns-homeowners-to-avoid-fraud-after-natural-disasters/fbfd696548ddae1ba97572b9f1065585) 
+
+ 
 
 
 

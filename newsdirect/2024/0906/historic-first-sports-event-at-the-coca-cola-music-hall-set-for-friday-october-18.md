@@ -67,7 +67,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/historic-firs
 [Original/Source Press Release](https://newsdirect.com/news/historic-first-sports-event-at-the-coca-cola-music-hall-set-for-friday-october-18-456780283)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coca-cola-music-hall-to-host-historic-boxing-event-on-october-18/78ba0340a62007a8da0f781938e5f11d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/coca-cola-music-hall-to-host-inaugural-boxing-event-marking-historic-milestone)
+
+Pickup - [fishervista.com](https://fishervista.com/en/historic-first-boxing-event-at-coca-cola-music-hall-scheduled-for-october-18/20246594)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/coca-cola-music-hall-to-host-inaugural-boxing-event-marking-venue-s-first-sports-spectacle/20246594)
+
+Pickup - [advos.io](https://advos.io/en/coca-cola-music-hall-to-host-first-ever-boxing-event/20246594)
+ 
 
 
 

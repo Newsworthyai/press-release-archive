@@ -25,7 +25,11 @@ Media contact: tea@transformgroup.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-tea-protocols-incentivized-testnet-approaches-200k-signups-and-500-open-source-software-projects-in-first-week-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-tea-protocol-s-incentivized-testnet-surpasses-185000-sign-ups-and-400-open-source-projects/c49c70e81e7e6b5f3d17218ab447059e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/27/the-tea-protocol-s-incentivized-testnet-attracts-overwhelming-interest)
+ 
 
 
 

@@ -83,7 +83,17 @@ Research Highlights:
 [Original/Source Press Release](https://www.newmediawire.com/news/better-cardiovascular-health-in-early-pregnancy-may-offset-high-genetic-risk-7076020)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/good-cardiovascular-health-in-early-pregnancy-may-offset-high-genetic-risk-for-preeclampsia-and-gestational-hypertension/38345faac2f19695fdb23309b3fe9e00) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/07/study-finds-good-cardiovascular-health-in-early-pregnancy-may-reduce-risk-of-hypertensive-disorders)
+
+Pickup - [fishervista.com](https://fishervista.com/en/better-cardiovascular-health-in-early-pregnancy-can-offset-high-genetic-risk-for-preeclampsia-and-gestational-hypertension/20246604)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/favorable-cardiovascular-health-in-early-pregnancy-linked-to-lower-risk-of-hypertensive-disorders/20246604)
+
+Pickup - [advos.io](https://advos.io/en/better-cardiovascular-health-in-early-pregnancy-may-reduce-risk-of-hypertensive-disorders/20246604)
+ 
 
 
 

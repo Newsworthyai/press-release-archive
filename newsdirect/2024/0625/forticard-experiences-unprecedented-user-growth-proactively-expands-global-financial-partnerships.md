@@ -39,7 +39,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/forticard-exp
 [Original/Source Press Release](https://newsdirect.com/news/forticard-experiences-unprecedented-user-growth-proactively-expands-global-financial-partnerships-589926248)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/forticard-experiences-unprecedented-user-growth-proactively-expands-global-financial-partnerships/281c35320718c7dfdfabc58703b0eb40) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/forticard-reports-40-user-growth-boosts-global-financial-partnerships/20244461)
+
+Pickup - [advos.io](https://advos.io/en/forticard-reports-40-surge-in-user-growth-expands-global-financial-partnerships/20244461)
+ 
 
 
 

@@ -39,7 +39,13 @@ CoinGecko: https://www.coingecko.com/en/coins/metfiInstagram: https://instagram.
 [Original/Source Press Release](https://blockchainwire.io/press-release/59-million-marine-moguls-erc-404-airdrop-closes-in-3-days-launch-imminent)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marine-moguls-airdrop-closing-massive-bounty-awaits/7b47dde8aa643a2fc8fe21286bc97a51) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/marine-moguls-airdrop-closing-massive-bounty-awaits)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/marine-moguls-airdrop-closing-massive-bounty-awaits)
+ 
 
 
 

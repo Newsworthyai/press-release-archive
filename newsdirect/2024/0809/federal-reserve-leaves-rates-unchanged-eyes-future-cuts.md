@@ -49,7 +49,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/federal-reser
 [Original/Source Press Release](https://newsdirect.com/news/federal-reserve-leaves-rates-unchanged-eyes-future-cuts-698032562)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/federal-reserve-maintains-rates-amidst-economic-uncertainty/df1881b30444e0463f5586216a0f09f8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/federal-reserve-maintains-interest-rates-signals-potential-future-cuts-amid-economic-uncertainty)
+
+Pickup - [fishervista.com](https://fishervista.com/en/federal-reserve-maintains-rates-amid-economic-uncertainty-potential-future-cuts-loom/20245610)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/federal-reserve-maintains-interest-rates-signals-potential-future-cuts-amid-economic-uncertainty/20245610)
+
+Pickup - [advos.io](https://advos.io/en/federal-reserve-keeps-rates-steady-amid-economic-uncertainty/20245610)
+ 
 
 
 

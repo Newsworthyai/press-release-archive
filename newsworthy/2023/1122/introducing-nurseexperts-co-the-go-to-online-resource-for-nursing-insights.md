@@ -23,7 +23,11 @@ Stay updated and informed at www.NurseExperts.co.
 [Original/Source Press Release](https://newsworthy.ai/news/20231122853/introducing-nurseexperts-co-the-go-to-online-resource-for-nursing-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nurseexperts-co-launches-as-the-definitive-platform-for-nursing-insights/8a2986fe448ee5a3cf1684afe1c5f87f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/22/nurseexperts-co-the-definitive-online-hub-for-nursing-insights)
+ 
 
 
 

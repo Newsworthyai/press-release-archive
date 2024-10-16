@@ -45,7 +45,15 @@ Discord: https://discord.gg/Q7BxghMVyu
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-breakthrough-bill-could-see-bitcoin-ethereum-and-blockdag-network-prices-skyrocket-very-soon)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-and-cryptocurrency-market-surge-key-political-and-regulatory-developments/958adea2d89ddb4fabef79a5576eedaa) 
+
+
+Pickup - [advos.io](https://advos.io/en/potential-surge-in-cryptocurrency-prices-following-new-u-s-senate-bill-and-trump-endorsement/20244169)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-and-cryptocurrency-market-surge-key-political-and-regulatory-developments)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-and-cryptocurrency-market-surge-key-political-and-regulatory-developments)
+ 
 
 
 

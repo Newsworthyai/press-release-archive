@@ -7,7 +7,9 @@ IRVINE CA, September 25, 2024 /24-7PressRelease/ -- Atticus Injury Law, PC is th
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514590/orange-county-trial-lawyer-atticus-n-wegman-named-to-daily-journals-top-40-under-40-lawyers-in-california)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/attorney-atticus-n-wegman-named-to-top-40-under-40-lawyers-in-california-for-2024/6556e246ce88f71616de532dfea59516) 
+
+ 
 
 
 

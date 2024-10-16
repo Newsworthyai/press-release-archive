@@ -7,7 +7,17 @@ BOSTON, MA, September 06, 2024 /24-7PressRelease/ -- The rapid spread, and relen
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514061/sars2covid-19-in-middlesex-county-massachusetts-a-pilot-community-report)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sars2-covid19-spread-report-biomedical-research-institute-overview/9e8f241b479b1a005864e40e8fb671dd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/study-reveals-covid-19-spread-patterns-in-middlesex-county-massachusetts)
+
+Pickup - [fishervista.com](https://fishervista.com/en/middlesex-county-sars2-covid-19-report-reveals-crucial-insights-for-future-pandemic-preparedness/20246584)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/study-reveals-socioeconomic-factors-influenced-covid-19-spread-in-middlesex-county-ma/20246584)
+
+Pickup - [advos.io](https://advos.io/en/pilot-study-highlights-socioeconomic-disparities-in-covid-19-spread-in-middlesex-county-massachusetts/20246584)
+ 
 
 
 

@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/did-the-next-
 [Original/Source Press Release](https://newsdirect.com/news/did-the-next-crypto-bull-run-begin-btc-price-tops-64k-and-eth-rises-above-3k-raboo-ico-brings-in-over-1-mil-740878701)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-market-rebounds-btc-and-eth-prices-surge-raboo-ico-raises-1m/250d2d6191eb824f3e1ea812d28c7b34) 
+
+ 
 
 
 

@@ -33,7 +33,11 @@ www.wemade.com / www.wemix.com/communication
 [Original/Source Press Release](https://blockchainwire.io/press-release/wemade-unveils-new-roadmap-for-defi-protocol-kleva-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemade-prepares-kleva-for-transition-to-wemix3-0-mainnet-in-q2-2024/5d0b7a855103633f3a3d739304a2ce11) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/05/wemade-unveils-roadmap-for-kleva-s-transition-to-trans-chain-defi-protocol)
+ 
 
 
 

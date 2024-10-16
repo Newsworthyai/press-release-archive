@@ -7,7 +7,11 @@ SAN FRANCISCO, CA, April 02, 2024 /24-7PressRelease/ -- In a proactive response 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509731/fast-guard-service-advocates-for-the-efficacy-of-unarmed-guards-amidst-changing-regulations-in-california-why-you-dont-need-armed-guards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fast-guard-service-champions-unarmed-security-solutions-in-response-to-legislative-changes/f6ea5200d73a8ad1fb2bf75f271118d0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/fast-guard-service-advocates-for-unarmed-security-solutions)
+ 
 
 
 

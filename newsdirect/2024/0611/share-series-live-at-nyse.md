@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/share-series-
 [Original/Source Press Release](https://newsdirect.com/news/share-series-live-at-nyse-572512612)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/share-series-hosts-event-at-nyse-with-high-growth-companies/2855ff6a985751f45d3bdb4609529f7c) 
+
+
+Pickup - [advos.io](https://advos.io/en/share-series-hosts-live-event-at-nyse-featuring-high-growth-small-cap-companies/20244037)
+ 
 
 
 

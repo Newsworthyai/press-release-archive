@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/green-lantern
 [Original/Source Press Release](https://newsdirect.com/news/green-lantern-solar-announces-promotion-of-alan-pratt-to-vice-president-of-operations-377616139)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/green-lantern-solar-promotes-alan-pratt-to-vice-president-of-operations/89df46c23b16cf3fb1357deb9541d998) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/green-lantern-solar-elevates-alan-pratt-to-vp-of-operations)
+ 
 
 
 

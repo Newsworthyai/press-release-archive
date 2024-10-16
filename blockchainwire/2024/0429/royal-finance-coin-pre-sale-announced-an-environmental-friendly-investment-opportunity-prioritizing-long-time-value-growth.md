@@ -43,7 +43,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/royal-finance-coin-pre-sale-announced-an-environmental-friendly-investment-opportunity-prioritizing-long-time-value-growth-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/royal-finance-coin-rfc-launches-pre-sale-of-highly-anticipated-token-offers-strategic-investment-opportunity/29ba60e944fee5657bb90ba393f5cf6a) 
+
+ 
 
 
 

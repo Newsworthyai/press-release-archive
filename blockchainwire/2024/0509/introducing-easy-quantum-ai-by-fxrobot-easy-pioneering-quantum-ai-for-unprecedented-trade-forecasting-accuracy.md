@@ -55,7 +55,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-easy-quantum-ai-by-fxrobot-easy-pioneering-quantum-ai-for-unprecedented-trade-forecasting-accuracy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/easy-quantum-ai-revolutionizing-trade-forecasting-with-quantum-computing/9311ec085bf3b838212da40a4e2aa864) 
+
+ 
 
 
 

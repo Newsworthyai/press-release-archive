@@ -44,7 +44,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/basile-intern
 [Original/Source Press Release](https://newsdirect.com/news/basile-international-legal-firm-sets-new-standards-in-international-debt-collection-895515924)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/basile-international-sets-new-standards-in-international-debt-collection/c3bffcc9693762bb5b03464dee14fbba) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/19/basile-international-legal-firm-revolutionizes-international-debt-collection)
+
+Pickup - [fishervista.com](https://fishervista.com/en/basile-international-legal-firm-redefines-international-debt-collection-standards/20245110)
+
+Pickup - [advos.io](https://advos.io/en/basile-international-legal-firm-sets-new-standards-in-international-debt-collection/20245110)
+ 
 
 
 

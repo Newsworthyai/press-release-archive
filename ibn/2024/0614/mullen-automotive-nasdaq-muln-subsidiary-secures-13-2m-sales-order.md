@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, t
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-subsidiary-secures-13-2m-sales-order/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-reaches-13-2m-deal-to-sell-80-electric-trucks-to-momentum-groups/3342c0da8c261a82561a91e665fe8f05) 
+
+ 
 
 
 

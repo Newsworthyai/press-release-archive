@@ -7,7 +7,13 @@ WASHINGTON, DC, June 27, 2024 /24-7PressRelease/ -- ADAP Advocacy today, as part
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512030/adap-advocacy-publishes-final-report-for-patient-perspectives-on-long-acting-injectables)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/adap-advocacy-releases-final-report-on-patient-perspectives-of-long-acting-injectables/96176168e3402884437409aab274e844) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/adap-advocacy-releases-report-on-barriers-to-long-acting-injectable-hiv-treatments/20244520)
+
+Pickup - [advos.io](https://advos.io/en/adap-advocacy-releases-comprehensive-report-on-long-acting-injectables-for-hiv-aids/20244520)
+ 
 
 
 

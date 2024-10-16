@@ -7,7 +7,9 @@ LOS ANGELES, CA, May 08, 2024 /24-7PressRelease/ -- DeepTech, a full-service tec
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510710/deeptech-announces-opening-of-los-angeles-location)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/deeptech-expands-to-los-angeles-with-high-quality-onsite-support/f3e43b7ecc5ba4d7aaff0e5541877c84) 
+
+ 
 
 
 

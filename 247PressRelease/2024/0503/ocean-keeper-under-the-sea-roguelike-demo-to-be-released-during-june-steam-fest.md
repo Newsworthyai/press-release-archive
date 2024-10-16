@@ -7,7 +7,9 @@ KYIV, UKRAINE, May 03, 2024 /24-7PressRelease/ -- RetroStyle Games, an independe
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510567/ocean-keeper-under-the-sea-roguelike-demo-to-be-released-during-june-steam-fest)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/retrostyle-games-set-to-release-new-roguelike-survival-game-ocean-keeper/a6c2a5154bace79adf24f37d5fee2042) 
+
+ 
 
 
 

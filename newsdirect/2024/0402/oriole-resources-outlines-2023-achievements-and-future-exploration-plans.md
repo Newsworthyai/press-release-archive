@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/oriole-resour
 [Original/Source Press Release](https://newsdirect.com/news/oriole-resources-outlines-2023-achievements-and-future-exploration-plans-510930054)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/oriole-resources-outlines-2023-achievements-and-future-exploration-plans/9f43e7133ce7bc7ad7d36c4681fcf1ce) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/oriole-resources-celebrates-milestones-charts-ambitious-exploration-plans)
+ 
 
 
 

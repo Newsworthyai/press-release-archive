@@ -65,7 +65,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/growth-of-com
 [Original/Source Press Release](https://newsdirect.com/news/growth-of-combat-sports-presents-a-compelling-opportunity-for-investors-883252442)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/combat-sports-market-booming-investors-eye-alta-global-group-nyse-mma-and-tko-group-holdings-nyse-tko/45cb258636516c7b891ffd7805deb4de) 
+
+ 
 
 
 

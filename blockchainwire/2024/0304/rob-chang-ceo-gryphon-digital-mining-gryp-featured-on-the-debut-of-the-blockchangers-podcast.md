@@ -39,7 +39,11 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/rob-chang-ceo-gryphon-digital-mining-gryp-featured-on-the-debut-of-the-blockchangers-podcast)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/enzo-villani-of-alpha-transform-holdings-interviews-gryphon-digital-mining-ceo-rob-chang-on-bitcoin-s-halving-impact-and-environmental-stewardship/f4ed5c2cac3bd24e433e286138055554) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/04/gryphon-digital-mining-ceo-featured-on-blockchangers-podcast)
+ 
 
 
 

@@ -43,7 +43,11 @@ Newsworthy.ai is a news distribution platform that prioritizes engagement and vi
 [Original/Source Press Release](https://newsworthy.ai/news/202405071162/redballoon-teams-up-with-newsworthy-ai-for-media-communications)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/redballoon-work-partners-with-newsworthy-ai-to-promote-freedom-economy/7e5dd1136358a9011e66f4eaafa0e846) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/redballoon-expands-freedom-economy-partnerships-introduces-innovative-recruiting-solutions/20242699)
+ 
 
 
 

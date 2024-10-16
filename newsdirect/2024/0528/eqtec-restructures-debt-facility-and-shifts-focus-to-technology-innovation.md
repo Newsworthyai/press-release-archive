@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/eqtec-restruc
 [Original/Source Press Release](https://newsdirect.com/news/eqtec-restructures-debt-facility-and-shifts-focus-to-technology-innovation-666644982)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/eqtec-restructures-debt-facility-and-shifts-focus-to-technology-innovation/ccdbc584b38261efafc58ad144673afc) 
+
+ 
 
 
 

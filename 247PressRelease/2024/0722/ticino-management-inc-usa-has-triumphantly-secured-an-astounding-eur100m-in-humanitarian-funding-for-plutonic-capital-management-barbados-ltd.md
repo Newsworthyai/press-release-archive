@@ -7,7 +7,15 @@ WILMINGTON, DE, July 22, 2024 /24-7PressRelease/ -- Ticino Management, Inc. (USA
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512734/ticino-management-inc-usa-has-triumphantly-secured-an-astounding-100m-in-humanitarian-funding-for-plutonic-capital-management-barbados-ltd)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ticino-management-inc-secures-eur100m-funding-for-plutonic-capital-management/97d31922b311bbe3d03f4b7f275e099d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/ticino-management-secures-eur100m-humanitarian-funding-for-plutonic-capital-management)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ticino-management-secures-eur100m-in-humanitarian-funding-for-plutonic-capital-management/20245142)
+
+Pickup - [advos.io](https://advos.io/en/ticino-management-secures-eur100m-in-humanitarian-funding-for-plutonic-capital-management/20245142)
+ 
 
 
 

@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/intra-energy-
 [Original/Source Press Release](https://newsdirect.com/news/intra-energy-corporation-discovers-further-lithium-anomalies-924465323)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/intra-energy-corporation-discovers-significant-lithium-anomalies-in-western-australia/dc677f25c58486258c44afc511b4697d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/intra-energy-uncovers-promising-lithium-targets-in-western-australia)
+ 
 
 
 

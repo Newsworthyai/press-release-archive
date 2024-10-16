@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-sweep-swe
 [Original/Source Press Release](https://newsdirect.com/news/new-sweep-sweep-campaign-promotes-urban-cleanliness-and-environmental-stewardship-across-the-united-states-559914397)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-sweep-sweep-campaign-promotes-urban-cleanliness-and-environmental-stewardship-across-the-united-states/a20b3e88d6605ab405b86d3e0f4312ec) 
+
+ 
 
 
 

@@ -29,7 +29,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/turtle-wax-na
 [Original/Source Press Release](https://newsdirect.com/news/turtle-wax-names-mexican-american-race-car-driver-daniel-suarez-its-art-of-car-care-lines-first-brand-ambassador-for-mexico-265525866)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/daniel-suarez-named-brand-ambassador-for-turtle-wax-s-art-of-car-caretm-line-in-mexico/1b2d3eeb1c31167782dc19db05471661) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/turtle-wax-announces-daniel-suarez-as-first-brand-ambassador-for-art-of-car-caretm-line-in-mexico)
+
+Pickup - [fishervista.com](https://fishervista.com/en/turtle-wax-appoints-daniel-suarez-as-art-of-car-caretm-brand-ambassador-for-mexico/20245875)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/turtle-wax-taps-racing-star-daniel-suarez-as-first-mexican-brand-ambassador/20245875)
+
+Pickup - [advos.io](https://advos.io/en/daniel-suarez-named-first-brand-ambassador-for-turtle-wax-s-art-of-car-caretm-line-in-mexico/20245875)
+ 
 
 
 

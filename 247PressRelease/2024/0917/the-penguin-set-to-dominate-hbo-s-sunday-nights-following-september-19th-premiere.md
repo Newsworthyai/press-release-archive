@@ -7,7 +7,17 @@ LOS ANGELES, CA, September 17, 2024 /24-7PressRelease/ -- Starring Colin Farrell
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514173/the-penguin-set-to-dominate-hbos-sunday-nights-following-september-19th-premiere)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/colin-farrell-stars-as-the-penguin-in-new-hbo-series/464c8d0ba9ad6f3b10add76fe05f3e3e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/hbo-s-the-penguin-set-to-bridge-batman-films-with-weekly-sunday-night-slot)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hbo-s-the-penguin-set-to-bridge-batman-films-and-expand-gotham-universe/20246885)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hbo-s-the-penguin-set-to-bridge-batman-films-dominate-sunday-nights/20246885)
+
+Pickup - [advos.io](https://advos.io/en/hbo-s-the-penguin-set-to-bridge-batman-films-and-expand-dc-universe/20246885)
+ 
 
 
 

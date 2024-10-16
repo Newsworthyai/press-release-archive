@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/kona-gold-bev
 [Original/Source Press Release](https://newsdirect.com/news/kona-gold-beverages-and-apple-rush-co-revolutionizing-beverage-market-with-joint-venture-and-manufacturing-agreement-465561988)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kona-gold-beverages-and-apple-rush-co-revolutionizing-beverage-market-with-joint-venture-and-manufacturing-agreement/3ca20edf604dbaad16c7c3f15041d7f8) 
+
+ 
 
 
 

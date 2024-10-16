@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/american-batt
 [Original/Source Press Release](https://newsdirect.com/news/american-battery-materials-signs-letter-of-intent-for-a-business-combination-849255177)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-battery-materials-signs-letter-of-intent-for-a-business-combination/2dcaef57acee4fa4b34afe45cb860956) 
+
+ 
 
 
 

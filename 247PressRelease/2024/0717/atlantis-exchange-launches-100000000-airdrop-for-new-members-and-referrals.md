@@ -7,7 +7,19 @@ HONOLULU, HI, July 17, 2024 /24-7PressRelease/ -- Atlantis Exchange is excited t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512607/atlantis-exchange-launches-100000000-airdrop-for-new-members-and-referrals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atlantis-exchange-launches-100m-airdrop-for-new-and-current-members/ecbce477a2de336d66fad5d73fb99e60) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/atlantis-exchange-unveils-100-million-airdrop-campaign-to-boost-membership-and-referrals)
+
+Pickup - [fishervista.com](https://fishervista.com/en/atlantis-exchange-announces-100-million-airdrop-for-new-and-referring-members/20245008)
+
+Pickup - [advos.io](https://advos.io/en/atlantis-exchange-launches-100-million-airdrop-for-new-members-and-referrals/20245008)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/atlantis-exchange-launches-100m-airdrop-for-new-and-current-members)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/atlantis-exchange-launches-100m-airdrop-for-new-and-current-members)
+ 
 
 
 

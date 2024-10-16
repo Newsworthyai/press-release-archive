@@ -7,7 +7,11 @@ HALTOM CITY, TX, April 09, 2024 /24-7PressRelease/ -- The May 2024 City Council 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509885/haltom-city-council-candidate-cindy-sturgeon-place-3-gets-endorsement-from-dfw-conservative-voters-green-card-will-hold-meet-the-candidates-dinner-with-spencer-drabik-place-4)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cindy-sturgeon-receives-endorsement-from-dfw-conservative-voters-for-haltom-city-council-race/436e80ac18711327a611e6859feda5e7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/haltom-city-council-candidates-sturgeon-and-drabik-receive-endorsement-invite-residents-to-meet-the-candidates-dinner)
+ 
 
 
 

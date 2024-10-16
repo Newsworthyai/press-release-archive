@@ -31,7 +31,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bluesky-miner-launches-exclusive-mining-package-ahead-of-bitcoin-halving)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bluesky-miner-announces-special-mining-package-for-bitcoin-halving-event/b3337dbf5351d0769e6be8bf2e159acc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/bluesky-miner-unveils-exclusive-mining-package-ahead-of-bitcoin-halving)
+ 
 
 
 

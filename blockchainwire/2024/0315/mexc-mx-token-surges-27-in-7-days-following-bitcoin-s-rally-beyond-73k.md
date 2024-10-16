@@ -25,7 +25,11 @@ DisclaimerThis press release contains forward-looking statements that are subjec
 [Original/Source Press Release](https://blockchainwire.io/press-release/mexc-mx-token-surges-27-in-7-days-following-bitcoins-rally-beyond-73k)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mexc-s-mx-token-surges-amid-bitcoin-rally/d37f7f1b36db0aeb6a19837a4c3119c2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/mexc-s-mx-token-surges-amid-bitcoin-s-rally-beyond-73k)
+ 
 
 
 

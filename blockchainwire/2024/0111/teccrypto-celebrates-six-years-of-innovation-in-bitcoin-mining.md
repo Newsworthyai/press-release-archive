@@ -31,7 +31,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/teccrypto-celebrates-six-years-of-innovation-in-bitcoin-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teccrypto-celebrates-six-years-in-bitcoin-mining-industry/ee9340c3c8e554419a5e7a133876120b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/11/teccrypto-pioneering-bitcoin-mining-for-six-years)
+ 
 
 
 

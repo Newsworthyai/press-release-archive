@@ -45,7 +45,11 @@ Championing the fight against online scams and deceptive investment strategies, 
 [Original/Source Press Release](https://blockchainwire.io/press-release/announcing-bcas-essential-strategies-for-finding-trusted-crypto-recovery-partners)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/broker-complaint-alert-provides-guidance-for-crypto-recovery-services/026e430913932968f3fe2433cfde9f24) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/bca-unveils-essential-criteria-for-selecting-trusted-crypto-recovery-partners)
+ 
 
 
 

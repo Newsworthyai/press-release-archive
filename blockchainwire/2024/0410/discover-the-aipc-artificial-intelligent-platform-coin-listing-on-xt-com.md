@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-aipc-artificial-intelligent-platform-coin-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-announces-listing-of-aipc-on-socially-infused-trading-platform/edb9b1133a7a3b9d175a371f64920f2d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/revolutionizing-the-blockchain-landscape-aipc-listing-on-xt-com)
+ 
 
 
 

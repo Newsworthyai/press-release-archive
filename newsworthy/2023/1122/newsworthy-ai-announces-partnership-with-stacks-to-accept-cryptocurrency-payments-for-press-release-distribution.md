@@ -23,7 +23,11 @@ Newsworthy.ai stands apart in the realm of news marketing with its unique blend 
 [Original/Source Press Release](https://newsworthy.ai/news/20231122898/newsworthy-ai-announces-partnership-with-stacks-to-accept-cryptocurrency-payments-for-press-release-distribution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newsworthy-ai-partners-with-stacks-to-revolutionize-press-release-distributions-with-cryptocurrency-payments/5504031293807e25b5d5b4a612cd7464) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/22/newsworthy-ai-embraces-cryptocurrency-with-stacks-partnership)
+ 
 
 
 

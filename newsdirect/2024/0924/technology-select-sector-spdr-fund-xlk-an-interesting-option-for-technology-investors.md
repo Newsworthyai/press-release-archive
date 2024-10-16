@@ -82,7 +82,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/technology-se
 [Original/Source Press Release](https://newsdirect.com/news/technology-select-sector-spdr-fund-xlk-an-interesting-option-for-technology-investors-791605533)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xlk-etf-an-interesting-option-for-technology-investors/45781c973bda3098dba86634ca1045d6) 
+
+ 
 
 
 

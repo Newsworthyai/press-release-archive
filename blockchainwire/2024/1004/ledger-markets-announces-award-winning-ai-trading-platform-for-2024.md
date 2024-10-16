@@ -33,7 +33,9 @@ To learn more about how Ledger Markets can help you succeed in the stock market,
 [Original/Source Press Release](https://blockchainwire.io/press-release/ledger-markets-announces-award-winning-ai-trading-platform-for-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ledger-markets-launches-award-winning-ai-trading-platform-for-2024/93034c8766a6022c5273246695800d0c) 
+
+ 
 
 
 

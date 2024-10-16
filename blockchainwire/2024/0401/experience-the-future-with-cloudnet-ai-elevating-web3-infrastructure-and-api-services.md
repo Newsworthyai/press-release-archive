@@ -29,7 +29,11 @@ Medium: https://medium.com/@CloudnetAi
 [Original/Source Press Release](https://blockchainwire.io/press-release/experience-the-future-with-cloudnet-ai-elevating-web3-infrastructure-and-api-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloudnet-ai-revolutionizes-cloud-computing-in-web3-era/f57a1a6ba76d4eb41691350b118c2c74) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/cloudnet-ai-revolutionizing-web3-infrastructure-with-ai-powered-solutions)
+ 
 
 
 

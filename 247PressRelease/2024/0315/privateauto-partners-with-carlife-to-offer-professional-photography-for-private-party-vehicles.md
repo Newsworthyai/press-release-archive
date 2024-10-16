@@ -7,7 +7,11 @@ ALPINE, UT, March 15, 2024 /24-7PressRelease/ -- PrivateAuto, the only end-to-en
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509147/privateauto-partners-with-carlife-to-offer-professional-photography-for-private-party-vehicles)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/privateauto-partners-with-carlife-to-offer-professional-photography-services-for-private-party-vehicles/9f4765e2075e38b7aaafbbcfb1d38db5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/privateauto-partners-with-carlife-for-professional-vehicle-photography)
+ 
 
 
 

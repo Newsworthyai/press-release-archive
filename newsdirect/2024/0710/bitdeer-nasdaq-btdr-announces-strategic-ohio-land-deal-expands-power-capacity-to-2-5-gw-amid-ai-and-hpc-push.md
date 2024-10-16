@@ -57,7 +57,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitdeer-nasda
 [Original/Source Press Release](https://newsdirect.com/news/bitdeer-nasdaq-btdr-announces-strategic-ohio-land-deal-expands-power-capacity-to-2-5-gw-amid-ai-and-hpc-push-556756198)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitdeer-expands-power-capacity-to-2-5-gw-amid-ai-and-hpc-push/3e1ba449dd558a2e5b39f111298f9bec) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitdeer-expands-power-capacity-with-strategic-ohio-land-deal-amid-ai-and-hpc-growth/20244827)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/bitdeer-secures-570-mw-power-deal-in-ohio-boosts-global-capacity-to-2-5-gw)
+
+Pickup - [advos.io](https://advos.io/en/bitdeer-expands-power-capacity-with-strategic-ohio-land-deal-amid-ai-and-hpc-growth/20244827)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitdeer-expands-power-capacity-to-2-5-gw-amid-ai-and-hpc-push)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitdeer-expands-power-capacity-to-2-5-gw-amid-ai-and-hpc-push)
+ 
 
  
 

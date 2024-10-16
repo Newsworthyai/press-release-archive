@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-standard-
 [Original/Source Press Release](https://newsdirect.com/news/new-standard-of-care-icecure-submits-final-ice3-data-to-fda-minimally-invasive-cryoablation-shows-similar-5-year-recurrence-outcomes-to-surgery-with-hormone-therapy-927473927)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/icecure-s-prosense-r-cryoablation-therapy-shows-promising-results-for-early-stage-breast-cancer/981fd7ee6f22454c27ef95535cfb7659) 
+
+ 
 
 
 

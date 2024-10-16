@@ -19,7 +19,11 @@ BitMart is the premier global digital asset trading platform. With millions of u
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-awarded-investopedias-best-crypto-exchanges-and-apps-of-march-2024-best-for-altcoins-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmart-wins-best-crypto-exchange-award-for-altcoins/050c5019ae606386a4062dd4d0d2c0ed) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/bitmart-exchange-recognized-for-altcoin-excellence-by-investopedia)
+ 
 
 
 

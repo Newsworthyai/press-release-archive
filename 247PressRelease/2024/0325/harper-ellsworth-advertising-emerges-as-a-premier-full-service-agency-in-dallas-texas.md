@@ -7,7 +7,11 @@ DALLAS, TX, March 25, 2024 /24-7PressRelease/ -- DFW welcomes a dynamic addition
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509503/harper-ellsworth-advertising-emerges-as-a-premier-full-service-agency-in-dallas-texas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/harper-ellsworth-advertising-launches-in-dfw-with-a-focus-on-market-share-growth/4f1ff5281a78184523ab75b389d8fa44) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/harper-ellsworth-advertising-elevating-brands-and-driving-growth-in-dfw)
+ 
 
 
 

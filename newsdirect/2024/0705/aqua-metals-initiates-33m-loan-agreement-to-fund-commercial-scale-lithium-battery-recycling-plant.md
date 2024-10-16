@@ -47,7 +47,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/aqua-metals-i
 [Original/Source Press Release](https://newsdirect.com/news/aqua-metals-initiates-33m-loan-agreement-to-fund-commercial-scale-lithium-battery-recycling-plant-980941006)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aqua-metals-secures-33m-loan-for-commercial-scale-lithium-battery-recycling-plant/40685645f77ff91c1d28527860ebe6eb) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/aqua-metals-secures-33m-loan-for-first-commercial-scale-lithium-battery-recycling-plant/20244734)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/aqua-metals-secures-33m-loan-for-pioneering-lithium-battery-recycling-facility)
+
+Pickup - [advos.io](https://advos.io/en/aqua-metals-secures-33m-loan-for-commercial-scale-lithium-battery-recycling-plant/20244734)
+ 
 
 
 

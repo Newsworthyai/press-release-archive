@@ -55,7 +55,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/mar-mining-received-us100-million-in-strategic-financing-to-bring-a-better-experience-to-users-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mar-mining-completes-100m-financing-round-for-decentralized-governance/18c35663200a5cde7fdf9a4704c426ac) 
+
+ 
 
 
 

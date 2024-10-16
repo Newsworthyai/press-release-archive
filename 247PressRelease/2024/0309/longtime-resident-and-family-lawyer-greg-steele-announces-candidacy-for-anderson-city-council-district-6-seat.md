@@ -7,7 +7,11 @@ ANDERSON, SC, March 09, 2024 /24-7PressRelease/ -- Born and raised in Linley Par
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509145/longtime-resident-and-family-lawyer-greg-steele-announces-candidacy-for-anderson-city-council-district-6-seat)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greg-steele-candidate-for-city-council-promises-sustainable-growth-and-community-unity/5d92b531562f5494d3480644780ddb6d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/09/anderson-native-greg-steele-launches-city-council-campaign)
+ 
 
 
 

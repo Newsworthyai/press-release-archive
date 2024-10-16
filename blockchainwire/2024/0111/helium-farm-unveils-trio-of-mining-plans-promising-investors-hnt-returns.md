@@ -41,7 +41,11 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/helium-farm-unveils-trio-of-mining-plans-promising-investors-hnt-returns)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/helium-farm-unveils-lucrative-mining-plans/f2bef99888124f058671e8476a8fbe1e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/11/helium-farm-unveils-lucrative-mining-plans-for-investors)
+ 
 
 
 

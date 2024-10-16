@@ -41,7 +41,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/functional-me
 [Original/Source Press Release](https://newsdirect.com/news/functional-medicine-network-strengthens-leadership-with-appointment-of-visionary-chief-financial-officer-837717856)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/forum-health-llc-appoints-visionary-chief-financial-officer/6eff208b0986a4ec7c7bac9562056cac) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/forum-health-appoints-sean-whelan-as-chief-financial-officer/20244825)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/forum-health-appoints-sean-whelan-as-new-chief-financial-officer)
+
+Pickup - [advos.io](https://advos.io/en/forum-health-appoints-sean-whelan-as-chief-financial-officer/20244825)
+ 
 
  
 

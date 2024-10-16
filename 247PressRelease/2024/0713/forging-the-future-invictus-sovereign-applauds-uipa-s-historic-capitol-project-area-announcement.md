@@ -7,7 +7,15 @@ FILLMORE, UT, July 13, 2024 /24-7PressRelease/ -- Invictus Sovereign is thrilled
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512514/forging-the-future-invictus-sovereign-applauds-uipas-historic-capitol-project-area-announcement)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/invictus-sovereign-joins-utah-inland-port-authority-s-historic-capitol-project/5b85868be212040acc4938a7bca701d1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/13/invictus-sovereign-s-valley-forge-impact-park-to-play-pivotal-role-in-utah-s-historic-capitol-project-area-plan)
+
+Pickup - [fishervista.com](https://fishervista.com/en/invictus-sovereign-joins-uipa-s-historic-capitol-project-area-plan/20244932)
+
+Pickup - [advos.io](https://advos.io/en/invictus-sovereign-joins-uipa-s-historic-capitol-project-area-in-fillmore-utah/20244932)
+ 
 
 
 

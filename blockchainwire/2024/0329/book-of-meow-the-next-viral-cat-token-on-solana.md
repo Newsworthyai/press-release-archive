@@ -23,7 +23,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/book-of-meow---the-next-viral-cat-token-on-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/book-of-meow-launches-revolutionary-bomeow-coin-on-solana-network/18abb938fa7e4a56ef51313065940fe6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/book-of-meow-the-purr-fect-crypto-sensation-on-solana)
+ 
 
 
 

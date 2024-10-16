@@ -33,7 +33,11 @@ Website: [https://www.yambo.com](https://yambo.com)
 [Original/Source Press Release](https://blockchainwire.io/press-release/yambo-revolutionizes-interactive-marketing-with-groundbreaking-gaming-patent)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/yambo-redefines-interactive-marketing-with-immersive-experiences/be2f60d4ed40427d39ab4ff27c64a800) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/09/yambo-pioneers-immersive-marketing-with-groundbreaking-gaming-patent)
+ 
 
 
 

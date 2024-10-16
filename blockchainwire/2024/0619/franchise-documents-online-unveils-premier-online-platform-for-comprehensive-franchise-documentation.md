@@ -44,7 +44,13 @@ Email: sales@franchisedocumentsonline.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/franchise-documents-online-unveils-premier-online-platform-for-comprehensive-franchise-documentation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/franchise-documents-online-launches-innovative-platform-for-accessing-franchise-documents/8360f8ddf305db0fbedb5897d7cf8ecc) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/franchise-documents-online-launches-platform-for-easy-access-to-franchise-documentation/20244291)
+
+Pickup - [advos.io](https://advos.io/en/franchise-documents-online-launches-premier-platform-for-franchise-documentation/20244291)
+ 
 
 
 

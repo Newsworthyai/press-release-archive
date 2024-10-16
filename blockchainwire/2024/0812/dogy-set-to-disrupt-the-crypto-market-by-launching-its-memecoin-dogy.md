@@ -37,7 +37,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/dogy-set-to-disrupt-the-crypto-market-by-launching-its-memecoin-dogy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-dogy-emerges-as-leading-memecoin-on-solana-blockchain/38596db1bc9d6bbb44fc69b7848bda6a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/dogy-launches-dogy-memecoin-on-solana-blockchain-aiming-to-revolutionize-crypto-industry)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dogy-launches-dogy-a-revolutionary-memecoin-on-the-solana-blockchain/20245664)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dogy-launches-new-memecoin-on-solana-blockchain-aims-to-revolutionize-crypto-industry/20245664)
+
+Pickup - [advos.io](https://advos.io/en/dogy-launches-dogy-memecoin-on-solana-blockchain/20245664)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/revolutionary-dogy-emerges-as-leading-memecoin-on-solana-blockchain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/revolutionary-dogy-emerges-as-leading-memecoin-on-solana-blockchain)
+ 
 
 
 

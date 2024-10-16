@@ -35,7 +35,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/how-bitcoin-btcs-regulation-ethereum-eths-updates-and-furrever-tokens-launch-could-transform-the-market)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-ethereum-and-furrever-token-shaping-the-future-of-cryptocurrency/5a811ef443047484ab4aea46c16c1af4) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-ethereum-and-furrever-token-shaping-the-future-of-cryptocurrency)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-ethereum-and-furrever-token-shaping-the-future-of-cryptocurrency)
+ 
 
 
 

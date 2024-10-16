@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/element-25-an
 [Original/Source Press Release](https://newsdirect.com/news/element-25-and-veolia-partner-for-new-hpmsm-refinery-in-louisiana-584368820)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/element-25-and-veolia-partner-for-new-hpmsm-refinery-in-louisiana/5aa01d04620d5c3bc75a1562b593fb9f) 
+
+ 
 
 
 

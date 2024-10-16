@@ -25,7 +25,11 @@ About JOJOJOJOSoft CO., Ltd.: Headquartered in Nakhon Ratchasima, Thailand, JOJO
 [Original/Source Press Release](https://blockchainwire.io/press-release/jojojojosoft-launches-meet-the-suckers-a-revolutionary-gamefi-platform-blending-fun-and-financial-opportunity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jojojojosoft-co-ltd-unveils-meet-the-suckers-a-game-changer-in-web3-gaming/85fc66fabd0c631b9264e65695d7c981) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/22/jojojojosoft-redefines-gaming-with-meet-the-suckers-gamefi-platform)
+ 
 
 
 

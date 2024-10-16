@@ -13,7 +13,9 @@ Patients undergoing Ketamine therapy at Scott Integrated Pain Management can ant
 [Original/Source Press Release](https://newsworthy.ai/news/202401271038/scott-integrated-pain-management-offers-innovative-ketamine-treatment-for-complex-regional-pain-syndrome-crps)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scott-integrated-pain-management-introduces-ketamine-treatment-for-crps-patients/fa8a76767bfc49f38f0ef6e79573eae3) 
+
+ 
 
 
 

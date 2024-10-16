@@ -23,7 +23,11 @@ Step into the world of financial mastery at www.CreditLimit.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231211801/creditlimit-io-launches-the-premier-destination-for-financial-insights-and-credit-expertise)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-creditlimit-io-a-premier-platform-for-financial-insights/d26d7642c12e0dacccc4c70329030445) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/11/creditlimit-io-elevating-financial-literacy-and-expertise)
+ 
 
 
 

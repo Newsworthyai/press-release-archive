@@ -43,7 +43,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-market-update-bitcoin-tops-70k-ethereum-awaits-etf-approval-and-furrever-tokens-rising-popularity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/furrever-token-presale-nearing-end-amid-bitcoin-and-ethereum-surge/21a0c27a3a8ebf643418aeff9e5b9dac) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/furrever-token-presale-nearing-end-amid-bitcoin-and-ethereum-surge)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/furrever-token-presale-nearing-end-amid-bitcoin-and-ethereum-surge)
+ 
 
 
 

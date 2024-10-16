@@ -11,7 +11,11 @@ GPUINU IS A UNIQUE MEME TOKEN ON THE SOLANA BLOCKCHAIN, CELEBRATING THE SYNERGY 
 [Original/Source Press Release](https://blockchainwire.io/press-release/gpu-inu-flys-across-the-nvidia-gtc-conference-literally)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gpu-inu-s-aerial-marketing-stunt-at-nvidia-gtc-sparks-crypto-and-tech-conversation/b0b04297feea596fc3deb49da8601e5f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/gpu-inu-takes-flight-meme-coin-soars-over-nvidia-gtc-conference)
+ 
 
 
 

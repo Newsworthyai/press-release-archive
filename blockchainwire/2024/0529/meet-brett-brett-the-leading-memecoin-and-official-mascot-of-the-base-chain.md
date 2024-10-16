@@ -27,7 +27,13 @@ ConclusionBrett ($BRETT) is more than just a memecoin; it is a cultural phenomen
 [Original/Source Press Release](https://blockchainwire.io/press-release/meet-brett-brett-the-leading-memecoin-and-official-mascot-of-the-base-chain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brett-brett-emerges-as-top-memecoin-on-base-chain/133a1747647f723096f77ef072664629) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/brett-brett-emerges-as-top-memecoin-on-base-chain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/brett-brett-emerges-as-top-memecoin-on-base-chain)
+ 
 
 
 

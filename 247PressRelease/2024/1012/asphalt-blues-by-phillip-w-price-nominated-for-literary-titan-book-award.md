@@ -7,7 +7,9 @@ CANTON, GA, October 12, 2024 /24-7PressRelease/ -- Asphalt Blues (ISBN 13: 978-1
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515205/asphalt-blues-by-phillip-w-price-nominated-for-literary-titan-book-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/thrilling-novel-asphalt-blues-nominated-for-literary-titan-book-award/4bc066d9ba53b7f810df8d780ee830cc) 
+
+ 
 
 
 

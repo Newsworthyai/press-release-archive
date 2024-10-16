@@ -47,7 +47,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/cadiz-inc-nas
 [Original/Source Press Release](https://newsdirect.com/news/cadiz-inc-nasdaq-cdzi-sets-the-stage-for-expansion-with-new-50-year-water-delivery-partnership-426137868)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cadiz-inc-nasdaq-cdzi-sets-the-stage-for-expansion-with-new-50-year-water-delivery-partnership/585449b751cf006a970e87d0a3f7e9e7) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cadiz-inc-nasdaq-cdzi-secures-50-year-water-delivery-partnership-with-santa-margarita-water-district/20244366)
+
+Pickup - [advos.io](https://advos.io/en/cadiz-inc-nasdaq-cdzi-announces-50-year-water-delivery-partnership-to-drive-expansion/20244366)
+ 
 
 
 

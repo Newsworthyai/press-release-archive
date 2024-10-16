@@ -7,7 +7,11 @@ NEW YORK, NY, March 20, 2024 /24-7PressRelease/ -- Preparing for the Passover ho
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509374/talias-steakhouse-nyc-kosher-restaurant-to-serve-passover-2024-seders-meals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/talia-s-steakhouse-bar-prepares-for-22nd-year-of-glatt-kosher-passover-seders/377479c3927de31f8e0a9abb27b9060d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/talia-s-steakhouse-offers-authentic-kosher-passover-seders-and-meals)
+ 
 
 
 

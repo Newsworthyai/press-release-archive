@@ -7,7 +7,9 @@ CLARKSVILLE, TN, May 30, 2024 /24-7PressRelease/ -- Author Sherring Hope invites
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511213/sherring-hopes-unspoken-unwavering-honestypoems-and-short-stories-resonates-with-all-who-have-felt-emotion)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/author-sherring-hope-releases-new-book-unspoken-unwavering-honesty-poems-and-short-stories/4093e765c328bb0d3b11880e0b6c8658) 
+
+ 
 
 
 

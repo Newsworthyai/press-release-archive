@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/ilearningengi
 [Original/Source Press Release](https://newsdirect.com/news/ilearningengines-hear-from-the-chief-architect-of-this-applied-ai-platform-464542036)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ilearningengines-chief-architect-discusses-applied-ai-platform-on-benzingas-all-access/4731600cb150aa2f1580cf3ef687773b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/ilearningengines-chief-architect-discusses-applied-ai-platform-s-impact-on-learning-and-work-automation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ilearningengines-chief-architect-discusses-ai-innovations-in-learning-and-work-automation/20245696)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ilearningengines-chief-architect-reveals-insights-on-applied-ai-platform/20245696)
+
+Pickup - [advos.io](https://advos.io/en/ilearningengines-chief-architect-discusses-applied-ai-platform-on-benzingas-all-access/20245696)
+ 
 
 
 

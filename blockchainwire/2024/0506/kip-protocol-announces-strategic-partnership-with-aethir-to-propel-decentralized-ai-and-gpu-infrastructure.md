@@ -52,7 +52,9 @@ Aethir is the leading provider of decentralized GPU cloud infrastructure, dedica
 [Original/Source Press Release](https://blockchainwire.io/press-release/kip-protocol-announces-strategic-partnership-with-aethir-to-propel-decentralized-ai-and-gpu-infrastructure)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kip-protocol-and-aethir-form-strategic-partnership-for-decentralized-ai-development/7f19cac3c626071da5322b95d8665ff6) 
+
+ 
 
 
 

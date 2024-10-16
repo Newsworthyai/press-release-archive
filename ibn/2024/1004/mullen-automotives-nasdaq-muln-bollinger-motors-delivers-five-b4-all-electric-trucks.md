@@ -25,7 +25,9 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotives-nasdaq-muln-bollinger-motors-delivers-five-b4-all-electric-trucks/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-delivers-bollinger-b4-chassis-cabs-to-nacarato-truck-centers/148bac25b6cd0d4f0df2c202e6bf8ca7) 
+
+ 
 
 
 

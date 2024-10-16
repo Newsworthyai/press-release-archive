@@ -49,7 +49,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/eragongg-introducing-the-premier-gaming-web3-platform-with-virtual-airdrop-on-aptos-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/eragon-launches-v1-release-records-150k-users-and-30-million-transactions/bd683294b094a5922f2f5e5dfebff2c0) 
+
+ 
 
 
 

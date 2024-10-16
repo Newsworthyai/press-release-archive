@@ -7,7 +7,9 @@ OAKLAND COUNTY, MI, May 16, 2024 /24-7PressRelease/ -- Congratulations to partne
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510941/erika-a-riggs-awarded-prestigious-champion-of-justice-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/erika-a-riggs-recognized-as-2024-champion-of-justice-by-state-bar-of-michigan/2c1d28e6c787399adc72f76097d5132b) 
+
+ 
 
 
 

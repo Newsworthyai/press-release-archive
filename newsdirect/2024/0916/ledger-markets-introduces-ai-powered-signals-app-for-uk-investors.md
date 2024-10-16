@@ -55,7 +55,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/ledger-market
 [Original/Source Press Release](https://newsdirect.com/news/ledger-markets-introduces-ai-powered-signals-app-for-uk-investors-495102815)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionizing-stock-market-insights-with-ai-powered-signals-app/b9fcfe8f7bb4f0a14ee5461289a551f9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/ledger-markets-launches-ai-powered-stock-signals-app-for-uk-investors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ledger-markets-launches-ai-powered-stock-signals-app-for-uk-investors/20246854)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ledger-markets-launches-ai-powered-stock-signals-app-for-uk-investors/20246854)
+
+Pickup - [advos.io](https://advos.io/en/ledger-markets-launches-ai-powered-stock-signals-app-for-uk-investors/20246854)
+ 
 
 
 

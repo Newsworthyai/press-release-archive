@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/us-gold-corps
 [Original/Source Press Release](https://newsdirect.com/news/us-gold-corps-edward-karr-says-golds-rally-is-a-game-changer-for-junior-miners-647802252)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/us-gold-corp-founder-edward-karr-optimistic-about-gold-market-and-company-prospects/e8838773a4560de47202e641f7b330c1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/gold-s-rally-a-game-changer-for-junior-miners-says-us-gold-corp-s-edward-karr)
+ 
 
 
 

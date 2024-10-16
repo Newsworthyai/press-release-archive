@@ -31,7 +31,9 @@ Beta Global Finance’s focus on innovation and security positions the company a
 [Original/Source Press Release](https://blockchainwire.io/press-release/beta-global-finance-launches-privacy-coins-and-blockchain-based-products-to-enhance-digital-finance-security)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beta-global-finance-unveils-new-products-to-bolster-user-privacy-and-security/f473715237c1671aa21a1d29b203f6f6) 
+
+ 
 
 
 

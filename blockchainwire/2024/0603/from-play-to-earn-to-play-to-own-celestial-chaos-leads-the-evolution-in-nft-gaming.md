@@ -33,7 +33,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/from-play-to-earn-to-play-to-own-celestial-chaos-leads-the-evolution-in-nft-gaming-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/celestial-chaos-a-revolution-in-nft-gaming/6357ac73e3abe8161ef0aa7803d690f3) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/celestial-chaos-a-revolution-in-nft-gaming)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/celestial-chaos-a-revolution-in-nft-gaming)
+ 
 
 
 

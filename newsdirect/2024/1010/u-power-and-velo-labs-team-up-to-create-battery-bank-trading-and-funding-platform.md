@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/u-power-and-v
 [Original/Source Press Release](https://newsdirect.com/news/u-power-and-velo-labs-team-up-to-create-battery-bank-trading-and-funding-platform-266313778)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-power-and-velo-labs-team-up-to-create-battery-bank-trading-and-funding-platform/e73ca03813afc89b39ad4b94aa57b918) 
+
+ 
 
 
 

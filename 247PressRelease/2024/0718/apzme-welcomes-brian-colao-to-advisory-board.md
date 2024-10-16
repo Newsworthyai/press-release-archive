@@ -7,7 +7,15 @@ HOLLYWOOD, FL, July 18, 2024 /24-7PressRelease/ -- apZme, a leading Dental Sleep
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512650/apzme-welcomes-brian-colao-to-advisory-board)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/industry-leader-brian-colao-joins-apzme-advisory-board/31e160487409e8262ce9719371c59c96) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/dental-sleep-organization-apzme-strengthens-advisory-board-with-industry-leader-brian-colao)
+
+Pickup - [fishervista.com](https://fishervista.com/en/brian-colao-joins-apzme-advisory-board-strengthening-leadership-in-dental-sleep-medicine/20245044)
+
+Pickup - [advos.io](https://advos.io/en/brian-colao-joins-apzme-advisory-board/20245044)
+ 
 
 
 

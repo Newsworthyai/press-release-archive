@@ -7,7 +7,9 @@ WEST PALM BEACH, FL, June 04, 2024 /24-7PressRelease/ -- Amy Jordan, the Founder
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511415/amy-jordan-to-celebrate-the-10th-anniversary-of-her-victory-dance-project-with-commemorative-event-in-west-palm-beach)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/celebrating-10-years-of-the-victory-dance-project-a-night-of-hope-and-possibility/21ab06d18262ecf17b9c649c94b5eb76) 
+
+ 
 
 
 

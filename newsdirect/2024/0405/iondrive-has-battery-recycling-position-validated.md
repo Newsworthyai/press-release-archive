@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/iondrive-has-
 [Original/Source Press Release](https://newsdirect.com/news/iondrive-has-battery-recycling-position-validated-333179538)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iondrive-ceo-ebbe-dommisse-shares-progress-in-battery-recycling-sector/a3a19fd96e87453c089603fd33d3d9af) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/iondrive-solidifies-position-in-booming-battery-recycling-market)
+ 
 
 
 

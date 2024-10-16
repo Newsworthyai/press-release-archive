@@ -74,7 +74,17 @@ Research Highlights:
 [Original/Source Press Release](https://www.newmediawire.com/news/remote-monitoring-and-pharmacist-helped-improve-hard-to-control-blood-pressure-7076005)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/remote-monitoring-and-pharmacist-helped-improve-hard-to-control-blood-pressure/0cb61ef0c2397a2191d29ddb337c2b18) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/remote-monitoring-and-pharmacist-collaboration-significantly-improves-blood-pressure-control)
+
+Pickup - [fishervista.com](https://fishervista.com/en/remote-monitoring-and-pharmacist-interventions-show-significant-improvement-in-managing-resistant-hypertension/20246552)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/remote-monitoring-and-pharmacist-collaboration-improves-blood-pressure-control-in-high-risk-patients/20246552)
+
+Pickup - [advos.io](https://advos.io/en/remote-monitoring-and-pharmacist-intervention-significantly-improve-blood-pressure-control/20246552)
+ 
 
 
 

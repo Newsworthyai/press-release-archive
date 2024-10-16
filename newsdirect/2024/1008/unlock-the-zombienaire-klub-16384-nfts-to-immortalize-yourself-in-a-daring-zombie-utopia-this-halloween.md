@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/unlock-the-zo
 [Original/Source Press Release](https://newsdirect.com/news/unlock-the-zombienaire-klub-16-384-nfts-to-immortalize-yourself-in-a-daring-zombie-utopia-this-halloween-180523184)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zombienaire-klub-nft-collection-set-to-debut-on-october-24-2024/3a1efd75ece28e4691b50bc5f976f7bf) 
+
+ 
 
 
 

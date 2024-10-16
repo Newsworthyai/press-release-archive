@@ -49,7 +49,9 @@ Corporate Website: www.pharmagreen.ca
 [Original/Source Press Release](https://www.newmediawire.com/news/pharmagreen-biotech-inc-phbi-reaffirms-commitment-to-non-toxic-financing-amid-ongoing-business-development-progress-7076068)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pharmagreen-biotech-inc-announces-collaboration-with-foreign-government-to-empower-local-farmers-and-introduce-premium-product-line/c8d4076756e9c13d758a3e639ac40d13) 
+
+ 
 
 
 

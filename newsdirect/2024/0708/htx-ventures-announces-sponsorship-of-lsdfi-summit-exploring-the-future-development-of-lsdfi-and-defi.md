@@ -45,7 +45,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-
 [Original/Source Press Release](https://newsdirect.com/news/htx-ventures-announces-sponsorship-of-lsdfi-summit-exploring-the-future-development-of-lsdfi-and-defi-241020067)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-ventures-sponsors-lsdfi-summit-to-explore-future-development-of-lsdfi-and-defi/534e8e4101f95e2c99fe2d0f7babec1e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/htx-ventures-sponsors-lsdfi-summit-to-propel-future-of-defi/20244767)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/htx-ventures-sponsors-lsdfi-summit-advancing-discussions-on-defi-s-future)
+
+Pickup - [advos.io](https://advos.io/en/htx-ventures-sponsors-lsdfi-summit-to-shape-future-of-defi-and-liquid-restaking/20244767)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-ventures-sponsors-lsdfi-summit-to-explore-future-development-of-lsdfi-and-defi)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-ventures-sponsors-lsdfi-summit-to-explore-future-development-of-lsdfi-and-defi)
+ 
 
 
 

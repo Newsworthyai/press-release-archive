@@ -29,7 +29,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/primex-finance-announces-community-rewards-campaign-with-coinlist)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/primex-finance-and-coinlist-launch-contribute-and-earn-rewards-campaign/8bb663677fca25c409d2fba7f73bb1fb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/primex-finance-launches-community-rewards-campaign-with-coinlist)
+ 
 
 
 

@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/shareholder-g
 [Original/Source Press Release](https://newsdirect.com/news/shareholder-group-and-gender-ideology-opponent-to-press-disney-on-discrimination-at-companys-annual-meeting-540050461)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shareholder-group-and-gender-ideology-opponent-to-press-disney-on-discrimination-at-company-s-annual-meeting/95038d87185f5d4d8313438e8984a635) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/disney-faces-pressure-over-gender-discrimination-policies)
+ 
 
 
 

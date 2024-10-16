@@ -37,7 +37,21 @@ Disclaimer
 [Original/Source Press Release](https://blockchainwire.io/press-release/gateio-unveils-hedgesmart-strategies-usdt-10-to-20-annualized-yield-with-principal-protection)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gate-io-launches-hedgesmart-strategies-usdt-with-10-20-annualized-yield/fb7b4a2d70d02f34eb596f49641ab334) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/gate-io-launches-hedgesmart-strategies-usdt-a-new-quant-fund-product-offering-high-yields-and-principal-protection)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gate-io-launches-hedgesmart-strategies-usdt-promising-up-to-20-annualized-yield-with-principal-protection/20245325)
+
+Pickup - [advos.io](https://advos.io/en/gate-io-launches-hedgesmart-strategies-usdt-with-promising-annual-yields-and-principal-protection/20245325)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gate-io-launches-hedgesmart-strategies-usdt-with-10-20-annualized-yield)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gate-io-launches-hedgesmart-strategies-usdt-with-10-20-annualized-yield)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gate-io-launches-hedgesmart-strategies-usdt-with-10-20-annualized-yield)
+ 
 
 
 

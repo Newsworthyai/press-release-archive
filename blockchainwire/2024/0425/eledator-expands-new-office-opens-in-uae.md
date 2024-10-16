@@ -61,7 +61,9 @@ Eledator's development prospects in the UAEEledator's development prospects in t
 [Original/Source Press Release](https://blockchainwire.io/press-release/eledator-expands---new-office-opens-in-uae)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/eledator-expands-to-uae-strengthening-global-market-position/7b82ff86c185801fc938d0457158d190) 
+
+ 
 
 
 

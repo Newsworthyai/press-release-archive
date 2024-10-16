@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/atha-energy-s
 [Original/Source Press Release](https://newsdirect.com/news/atha-energy-set-to-begin-companys-most-significant-exploration-program-ever-504450235)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atha-energy-unveils-ambitious-2024-exploration-program/2a78ab30a6e854ecee484c77f5d78597) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/atha-energy-unveils-ambitious-exploration-plans-for-2024)
+ 
 
 
 

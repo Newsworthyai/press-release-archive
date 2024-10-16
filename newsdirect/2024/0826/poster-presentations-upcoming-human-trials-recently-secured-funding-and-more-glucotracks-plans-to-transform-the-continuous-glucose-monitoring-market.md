@@ -55,7 +55,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/poster-presen
 [Original/Source Press Release](https://newsdirect.com/news/poster-presentations-upcoming-human-trials-recently-secured-funding-and-more-glucotracks-plans-to-transform-the-continuous-glucose-monitoring-market-334170130)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/glucotrack-s-innovative-cbgm-device-set-to-revolutionize-diabetes-management/7fa885dbee2ae0312495783d3aa48d9c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/glucotrack-s-innovative-continuous-blood-glucose-monitor-aims-to-revolutionize-diabetes-management)
+
+Pickup - [fishervista.com](https://fishervista.com/en/glucotrack-s-new-continuous-blood-glucose-monitor-poised-to-revolutionize-diabetes-management/20245934)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/glucotrack-s-innovative-blood-glucose-monitor-aims-to-revolutionize-diabetes-management/20245934)
+
+Pickup - [advos.io](https://advos.io/en/glucotrack-poised-to-revolutionize-continuous-glucose-monitoring-with-innovative-implantable-device/20245934)
+ 
 
 
 

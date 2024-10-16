@@ -75,7 +75,11 @@ The information and data presented in this article are obtained from public sour
 [Original/Source Press Release](https://blockchainwire.io/press-release/tide-capital-bitcoin-halving-6-big-ideas-you-need-to-know)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-hits-70000-ahead-of-fourth-halving-tide-capital-releases-key-insights/aef856eacaf23e3fa87dbffe89a9d52d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/bitcoin-s-fourth-halving-navigating-the-tides-of-crypto-innovation)
+ 
 
 
 

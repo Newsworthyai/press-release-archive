@@ -7,7 +7,9 @@ RIYADH, SAUDI ARABIA, October 05, 2024 /24-7PressRelease/ -- Two HR Executive se
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514973/gulf-elite-and-kerning-merge-to-form-highphen-a-new-leader-in-executive-search-and-recruitment-across-the-middle-east-and-gcc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gulf-elite-and-kerning-merge-to-form-highphen-a-new-force-in-hr-executive-search/44ed1b576a381687c4fe0a26c64a3453) 
+
+ 
 
 
 

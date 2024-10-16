@@ -11,7 +11,15 @@ $FLOKITA SOL team have given you a wide variety of social platforms that you can
 [Original/Source Press Release](https://blockchainwire.io/press-release/flokita-team-is-proud-to-present-flokita-swap)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/miss-flokita-launches-decentralized-exchange-on-binance-smart-chain-and-solana/13329b5e7a82678774acdcfe29910320) 
+
+
+Pickup - [advos.io](https://advos.io/en/flokita-launches-advanced-defi-platform-with-cross-chain-capabilities/20243995)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/miss-flokita-launches-decentralized-exchange-on-binance-smart-chain-and-solana)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/miss-flokita-launches-decentralized-exchange-on-binance-smart-chain-and-solana)
+ 
 
 
 

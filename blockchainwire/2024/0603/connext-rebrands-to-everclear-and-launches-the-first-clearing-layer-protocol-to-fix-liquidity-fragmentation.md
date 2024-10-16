@@ -45,7 +45,13 @@ Disclaimer
 [Original/Source Press Release](https://blockchainwire.io/press-release/connext-rebrands-to-everclear-and-launches-the-first-clearing-layer-protocol-to-fix-liquidity-fragmentation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/everclear-rebrands-to-solve-liquidity-fragmentation-for-modular-blockchains/61e01f20ac30b827cb960c5c8ce020b0) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/everclear-rebrands-to-solve-liquidity-fragmentation-for-modular-blockchains)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/everclear-rebrands-to-solve-liquidity-fragmentation-for-modular-blockchains)
+ 
 
 
 

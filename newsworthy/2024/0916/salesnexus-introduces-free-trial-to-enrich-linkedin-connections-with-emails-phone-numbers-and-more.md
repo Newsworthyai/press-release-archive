@@ -33,7 +33,17 @@ Craig KleinCEO, SalesNexus.com 713-405-1117cklein@salesnexus.comwww.salesnexus.c
 [Original/Source Press Release](https://newsworthy.ai/news/202409161262/salesnexus-introduces-free-trial-to-enrich-linkedin-connections-with-emails-phone-numbers-and-more)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/salesnexus-introduces-new-linkedin-enrichment-feature-for-free-trial-users/0d405522fd6602dcfd9f55a9d72375b8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/salesnexus-launches-free-trial-for-linkedin-connection-enrichment)
+
+Pickup - [fishervista.com](https://fishervista.com/en/salesnexus-offers-free-trial-for-linkedin-connection-enrichment/20246851)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/salesnexus-offers-free-trial-for-linkedin-connection-enrichment/20246851)
+
+Pickup - [advos.io](https://advos.io/en/salesnexus-offers-free-linkedin-connection-enrichment-in-crm-trial/20246851)
+ 
 
 
 

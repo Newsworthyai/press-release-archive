@@ -35,7 +35,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/premiumtoken-officially-launches-april-15th---holders-compete-for-a-prize-of-250000)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/premiumtoken-launches-on-raydium-io-with-250000-prize-and-airdrop-event/949a30a0c6c6aedd0b2b78abfa411a02) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/premiumtoken-launches-with-250000-prize-drawing)
+ 
 
 
 

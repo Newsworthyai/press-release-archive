@@ -19,7 +19,9 @@ With an ever-growing body of evidence showcasing the therapeutic potential of ke
 [Original/Source Press Release](https://newsworthy.ai/news/20231223939/promising-results-of-ketamine-therapy-for-depression-ptsd-and-suicidal-ideation-unveiled)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ketamine-therapy-revolutionizes-treatment-for-depression-and-ptsd/ebda4f1c3addb25a34e1a038d34678dd) 
+
+ 
 
 
 

@@ -29,7 +29,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/university-co
 [Original/Source Press Release](https://newsdirect.com/news/university-compounding-pharmacy-announces-rebrand-to-medivera-compounding-pharmacy-680473492)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/medivera-compounding-pharmacytm-announces-rebranding-and-strong-revenue-growth/66bb5c1428c9695080aaa63bef7be431) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/university-compounding-pharmacy-rebrands-as-medivera-signaling-major-growth-and-expansion)
+
+Pickup - [fishervista.com](https://fishervista.com/en/university-compounding-pharmacy-rebrands-as-medivera-compounding-pharmacy/20244994)
+
+Pickup - [advos.io](https://advos.io/en/university-compounding-pharmacy-rebrands-as-medivera-compounding-pharmacytm-amidst-significant-growth/20244994)
+ 
 
 
 

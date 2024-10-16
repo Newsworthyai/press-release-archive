@@ -31,7 +31,17 @@ D-Wave Quantum Inc. (NYSE: QBTS), a leader in quantum computing systems, softwar
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-quantum-nyse-qbts-to-participate-in-upcoming-info-tech-live-event/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-inc-to-participate-in-info-tech-live-conference/6d150fe95d21b27a0d6a56573f142557) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/d-wave-quantum-to-present-at-info-tech-live-conference-on-quantum-computing-applications)
+
+Pickup - [fishervista.com](https://fishervista.com/en/d-wave-quantum-to-showcase-real-world-quantum-computing-applications-at-info-tech-live-conference/20246792)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/d-wave-quantum-to-showcase-real-world-quantum-applications-at-info-tech-live-conference/20246792)
+
+Pickup - [advos.io](https://advos.io/en/d-wave-quantum-to-showcase-real-world-quantum-applications-at-info-tech-live-conference/20246792)
+ 
 
 
 

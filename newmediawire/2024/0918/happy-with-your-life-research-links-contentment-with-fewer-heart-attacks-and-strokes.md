@@ -79,7 +79,9 @@ Research Highlights:
 [Original/Source Press Release](https://www.newmediawire.com/news/happy-with-your-life-research-links-contentment-with-fewer-heart-attacks-and-strokes-7076061)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/feeling-content-may-lower-risk-of-heart-disease-stroke/f910f5efdcc840dbe504473f2623885c) 
+
+ 
 
 
 

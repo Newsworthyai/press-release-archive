@@ -7,7 +7,9 @@ NEW YORK, NY, April 12, 2024 /24-7PressRelease/ -- GALLINE INC. is thrilled to a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509978/introducing-galline-carbon-pad-10-a-revolutionary-solution-to-razor-blade-maintenance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/galline-inc-launches-galline-carbon-pad-1-0-on-kickstarter/6ebeb9d87ed67cc8418a2b7128d0aa2a) 
+
+ 
 
 
 

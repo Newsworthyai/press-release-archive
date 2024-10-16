@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/premier-afric
 [Original/Source Press Release](https://newsdirect.com/news/premier-african-minerals-advances-zulu-lithium-and-tantalum-project-raises-ps2-million-466999760)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/premier-african-minerals-advances-zulu-lithium-and-tantalum-project-raises-ps2-million/455a8a8df43c94cd664a08a67b404bfb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/premier-african-minerals-makes-progress-on-zulu-lithium-and-tantalum-project-raises-ps2-million)
+ 
 
 
 

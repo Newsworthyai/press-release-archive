@@ -48,7 +48,11 @@ CouldSee, a prominent social networking platform, has announced significant enha
 [Original/Source Press Release](https://evertise.net/couldsee-enhances-platform-features-to-support-more-meaningful-connections/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/couldsee-announces-enhancements-to-deepen-user-engagement/3ceac7a2f7f980c7b8b16a52702b8b47) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/couldsee-upgrades-platform-to-foster-deeper-online-connections/20246440)
+ 
 
 
 

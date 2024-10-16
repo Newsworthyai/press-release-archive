@@ -25,7 +25,9 @@ Source: Accredited Solutions, Inc. https://www.diamondcreekwater.com
 [Original/Source Press Release](https://www.newmediawire.com/news/accredited-solutions-reaches-agreement-with-100-of-promissory-note-holders-for-60-day-lock-up-and-6-month-leak-out-on-all-conversions-7076062)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/accredited-solutions-reaches-agreement-to-avoid-shareholder-dilution-and-lower-cost-of-capital/1beba006a7aa7a5412d2df4041ce6988) 
+
+ 
 
 
 

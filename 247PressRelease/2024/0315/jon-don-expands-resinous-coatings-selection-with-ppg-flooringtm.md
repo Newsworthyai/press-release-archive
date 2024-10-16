@@ -7,7 +7,11 @@ CHICAGO, IL, March 15, 2024 /24-7PressRelease/ -- Jon-Don, a leading supplier of
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509241/jon-don-expands-resinous-coatings-selection-with-ppg-flooring)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jon-don-partners-with-ppg-to-expand-offering-of-resinous-floor-coatings/390c461a13ca3fbe912e6058732cc93a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/jon-don-expands-flooring-solutions-with-ppg-partnership)
+ 
 
 
 

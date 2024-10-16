@@ -65,7 +65,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/brief-history-of-cryptocurrency-from-bitcoin-to-ethereum-and--blockdag-network-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-evolution-of-cryptocurrency-from-bitcoin-to-ethereum-and-blockdag-network/5c739096af95b7d4d237838f377e8912) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/the-evolution-of-cryptocurrency-from-bitcoin-to-ethereum-and-blockdag-network)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/the-evolution-of-cryptocurrency-from-bitcoin-to-ethereum-and-blockdag-network)
+ 
 
 
 

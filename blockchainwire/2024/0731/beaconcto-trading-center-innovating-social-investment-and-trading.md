@@ -37,7 +37,21 @@ Beaconcto Trading Center maintains the highest standards in security, privacy, c
 [Original/Source Press Release](https://blockchainwire.io/press-release/-beaconcto-trading-center-innovating-social-investment-and-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beaconcto-trading-center-transforming-investment-practices-and-expanding-digital-asset-offerings/0346af5ee00f22a869af2911b36395b8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/beaconcto-trading-center-revolutionizes-social-investment-with-innovative-platform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/beaconcto-trading-center-sets-new-standards-in-social-investment-and-trading/20245401)
+
+Pickup - [advos.io](https://advos.io/en/beaconcto-trading-center-expands-into-us-market-enhances-digital-asset-offerings/20245401)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/beaconcto-trading-center-transforming-investment-practices-and-expanding-digital-asset-offerings)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/beaconcto-trading-center-transforming-investment-practices-and-expanding-digital-asset-offerings)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/beaconcto-trading-center-revolutionizes-social-investment-with-innovative-platform)
+ 
 
 
 

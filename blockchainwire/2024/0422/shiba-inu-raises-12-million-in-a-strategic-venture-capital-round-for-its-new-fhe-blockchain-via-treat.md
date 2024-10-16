@@ -19,7 +19,11 @@ Shiba Inu, a world-leading ecosystem of decentralized cryptocurrencies has gaine
 [Original/Source Press Release](https://blockchainwire.io/press-release/shiba-inu-raises-12-million-in-a-strategic-venture-capital-round-for-its-new-fhe-blockchain-via-treat)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiba-inu-raises-12m-investment-for-new-blockchain-and-treat-token/6a96b49c04c95a847f8e8254117957a7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/shiba-inu-raises-12-million-in-strategic-venture-capital-round-for-new-fhe-blockchain)
+ 
 
 
 

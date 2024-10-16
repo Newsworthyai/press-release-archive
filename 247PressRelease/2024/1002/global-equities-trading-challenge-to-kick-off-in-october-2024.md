@@ -7,7 +7,9 @@ PRETORIA, SOUTH AFRICA, October 02, 2024 /24-7PressRelease/ -- The Global Equiti
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514864/global-equities-trading-challenge-to-kick-off-in-october-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-equities-trading-challenge-to-kick-off-with-participants-from-10-countries/917131b89b6f4921cc43b89e3232d6a8) 
+
+ 
 
 
 

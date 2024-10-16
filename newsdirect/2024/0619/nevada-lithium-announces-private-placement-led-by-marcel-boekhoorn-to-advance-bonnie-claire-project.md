@@ -23,7 +23,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/nevada-lithiu
 [Original/Source Press Release](https://newsdirect.com/news/nevada-lithium-announces-private-placement-led-by-marcel-boekhoorn-to-advance-bonnie-claire-project-733645068)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nevada-lithium-announces-private-placement-to-advance-bonnie-claire-project/e6bea7688498c696c5b69395b9f0a432) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/nevada-lithium-secures-6-million-investment-to-propel-bonnie-claire-project/20244288)
+
+Pickup - [advos.io](https://advos.io/en/nevada-lithium-secures-6-million-private-placement-to-propel-bonnie-claire-project/20244288)
+ 
 
 
 

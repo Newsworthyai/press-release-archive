@@ -7,7 +7,9 @@ BERTRAM, TX, October 08, 2024 /24-7PressRelease/ -- Author Amy Hart is thrilled 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515053/new-childrens-book-roscoe-and-calvin-by-amy-hart-celebrates-the-joys-of-family-and-friendship)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/delightful-new-children-s-book-roscoe-and-calvin-takes-readers-on-a-heartwarming-adventure/10bcee45ce8cc357403efa8090092fdb) 
+
+ 
 
 
 

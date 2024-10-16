@@ -87,7 +87,15 @@ Twitter: https://x.com/BullRun2024MEME
 [Original/Source Press Release](https://blockchainwire.io/press-release/bullrun2024-unveils-revolutionary-crypto-meme-project-in-anticipation-of-2024-bull-run)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bullrun2024-revolutionizing-crypto-and-meme-culture-for-2024-bull-run/c5a51c3c1f6285970f11cee498ead23e) 
+
+
+Pickup - [advos.io](https://advos.io/en/bullrun2024-launches-revolutionary-crypto-meme-project-ahead-of-anticipated-2024-bull-run/20244097)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bullrun2024-revolutionizing-crypto-and-meme-culture-for-2024-bull-run)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bullrun2024-revolutionizing-crypto-and-meme-culture-for-2024-bull-run)
+ 
 
 
 

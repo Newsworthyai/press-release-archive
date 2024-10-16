@@ -49,7 +49,19 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/juice-launches-as-worlds-first-healthcare-memecoin-with-strategic-partnership-from-gotbit-hedge-fund)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-healthcare-memecoin-juice-launching-soon-with-gotbit-partnership/2b3097802c183e2d9cbf01b85797e83e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/world-s-first-healthcare-memecoin-juice-launches-with-gotbit-partnership)
+
+Pickup - [fishervista.com](https://fishervista.com/en/juice-partners-with-gotbit-hedge-fund-to-launch-world-s-first-healthcare-memecoin/20244898)
+
+Pickup - [advos.io](https://advos.io/en/juice-introduces-world-s-first-healthcare-memecoin-in-partnership-with-gotbit-hedge-fund/20244898)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/innovative-healthcare-memecoin-juice-launching-soon-with-gotbit-partnership)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/innovative-healthcare-memecoin-juice-launching-soon-with-gotbit-partnership)
+ 
 
 
 

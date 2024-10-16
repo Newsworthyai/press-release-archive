@@ -7,7 +7,9 @@ DUMAGUETE CITY, PHILIPPINES, May 14, 2024 /24-7PressRelease/ -- Lumikha, a premi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510791/lumikha-launches-comprehensive-marketing-as-a-service-offering)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lumikha-launches-innovative-marketing-as-a-service-maas-offering/9f8c8c850f4cd8bc7758b3cff1604150) 
+
+ 
 
 
 

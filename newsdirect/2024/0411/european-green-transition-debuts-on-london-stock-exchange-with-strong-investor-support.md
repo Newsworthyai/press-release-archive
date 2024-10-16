@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/european-gree
 [Original/Source Press Release](https://newsdirect.com/news/european-green-transition-debuts-on-london-stock-exchange-with-strong-investor-support-553134374)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/european-green-transition-debuts-on-london-stock-exchange-with-strong-investor-support/5514863c693097052dda776f5bc430b3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/european-green-transition-debuts-on-london-stock-exchange-with-strong-investor-support)
+ 
 
 
 

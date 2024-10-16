@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/applied-graph
 [Original/Source Press Release](https://newsdirect.com/news/applied-graphite-technology-closes-key-acquisition-of-queens-mine-in-sri-lanka-156177307)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/applied-graphite-technology-acquires-queens-mine-in-sri-lanka/978aafdd6f75ef10d3c99c90311a2e09) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/applied-graphite-technology-expands-sri-lankan-operations-with-queens-mine-acquisition)
+ 
 
 
 

@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/core-nickel-a
 [Original/Source Press Release](https://newsdirect.com/news/core-nickel-announces-successful-completion-of-2024-winter-drill-program-at-halfway-lake-project-673710183)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/core-nickel-ceo-announces-successful-completion-of-2024-winter-drill-program/9f4147616c5849af4eb28537d112cb26) 
+
+ 
 
 
 

@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitgets-coo-l
 [Original/Source Press Release](https://newsdirect.com/news/bitgets-coo-leads-discussion-on-cryptocurrencys-future-at-blockchain-life-week-2024-675478680)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-coo-leads-discussion-on-cryptocurrency-s-future-at-blockchain-life-week-2024/c0e0e677ed06892ea69b08a90f2bf554) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/bitget-s-coo-shares-insights-on-cryptocurrency-s-future-at-blockchain-life-week-2024)
+ 
 
 
 

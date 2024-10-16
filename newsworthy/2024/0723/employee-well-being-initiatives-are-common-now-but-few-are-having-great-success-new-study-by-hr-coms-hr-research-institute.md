@@ -43,7 +43,19 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202407231215/employee-well-being-initiatives-are-common-now-but-few-are-having-great-success-new-study-by-hr-coms-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-research-reveals-effectiveness-of-employee-well-being-programs/e2cff3282395c7437a079cc3513a6b5b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/hr-com-study-reveals-gap-in-employee-well-being-program-effectiveness)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-com-study-reveals-gap-in-employee-well-being-program-effectiveness/20245181)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-study-reveals-limited-success-of-employee-well-being-programs/20245181)
+
+Pickup - [advos.io](https://advos.io/en/new-study-reveals-limited-success-in-employee-well-being-programs/20245181)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/employee-well-being-programs-fall-short-despite-widespread-adoption-hr-com-study-finds)
+ 
 
 
 

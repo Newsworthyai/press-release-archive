@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/teccrypto-introduces-advanced-security-protocols-to-protect-cloud-miners)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teccrypto-com-enhances-security-measures-for-cloud-mining-services/dbcf97bb1fc41185c529fda0abd6ff56) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/15/teccrypto-fortifies-cloud-mining-security-with-advanced-protocols)
+ 
 
 
 

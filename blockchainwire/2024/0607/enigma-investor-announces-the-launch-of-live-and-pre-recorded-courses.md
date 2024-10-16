@@ -25,7 +25,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/enigma-investor-announces-the-launch-of-live-and-pre-recorded-courses)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/enigma-investor-announces-launch-of-live-and-pre-recorded-trading-courses/b51775e10a58bc6922ef0297377b8cb1) 
+
+
+Pickup - [advos.io](https://advos.io/en/enigma-investor-launches-live-and-pre-recorded-courses-for-traders/20243947)
+ 
 
 
 

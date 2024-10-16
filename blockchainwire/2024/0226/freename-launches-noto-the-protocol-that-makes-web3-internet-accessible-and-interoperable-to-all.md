@@ -27,7 +27,11 @@ press@noto.network
 [Original/Source Press Release](https://blockchainwire.io/press-release/freename-launches-noto-the-protocol-that-makes-web3-internet-accessible-and-interoperable-to-all-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/freename-ag-launches-noto-protocol-to-transform-web3-internet-traffic/e2bbadb7e2f793888960225199e9fc07) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/26/freename-unveils-noto-the-protocol-enabling-web3-internet-accessibility-and-interoperability)
+ 
 
 
 

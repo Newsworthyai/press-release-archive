@@ -69,7 +69,17 @@ Other important factors that may cause actual results and outcomes to differ mat
 [Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-reports-record-breaking-august-performance-by-subsidiary-meridianbet-7076043)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meridianbet-achieves-record-breaking-results-in-august-2024/716f055c781500ba9e52e105402efda2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/golden-matrix-s-subsidiary-meridianbet-achieves-record-breaking-performance-in-august-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/golden-matrix-s-meridianbet-subsidiary-reports-record-breaking-august-performance/20246776)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/golden-matrix-s-meridianbet-subsidiary-reports-record-breaking-august-performance/20246776)
+
+Pickup - [advos.io](https://advos.io/en/golden-matrix-s-meridianbet-reports-record-breaking-august-performance/20246776)
+ 
 
 
 

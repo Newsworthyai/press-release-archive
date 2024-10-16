@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/sarytogan-gra
 [Original/Source Press Release](https://newsdirect.com/news/sarytogan-graphite-tests-show-ultra-high-purity-fines-enhance-cathode-conductivity-710963958)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sarytogan-graphite-ltd-successfully-tests-ultra-high-purity-fines-for-battery-applications/ab7febffd0ed7a7b4f54376be260f37f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/sarytogan-graphite-tests-show-ultra-high-purity-fines-enhance-cathode-conductivity)
+ 
 
 
 

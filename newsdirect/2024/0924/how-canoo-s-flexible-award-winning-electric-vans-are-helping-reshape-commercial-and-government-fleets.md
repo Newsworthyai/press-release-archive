@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-canoos-fl
 [Original/Source Press Release](https://newsdirect.com/news/how-canoos-flexible-award-winning-electric-vans-are-helping-reshape-commercial-and-government-fleets-474423442)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/canoo-inc-redefines-commercial-transportation-market-with-innovative-electric-vehicles/d372dda22fe060e55f8d11fd40aa1da6) 
+
+ 
 
 
 

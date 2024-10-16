@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/starpower-powering-up-the-depin-with-next-level-energy-network)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/starpower-the-uber-of-energy-network-revolutionizing-the-future-of-energy-management/fbe91c7eda6c1f35766505552feaa61d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/01/starpower-revolutionizing-energy-management-with-decentralized-power-networks)
+ 
 
 
 

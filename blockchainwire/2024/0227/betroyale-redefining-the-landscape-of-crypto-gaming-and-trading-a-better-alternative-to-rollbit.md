@@ -81,7 +81,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/betroyale-redefining-the-landscape-of-crypto-gaming-and-trading---a-better-alternative-to-rollbit)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/betroyale-emerges-as-a-strong-competitor-in-the-crypto-casino-space/06bb16ae068253b3e4e42f348445f7ba) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/27/betroyale-redefining-crypto-gaming-and-trading-with-innovative-features)
+ 
 
 
 

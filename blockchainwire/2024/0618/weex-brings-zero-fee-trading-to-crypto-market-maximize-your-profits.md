@@ -59,7 +59,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/weex-brings-zero-fee-trading-to-crypto-market-maximize-your-profits-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/weex-exchange-launches-zero-fee-trading-promotion-and-sponsors-blockchain-futurist-conference/0fe143827332882bdcd7ca87a9449631) 
+
+
+Pickup - [advos.io](https://advos.io/en/weex-revolutionizes-crypto-trading-with-zero-fee-promotion-and-innovative-features/20244239)
+
+Pickup - [fishervista.com](https://fishervista.com/en/weex-introduces-zero-fee-trading-enhancing-crypto-market-accessibility/20244239)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/weex-exchange-launches-zero-fee-trading-promotion-and-sponsors-blockchain-futurist-conference)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/weex-exchange-launches-zero-fee-trading-promotion-and-sponsors-blockchain-futurist-conference)
+ 
 
 
 

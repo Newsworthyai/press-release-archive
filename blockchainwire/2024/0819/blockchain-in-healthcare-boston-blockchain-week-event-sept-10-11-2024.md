@@ -56,7 +56,21 @@ Media outlets and reporters are welcome to attend at no cost and will be require
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockchain-in-healthcare-boston-blockchain-week--event-sept-10--11-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/conv2x-and-boston-blockchain-week-collaborate-for-8th-annual-blockchain-in-healthcare-2024-event/4ce1cb1897f78f18ab841bccdc7755f4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/19/blockchain-in-healthcare-conference-to-showcase-latest-innovations-at-conv2x-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/conv2x-and-boston-blockchain-week-2024-to-showcase-blockchain-innovations-in-healthcare/20245811)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/conv2x-and-boston-blockchain-week-to-host-major-healthcare-blockchain-event/20245811)
+
+Pickup - [advos.io](https://advos.io/en/conv2x-and-boston-blockchain-week-to-highlight-blockchain-innovations-in-healthcare/20245811)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/conv2x-and-boston-blockchain-week-collaborate-for-8th-annual-blockchain-in-healthcare-2024-event)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/conv2x-and-boston-blockchain-week-collaborate-for-8th-annual-blockchain-in-healthcare-2024-event)
+ 
 
 
 

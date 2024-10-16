@@ -51,7 +51,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/baked-beans-reloaded-raises-the-bar-with-its-launch-a-crypto-culinary-adventure-unfolds-on-binance-smart-chain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/baked-beans-reloaded-a-defi-culinary-adventure/b6d5806996211af9b89bbb8ce1a9264d) 
+
+ 
 
 
 

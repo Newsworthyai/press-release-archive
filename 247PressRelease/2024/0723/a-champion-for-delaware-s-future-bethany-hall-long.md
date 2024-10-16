@@ -7,7 +7,15 @@ WILMINGTON, DE, July 23, 2024 /24-7PressRelease/ -- Bethany Hall-Long: A Legacy 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512766/a-champion-for-delawares-future-bethany-hall-long)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bethany-hall-long-a-legacy-of-service-compassion-and-leadership/e127e36ab30019137e9689b54a48e06c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/bethany-hall-long-a-visionary-leader-poised-to-make-history-as-delaware-s-next-governor)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bethany-hall-long-pioneering-leadership-for-delawares-future/20245172)
+
+Pickup - [advos.io](https://advos.io/en/bethany-hall-long-a-visionary-leader-for-delaware-s-future/20245172)
+ 
 
 
 

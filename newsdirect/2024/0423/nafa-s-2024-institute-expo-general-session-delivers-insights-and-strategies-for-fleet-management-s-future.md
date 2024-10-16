@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/nafas-2024-in
 [Original/Source Press Release](https://newsdirect.com/news/nafas-2024-institute-and-expo-general-session-delivers-insights-and-strategies-for-fleet-managements-future-560758238)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nafa-s-2024-institute-expo-general-session-delivers-insights-and-strategies-for-fleet-management-s-future/050fef11a3b1f9cf4a40c235bbe1e422) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/nafa-s-2024-institute-expo-general-session-delivers-insights-and-strategies-for-fleet-management-s-future)
+ 
 
 
 

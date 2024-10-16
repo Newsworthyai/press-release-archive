@@ -56,7 +56,9 @@ Visit Our Website
 [Original/Source Press Release](https://newsroom.prkarma.com/counterflowmarketing/news_release/1530)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newly-established-optek-films-offers-premium-quality-automotive-films-at-competitive-prices/0dd75c7b63e4df869858d69a089dda97) 
+
+ 
 
 
 

@@ -7,7 +7,17 @@ WILMINGTON, NC, August 10, 2024 /24-7PressRelease/ -- Bestselling author Norman 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513249/domestic-terrorism-in-the-us-norman-brewers-captivating-political-thriller-january-6-a-novel-available-in-ebook-at-no-charge-aug-14-16-2024-at-amazon)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-offers-free-ebook-of-political-thriller-january-6-a-novel/a49a7f146034be6b3138677b249bbaaf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/10/norman-brewer-s-january-6-a-novel-offers-chilling-look-at-domestic-terrorism)
+
+Pickup - [fishervista.com](https://fishervista.com/en/norman-brewer-s-january-6-a-novel-offers-a-chilling-look-at-potential-domestic-terrorism/20245630)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/norman-brewer-s-january-6-a-novel-offers-free-ebook-exploring-domestic-terrorism-threat/20245630)
+
+Pickup - [advos.io](https://advos.io/en/norman-brewer-s-january-6-a-novel-available-for-free-on-amazon-sheds-light-on-domestic-terrorism/20245630)
+ 
 
 
 

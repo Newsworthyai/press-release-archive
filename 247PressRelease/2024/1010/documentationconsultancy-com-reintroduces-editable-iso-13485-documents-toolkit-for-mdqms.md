@@ -7,7 +7,9 @@ ROSWELL, NM, October 10, 2024 /24-7PressRelease/ -- The well-known document mana
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515099/documentationconsultancycom-reintroduces-editable-iso-13485-documents-toolkit-for-mdqms)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/documentationconsultancy-com-relaunches-iso-13485-documents-toolkit-for-medical-device-quality-management-systems/56954495654b2c8ffcd424f8512377f9) 
+
+ 
 
 
 

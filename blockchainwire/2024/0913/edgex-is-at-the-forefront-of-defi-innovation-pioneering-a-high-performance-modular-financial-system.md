@@ -39,7 +39,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/edgex-is-at-the-forefront-of-defi-innovation-pioneering-a-high-performance-modular-financial-system)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-etfs-approved-edgex-redefines-defi-with-high-performance-modular-financial-system/e216df415e6a59bf2ba73b9e7345101c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/edgex-introduces-innovative-modular-defi-platform-for-effortless-financial-product-creation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/edgex-unveils-innovative-modular-defi-platform-aims-to-revolutionize-decentralized-finance/20246822)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/edgex-launches-high-performance-modular-defi-system-aims-to-revolutionize-decentralized-finance/20246822)
+
+Pickup - [advos.io](https://advos.io/en/edgex-unveils-high-performance-modular-financial-system-for-defi-innovation/20246822)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-etfs-approved-edgex-redefines-defi-with-high-performance-modular-financial-system)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-etfs-approved-edgex-redefines-defi-with-high-performance-modular-financial-system)
+ 
 
 
 

@@ -32,7 +32,21 @@ About TraceX
 [Original/Source Press Release](https://blockchainwire.io/press-release/powerledgers-tracex-opens-up-market-access-for-renewable-energy-buyers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/powerledger-introduces-new-feature-for-direct-purchase-of-renewable-energy-certificates/d2a55ea46bd677c621d860010e486074) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/powerledger-s-tracex-revolutionizes-renewable-energy-certificate-market-with-direct-access-feature)
+
+Pickup - [fishervista.com](https://fishervista.com/en/powerledger-s-tracex-revolutionizes-renewable-energy-certificate-market/20245195)
+
+Pickup - [advos.io](https://advos.io/en/powerledger-s-tracex-enhances-market-access-for-renewable-energy-buyers/20245195)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/powerledger-introduces-new-feature-for-direct-purchase-of-renewable-energy-certificates)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/powerledger-introduces-new-feature-for-direct-purchase-of-renewable-energy-certificates)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/powerledger-launches-direct-rec-purchasing-feature-in-tracex-marketplace)
+ 
 
 
 

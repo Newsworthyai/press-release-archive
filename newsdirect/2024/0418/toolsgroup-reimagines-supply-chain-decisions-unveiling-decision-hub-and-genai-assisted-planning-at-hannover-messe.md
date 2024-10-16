@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/toolsgroup-re
 [Original/Source Press Release](https://newsdirect.com/news/toolsgroup-reimagines-supply-chain-decisions-unveiling-decision-hub-and-genai-assisted-planning-at-hannover-messe-423412270)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/toolsgroup-to-unveil-decision-hub-and-genai-at-hannover-messe/d072a815375d180ecef61ba64c9ca974) 
+
+ 
 
 
 

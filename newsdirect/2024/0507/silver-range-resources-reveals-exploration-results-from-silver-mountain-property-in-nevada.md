@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/silver-range-
 [Original/Source Press Release](https://newsdirect.com/news/silver-range-resources-reveals-exploration-results-from-silver-mountain-property-in-nevada-348542299)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/silver-range-resources-unveils-exploration-results-in-nevada/3f971f28b1d41586214d6a478377bcf0) 
+
+ 
 
 
 

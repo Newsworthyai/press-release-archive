@@ -7,7 +7,9 @@ SAN DIEGO, CA, May 22, 2024 /24-7PressRelease/ -- Well-known San Diego gold buye
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511021/san-diego-gold-buyer-reminds-public-of-high-gold-prices)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/san-diego-gold-buyer-encourages-residents-to-sell-old-jewelry-as-gold-prices-soar/f5c5bd00fcd0f6dc1968d7be9230516d) 
+
+ 
 
 
 

@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-has-successfully-facilitated-the-transaction-between-aandb-concrete-coring-company-inc-and-a-core-concrete-specialists-153571147)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-facilitates-sale-of-a-b-concrete-coring-company-to-a-core-concrete-specialists/a0e51be90086a1f73677e5af7540dbe0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/benchmark-international-facilitates-successful-acquisition-of-a-b-concrete-coring-company-by-a-core-concrete-specialists)
+ 
 
 
 

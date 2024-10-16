@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/postie-debuts
 [Original/Source Press Release](https://newsdirect.com/news/postie-debuts-new-crm-optimization-engine-to-maximize-the-lifetime-value-of-customer-relationships-417575727)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/postie-launches-crm-optimization-engine-to-maximize-customer-relationships/0e81a482f680af2f880c56ac12a77296) 
+
+ 
 
 
 

@@ -25,7 +25,11 @@ Disclaimer:This press release may contain forward-looking statements. Forward-lo
 [Original/Source Press Release](https://blockchainwire.io/press-release/-bong-the-rising-star-in-the-crypto-galaxy-echoes-of-the-bonk-legacy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bong-emerges-as-a-rising-star-in-the-crypto-universe/1043902ce8eabbf9c81193be860bc210) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/22/bong-echoing-the-bonk-legacy-in-the-crypto-galaxy)
+ 
 
 
 

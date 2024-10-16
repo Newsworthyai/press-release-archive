@@ -33,7 +33,9 @@ About BlabberixBlabberix is the first Web3 social network to seamlessly integrat
 [Original/Source Press Release](https://blockchainwire.io/press-release/blabberix-successfully-kicks-off-presale-ushering-in-a-new-era-for-web3-social-media-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blabberix-launches-token-presale-pioneering-web3-social-network/5b7d17032c07a063a6f3824a2d967dac) 
+
+ 
 
 
 

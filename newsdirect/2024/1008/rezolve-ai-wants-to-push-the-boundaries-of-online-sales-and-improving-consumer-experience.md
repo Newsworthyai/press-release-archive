@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/rezolve-ai-wa
 [Original/Source Press Release](https://newsdirect.com/news/rezolve-ai-wants-to-push-the-boundaries-of-online-sales-and-improving-consumer-experience-198299343)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rezolve-ai-ceo-dan-wagner-discusses-new-partnership-with-microsoft-on-benzingas-all-access/7fa00e16aea50d9f3865dab7489cd7fa) 
+
+ 
 
 
 

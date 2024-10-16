@@ -7,7 +7,11 @@ ARICHAT, NS, April 10, 2024 /24-7PressRelease/ -- Renowned storyteller Ginette T
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509936/captivating-author-ginette-therrien-strikes-the-readers-with-her-latest-literary-masterpiece-the-truth-is-in-the-words)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-storyteller-ginette-therrien-releases-the-truth-is-in-the-words/2e7eacec7750dbfdc1a90ceb17c5d865) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/renowned-storyteller-ginette-therrien-releases-the-truth-is-in-the-words-a-journey-of-self-discovery-and-connection)
+ 
 
 
 

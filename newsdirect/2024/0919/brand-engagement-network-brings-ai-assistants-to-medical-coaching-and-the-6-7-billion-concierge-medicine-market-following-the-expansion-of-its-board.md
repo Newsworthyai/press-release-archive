@@ -57,7 +57,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/brand-engagem
 [Original/Source Press Release](https://newsdirect.com/news/brand-engagement-network-brings-ai-assistants-to-medical-coaching-and-the-6-7-billion-concierge-medicine-market-following-the-expansion-of-its-board-480809323)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ben-s-ai-assistants-revolutionizing-healthcare-industry/8f732e2ad310f235f1db30cd066a563b) 
+
+ 
 
 
 

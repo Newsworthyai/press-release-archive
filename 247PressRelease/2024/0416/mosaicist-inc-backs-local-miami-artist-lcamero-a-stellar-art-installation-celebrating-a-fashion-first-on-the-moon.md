@@ -7,7 +7,11 @@ MIAMI, FL, April 16, 2024 /24-7PressRelease/ -- Mosaicist Inc., celebrated for i
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510082/mosaicist-inc-backs-local-miami-artist-lcamero-a-stellar-art-installation-celebrating-a-fashion-first-on-the-moon)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mosaicist-inc-sponsors-the-blue-dress-art-installation-at-space-blue-lunaprise-launch-gala/a8c001602c6aac18fd51920a583e4cfe) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/mosaicist-inc-sponsors-lunar-art-installation-by-miami-artist-lcamero)
+ 
 
 
 

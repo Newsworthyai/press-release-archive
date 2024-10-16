@@ -80,7 +80,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/faye-dunaway-
 [Original/Source Press Release](https://newsdirect.com/news/faye-dunaway-wraps-filming-on-jonathan-bakers-fate-the-movie-ahead-of-celebratory-moment-at-cannes-for-her-hbo-documentary-faye-432944974)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/faye-dunaway-wraps-filming-on-jonathan-baker-s-fate-the-movie-ahead-of-celebratory-moment-at-cannes-for-her-hbo-documentary-faye/8f0e0e590f9e7a53c14594f1594bdce6) 
+
+ 
 
 
 

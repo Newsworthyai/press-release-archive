@@ -133,7 +133,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/gold-vs-digit
 [Original/Source Press Release](https://newsdirect.com/news/gold-vs-digital-currencies-why-tangible-assets-still-matter-713325948)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-vs-digital-currencies-why-tangible-assets-still-matter/852fa968a23f454eb939bef8563aa41d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/gold-vs-digital-currencies-the-enduring-value-of-tangible-assets-in-modern-investing)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gold-vs-digital-currencies-the-case-for-tangible-assets-in-modern-investment-portfolios/20245491)
+
+Pickup - [advos.io](https://advos.io/en/gold-vs-digital-currencies-the-case-for-tangible-assets/20245491)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gold-vs-digital-currencies-why-tangible-assets-still-matter)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gold-vs-digital-currencies-why-tangible-assets-still-matter)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gold-remains-stable-investment-amid-cryptocurrency-volatility)
+ 
 
 
 

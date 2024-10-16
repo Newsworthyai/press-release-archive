@@ -54,7 +54,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-unmd-utility-nexusmind-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-unmd-on-socially-infused-trading-platform/504af5543f54f4a97778fb420372622a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/09/nexusmind-s-unmd-token-listed-on-xt-com-exchange)
+ 
 
 
 

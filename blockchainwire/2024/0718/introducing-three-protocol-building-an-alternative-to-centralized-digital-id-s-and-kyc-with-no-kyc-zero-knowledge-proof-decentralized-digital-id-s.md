@@ -59,7 +59,19 @@ Follow the project for the latest development updates at these links: Website | 
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-three-protocol-building-an-alternative-to-centralized-digital-ids-and-kyc-with-no-kyc-zero-knowledge-proof-decentralized-digital-ids)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/three-protocol-building-alternative-to-centralized-digital-ids-and-kyc/9883527ff9c99a45e98e6cdf140bf67b) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/three-protocol-building-alternative-to-centralized-digital-ids-and-kyc)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/three-protocol-building-alternative-to-centralized-digital-ids-and-kyc)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/three-protocol-unveils-innovative-no-kyc-zero-knowledge-proof-digital-id-system)
+
+Pickup - [fishervista.com](https://fishervista.com/en/three-protocol-introduces-decentralized-digital-ids-and-no-kyc-solutions/20245056)
+
+Pickup - [advos.io](https://advos.io/en/three-protocol-introduces-decentralized-digital-ids-and-no-kyc-zero-knowledge-proof-solutions/20245056)
+ 
 
 
 

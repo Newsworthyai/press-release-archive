@@ -7,7 +7,11 @@ DALLAS, TX, June 12, 2024 /24-7PressRelease/ -- Early in her career, Dr. Ibbotso
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511628/mid-cities-psychiatry-gleefully-introduces-the-addition-of-dr-ashley-ibbotson-phd-into-our-devoted-band-of-mental-health-professionals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-ashley-ibbotson-phd-joins-mid-cities-psychiatry-to-enhance-mental-health-services/b44fca648bd8cf69e6087641c810fb6c) 
+
+
+Pickup - [advos.io](https://advos.io/en/mid-cities-psychiatry-welcomes-dr-ashley-ibbotson-phd-to-enhance-mental-health-services/20244057)
+ 
 
 
 

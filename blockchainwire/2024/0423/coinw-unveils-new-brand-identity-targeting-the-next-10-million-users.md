@@ -17,7 +17,11 @@ The grand ceremony culminated in a mesmerizing performance by Lebanese pianist G
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-unveils-new-brand-identity-targeting-the-next-10-million-users)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-unveils-new-logo-at-ultra-luxury-dubai-resort-event/8e68b657c3edb80ab4c70cadd819d826) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/coinw-unveils-new-brand-identity-targeting-the-next-10-million-users)
+ 
 
 
 

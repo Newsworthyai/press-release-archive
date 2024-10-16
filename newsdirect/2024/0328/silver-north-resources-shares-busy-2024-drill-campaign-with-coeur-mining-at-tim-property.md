@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/silver-north-
 [Original/Source Press Release](https://newsdirect.com/news/silver-north-resources-shares-busy-2024-drill-campaign-with-coeur-mining-at-tim-property-917568300)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/silver-north-resources-announces-2024-drilling-program-at-tim-property-with-coeur-mining/c3e0ecc97151677ea45dc223292c87db) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/silver-north-resources-unveils-promising-2024-drill-campaign-with-coeur-mining)
+ 
 
 
 

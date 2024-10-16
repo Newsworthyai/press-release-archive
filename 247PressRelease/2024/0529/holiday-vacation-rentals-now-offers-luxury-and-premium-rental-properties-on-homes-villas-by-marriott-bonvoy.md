@@ -7,7 +7,9 @@ HARBOR SPRINGS, MI, May 29, 2024 /24-7PressRelease/ -- Homes & Villas by Marriot
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511234/holiday-vacation-rentals-now-offers-luxury-and-premium-rental-properties-on-homes-villas-by-marriott-bonvoy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marriott-bonvoy-partners-with-holiday-vacation-rentals-for-luxury-northern-michigan-homes/78f9698a55c5c954d5e30fa75c3485af) 
+
+ 
 
 
 

@@ -7,7 +7,13 @@ CINCINNATI, OH, June 26, 2024 /24-7PressRelease/ -- SMB.co, the innovative platf
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511993/smbco-launches-their-small-business-marketplace-to-make-small-business-deals-more-accessible)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/smb-co-launches-to-reshape-small-business-marketplace/67da6ca9adedfa62adc1b95d6d8f1e93) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/smb-co-unveils-platform-to-democratize-small-business-transactions/20244478)
+
+Pickup - [advos.io](https://advos.io/en/smb-co-launches-platform-to-revolutionize-small-business-transactions/20244478)
+ 
 
 
 

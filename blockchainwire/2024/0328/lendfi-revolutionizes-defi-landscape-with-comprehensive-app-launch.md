@@ -31,7 +31,11 @@ Whitepaper: LendFi
 [Original/Source Press Release](https://blockchainwire.io/press-release/lendfi-revolutionizes-defi-landscape-with-comprehensive-app-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lendfi-launches-innovative-defi-app-with-exciting-opportunities-for-investors/a50b49a104ca6d5d55cf1015ba0948c1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/lendfi-ushers-in-new-era-of-defi-with-innovative-app-launch)
+ 
 
 
 

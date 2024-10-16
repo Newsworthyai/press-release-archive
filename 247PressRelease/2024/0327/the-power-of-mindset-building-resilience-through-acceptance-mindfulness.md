@@ -7,7 +7,11 @@ CORVALLIS, OR, March 27, 2024 /24-7PressRelease/ -- In the realm of addiction re
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509554/the-power-of-mindset-building-resilience-through-acceptance-mindfulness)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exploring-the-transformative-power-of-resilience-in-addiction-recovery/1903dad1d6f32cc7c82546a72b726d21) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/resilience-the-cornerstone-of-lasting-recovery)
+ 
 
 
 

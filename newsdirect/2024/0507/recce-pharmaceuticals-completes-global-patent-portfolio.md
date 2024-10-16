@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/recce-pharmac
 [Original/Source Press Release](https://newsdirect.com/news/recce-pharmaceuticals-completes-global-patent-portfolio-288735514)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/recce-pharmaceuticals-secures-global-patent-portfolio/b78d599d2b6eaf8c5cbdc6cac1831a5f) 
+
+ 
 
 
 

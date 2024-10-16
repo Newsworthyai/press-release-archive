@@ -61,7 +61,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitcoin-miner
 [Original/Source Press Release](https://newsdirect.com/news/bitcoin-miner-bitdeer-nasdaq-btdr-grows-q2-revenue-amid-volatile-market-backdrop-126618518)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitdeer-technologies-group-reports-q2-2024-financial-results-shows-resilience-amid-challenging-market-conditions/c1eb5bb6a4303af5bbaebc6543580637) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/bitdeer-reports-q2-revenue-growth-despite-challenging-bitcoin-mining-landscape)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitdeer-reports-revenue-growth-despite-market-volatility/20246619)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bitdeer-reports-q2-revenue-growth-despite-challenging-bitcoin-mining-landscape/20246619)
+
+Pickup - [advos.io](https://advos.io/en/bitdeer-sees-revenue-growth-despite-volatile-bitcoin-market/20246619)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitdeer-technologies-group-reports-q2-2024-financial-results-shows-resilience-amid-challenging-market-conditions)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitdeer-technologies-group-reports-q2-2024-financial-results-shows-resilience-amid-challenging-market-conditions)
+ 
 
  
 

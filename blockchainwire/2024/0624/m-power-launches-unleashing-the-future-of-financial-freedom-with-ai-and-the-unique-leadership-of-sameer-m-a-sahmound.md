@@ -52,7 +52,17 @@ Press Contact:Catherina PawlickPublic Relations Officer, M-PowerEmail: catherina
 [Original/Source Press Release](https://blockchainwire.io/press-release/m-power-launches-unleashing-the-future-of-financial-freedom-with-ai-and-the-unique-leadership-of-sameer-ma-sahmound)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/m-power-ai-powered-financial-revolution-led-by-sameer-m-a-sahmound/db6e6394a3bc598665704a9d851390ef) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/m-power-introduces-ai-driven-financial-ecosystem-under-visionary-leadership/20244416)
+
+Pickup - [advos.io](https://advos.io/en/m-power-unveils-ai-powered-financial-ecosystem-under-visionary-leadership/20244416)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/m-power-ai-powered-financial-revolution-led-by-sameer-m-a-sahmound)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/m-power-ai-powered-financial-revolution-led-by-sameer-m-a-sahmound)
+ 
 
 
 

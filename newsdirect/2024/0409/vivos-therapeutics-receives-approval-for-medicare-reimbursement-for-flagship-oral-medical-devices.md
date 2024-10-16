@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/vivos-therape
 [Original/Source Press Release](https://newsdirect.com/news/vivos-therapeutics-receives-approval-for-medicare-reimbursement-for-flagship-oral-medical-devices-322474564)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vivos-therapeutics-ceo-announces-medicare-approval-for-unique-sleep-apnea-treatment-devices/f15198171adb75945753b96e03279dc5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/vivos-therapeutics-secures-medicare-reimbursement-for-innovative-sleep-apnea-treatment)
+ 
 
 
 

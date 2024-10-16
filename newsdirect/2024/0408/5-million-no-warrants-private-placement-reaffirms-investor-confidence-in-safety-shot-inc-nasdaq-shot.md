@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/5-million-no-
 [Original/Source Press Release](https://newsdirect.com/news/5-million-no-warrants-private-placement-reaffirms-investor-confidence-in-safety-shot-inc-nasdaq-shot-263214833)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/safety-shot-inc-nasdaq-shot-secures-5-million-private-placement-bolsters-investor-confidence/347065b7edb5d90dccbba91931f74135) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/safety-shot-secures-5-million-investment-fueling-growth-in-alcohol-detox-market)
+ 
 
 
 

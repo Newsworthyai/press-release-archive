@@ -39,7 +39,21 @@ Multicoin Capital is a thesis-driven investment firm that invests in cryptocurre
 [Original/Source Press Release](https://blockchainwire.io/press-release/-zkme-secures-4m-from-multicoin-capital-to-build-fatf--and-mica-compliant-identity-solution-for-web3-applications-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zkme-technology-secures-4m-seed-round-for-zero-knowledge-identity-verification-solutions/3001e96090d80e42db8dbd6bd4f35747) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/zkme-raises-4m-to-develop-regulatory-compliant-identity-solution-for-web3/20245844)
+
+Pickup - [advos.io](https://advos.io/en/zkme-secures-4m-to-develop-compliant-identity-solutions-for-web3-applications/20245844)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/zkme-technology-secures-4m-seed-round-for-zero-knowledge-identity-verification-solutions)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/zkme-technology-secures-4m-seed-round-for-zero-knowledge-identity-verification-solutions)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/zkme-raises-4m-to-develop-regulatory-compliant-identity-solution-for-web3)
+
+Pickup - [fishervista.com](https://fishervista.com/en/zkme-secures-4m-funding-to-develop-compliance-solutions-for-web3/20245844)
+ 
 
 
 

@@ -7,7 +7,9 @@ NEW YORK, NY, April 30, 2024 /24-7PressRelease/ -- Decorating by the Book: The J
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510238/suzy-chase-host-of-decorating-by-the-book-podcast-debuts-decorating-by-the-book-the-journal)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-decorating-by-the-book-the-journal/5eace564b68d76928e2c07c82e0e313e) 
+
+ 
 
 
 

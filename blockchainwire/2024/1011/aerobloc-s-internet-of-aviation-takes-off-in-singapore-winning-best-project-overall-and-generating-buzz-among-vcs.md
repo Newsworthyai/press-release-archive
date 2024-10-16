@@ -35,7 +35,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/aeroblocs-internet-of-aviation-takes-off-in-singapore-winning-best-project-overall-and-generating-buzz-among-vcs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aerobloc-wins-best-project-overall-at-global-blockchain-congress/3665a5d957f3e417370d158a8fb58059) 
+
+ 
 
 
 

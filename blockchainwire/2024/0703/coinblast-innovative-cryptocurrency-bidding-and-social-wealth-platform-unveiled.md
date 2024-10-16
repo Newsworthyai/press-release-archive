@@ -39,7 +39,19 @@ Social Channels:Facebook:https://www.facebook.com/profile.php?id=100091784521727
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinblast-innovative-cryptocurrency-bidding-and-social-wealth-platform-unveiled)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinblast-unveils-groundbreaking-cryptocurrency-bidding-and-social-wealth-platform/6823469b0d688ac62268c3f23248abe8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/coinblast-launches-innovative-cryptocurrency-bidding-and-social-wealth-platform/20244693)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/coinblast-launches-revolutionary-cryptocurrency-auction-and-social-wealth-platform)
+
+Pickup - [advos.io](https://advos.io/en/coinblast-unveils-worlds-first-cryptocurrency-bidding-and-social-wealth-platform/20244693)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinblast-unveils-groundbreaking-cryptocurrency-bidding-and-social-wealth-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinblast-unveils-groundbreaking-cryptocurrency-bidding-and-social-wealth-platform)
+ 
 
 
 

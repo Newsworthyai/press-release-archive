@@ -7,7 +7,11 @@ ASUNCION, PARAGUAY, April 09, 2024 /24-7PressRelease/ -- The company will produc
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509872/pfau-icp-becomes-a-dividend-stock)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-industrial-plant-to-boost-orange-production-in-paraguay/f0ab637295c1d7d48a8dd487debde8cc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/icp-becomes-dividend-paying-citrus-giant-in-paraguay)
+ 
 
 
 

@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-announces-major-expansion-of-educational-resources-for-crypto-traders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-expands-educational-resources-for-aspiring-crypto-traders/d18a18e72db7aa2198faf0d05468927e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/02/defiquant-expands-educational-resources-for-aspiring-crypto-traders)
+ 
 
 
 

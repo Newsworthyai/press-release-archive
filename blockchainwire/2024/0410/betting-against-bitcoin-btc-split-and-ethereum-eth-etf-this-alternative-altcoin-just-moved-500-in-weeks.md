@@ -39,7 +39,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/betting-against-bitcoin-btc-split-and-ethereum-eth-etf-this-alternative-altcoin-just-moved-500-in-weeks)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/option2trade-o2t-emerges-as-a-beacon-of-opportunity-amidst-crypto-market-uncertainties/7d7b76453f87db6a3a82f7bd35550618) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/option2trade-o2t-a-beacon-of-opportunity-in-the-cryptocurrency-market)
+ 
 
 
 

@@ -7,7 +7,11 @@ BREMERTON, WA, March 14, 2024 /24-7PressRelease/ -- In a world where travel is n
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509225/celebrating-25-years-of-excellence-dugans-travels-hosts-grand-european-amawaterways-fam-trip)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dugan-s-travels-celebrates-25th-anniversary-with-grand-european-familiarization-trip/d1f73153dbcde564f9a3705c8838338f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/dugan-s-travels-celebrates-25-years-with-grand-european-river-cruise)
+ 
 
 
 

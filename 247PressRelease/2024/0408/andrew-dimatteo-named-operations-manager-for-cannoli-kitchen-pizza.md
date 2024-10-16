@@ -7,7 +7,11 @@ WEST PALM BEACH, FL, April 08, 2024 /24-7PressRelease/ -- Cannoli Kitchen Pizzaâ
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509851/andrew-dimatteo-named-operations-manager-for-cannoli-kitchen-pizza)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cannoli-kitchen-pizza-appoints-andrew-dimatteo-as-operations-manager/2443c18a0f12fc947053fe6d84e06a0d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/andrew-dimatteo-appointed-operations-manager-for-cannoli-kitchen-pizza)
+ 
 
 
 

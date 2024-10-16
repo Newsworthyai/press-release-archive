@@ -25,7 +25,13 @@ To learn more about SHIB, please visit the official website: https://www.shib.io
 [Original/Source Press Release](https://blockchainwire.io/press-release/shibaswap-comes-home-decentralized-exchange-shibaswap-ports-to-shibarium-unleashing-the-power-of-community)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shib-announces-porting-of-shibaswap-to-shibarium-blockchain/3bc2e1ccfff2acffb136d88f2fe65e99) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/shib-announces-porting-of-shibaswap-to-shibarium-blockchain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/shib-announces-porting-of-shibaswap-to-shibarium-blockchain)
+ 
 
 
 

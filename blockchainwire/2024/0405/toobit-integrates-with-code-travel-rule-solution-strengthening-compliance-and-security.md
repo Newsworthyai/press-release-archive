@@ -19,7 +19,11 @@ Toobit is a premier cryptocurrency exchange platform, leading the industry with 
 [Original/Source Press Release](https://blockchainwire.io/press-release/toobit-integrates-with-code-travel-rule-solution-strengthening-compliance-and-security)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/toobit-announces-integration-with-code-travel-rule-solution/ac480cb0354311a28958c0d28b5f4a9f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/toobit-strengthens-compliance-and-security-with-code-travel-rule-integration)
+ 
 
 
 

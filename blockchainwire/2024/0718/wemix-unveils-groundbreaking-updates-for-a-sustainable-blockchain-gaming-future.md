@@ -64,7 +64,19 @@ For more information, please visit www.wemix.com.
 [Original/Source Press Release](https://blockchainwire.io/press-release/wemix-unveils-groundbreaking-updates-for-a-sustainable-blockchain-gaming-future)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemix-unveils-new-ecosystem-updates-and-initiatives-at-wemix-day/614060d604151736cbe4a6e43a3e8062) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/wemix-unveils-new-ecosystem-updates-and-initiatives-at-wemix-day)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/wemix-unveils-new-ecosystem-updates-and-initiatives-at-wemix-day)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/wemix-unveils-major-ecosystem-updates-to-revolutionize-blockchain-gaming)
+
+Pickup - [fishervista.com](https://fishervista.com/en/wemix-introduces-key-updates-for-sustainable-blockchain-gaming-future/20245054)
+
+Pickup - [advos.io](https://advos.io/en/wemix-unveils-major-updates-for-blockchain-gaming-ecosystem/20245054)
+ 
 
 
 

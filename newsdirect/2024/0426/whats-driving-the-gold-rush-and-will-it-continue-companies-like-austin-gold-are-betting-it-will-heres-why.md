@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/whats-driving
 [Original/Source Press Release](https://newsdirect.com/news/whats-driving-the-gold-rush-and-will-it-continue-companies-like-austin-gold-are-betting-it-will-heres-why-641797447)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-prices-set-to-surge-historical-trends-and-current-economic-climate-point-to-potential-bull-market/2bb43e36dd952c80caf8170c0a2fd7aa) 
+
+ 
 
 
 

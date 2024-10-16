@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/leeuwin-metal
 [Original/Source Press Release](https://newsdirect.com/news/leeuwin-metals-advances-cross-lake-lithium-project-with-upcoming-maiden-drilling-383451209)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leeuwin-metals-advances-cross-lake-lithium-project-with-upcoming-maiden-drilling/f62036e27f90b2ae7fda94e064bdf7a8) 
+
+ 
 
 
 

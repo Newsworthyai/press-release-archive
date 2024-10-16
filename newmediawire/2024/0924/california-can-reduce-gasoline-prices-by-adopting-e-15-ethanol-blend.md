@@ -55,7 +55,9 @@ investors@aemetis.com
 [Original/Source Press Release](http://www.newmediawire.com/news/california-can-reduce-gasoline-prices-by-adopting-e-15-ethanol-blend-7076081)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aemetis-urges-california-to-adopt-e-15-ethanol-blend-for-lower-gas-prices-and-reduced-emissions/0ae99ff860372027a7ccebf64e598a3a) 
+
+ 
 
 
 

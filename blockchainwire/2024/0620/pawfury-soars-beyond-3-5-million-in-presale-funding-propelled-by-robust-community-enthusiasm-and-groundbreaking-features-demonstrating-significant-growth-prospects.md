@@ -43,7 +43,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/pawfury-soars-beyond-35-million-in-presale-funding-propelled-by-robust-community-enthusiasm-and-groundbreaking-features-demonstrating-significant-growth-prospects)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pawfury-raises-over-3-5-million-in-presale-campaign/3054d17799ce2f9c900db0c3e5d5825d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/pawfury-crosses-3-5-million-in-presale-signals-strong-market-potential/20244343)
+
+Pickup - [advos.io](https://advos.io/en/pawfury-achieves-over-3-5-million-in-presale-funding-amidst-robust-investor-enthusiasm/20244343)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/pawfury-raises-over-3-5-million-in-presale-campaign)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/pawfury-raises-over-3-5-million-in-presale-campaign)
+ 
 
 
 

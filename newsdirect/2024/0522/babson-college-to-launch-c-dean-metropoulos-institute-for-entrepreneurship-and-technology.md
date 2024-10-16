@@ -29,7 +29,9 @@ Kate Chaney   Manager, External Communications   [kchaney@babson.edu](mailto:k
 [Original/Source Press Release](https://newsdirect.com/news/babson-college-to-launch-c-dean-metropoulos-institute-for-entrepreneurship-and-technology-910767192)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/babson-college-launches-c-dean-metropoulos-institute-for-entrepreneurship-and-technology/28e5adf0de23d9758ba01b141fd44e9f) 
+
+ 
 
 
 

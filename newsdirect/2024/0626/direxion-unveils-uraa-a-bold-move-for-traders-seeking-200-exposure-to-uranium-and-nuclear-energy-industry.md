@@ -39,7 +39,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/direxion-unve
 [Original/Source Press Release](https://newsdirect.com/news/direxion-unveils-uraa-a-bold-move-for-traders-seeking-200-exposure-to-uranium-and-nuclear-energy-industry-349953410)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/direxion-launches-uraa-a-unique-opportunity-for-traders/b881e811d922940ae9ba02dc69d057b7) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/direxion-launches-uraa-etf-offering-200-exposure-to-uranium-and-nuclear-energy-sector/20244500)
+
+Pickup - [advos.io](https://advos.io/en/direxion-launches-uraa-etf-for-high-exposure-uranium-and-nuclear-energy-investments/20244500)
+ 
 
 
 

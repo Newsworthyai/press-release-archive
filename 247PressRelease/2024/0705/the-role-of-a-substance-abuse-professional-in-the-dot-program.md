@@ -7,7 +7,15 @@ ATLANTA, GA, July 05, 2024 /24-7PressRelease/ --   Introduction to the DOT SAP P
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512258/the-role-of-a-substance-abuse-professional-in-the-dot-program)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dot-sap-program-ensuring-safety-in-transportation-industry/960c589cbb2f11d2d4e9befed6626c0d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/substance-abuse-professionals-key-to-safety-in-the-transportation-industry/20244724)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/substance-abuse-professionals-vital-guardians-of-transportation-safety)
+
+Pickup - [advos.io](https://advos.io/en/the-essential-role-of-substance-abuse-professionals-in-the-dot-program/20244724)
+ 
 
 
 

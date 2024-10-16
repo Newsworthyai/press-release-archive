@@ -27,7 +27,9 @@ Clene (NASDAQ: CLNN), a late clinical-stage biopharmaceutical company focused on
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/clene-nasdaq-clnn-ceo-spotlighted-in-recent-biomedwire-podcast-episode/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clene-inc-featured-in-biomedwire-podcast-for-novel-approach-to-neurodegenerative-disease-treatment/ece752241cc38dac22bb43f793a954a3) 
+
+ 
 
 
 

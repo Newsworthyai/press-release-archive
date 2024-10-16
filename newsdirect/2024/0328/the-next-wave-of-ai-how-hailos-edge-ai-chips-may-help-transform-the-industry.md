@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-next-wave
 [Original/Source Press Release](https://newsdirect.com/news/the-next-wave-of-ai-how-hailos-edge-ai-chips-may-help-transform-the-industry-671090598)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hailo-s-edge-ai-chips-transforming-the-industry-with-decentralized-ai-trend/92863bd5623521b0a9dcde9492a98372) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/hailo-s-edge-ai-chips-bringing-ai-to-everyday-devices)
+ 
 
 
 

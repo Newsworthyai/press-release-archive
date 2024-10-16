@@ -7,7 +7,11 @@ NEW YORK, NY, March 18, 2024 /24-7PressRelease/ -- HBO Max is on a growth trajec
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509334/hbo-max-continues-upward-trajectory-under-leadership-of-ceo-casey-bloys)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hbo-max-thrives-under-ceo-casey-bloys-leadership/431b70da62c6f03293b5400d2d3ddef4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/hbo-max-soars-under-visionary-leadership-of-ceo-casey-bloys)
+ 
 
 
 

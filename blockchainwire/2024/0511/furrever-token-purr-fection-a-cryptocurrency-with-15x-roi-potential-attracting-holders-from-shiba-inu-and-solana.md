@@ -41,7 +41,9 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/furrever-token-purr-fection--a-cryptocurrency-with-15x-roi-potential-attracting-holders-from-shiba-inu-and-solana-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-market-update-shiba-inu-solana-and-furrever-token/220bbc1f9c95fe3d4f078ef0e4aaba1c) 
+
+ 
 
 
 

@@ -107,7 +107,17 @@ Research Highlights:
 [Original/Source Press Release](https://www.newmediawire.com/news/high-blood-pressure-a-concern-for-adolescents-and-young-adults-in-u-s-7076006)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/high-blood-pressure-and-unmet-social-needs-among-young-adults-and-children-in-the-u-s/441643463090c296381f4080169402b9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/high-blood-pressure-prevalent-among-u-s-youth-and-young-adults-studies-show)
+
+Pickup - [fishervista.com](https://fishervista.com/en/high-blood-pressure-prevalent-among-u-s-adolescents-and-young-adults-studies-reveal/20246553)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/high-blood-pressure-prevalent-among-u-s-youth-and-young-adults-studies-show/20246553)
+
+Pickup - [advos.io](https://advos.io/en/studies-highlight-high-blood-pressure-concerns-among-u-s-youth-and-young-adults/20246553)
+ 
 
 
 

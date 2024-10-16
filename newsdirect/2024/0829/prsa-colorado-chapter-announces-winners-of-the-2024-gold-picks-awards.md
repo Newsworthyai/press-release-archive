@@ -96,7 +96,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/prsa-colorado
 [Original/Source Press Release](https://newsdirect.com/news/prsa-colorado-chapter-announces-winners-of-the-2024-gold-picks-awards-320332352)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prsa-colorado-chapter-hosts-2024-gold-picks-awards-ceremony/970c6b5387745e10e2a503b6adc1f22c) 
+
+ 
 
 
 

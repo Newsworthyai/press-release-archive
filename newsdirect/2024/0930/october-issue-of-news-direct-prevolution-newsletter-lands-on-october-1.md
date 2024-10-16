@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/october-issue
 [Original/Source Press Release](https://newsdirect.com/news/october-issue-of-news-direct-prevolution-newsletter-lands-on-october-1-354681909)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/news-direct-s-prevolution-october-2024-issue-ai-misfires-political-pr-top-performers-and-more/828b1e8b673b4262404ca9e11fd49b50) 
+
+ 
 
 
 

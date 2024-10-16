@@ -27,7 +27,13 @@ Visit: https://www.cyberscope.io/ | Contact: contact@cyberscope.io
 [Original/Source Press Release](https://blockchainwire.io/press-release/cyberscoope--ledger-works-partner-to-deliver-full-life-cycle-risk-management-for-web3)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cyberscope-ledger-works-partner-for-full-life-cycle-risk-management-for-web3/a4bbd58a0994a137a6e8a4d04143ad5b) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cyberscope-ledger-works-partner-for-full-life-cycle-risk-management-for-web3)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cyberscope-ledger-works-partner-for-full-life-cycle-risk-management-for-web3)
+ 
 
 
 

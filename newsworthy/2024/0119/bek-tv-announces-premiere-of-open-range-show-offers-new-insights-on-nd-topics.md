@@ -35,7 +35,11 @@ Bismarck, ND (Newsworthy.ai) Friday Jan 19, 2024 @ 7:00 AM Central — In its co
 [Original/Source Press Release](https://newsworthy.ai/news/20240119998/bek-tv-announces-premiere-of-open-range-show-offers-new-insights-on-nd-topics)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bek-tv-announces-premiere-of-open-range-show-offers-new-insights-on-nd-topics/81143d21a389ee247de9298220a838d7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/19/bek-tv-unveils-open-range-a-new-show-exploring-north-dakota-s-diverse-landscape)
+ 
 
 
 

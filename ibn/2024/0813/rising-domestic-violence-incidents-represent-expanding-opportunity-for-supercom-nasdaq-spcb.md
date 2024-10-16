@@ -32,7 +32,11 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/rising-domestic-violence-incidents-represents-expanding-opportunity-for-supercom-nasdaq-spcb/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-tennessee-law-requires-electronic-gps-monitoring-of-domestic-violence-offenders/71f65bcae1d30b0df42e609c37ff3829) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/supercom-poised-to-capitalize-on-growing-demand-for-electronic-monitoring-in-domestic-violence-cases/20246122)
+ 
 
 
 

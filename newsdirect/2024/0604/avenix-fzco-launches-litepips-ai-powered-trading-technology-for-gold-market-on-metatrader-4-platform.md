@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/avenix-fzco-l
 [Original/Source Press Release](https://newsdirect.com/news/avenix-fzco-launches-litepips-ai-powered-trading-technology-for-gold-market-on-metatrader-4-platform-350513840)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avenix-fzco-launches-litepips-ai-powered-trading-technology-for-gold-market/06ebeffd4a84d2173635e79aa11caec3) 
+
+ 
 
 
 

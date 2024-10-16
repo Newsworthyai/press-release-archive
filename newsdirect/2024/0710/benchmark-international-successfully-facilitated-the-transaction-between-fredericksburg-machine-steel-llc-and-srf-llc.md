@@ -35,7 +35,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-fredericksburg-machine-and-steel-llc-and-srf-llc-294511405)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-facilitates-transaction-between-viking-steel-fabricators-and-chesapeake-bay-steel/44aa851ba56597c66c19aba60bc8a48f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-acquisition-of-viking-steel-fabricators-by-chesapeake-bay-steel/20244820)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/viking-steel-fabricators-acquired-by-chesapeake-bay-steel-in-strategic-expansion)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-acquisition-of-viking-steel-fabricators-by-chesapeake-bay-steel/20244820)
+ 
 
 
 

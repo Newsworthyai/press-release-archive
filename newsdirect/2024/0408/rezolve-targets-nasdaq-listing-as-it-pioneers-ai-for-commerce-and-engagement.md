@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/rezolve-targe
 [Original/Source Press Release](https://newsdirect.com/news/rezolve-targets-nasdaq-listing-as-it-pioneers-ai-for-commerce-and-engagement-795866126)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rezolve-targets-nasdaq-listing-as-it-pioneers-ai-for-commerce-and-engagement/490a03357d600d1814e33aa04e9e0d75) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/rezolve-pioneers-ai-for-commerce-and-engagement-targets-nasdaq-listing)
+ 
 
 
 

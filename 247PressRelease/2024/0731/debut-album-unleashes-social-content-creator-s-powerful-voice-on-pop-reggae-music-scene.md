@@ -7,7 +7,17 @@ TURKS AND CAICOS, July 31, 2024 /24-7PressRelease/ -- Pop/reggae singer Alyxandr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512946/debut-album-unleashes-social-content-creators-powerful-voice-on-popreggae-music-scene)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pop-reggae-singer-alyxandra-releases-debut-album-turkoise/890d01e71245e30dc7977a662124b410) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/pop-reggae-artist-alyxandra-releases-debut-album-turkoise)
+
+Pickup - [fishervista.com](https://fishervista.com/en/alyxandra-debuts-with-pop-reggae-album-turkoise-showcasing-unique-talent/20245376)
+
+Pickup - [advos.io](https://advos.io/en/alyxandra-releases-debut-album-turkoise-merging-pop-and-reggae/20245376)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/pop-reggae-artist-alyxandra-releases-debut-album-turkoise)
+ 
 
 
 

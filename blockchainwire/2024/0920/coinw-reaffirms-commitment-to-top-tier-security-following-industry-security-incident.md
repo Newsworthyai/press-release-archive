@@ -7,7 +7,9 @@ In light of recent security challenges faced by some industry players, CoinW wan
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-reaffirms-commitment-to-top-tier-security-following-industry-security-incident)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-reassures-users-with-advanced-security-measures/75a798ba91674f6086ce7282308c44f2) 
+
+ 
 
 
 

@@ -49,7 +49,13 @@ PR Contact:Media Teaminfo@igaminglauncher.comhttps://www.igaminglauncher.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/breaking-barriers-in-igaming-with-web-30---discover-igaming-launcher)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionizing-the-igaming-industry-with-igaming-launcher/76046dffc5db07040f5a4e869a34f291) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/revolutionizing-the-igaming-industry-with-igaming-launcher)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/revolutionizing-the-igaming-industry-with-igaming-launcher)
+ 
 
 
 

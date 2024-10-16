@@ -7,7 +7,9 @@ CHICAGO, IL, May 16, 2024 /24-7PressRelease/ -- Gridiron Greats Assistance Fund,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510927/the-13th-annual-mike-ditkas-gridiron-greats-hall-of-fame-induction-gala)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gridiron-greats-to-host-13th-annual-mike-ditka-s-hall-of-fame-gala-in-chicago/04f2c462fdc578b79e13e296af1fd8ec) 
+
+ 
 
 
 

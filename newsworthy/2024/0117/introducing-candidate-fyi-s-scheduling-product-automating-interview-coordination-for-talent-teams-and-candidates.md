@@ -21,7 +21,13 @@ For more information about candidate.fyi's scheduling product, visit their websi
 [Original/Source Press Release](https://newsworthy.ai/news/20240117989/introducing-candidate-fyi-s-scheduling-product-streamlining-interview-coordination-for-talent-teams-and-candidates)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-scheduling-product-launched-by-candidate-fyi/a8668ec58467702f785438c6a0407cdf) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/candidate-fyi-launches-automated-interview-scheduling-solution-for-hr-professionals/2024264)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/17/candidate-fyi-launches-innovative-scheduling-product-for-streamlined-interview-coordination)
+ 
 
 
 

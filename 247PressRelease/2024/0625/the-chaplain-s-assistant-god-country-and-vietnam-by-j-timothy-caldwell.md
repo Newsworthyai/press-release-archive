@@ -7,7 +7,13 @@ MOUNT PLEASANT, MI, June 25, 2024 /24-7PressRelease/ -- The novel, "The Chaplain
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511991/the-chaplains-assistant-god-country-and-vietnam-by-j-timothy-caldwell)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-novel-the-chaplain-s-assistant-god-country-and-vietnam-explores-human-resilience-during-the-vietnam-war/36990096241eb5fa26ea32df8337e51b) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-novel-the-chaplain-s-assistant-explores-human-resilience-during-vietnam-war/20244449)
+
+Pickup - [advos.io](https://advos.io/en/the-chaplain-s-assistant-god-country-and-vietnam-explores-human-resilience-amid-war/20244449)
+ 
 
 
 

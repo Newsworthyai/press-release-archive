@@ -7,7 +7,17 @@ RALEIGH, NC, August 29, 2024 /24-7PressRelease/ -- Partnering with Truist and Re
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513870/empowering-education-cahec-foundation-hosts-back-to-school-event-in-wilmington)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/truist-and-remnant-management-host-successful-back-to-school-event-in-wilmington-nc/38cb4c82bdd14660430459fe7727f2d3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/cahec-foundation-hosts-successful-back-to-school-event-for-affordable-housing-residents-in-wilmington)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cahec-foundation-hosts-successful-back-to-school-event-in-wilmington/20246358)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/cahec-foundation-hosts-back-to-school-event-for-affordable-housing-residents-in-wilmington/20246358)
+
+Pickup - [advos.io](https://advos.io/en/cahec-foundation-partners-with-truist-and-remnant-management-for-successful-back-to-school-event/20246358)
+ 
 
 
 

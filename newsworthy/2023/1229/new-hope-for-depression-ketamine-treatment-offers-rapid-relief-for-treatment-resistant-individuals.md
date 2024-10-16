@@ -15,7 +15,9 @@ This groundbreaking treatment offers renewed possibilities for individuals who h
 [Original/Source Press Release](https://newsworthy.ai/news/20231229952/new-hope-for-depression-ketamine-treatment-offers-rapid-relief-for-treatment-resistant-individuals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-ketamine-treatment-offers-hope-for-depression/225b7e26a8589a4febe0cec16aa44c32) 
+
+ 
 
 
 

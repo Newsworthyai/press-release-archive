@@ -49,7 +49,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/okaycoin-launches-free-user-friendly-crypto-staking-platform-for-enhanced-passive-income)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/okaycoin-launches-free-staking-platform-for-cryptocurrency-enthusiasts/fe9e558ae01af8a08a2839e9e8366090) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/okaycoin-introduces-free-crypto-staking-platform-for-enhanced-passive-income/20244592)
+
+Pickup - [advos.io](https://advos.io/en/okaycoin-launches-free-user-friendly-crypto-staking-platform-for-enhanced-passive-income/20244592)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/okaycoin-launches-free-staking-platform-for-cryptocurrency-enthusiasts)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/okaycoin-launches-free-staking-platform-for-cryptocurrency-enthusiasts)
+ 
 
 
 

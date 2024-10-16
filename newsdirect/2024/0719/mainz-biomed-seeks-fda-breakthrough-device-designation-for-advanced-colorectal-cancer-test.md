@@ -21,7 +21,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/mainz-biomed-
 [Original/Source Press Release](https://newsdirect.com/news/mainz-biomed-seeks-fda-breakthrough-device-designation-for-advanced-colorectal-cancer-test-902418724)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mainz-biomed-seeks-fda-breakthrough-device-designation-for-advanced-colorectal-cancer-test/4efaee4dace6ca6ec611065b69006d29) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/19/mainz-biomed-applies-for-fda-breakthrough-device-designation-for-novel-colorectal-cancer-screening-test)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mainz-biomed-seeks-fda-breakthrough-device-designation-for-colorectal-cancer-test/20245118)
+
+Pickup - [advos.io](https://advos.io/en/mainz-biomed-seeks-fda-breakthrough-device-designation-for-advanced-colorectal-cancer-test/20245118)
+ 
 
 
 

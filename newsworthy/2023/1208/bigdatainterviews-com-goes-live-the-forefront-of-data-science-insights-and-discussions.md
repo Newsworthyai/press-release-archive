@@ -23,7 +23,11 @@ Unearth the world of data science like never before at www.BigDataInterviews.com
 [Original/Source Press Release](https://newsworthy.ai/news/20231208781/bigdatainterviews-com-goes-live-the-forefront-of-data-science-insights-and-discussions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bigdatainterviews-com-revolutionizing-access-to-expert-perspectives-in-big-data/1997f14599d4580c0b2cc9b850cbb51e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/08/bigdatainterviews-com-launches-as-premier-hub-for-data-science-insights)
+ 
 
 
 

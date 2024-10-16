@@ -25,7 +25,9 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-forecasts-75m-in-gaap-revenue-over-next-6-months/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-nasdaq-muln-expects-75-million-in-revenue-from-commercial-sales/c189669825e1556c849b63c9c99a2fa8) 
+
+ 
 
 
 

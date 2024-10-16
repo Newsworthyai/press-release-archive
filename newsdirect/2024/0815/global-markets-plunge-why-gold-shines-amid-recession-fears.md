@@ -45,7 +45,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/global-market
 [Original/Source Press Release](https://newsdirect.com/news/global-markets-plunge-why-gold-shines-amid-recession-fears-183163244)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-markets-plunge-why-gold-shines-amid-recession-fears/4977660f209a4f33dbe4c18f19bac865) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/gold-remains-stable-as-global-markets-experience-major-sell-off)
+
+Pickup - [fishervista.com](https://fishervista.com/en/global-market-plunge-highlights-gold-s-stability-amid-economic-uncertainty/20245756)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gold-remains-stable-amid-global-market-turmoil-and-recession-fears/20245756)
+
+Pickup - [advos.io](https://advos.io/en/global-markets-tumble-as-gold-proves-resilient-amid-recession-fears/20245756)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/global-markets-plunge-why-gold-shines-amid-recession-fears)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/global-markets-plunge-why-gold-shines-amid-recession-fears)
+ 
 
 
 

@@ -81,7 +81,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-future-of-cryptocurrency-mining-bitcoin--blockdag-network-bet-on-smart-mining-as-the-answer-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-rise-of-smart-mining-and-blockdag-network-s-revolutionary-role/2c63c161bcd4a624c83c5be54af8fc9b) 
+
+
+Pickup - [advos.io](https://advos.io/en/smart-mining-revolutionizes-cryptocurrency-blockdag-leads-the-charge/20243986)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/the-rise-of-smart-mining-and-blockdag-network-s-revolutionary-role)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/the-rise-of-smart-mining-and-blockdag-network-s-revolutionary-role)
+ 
 
 
 

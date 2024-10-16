@@ -7,7 +7,11 @@ SAN DIEGO, CA, April 03, 2024 /24-7PressRelease/ -- Cozaint®, an innovator in v
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509768/cozaint-announces-marcia-a-revolutionary-video-surveillance-storage-solution-that-lowers-costs-and-simplifies-video-playback)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cozaint-unveils-marcia-revolutionary-video-surveillance-storage-solution/4c1ded7e9b30f3e42192c70e92bb7fe4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/cozaint-unveils-marcia-a-cost-effective-video-surveillance-storage-solution)
+ 
 
 
 

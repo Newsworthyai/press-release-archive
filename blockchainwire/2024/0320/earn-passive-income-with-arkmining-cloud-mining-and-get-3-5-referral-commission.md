@@ -101,7 +101,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/earn-passive-income-with-arkmining-cloud-mining-and-get-35-referral-commission)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-rise-of-cloud-mining-how-to-earn-passive-income-with-arkmining/7ffca05278984ab76bf6adabbaefea8b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/earn-passive-crypto-income-with-arkmining-cloud-mining)
+ 
 
 
 

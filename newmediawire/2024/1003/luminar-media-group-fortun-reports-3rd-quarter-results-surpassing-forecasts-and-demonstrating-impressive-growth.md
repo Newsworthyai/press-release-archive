@@ -77,7 +77,9 @@ MIAMI - (NewMediaWire) - October 03, 2024 - Luminar Media Group, Inc. (OTCMARKE
 [Original/Source Press Release](https://www.newmediawire.com/news/luminar-media-group-fortun-reports-3rd-quarter-results-surpassing-forecasts-and-demonstrating-impressive-growth-7076155)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/luminar-media-group-releases-strong-q3-2024-financial-results/9ef729c37584a23238863b7107742760) 
+
+ 
 
 
 

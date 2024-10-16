@@ -69,7 +69,9 @@ Further, any forward-looking statement speaks only as of the date on which such 
 [Original/Source Press Release](https://www.newmediawire.com/news/zenatech-s-zenadrone-announces-the-launch-of-the-iq-nano-drone-for-indoor-use-in-warehouse-distribution-and-plant-facilities-7076178)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zenatech-launches-iq-nano-drone-for-warehouse-and-logistics-customers/6e560ab0ec42d69a639be2576145f966) 
+
+ 
 
 
 

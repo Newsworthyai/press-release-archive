@@ -36,7 +36,11 @@ SatoshiDEX is leading a new era of decentralized finance, where innovation meets
 [Original/Source Press Release](https://blockchainwire.io/press-release/satoshidex-the-worlds-first-dex-on-bitcoin-has-raised-over-1-million-in-pre-sale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/satoshidex-raises-over-1000000-in-pre-sale-for-defi-on-bitcoin/b86dff8a529779b01082e5fa0d0e1bf3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/satoshidex-raises-over-1-million-in-pre-sale-for-pioneering-bitcoin-dex)
+ 
 
 
 

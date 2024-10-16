@@ -35,7 +35,9 @@ HR.com Newsroom
 [Original/Source Press Release](https://newsworthy.ai/news/202410081307/organizations-struggle-to-enhance-their-talent-acquisition-function-despite-strategic-importance-new-study-by-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-study-reveals-struggle-to-enhance-talent-acquisition-strategies/ad4dbe4f60049d2b24f937201552a10e) 
+
+ 
 
 
 

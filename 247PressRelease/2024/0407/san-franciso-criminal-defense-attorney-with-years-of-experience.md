@@ -7,7 +7,11 @@ SAN FRANCISCO, CA, April 07, 2024 /24-7PressRelease/ -- The Law Office of Valery
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509868/san-franciso-criminal-defense-attorney-with-years-of-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/valery-nechay-providing-innovative-criminal-defense-in-san-francisco/8c19dff1bcc6faaffeab2751065f1c41) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/07/experienced-san-francisco-criminal-defense-attorney-fights-for-justice)
+ 
 
 
 

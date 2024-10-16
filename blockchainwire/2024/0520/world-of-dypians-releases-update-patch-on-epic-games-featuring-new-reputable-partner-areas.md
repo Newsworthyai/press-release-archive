@@ -41,7 +41,13 @@ You can learn more about World of Dypians and stay up-to-date with its developme
 [Original/Source Press Release](https://blockchainwire.io/press-release/world-of-dypians-releases-update-patch-on-epic-games-featuring-new-reputable-partner-areas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/world-of-dypians-releases-major-update-with-blockchain-collaborations-and-new-features/fe62efc494fc168c04101ac9c373286c) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/world-of-dypians-releases-major-update-with-blockchain-collaborations-and-new-features)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/world-of-dypians-releases-major-update-with-blockchain-collaborations-and-new-features)
+ 
 
 
 

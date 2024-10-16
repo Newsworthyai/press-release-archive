@@ -59,7 +59,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-dao-x-tro
 [Original/Source Press Release](https://newsdirect.com/news/htx-dao-x-tron-token2049-afterparty-leading-the-next-decade-of-web3-ecosystem-313199441)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-dao-x-tron-afterparty-leading-the-next-decade-of-web3-ecosystem/5bc2c27b6a31262075895531a3ea6d6f) 
+
+ 
 
 
 

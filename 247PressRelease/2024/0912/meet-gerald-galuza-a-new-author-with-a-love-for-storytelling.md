@@ -7,7 +7,17 @@ WOOLWICH, ME, September 12, 2024 /24-7PressRelease/ -- Gerald Francis Ames Galuz
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514221/meet-gerald-galuza-a-new-author-with-a-love-for-storytelling)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gerry-galuza-releases-debut-book-melvina-s-adventures-inspired-by-family-heritage/f5b503d5dad3ae7697b3365eeebabe07) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/maine-author-gerald-galuza-debuts-with-melvina-s-adventures-a-family-legacy-tale)
+
+Pickup - [fishervista.com](https://fishervista.com/en/maine-author-gerald-galuza-debuts-with-family-inspired-novel-melvina-s-adventures/20246760)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/maine-author-gerald-galuza-debuts-with-family-inspired-novel-melvina-s-adventures/20246760)
+
+Pickup - [advos.io](https://advos.io/en/maine-craftsman-gerald-galuza-debuts-as-author-with-family-inspired-novel/20246760)
+ 
 
 
 

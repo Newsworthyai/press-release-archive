@@ -15,7 +15,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/intrepid-meta
 [Original/Source Press Release](https://newsdirect.com/news/intrepid-metals-corp-unveils-promising-results-from-corral-copper-property-drill-program-263059343)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/intrepid-metals-corp-unveils-promising-results-from-corral-copper-property-drill-program/b73bd0085ec77e55da651e66eff51c38) 
+
+ 
 
 
 

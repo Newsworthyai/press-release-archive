@@ -43,7 +43,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/dino-decking-
 [Original/Source Press Release](https://newsdirect.com/news/dino-decking-ltd-sets-new-standards-in-composite-decking-financial-growth-and-sustainability-milestones-139904261)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dino-decking-ltd-achieves-financial-growth-and-sustainability-milestones/96fe455e4451a3374410abab9aed4cda) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dino-decking-ltd-achieves-financial-and-environmental-milestones/20244512)
+
+Pickup - [advos.io](https://advos.io/en/dino-decking-ltd-announces-financial-growth-and-sustainability-milestones/20244512)
+ 
 
 
 

@@ -48,7 +48,9 @@ Visit Our Website
 [Original/Source Press Release](https://newsroom.prkarma.com/rapidfire/news_release/1452)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rapidfire-safety-security-acquires-albuquerque-low-voltage-to-expand-presence-in-new-mexico/871484ba41211a61e2a0cabe633904bc) 
+
+ 
 
 
 

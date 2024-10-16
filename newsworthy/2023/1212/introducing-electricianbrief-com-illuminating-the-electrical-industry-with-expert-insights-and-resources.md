@@ -23,7 +23,11 @@ Plug into the world of electrical expertise with www.ElectricianBrief.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231212814/introducing-electricianbrief-com-illuminating-the-electrical-industry-with-expert-insights-and-resources)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/empower-your-electrical-expertise-with-electricianbrief-com/272abd8832bf387bc4c95fec6c356da5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/12/electricianbrief-com-sheds-light-on-electrical-expertise)
+ 
 
 
 

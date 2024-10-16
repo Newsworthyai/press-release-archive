@@ -55,7 +55,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/kevel-and-pla
 [Original/Source Press Release](https://newsdirect.com/news/kevel-and-placements-io-announce-strategic-partnership-to-address-unique-challenges-in-retail-media-584367142)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kevel-and-placements-io-announce-strategic-partnership-to-empower-retailers-and-ecommerce-brands/25cb07c3021e0ad0ca0a7b1a5a950b15) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/kevel-and-placements-io-join-forces-to-revolutionize-retail-media-management)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kevel-and-placements-io-partner-to-revolutionize-retail-media-networks/20246740)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/kevel-and-placements-io-join-forces-to-revolutionize-retail-media-management/20246740)
+
+Pickup - [advos.io](https://advos.io/en/kevel-and-placements-io-form-strategic-partnership-to-enhance-retail-media-networks/20246740)
+ 
 
 
 

@@ -26,7 +26,17 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/overtakes-somnis-rumble-rush-surpasses-30000-registrations-just-three-weeks-after-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/somnis-rumble-rush-exceeds-expectations-reaching-30000-registrations-and-10000-daily-active-users-in-three-weeks/3faabc6ed74b0ab10a3b92d5539046aa) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/somnis-rumble-rush-surpasses-30000-registrations-in-three-weeks-demonstrating-blockchain-gaming-s-potential/20246697)
+
+Pickup - [advos.io](https://advos.io/en/somnis-rumble-rush-gains-major-traction-in-blockchain-gaming/20246697)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/blockchain-game-somnis-rumble-rush-achieves-milestone-with-30000-registrations-in-three-weeks/20246697)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/somnis-rumble-rush-achieves-milestone-with-30000-registrations-in-three-weeks)
+ 
 
 
 

@@ -17,7 +17,9 @@ View original content to download multimedia: https://newsdirect.com/news/tracto
 [Original/Source Press Release](https://newsdirect.com/news/tractor-supply-presents-on-share-series-200566041)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tractor-supply-company-presents-on-share-series-with-dan-aldridge/5d840f25be6d3a26a416c2dc62d77522) 
+
+ 
 
 
 

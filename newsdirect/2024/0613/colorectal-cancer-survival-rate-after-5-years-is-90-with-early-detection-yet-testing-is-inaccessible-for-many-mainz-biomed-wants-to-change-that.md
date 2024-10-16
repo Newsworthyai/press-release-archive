@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/colorectal-ca
 [Original/Source Press Release](https://newsdirect.com/news/colorectal-cancer-survival-rate-after-5-years-is-90-with-early-detection-yet-testing-is-inaccessible-for-many-mainz-biomed-wants-to-change-that-567899645)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mainz-biomed-s-coloalert-revolutionizes-colorectal-cancer-testing/a505b3d3e094ef8a2243c001528531bd) 
+
+
+Pickup - [advos.io](https://advos.io/en/early-detection-of-colorectal-cancer-could-revolutionize-survival-rates-says-mainz-biomed/20244119)
+ 
 
 
 

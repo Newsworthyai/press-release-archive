@@ -7,7 +7,15 @@ VICTORIA, SEYCHELLES, June 10, 2024 /24-7PressRelease/ -- Margex, a cryptocurren
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511595/margex-announces-5-million-bome-airdrop-for-high-trading-volume-ends-june-17)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/margex-announces-5-million-bome-bome-airdrop-for-high-volume-users/6469fbc8a89542464416943b8f75fa8f) 
+
+
+Pickup - [advos.io](https://advos.io/en/margex-announces-5-million-bome-airdrop-for-high-volume-traders/20244003)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/margex-announces-5-million-bome-bome-airdrop-for-high-volume-users)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/margex-announces-5-million-bome-bome-airdrop-for-high-volume-users)
+ 
 
 
 

@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-iveda-sol
 [Original/Source Press Release](https://newsdirect.com/news/how-iveda-solutions-nasdaq-ivda-is-redefining-industry-norms-with-advanced-ai-applications-786291374)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iveda-solutions-nasdaq-ivda-leading-the-ai-revolution-with-innovative-applications/d9322d20279956e12f5c67d8ecfada8c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/iveda-solutions-nasdaq-ivda-pioneers-ai-innovations-across-multiple-industries)
+
+Pickup - [fishervista.com](https://fishervista.com/en/iveda-solutions-nasdaq-ivda-innovates-with-advanced-ai-applications-across-industries/20246571)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/iveda-solutions-pioneers-ai-applications-across-industries/20246571)
+
+Pickup - [advos.io](https://advos.io/en/iveda-solutions-advances-ai-technology-to-transform-multiple-industries/20246571)
+ 
 
 
 

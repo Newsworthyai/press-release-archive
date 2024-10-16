@@ -23,7 +23,17 @@ For more information about Monarch Capital Institute and its programs, please vi
 [Original/Source Press Release](https://blockchainwire.io/press-release/monarch-capital-institute-j-robert-harriss-path-to-financial-excellence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/monarch-capital-institute-advancing-financial-education-and-developing-future-leaders/df2af531f3234a754d4fe5c6129a73cb) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/monarch-capital-institute-expands-influence-with-innovative-financial-education-programs/20245533)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/monarch-capital-institute-advances-financial-education-surpasses-50000-students)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/monarch-capital-institute-marks-milestone-in-financial-education)
+
+Pickup - [advos.io](https://advos.io/en/monarch-capital-institute-advances-financial-education-with-innovative-programs/20245533)
+ 
 
 
 

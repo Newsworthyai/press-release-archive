@@ -27,7 +27,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-solvbtc-pioneering-a-unified-and-transparent-bitcoin-reserve)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solvbtc-universal-token-for-bitcoin-reserve-ensures-trust-and-liquidity-in-defi/d889942e59a1a76828be523ce13dc7ea) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/solvbtc-universal-token-for-bitcoin-reserve-ensures-trust-and-liquidity-in-defi)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/solvbtc-universal-token-for-bitcoin-reserve-ensures-trust-and-liquidity-in-defi)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/solvbtc-launches-to-address-bitcoin-reserve-concerns-in-cryptocurrency-market/20245818)
+
+Pickup - [advos.io](https://advos.io/en/solv-protocol-launches-solvbtc-to-establish-a-unified-and-transparent-bitcoin-reserve/20245818)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/19/solvbtc-launches-as-universal-bitcoin-reserve-token-amid-market-concerns)
+
+Pickup - [fishervista.com](https://fishervista.com/en/solvbtc-launches-a-new-era-for-bitcoin-reserves/20245818)
+ 
 
 
 

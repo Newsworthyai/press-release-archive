@@ -39,7 +39,21 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/puffer-finance-unveils-strategic-roadmap-innovations-in-avs-based-rollup-restaking-and-upcoming-tge)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/puffer-finance-announces-key-updates-to-roadmap-reinforcing-commitment-to-ethereum-s-ecosystem/8259007289925eb1187840d7f6c18370) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/puffer-finance-unveils-strategic-roadmap-to-enhance-ethereum-ecosystem/20246749)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/puffer-finance-unveils-ambitious-roadmap-to-revolutionize-ethereum-ecosystem/20246749)
+
+Pickup - [advos.io](https://advos.io/en/puffer-finance-unveils-ambitious-roadmap-for-ethereum-ecosystem-enhancement/20246749)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/puffer-finance-unveils-ambitious-roadmap-for-ethereum-ecosystem-enhancement)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/puffer-finance-announces-key-updates-to-roadmap-reinforcing-commitment-to-ethereum-s-ecosystem)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/puffer-finance-announces-key-updates-to-roadmap-reinforcing-commitment-to-ethereum-s-ecosystem)
+ 
 
 
 

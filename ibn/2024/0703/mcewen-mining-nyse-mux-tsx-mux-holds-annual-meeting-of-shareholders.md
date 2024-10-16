@@ -23,7 +23,9 @@ McEwen Mining (NYSE: MUX) (TSX: MUX), a gold and silver producer with operations
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-holds-annual-meeting-of-shareholders/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-mining-announces-results-from-annual-shareholders-meeting/6a282331f6d5021b9473b5e84506336f) 
+
+ 
 
 
 

@@ -63,7 +63,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/gladiator-met
 [Original/Source Press Release](https://newsdirect.com/news/gladiator-metals-identifies-potential-new-high-grade-copper-targets-in-whitehorse-copper-belt-survey-280463659)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gladiator-metals-expands-exploration-efforts-at-whitehorse-copper-belt/a71e0aa44780d86948666b6b0d36fb75) 
+
+
+Pickup - [advos.io](https://advos.io/en/gladiator-metals-expands-copper-exploration-efforts-in-whitehorse-copper-belt/20243635)
+ 
 
 
 

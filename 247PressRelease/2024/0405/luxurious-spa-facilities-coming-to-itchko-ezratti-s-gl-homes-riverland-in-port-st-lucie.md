@@ -7,7 +7,11 @@ PORT ST. LUCIE, FL, April 05, 2024 /24-7PressRelease/ -- Itchko Ezratti's GL Hom
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509830/luxurious-spa-facilities-coming-to-itchko-ezrattis-gl-homes-riverland-in-port-st-lucie)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gl-homes-adds-luxurious-spa-and-nail-salon-to-riverland-community-in-port-st-lucie/9953e0aae542e7876e0bc0abde189ca7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/luxurious-spa-and-nail-salon-coming-to-riverland-s-amenity-rich-community)
+ 
 
 
 

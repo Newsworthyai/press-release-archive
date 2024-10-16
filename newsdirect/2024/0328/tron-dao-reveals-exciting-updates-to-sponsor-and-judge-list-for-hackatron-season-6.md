@@ -95,7 +95,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-reve
 [Original/Source Press Release](https://newsdirect.com/news/tron-dao-reveals-exciting-updates-to-sponsor-and-judge-list-for-hackatron-season-6-602407909)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hackatron-season-6-introduces-new-sponsors-and-judges-for-blockchain-event/6709b90f33c925191ee3f886c8f29b0b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/hackatron-season-6-unveils-stellar-lineup-of-sponsors-and-judges)
+ 
 
 
 

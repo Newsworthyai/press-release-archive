@@ -7,7 +7,17 @@ LOS ANGELES, CA, August 06, 2024 /24-7PressRelease/ -- Franklin Publishers is th
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513125/transforming-groundskeeping-embracing-green-solutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-release-environmental-solutions-for-grounds-management-by-kevin-scott-mercer/6d3645ba0c028173d525da0e52b1e394) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/new-book-revolutionizes-sustainable-grounds-management-practices)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-book-by-kevin-scott-mercer-advocates-sustainable-grounds-management/20245512)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-book-revolutionizes-sustainable-grounds-management-practices)
+
+Pickup - [advos.io](https://advos.io/en/franklin-publishers-announces-release-of-environmental-solutions-for-grounds-management/20245512)
+ 
 
 
 

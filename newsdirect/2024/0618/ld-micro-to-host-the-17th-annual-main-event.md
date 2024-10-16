@@ -41,7 +41,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/ld-micro-to-h
 [Original/Source Press Release](https://newsdirect.com/news/ld-micro-to-host-the-17th-annual-main-event-313926236)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/registration-open-for-17th-ld-micro-main-event-in-los-angeles/39383508484ff3ebb120cdb17df8680f) 
+
+
+Pickup - [advos.io](https://advos.io/en/ld-micro-announces-17th-annual-main-event-investor-conference/20244250)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ld-micro-announces-17th-annual-main-event-conference/20244250)
+ 
 
 
 

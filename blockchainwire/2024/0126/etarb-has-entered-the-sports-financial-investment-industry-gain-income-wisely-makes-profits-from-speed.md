@@ -29,7 +29,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/-etarb-has-entered-the-sports-financial-investment-industry--gain-income-wisely--makes-profits-from-speed)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/british-entain-investment-s-etarb-opens-sports-financial-investment-services/781e0ca21a80f64cdb5dc733f4977c1e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/26/etarb-brings-ai-powered-sports-financial-investment-to-investors-worldwide)
+ 
 
 
 

@@ -23,7 +23,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-
 [Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-certified-as-amazons-3d-model-external-content-provider-poised-for-major-growth-853291783)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nextech3d-ai-certified-as-amazon-s-3d-model-external-content-provider-poised-for-major-growth/4c21c21666af88c90a4736975f98674b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/nextech3d-ai-achieves-amazon-certification-set-to-revolutionize-e-commerce-with-3d-models)
+
+Pickup - [fishervista.com](https://fishervista.com/en/nextech3d-ai-achieves-amazon-certification-set-for-significant-growth/20245027)
+
+Pickup - [advos.io](https://advos.io/en/nextech3d-ai-certified-as-amazon-s-3d-model-external-content-provider-signaling-significant-growth/20245027)
+ 
 
 
 

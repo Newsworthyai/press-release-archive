@@ -7,7 +7,17 @@ ATLANTA, GA, September 10, 2024 /24-7PressRelease/ -- Dr. Sam Adeyemi, the inter
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514167/internationally-acclaimed-leadership-gurus-new-book-now-available-for-preorder)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-leadership-guru-dr-sam-adeyemi-announces-new-book-shifts-6-steps-to-transform-your-mindset-now-available-for-preorder/158bde255f988046eddb1f5b8cebf272) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/leadership-expert-dr-sam-adeyemi-s-new-book-shifts-available-for-preorder)
+
+Pickup - [fishervista.com](https://fishervista.com/en/international-leadership-expert-dr-sam-adeyemi-announces-new-book-shifts-now-available-for-preorder/20246639)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/leadership-expert-dr-sam-adeyemi-s-new-book-shifts-available-for-preorder/20246639)
+
+Pickup - [advos.io](https://advos.io/en/leadership-guru-dr-sam-adeyemi-announces-new-book-shifts-now-available-for-preorder/20246639)
+ 
 
 
 

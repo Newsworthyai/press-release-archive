@@ -43,7 +43,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/mainz-biomeds
 [Original/Source Press Release](https://newsdirect.com/news/mainz-biomeds-coloalert-potentially-puts-it-on-a-similar-track-as-big-name-cancer-screening-stocks-913462543)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionizing-colorectal-cancer-screening-market/c1e4d316252c92019281bdd36fb02da4) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/mainz-biomeds-coloalert-could-revolutionize-colorectal-cancer-screening-market/20244372)
+
+Pickup - [advos.io](https://advos.io/en/mainz-biomed-s-coloalert-a-rising-star-in-colorectal-cancer-screening/20244372)
+ 
 
 
 

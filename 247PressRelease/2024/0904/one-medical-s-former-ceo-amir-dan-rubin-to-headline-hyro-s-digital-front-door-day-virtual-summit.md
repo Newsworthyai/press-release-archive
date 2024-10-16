@@ -7,7 +7,17 @@ NEW YORK, NY, September 04, 2024 /24-7PressRelease/ -- Hyro announces the return
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513992/one-medicals-former-ceo-amir-dan-rubin-to-headline-hyros-digital-front-door-day-virtual-summit)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/digital-front-door-day-2024-revolutionizing-healthcare-access-and-delivery/281eb59ff282bde35ae94b42c836408d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/amir-dan-rubin-to-headline-hyro-s-digital-front-door-day-virtual-summit)
+
+Pickup - [fishervista.com](https://fishervista.com/en/amir-dan-rubin-to-headline-hyro-s-digital-front-door-day-virtual-summit/20246498)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/hyro-s-digital-front-door-day-summit-to-feature-one-medical-s-former-ceo-amir-dan-rubin/20246498)
+
+Pickup - [advos.io](https://advos.io/en/amir-dan-rubin-to-headline-hyro-s-digital-front-door-day-summit/20246498)
+ 
 
 
 

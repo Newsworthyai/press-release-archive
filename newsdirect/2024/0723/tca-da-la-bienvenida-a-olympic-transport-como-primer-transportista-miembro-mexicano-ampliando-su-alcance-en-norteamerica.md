@@ -29,7 +29,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/tca-da-la-bie
 [Original/Source Press Release](https://newsdirect.com/news/tca-da-la-bienvenida-a-olympic-transport-como-primer-transportista-miembro-mexicano-ampliando-su-alcance-en-norteamerica-910271467)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tca-welcomes-olympic-transport-as-first-mexican-carrier-member/81434f7ec87462c66125f7340ee908f4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/truckload-carriers-association-welcomes-first-mexican-member-expanding-north-american-reach)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tca-welcomes-olympic-transport-as-first-mexican-carrier-member-expanding-north-american-reach/20245200)
+
+Pickup - [advos.io](https://advos.io/en/tca-welcomes-olympic-transport-as-first-mexican-carrier-member-expanding-north-american-reach/20245200)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/truckload-carriers-association-welcomes-first-mexican-member-expanding-north-american-reach)
+ 
 
 
 

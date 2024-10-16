@@ -43,7 +43,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/club-underdog
 [Original/Source Press Release](https://newsdirect.com/news/club-underdog-powered-by-n6-acquires-interest-in-fast-growing-soccer-apparel-and-sportswear-company-diaza-601997460)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/north-sixth-group-s-club-underdog-acquires-interest-in-diaza/b1c6b88e9ae5eb9e64bc7fb0e6af7923) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/club-underdog-acquires-stake-in-soccer-apparel-company-diaza/20244511)
+
+Pickup - [advos.io](https://advos.io/en/club-underdog-acquires-stake-in-rapidly-growing-soccer-apparel-company-diaza/20244511)
+ 
 
 
 

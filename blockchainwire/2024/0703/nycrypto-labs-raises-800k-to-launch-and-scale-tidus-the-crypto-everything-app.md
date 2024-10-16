@@ -35,7 +35,19 @@ Disclaimer: This press release is for informational purposes only and does not c
 [Original/Source Press Release](https://blockchainwire.io/press-release/nycrypto-labs-raises-800k-to-launch-and-scale-tidus-the-crypto-everything-app)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nycrypto-labs-raises-800k-for-tidus-wallet-launch/66bf67178cdd7acaaa0ca5d9ad91ee84) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/nycrypto-labs-secures-800k-to-launch-tidus-wallet-a-revolutionary-multi-chain-crypto-app/20244687)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/nycrypto-labs-secures-800k-in-funding-launches-innovative-multi-chain-crypto-wallet)
+
+Pickup - [advos.io](https://advos.io/en/nycrypto-labs-secures-800k-in-pre-seed-funding-to-launch-tidus-wallet/20244687)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/nycrypto-labs-raises-800k-for-tidus-wallet-launch)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/nycrypto-labs-raises-800k-for-tidus-wallet-launch)
+ 
 
 
 

@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ilika-ceo-hig
 [Original/Source Press Release](https://newsdirect.com/news/ilika-ceo-highlights-strong-2024-financial-performance-and-key-developments-303289305)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ilika-plc-ceo-highlights-strong-2024-financial-performance-and-key-developments/6b4d99f0dedf47190fce253b78b2856b) 
+
+ 
 
 
 

@@ -7,7 +7,9 @@ COSTA MESA, CA, October 04, 2024 /24-7PressRelease/ -- OC Pride is proud to anno
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514969/oc-pride-2024-to-celebrate-colors-of-strength-with-blaze-it-forward-parade-and-star-studded-festival-lineup)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/oc-pride-announces-colors-of-strength-lgbtq-pride-celebration/025bd4bc23c7c21a91cbf236c3871aa3) 
+
+ 
 
 
 

@@ -21,7 +21,11 @@ Conclusion: A Bright Future for Digital EngagementThe future of AI in digital en
 [Original/Source Press Release](https://blockchainwire.io/press-release/revolutionizing-digital-interactions-the-dawn-of-siteagent)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/siteagent-revolutionizing-digital-engagement-with-conversational-ai/c9774341090d4657f863718bed6238d3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/05/siteagent-revolutionizing-digital-interactions-with-ai-powered-websites)
+ 
 
 
 

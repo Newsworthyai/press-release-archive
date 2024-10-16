@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/silver-range-
 [Original/Source Press Release](https://newsdirect.com/news/silver-range-resources-announces-plans-to-raise-capital-as-company-readies-2024-exploration-plans-307435167)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/silver-range-resources-ceo-announces-plans-to-raise-capital-for-2024-exploration/0b67b1bb64e3c93bcd0cd9762262625e) 
+
+ 
 
 
 

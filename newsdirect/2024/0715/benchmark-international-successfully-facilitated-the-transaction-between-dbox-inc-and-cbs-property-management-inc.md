@@ -39,7 +39,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-dbox-inc-and-cbs-property-management-inc-621643809)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-facilitates-sale-of-dbox-inc-to-cbs-property-management-inc/d549ae357483e19c532274bdd0be95da) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/dbox-inc-acquired-by-cbs-property-management-inc-in-strategic-expansion-move)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-acquisition-of-dbox-inc-by-cbs-property-management-inc/20244955)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-acquisition-of-dbox-inc-by-cbs-property-management-inc/20244955)
+ 
 
 
 

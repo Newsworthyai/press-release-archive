@@ -9,7 +9,11 @@ Today marks the launch of PORA AI ($PORA), a groundbreaking memecoin with utilit
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-pora-ai-pora-the-first-meme-democratizing-ai-video)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pora-ai-launches-as-groundbreaking-memecoin-with-sora-ai-capabilities/98cd2bfaa6ca94dfdfe093252025435f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/pora-ai-launches-groundbreaking-meme-driven-ai-video-platform)
+ 
 
 
 

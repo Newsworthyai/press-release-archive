@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/whats-next-fo
 [Original/Source Press Release](https://newsdirect.com/news/whats-next-for-bitcoin-etc-group-ceo-breaks-down-etfs-and-market-trends-187005465)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/etc-group-ceo-breaks-down-bitcoin-etfs-and-market-trends/41aeb1b0c0d871c4ed13076538b04527) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/etc-group-ceo-analyzes-bitcoin-volatility-and-regulatory-landscape)
+ 
 
 
 

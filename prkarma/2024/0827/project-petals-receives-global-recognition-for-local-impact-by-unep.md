@@ -46,7 +46,13 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/ycommunicate/news_release/1544)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/project-petals-receives-accreditation-from-unep-for-environmental-advocacy/176747d2030650f0be2ea346cb7557f8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/project-petals-achieves-un-environmental-accreditation-advancing-climate-justice-for-bipoc-communities)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/project-petals-gains-unep-accreditation-advancing-environmental-justice-for-bipoc-communities/20246423)
+ 
 
 
 

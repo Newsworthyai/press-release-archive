@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cadiz-inc-nas
 [Original/Source Press Release](https://newsdirect.com/news/cadiz-inc-nasdaq-cdzi-innovating-water-solutions-addressing-a-new-reality-436650848)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cadiz-inc-nasdaq-cdzi-innovating-water-solutions-addressing-a-new-reality/bab422e5a9e6a1d3fbbb124983d30e68) 
+
+ 
 
 
 

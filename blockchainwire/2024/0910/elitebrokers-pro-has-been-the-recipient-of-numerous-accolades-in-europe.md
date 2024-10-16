@@ -33,7 +33,17 @@ Sign up today at EliteBrokers.pro and start trading with confidence!
 [Original/Source Press Release](https://blockchainwire.io/press-release/elitebrokerspro-has-been-the-recipient-of-numerous-accolades-in-europe)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elitebrokers-pro-wins-top-awards-in-europe/76f191f12157dd51d4887cdc3b602a85) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/elitebrokers-pro-garners-multiple-prestigious-awards-in-europe/20246690)
+
+Pickup - [advos.io](https://advos.io/en/elitebrokers-pro-secures-multiple-prestigious-awards-in-europe/20246690)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/elitebrokers-pro-recognized-as-leading-trading-platform-in-europe/20246690)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/elitebrokers-pro-recognized-as-top-trading-platform-in-europe)
+ 
 
 
 

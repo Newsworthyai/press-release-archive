@@ -43,7 +43,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/mosquito-cont
 [Original/Source Press Release](https://newsdirect.com/news/mosquito-control-urgent-as-virginia-faces-worst-season-diamond-exterminators-provides-relief-397753130)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mosquito-control-urgent-as-virginia-faces-worst-season-diamond-exterminators-provides-relief/818c2d2203c24427ae09b36c8b6de9db) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/virginia-braces-for-severe-mosquito-season-expert-solutions-offered)
+
+Pickup - [fishervista.com](https://fishervista.com/en/virginia-faces-severe-mosquito-season-diamond-exterminators-offers-crucial-relief/20244929)
+
+Pickup - [advos.io](https://advos.io/en/virginia-faces-severe-mosquito-season-diamond-exterminators-offers-crucial-relief/20244929)
+ 
 
 
 

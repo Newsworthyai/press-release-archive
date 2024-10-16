@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-online-ca
 [Original/Source Press Release](https://newsdirect.com/news/new-online-casino-site-instant-casino-partners-with-italian-serie-a-team-juventus-572339002)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/juventus-partners-with-instant-casino-for-exclusive-fan-rewards/f4925e1a807c8ddd465558994a7c1a05) 
+
+ 
 
 
 

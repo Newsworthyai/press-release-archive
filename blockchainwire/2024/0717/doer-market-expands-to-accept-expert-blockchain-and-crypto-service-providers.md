@@ -37,7 +37,19 @@ Contact Information: Name: Hiten Mehra Company: Doer MarketEmail: h@doer.marketW
 [Original/Source Press Release](https://blockchainwire.io/press-release/doer-market-expands-to-accept-expert-blockchain-and-crypto-service-providers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/doer-market-opens-applications-for-blockchain-and-crypto-service-providers/7025a9769564d50b0c320c196acbf71b) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/doer-market-opens-applications-for-blockchain-and-crypto-service-providers)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/doer-market-opens-applications-for-blockchain-and-crypto-service-providers)
+
+Pickup - [advos.io](https://advos.io/en/doer-market-opens-applications-for-blockchain-and-crypto-service-providers/20245060)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/doer-market-expands-platform-to-include-expert-blockchain-and-crypto-service-providers)
+
+Pickup - [fishervista.com](https://fishervista.com/en/doer-market-expands-to-welcome-blockchain-and-crypto-service-providers/20245060)
+ 
 
 
 

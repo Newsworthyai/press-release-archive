@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/thor-energy-s
 [Original/Source Press Release](https://newsdirect.com/news/thor-energy-says-strong-support-for-a-1-3mln-placement-shows-confidence-in-projects-759156150)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/thor-energy-plc-secures-a-1-3-million-for-uranium-and-copper-projects-in-the-us-and-australia/67af5014c86d97ddeb7119496916a1ca) 
+
+ 
 
 
 

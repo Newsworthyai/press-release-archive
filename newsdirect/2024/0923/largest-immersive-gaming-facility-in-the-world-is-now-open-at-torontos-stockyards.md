@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/largest-immer
 [Original/Source Press Release](https://newsdirect.com/news/largest-immersive-gaming-facility-in-the-world-is-now-open-at-torontos-stockyards-191691248)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/activate-opens-largest-immersive-gaming-facility-in-toronto-s-stockyards/cbbc48ceaec8f99e523a57233a5d2f2e) 
+
+ 
 
 
 

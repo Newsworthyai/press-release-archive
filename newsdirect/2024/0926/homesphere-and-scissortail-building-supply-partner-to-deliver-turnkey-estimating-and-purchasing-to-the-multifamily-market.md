@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/homesphere-an
 [Original/Source Press Release](https://newsdirect.com/news/homesphere-and-scissortail-building-supply-partner-to-deliver-turnkey-estimating-and-purchasing-to-the-multifamily-market-545046272)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/homesphere-partners-with-scissortail-building-supply-to-provide-turnkey-estimating-and-purchasing-to-the-multifamily-market/72a68a4d2ea679f21b40f096733b2ed5) 
+
+ 
 
 
 

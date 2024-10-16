@@ -47,7 +47,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/davis-davis-a
 [Original/Source Press Release](https://newsdirect.com/news/davis-davis-and-harmon-partners-with-alteryx-to-transform-sales-tax-consulting-practice-956810180)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/davis-davis-harmon-partners-with-alteryx-to-transform-sales-tax-consulting-practice/24f07e96dea541101bf57f4564520e20) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/davis-davis-harmon-adopts-alteryx-platform-to-revolutionize-sales-tax-consulting)
+
+Pickup - [fishervista.com](https://fishervista.com/en/davis-davis-harmon-revolutionizes-sales-tax-consulting-with-alteryx-partnership/20245322)
+
+Pickup - [advos.io](https://advos.io/en/davis-davis-harmon-enhances-sales-tax-consulting-with-alteryx-partnership/20245322)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/davis-davis-harmon-adopts-alteryx-platform-to-revolutionize-sales-tax-consulting)
+ 
 
 
 

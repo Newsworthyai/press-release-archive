@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/potential-sup
 [Original/Source Press Release](https://newsdirect.com/news/potential-supply-demand-imbalance-the-growing-role-of-uranium-and-copper-amid-the-global-energy-transition-502825960)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uranium-and-copper-key-players-in-the-global-energy-transition/439726dc3e04e950cf625d432dabdd44) 
+
+ 
 
 
 

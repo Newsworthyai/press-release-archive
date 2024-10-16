@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/5thscape-list
 [Original/Source Press Release](https://newsdirect.com/news/5thscape-lists-mma-cage-conquest-on-meta-store-step-into-the-ultimate-virtual-mma-arena-983073280)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/5th-scape-unveils-mma-cage-conquest-a-new-era-of-virtual-mma-fighting/57bbff716636458dcac9d8f8b01743ed) 
+
+ 
 
 
 

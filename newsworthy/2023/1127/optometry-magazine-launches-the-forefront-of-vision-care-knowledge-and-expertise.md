@@ -23,7 +23,11 @@ Discover more and stay updated by visiting www.OptometryMagazine.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231127857/optometry-magazine-launches-the-forefront-of-vision-care-knowledge-and-expertise)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-optometry-magazine-your-go-to-source-for-eye-care-insights/cabf16729f840038c7bfa3f6292adb8e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/27/optometry-magazine-brings-vision-care-expertise-to-the-forefront)
+ 
 
 
 

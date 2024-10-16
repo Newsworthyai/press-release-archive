@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/sugardaddymee
 [Original/Source Press Release](https://newsdirect.com/news/sugardaddymeet-unveils-highest-affiliate-commission-program-in-the-sugar-dating-industry-808502978)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sugardaddymeet-launches-highest-affiliate-commission-program/6f3a30a8951c39dc9408fa171e820403) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/sugardaddymeet-offers-lucrative-affiliate-program-for-sugar-dating-industry)
+ 
 
 
 

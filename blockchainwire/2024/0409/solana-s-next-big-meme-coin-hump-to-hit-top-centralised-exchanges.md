@@ -35,7 +35,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/solanas-next-big-meme-coin-hump-to-hit-top-centralised-exchanges)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solana-s-hump-the-next-frontier-in-meme-coins/9d08af74292c3516a1e4c81bd14a971d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/solana-s-meme-coin-hump-gains-traction-poised-for-centralized-exchange-listings)
+ 
 
 
 

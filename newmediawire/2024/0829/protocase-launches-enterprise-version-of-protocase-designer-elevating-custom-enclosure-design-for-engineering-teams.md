@@ -43,7 +43,13 @@ SYDNEY, Nova Scotia - (NewMediaWire) - August 29, 2024 -  Protocase, the leade
 [Original/Source Press Release](https://www.newmediawire.com/news/protocase-launches-enterprise-version-of-protocase-designer-elevating-custom-enclosure-design-for-engineering-teams-7075979)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/protocase-launches-enhanced-protocase-designer-enterprise-for-multidisciplinary-engineering-teams/a0130c950c025b334d7fb253cc1c4a0e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/protocase-unveils-enterprise-version-of-custom-enclosure-design-software)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/protocase-unveils-enterprise-version-of-custom-enclosure-design-software/20246446)
+ 
 
 
 

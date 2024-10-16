@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-announces-enhanced-investment-plans-with-its-ai-trading-bots)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-announces-a-major-milestone-with-ai-trading-bots/85364f7fceb6520491ce9e13beed73cb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/19/defiquant-unveils-ai-powered-trading-bots-for-optimized-cryptocurrency-profits)
+ 
 
 
 

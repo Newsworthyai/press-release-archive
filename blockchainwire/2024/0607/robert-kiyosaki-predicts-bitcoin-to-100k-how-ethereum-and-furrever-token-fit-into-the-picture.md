@@ -35,7 +35,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/robert-kiyosaki-predicts-bitcoin-to-100k-how-ethereum-and-furrever-token-fit-into-the-picture)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-author-predicts-bitcoin-to-reach-100000-by-june-2024/f0664066588f08e0df3c24e779041da6) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/renowned-author-predicts-bitcoin-to-reach-100000-by-june-2024)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/renowned-author-predicts-bitcoin-to-reach-100000-by-june-2024)
+ 
 
 
 

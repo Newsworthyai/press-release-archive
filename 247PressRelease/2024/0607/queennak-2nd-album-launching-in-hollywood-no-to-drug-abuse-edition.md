@@ -7,7 +7,9 @@ HOLLYWOOD, CA, June 07, 2024 /24-7PressRelease/ -- An epidemic has emerged in We
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511491/queennak-2nd-album-launching-in-hollywood-no-to-drug-abuse-edition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/queennak-s-second-album-launch-to-raise-awareness-and-support-for-drug-abuse-victims/8b469ff3cbea3fa3f67ed9e53ddacb63) 
+
+ 
 
 
 

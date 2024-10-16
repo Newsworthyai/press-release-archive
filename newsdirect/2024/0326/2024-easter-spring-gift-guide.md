@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/2024-easter-a
 [Original/Source Press Release](https://newsdirect.com/news/2024-easter-and-spring-gift-guide-320747891)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/must-have-easter-spring-2024-toys-for-kids-toy-trends-specialist-unveils-top-picks/21ec881a361cdbb9446d6f3d4c35455c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/top-toy-picks-for-an-egg-citing-easter-and-spring)
+ 
 
 
 

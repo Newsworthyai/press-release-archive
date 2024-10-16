@@ -39,7 +39,15 @@ Company contact: [contact@wire.network](mailto:contact@wire.network)
 [Original/Source Press Release](https://blockchainwire.io/press-release/wire-network-launches-blockchain-for-ai-economy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wire-network-open-sources-blockchain-for-ai-agent-economy/83486da6a955e55ef4d9b9ce21dc3a20) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/wire-network-unveils-blockchain-for-ai-economy-revolutionizing-cross-chain-transactions)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/wire-network-unveils-blockchain-for-ai-agent-economy/20246715)
+
+Pickup - [advos.io](https://advos.io/en/wire-network-unveils-blockchain-for-ai-economy-promising-no-gas-transactions-across-chains/20246715)
+ 
 
 
 

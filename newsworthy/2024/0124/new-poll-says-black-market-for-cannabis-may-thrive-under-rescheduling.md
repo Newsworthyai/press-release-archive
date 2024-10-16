@@ -37,7 +37,9 @@ NuggMD is the nation's leading medical marijuana technology platform, serving pa
 [Original/Source Press Release](https://newsworthy.ai/news/202401241042/new-poll-says-black-market-for-cannabis-may-thrive-under-rescheduling)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/consumer-poll-reveals-concerns-32-of-cannabis-users-would-turn-to-black-market-if-cannabis-were-rescheduled-without-preserving-state-legal-marketplaces/424b24531a0565fbd8e59baba9ba9b03) 
+
+ 
 
 
 

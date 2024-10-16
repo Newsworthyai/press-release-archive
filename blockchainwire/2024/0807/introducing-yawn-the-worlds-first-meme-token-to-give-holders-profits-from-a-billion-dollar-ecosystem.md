@@ -48,7 +48,21 @@ X - https://x.com/yawnsworld
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-yawn---the-worlds-first-meme-token-to-give-holders-profits-from-a-billion-dollar-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-yawn-the-sleepiest-meme-token-in-the-fintech-market/e9451cd118b7a1a792732c90e0b3aa0e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/yawn-token-launches-promising-profits-from-billion-dollar-ecosystem)
+
+Pickup - [fishervista.com](https://fishervista.com/en/yawn-the-first-meme-token-that-offers-profit-sharing-in-a-billion-dollar-ecosystem/20245556)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/yawn-token-launches-with-ambitious-plans-for-billion-dollar-ecosystem)
+
+Pickup - [advos.io](https://advos.io/en/yawn-meme-token-promises-profits-from-billion-dollar-ecosystem/20245556)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/introducing-yawn-the-sleepiest-meme-token-in-the-fintech-market)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/introducing-yawn-the-sleepiest-meme-token-in-the-fintech-market)
+ 
 
 
 

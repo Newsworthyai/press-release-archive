@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/challenger-en
 [Original/Source Press Release](https://newsdirect.com/news/challenger-energy-secures-ps1-5m-strategic-investment-from-charleston-energy-partners-742806428)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/challenger-energy-secures-ps1-5m-strategic-investment-from-charleston-energy-partners/59cf619840f37067024846a5c4e9a01a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/challenger-energy-secures-ps1-5m-strategic-investment-from-charleston-energy-partners)
+ 
 
 
 

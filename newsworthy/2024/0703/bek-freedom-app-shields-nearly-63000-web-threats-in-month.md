@@ -23,7 +23,15 @@ BEK emphasizes their fast, friendly, local service experience and a broad portfo
 [Original/Source Press Release](https://newsworthy.ai/news/202407031204/bek-freedom-app-shields-nearly-63000-web-threats-in-month)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bek-communications-achieves-milestone-with-bek-freedom-app/65ae0c42669f744afe5fe76fcba06961) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bek-freedom-app-shields-nearly-63000-web-threats-in-one-month/20244696)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/bek-freedom-app-blocks-nearly-63000-web-threats-in-one-month)
+
+Pickup - [advos.io](https://advos.io/en/bek-freedom-app-blocks-nearly-63000-web-threats-in-a-month/20244696)
+ 
 
 
 

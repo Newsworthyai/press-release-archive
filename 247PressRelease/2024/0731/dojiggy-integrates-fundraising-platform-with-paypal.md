@@ -7,7 +7,17 @@ DENVER, CO, July 31, 2024 /24-7PressRelease/ -- DoJiggy, an industry-leading fun
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512939/dojiggy-integrates-fundraising-platform-with-paypal)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dojiggy-partners-with-paypal-to-enhance-fundraising-platform/5ffe91908f6185813ddf38e870693aa2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/dojiggy-enhances-fundraising-platform-with-paypal-integration)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dojiggy-integrates-fundraising-platform-with-paypal/20245386)
+
+Pickup - [advos.io](https://advos.io/en/dojiggy-integrates-paypal-into-fundraising-platform/20245386)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dojiggy-enhances-fundraising-platform-with-paypal-integration)
+ 
 
 
 

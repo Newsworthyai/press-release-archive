@@ -61,7 +61,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/prismastakes-6-million-funding-accelerates-defi-staking-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prismastake-secures-6-million-in-funding-to-revolutionize-defi-staking/acdc5d808de391b53091521e9fd8490d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/prismastake-secures-6-million-to-drive-defi-staking-innovation)
+ 
 
 
 

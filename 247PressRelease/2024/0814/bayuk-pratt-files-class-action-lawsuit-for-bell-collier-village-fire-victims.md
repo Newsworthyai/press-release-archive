@@ -7,7 +7,17 @@ ATLANTA, GA, August 14, 2024 /24-7PressRelease/ -- On Saturday, July 27, 2024, j
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513391/bayuk-pratt-files-class-action-lawsuit-for-bell-collier-village-fire-victims)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/major-fire-at-bell-collier-village-apartments-leads-to-class-action-lawsuit/f8730ad1897a12829af200ae846d53c4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/class-action-lawsuit-filed-against-bell-partners-for-atlanta-apartment-fire)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bayuk-pratt-files-class-action-lawsuit-for-bell-collier-village-fire-victims/20245717)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/class-action-lawsuit-filed-against-bell-partners-for-atlanta-apartment-fire/20245717)
+
+Pickup - [advos.io](https://advos.io/en/class-action-lawsuit-filed-for-bell-collier-village-fire-victims/20245717)
+ 
 
 
 

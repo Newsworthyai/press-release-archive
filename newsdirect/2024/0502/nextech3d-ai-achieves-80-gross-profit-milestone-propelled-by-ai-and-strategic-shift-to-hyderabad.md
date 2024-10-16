@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-
 [Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-achieves-80-gross-profit-milestone-propelled-by-ai-and-strategic-shift-to-hyderabad-605780687)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nextech3d-ai-achieves-80-gross-profit-milestone/cf9dcb14e91ed78bb6186fff133ec75b) 
+
+ 
 
 
 

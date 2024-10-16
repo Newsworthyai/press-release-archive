@@ -7,7 +7,13 @@ NEW YORK, NY, June 24, 2024 /24-7PressRelease/ -- Elisa Huberman is an incredibl
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511939/innovative-self-taught-artist-elisa-hubermans-the-blue-bat-dance-takes-the-childrens-book-world-by-storm)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/talented-artist-elisa-huberman-releases-enchanting-children-s-book-the-blue-bat-dance-on-amazon-kdp/65e89a2ec563d174f0a5134de051a3cf) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/elisa-huberman-s-the-blue-bat-dance-captivates-the-children-s-book-market/20244406)
+
+Pickup - [advos.io](https://advos.io/en/elisa-huberman-s-the-blue-bat-dance-captivates-children-s-literature-world/20244406)
+ 
 
 
 

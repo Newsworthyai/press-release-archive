@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/first-phospha
 [Original/Source Press Release](https://newsdirect.com/news/first-phosphate-2nd-set-of-assays-at-begin-lamarche-shows-2-metre-vein-of-massive-apatite-404031863)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/first-phosphate-corp-ceo-and-chief-geologist-provide-update-on-begin-lamarche-project/5736e983399f31a8a121e7bef71072eb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/first-phosphate-uncovers-promising-phosphate-mineralization-at-begin-lamarche-project)
+ 
 
 
 

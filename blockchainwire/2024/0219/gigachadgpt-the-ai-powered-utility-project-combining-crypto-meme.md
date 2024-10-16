@@ -9,7 +9,11 @@ About GigaChadGPTGigaChadGPT is a memecoin integrated with AI, allowing users to
 [Original/Source Press Release](https://blockchainwire.io/press-release/gigachadgpt-the-ai-powered-utility-project-combining-crypto-meme)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gigachadgpt-memecoin-integrated-with-ai-and-huge-growth-potential/661b002083a3093de2b622080d531b5b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/19/gigachadgpt-the-ai-powered-memecoin-project-taking-the-crypto-world-by-storm)
+ 
 
 
 

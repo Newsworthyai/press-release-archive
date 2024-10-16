@@ -7,7 +7,11 @@ ALBANY, NY, June 05, 2024 /24-7PressRelease/ -- Clever Tachyon is a fast charger
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511424/launch-of-210w-charger-clever-tachyon-with-select-charging-control-system-on-indiegogo)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-clever-tachyon-the-ultimate-fast-charger-for-multiple-devices/a57ca3fff585004f7b4d19b581ae940a) 
+
+
+Pickup - [advos.io](https://advos.io/en/clever-tachyon-revolutionary-210w-charger-with-select-charging-control-system-launched-on-indiegogo/20243827)
+ 
 
 
 

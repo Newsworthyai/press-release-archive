@@ -7,7 +7,9 @@ POTOMAC, MD, October 11, 2024 /24-7PressRelease/ -- Kalibri Labs is excited to a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515156/kalibri-labs-unveils-otb-signals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kalibri-labs-launches-otb-signals-revolutionizing-hotel-data-analysis/bb10d7377c343da2f5d0fd543ca06df8) 
+
+ 
 
 
 

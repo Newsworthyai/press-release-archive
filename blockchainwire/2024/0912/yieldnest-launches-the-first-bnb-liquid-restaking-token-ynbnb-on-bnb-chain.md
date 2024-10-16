@@ -39,7 +39,21 @@ For more information, please visit https://www.yieldnest.finance/
 [Original/Source Press Release](https://blockchainwire.io/press-release/yieldnest-launches-the-first-bnb-liquid-restaking-token-ynbnb-on-bnb-chain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/yieldnest-launches-ynbnb-the-first-bnb-liquid-restaking-token-on-bnb-chain/d00034ec10d214c10da9a6c75f09ec70) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/yieldnest-introduces-ynbnb-first-bnb-liquid-restaking-token-on-bnb-chain)
+
+Pickup - [fishervista.com](https://fishervista.com/en/yieldnest-introduces-ynbnb-first-liquid-restaking-token-on-bnb-chain/20246799)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/yieldnest-introduces-ynbnb-first-liquid-restaking-token-on-bnb-chain/20246799)
+
+Pickup - [advos.io](https://advos.io/en/yieldnest-introduces-ynbnb-first-bnb-liquid-restaking-token-on-bnb-chain/20246799)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/yieldnest-launches-ynbnb-the-first-bnb-liquid-restaking-token-on-bnb-chain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/yieldnest-launches-ynbnb-the-first-bnb-liquid-restaking-token-on-bnb-chain)
+ 
 
 
 

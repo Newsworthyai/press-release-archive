@@ -7,7 +7,11 @@ HOUSTON, TX, March 27, 2024 /24-7PressRelease/ -- South-Korea-based Shincheonji 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509557/thirty-thousand-in-attendance-for-shincheonji-churchs-40th-anniversary-celebration-event)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-church-of-jesus-celebrates-40th-anniversary-with-special-event/e0360cf65a8adc51c8faf5db5747b8ef) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/shincheonji-church-celebrates-40-years-with-grand-anniversary-event)
+ 
 
 
 

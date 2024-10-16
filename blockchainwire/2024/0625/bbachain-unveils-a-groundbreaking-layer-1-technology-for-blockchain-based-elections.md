@@ -41,7 +41,17 @@ Twitter: https://x.com/bbachain_com
 [Original/Source Press Release](https://blockchainwire.io/press-release/bbachain-unveils-a-groundbreaking-layer-1-technology-for-blockchain-based-elections)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bbachain-to-revolutionize-global-elections-with-blockchain-technology/f608e87701d2f9f5b726c34635e27444) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bbachain-introduces-blockchain-based-elections-with-bti-global-solution/20244463)
+
+Pickup - [advos.io](https://advos.io/en/bbachain-introduces-revolutionary-blockchain-based-election-technology/20244463)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bbachain-to-revolutionize-global-elections-with-blockchain-technology)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bbachain-to-revolutionize-global-elections-with-blockchain-technology)
+ 
 
 
 

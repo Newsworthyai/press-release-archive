@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/menopause-is-
 [Original/Source Press Release](https://newsdirect.com/news/menopause-is-a-600-billion-market-opportunity-for-companies-like-rootless-that-are-looking-to-provide-women-much-needed-solutions-589599186)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rootless-revolutionizes-women-s-health-with-seaweed-products/45b5cc3a9fb9a8543c7f8d959e1bd047) 
+
+ 
 
 
 

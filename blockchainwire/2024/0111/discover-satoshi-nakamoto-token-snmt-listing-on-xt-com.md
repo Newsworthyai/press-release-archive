@@ -17,7 +17,11 @@ Email address: Listing@xt.com"Disclaimer: The information provided in this press
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-satoshi-nakamoto-token-snmt-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-satoshi-nakamoto-token-snmt-and-announces-trading-competition/dbda0e8f7751be64ceb90202aee9a4f1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/11/xt-com-welcomes-satoshi-nakamoto-token-snmt-with-trading-competition)
+ 
 
 
 

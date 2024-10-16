@@ -34,7 +34,15 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202406181198/significant-skills-gaps-in-hr-function-and-preparedness-for-future-new-study-by-hr-coms-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-study-reveals-critical-gap-in-hr-function/c649d55bb38db3fc07be5d86b619c3dc) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-professionals-face-significant-skills-gaps-new-study-reveals/20244244)
+
+Pickup - [advos.io](https://advos.io/en/hr-function-faces-significant-skills-gaps-hindering-future-preparedness/20244244)
+
+Pickup - [fishervista.com](https://fishervista.com/en/significant-skills-gaps-in-hr-function-highlighted-in-new-study-by-hr-com/20244244)
+ 
 
 
 

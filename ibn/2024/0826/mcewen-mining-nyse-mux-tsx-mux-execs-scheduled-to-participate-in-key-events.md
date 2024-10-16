@@ -31,7 +31,17 @@ McEwen Mining (NYSE: MUX) (TSX: MUX), a gold and silver producer with operations
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/mcewen-mining-nyse-mux-tsx-mux-execs-scheduled-to-participate-in-key-events/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-mining-to-be-featured-in-key-industry-events-in-august-and-september/df774b70878042f3b27cdd15df45e488) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/mcewen-mining-executives-to-participate-in-key-industry-events/20246089)
+
+Pickup - [advos.io](https://advos.io/en/mcewen-mining-executives-to-participate-in-key-industry-events-highlighting-argentina-s-copper-and-lithium-potential/20246089)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/mcewen-mining-executives-to-participate-in-key-industry-events)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mcewen-mining-executives-to-participate-in-key-industry-events/20246089)
+ 
 
 
 

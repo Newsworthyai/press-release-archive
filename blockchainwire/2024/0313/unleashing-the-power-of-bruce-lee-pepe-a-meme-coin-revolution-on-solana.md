@@ -51,7 +51,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/unleashing-the-power-of-bruce-lee-pepe-a-meme-coin-revolution-on-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bruce-lee-pepe-redefining-the-crypto-experience-with-character-honor-and-happiness/19b30ff1ca90a763198f40e4148db2c1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/13/bruce-lee-pepe-unleashing-the-power-of-meme-coins-on-solana)
+ 
 
 
 

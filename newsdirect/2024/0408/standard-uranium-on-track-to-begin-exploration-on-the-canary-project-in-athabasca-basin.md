@@ -21,7 +21,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/standard-uran
 [Original/Source Press Release](https://newsdirect.com/news/standard-uranium-on-track-to-begin-exploration-on-the-canary-project-in-athabasca-basin-373574597)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/standard-uranium-ceo-provides-update-on-canary-project-exploration-activities/f359b5539d0bae2958e804a0e12cd43e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/standard-uranium-gears-up-for-inaugural-drill-program-at-canary-project)
+ 
 
 
 

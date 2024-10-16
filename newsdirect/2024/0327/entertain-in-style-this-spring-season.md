@@ -57,7 +57,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/entertain-in-
 [Original/Source Press Release](https://newsdirect.com/news/entertain-in-style-this-spring-season-122359850)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elevate-your-spring-entertaining-and-outdoor-living-with-marisa-brahney-s-tips/7d83fdcb7c0a1a659f348f227e3ef8d5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/elevate-your-spring-entertaining-with-effortless-style)
+ 
 
 
 

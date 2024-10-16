@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/polymetals-re
 [Original/Source Press Release](https://newsdirect.com/news/polymetals-resources-endeavor-mine-gears-up-for-profitable-restart-529282104)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/polymetals-resources-ltd-chairman-discusses-endeavor-mine-restart-and-economic-impact-of-rising-metal-prices/ab7cf0a02c24622e3524fdf11a82484a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/polymetals-resources-endeavor-mine-gears-up-for-profitable-restart)
+ 
 
 
 

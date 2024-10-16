@@ -47,7 +47,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-book-by-d
 [Original/Source Press Release](https://newsdirect.com/news/new-book-by-denise-edwards-on-the-call-on-the-wall-available-now-236070305)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-international-prayer-leader-denise-edwards-to-release-new-book/002a23de8fffba3b2166eb5515921a6d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/international-prayer-leader-denise-edwards-releases-new-book-on-the-call-on-the-wall)
+
+Pickup - [fishervista.com](https://fishervista.com/en/denise-edwards-releases-new-book-on-the-influence-of-prayer/20245467)
+
+Pickup - [advos.io](https://advos.io/en/denise-edwards-releases-new-book-on-the-call-on-the-wall-exploring-the-power-of-prayer/20245467)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/renowned-prayer-leader-denise-edwards-releases-new-book-on-spiritual-warfare-and-intercessory-prayer)
+ 
 
 
 

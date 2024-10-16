@@ -29,7 +29,13 @@ TalentCulture is regarded as a renowned authority in HR and HR Technology promot
 [Original/Source Press Release](https://newsworthy.ai/news/20240122975/talentculture-unveils-cutting-edge-website-to-enhance-user-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/talentculture-launches-innovative-website-to-elevate-hr-and-hr-tech-marketing-experience/4d46bc6308c72e64fd7af8c5ee9b04a7) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/talentculture-launches-new-website-to-revolutionize-hr-professional-experience/202436)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/22/talentculture-unveils-revamped-website-for-enhanced-user-experience)
+ 
 
 
 

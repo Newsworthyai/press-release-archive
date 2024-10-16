@@ -27,7 +27,11 @@ Metaverse contact: https://netvrk.link/discord   Media Contact: netvrk@trans
 [Original/Source Press Release](https://blockchainwire.io/press-release/netvrk-launches-token-swap-to-netvr-expands-vision-toward-vr-xr-ai-powered-metaverse)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/netvrk-launches-token-swap-and-bridge-between-polygon-and-ethereum/eb225bb618219d1befe0e38b1caba3bb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/17/netvrk-expands-vision-toward-ai-powered-metaverse-with-token-swap)
+ 
 
 
 

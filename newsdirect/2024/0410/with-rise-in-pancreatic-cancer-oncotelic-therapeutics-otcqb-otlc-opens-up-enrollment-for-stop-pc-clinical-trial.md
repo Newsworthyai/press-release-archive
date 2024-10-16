@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/with-rise-in-
 [Original/Source Press Release](https://newsdirect.com/news/with-rise-in-pancreatic-cancer-oncotelic-therapeutics-otcqb-otlc-opens-up-enrollment-for-stop-pc-clinical-trial-128435263)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/oncotelic-therapeutics-opens-enrollment-for-stop-pc-clinical-trial/3ff9f610c859748e57fdf45dc8863131) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/oncotelic-therapeutics-opens-up-enrollment-for-stop-pc-clinical-trial-amid-rise-in-pancreatic-cancer-cases)
+ 
 
 
 

@@ -43,7 +43,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/ai-evaluation
 [Original/Source Press Release](https://newsdirect.com/news/ai-evaluation-start-up-maxim-ai-raises-3m-from-elevation-capital-to-help-enterprises-test-and-rapidly-ship-ai-products-617447474)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/maxim-ai-secures-3m-funding-and-launches-ga-platform/ee7eb80e06376fd4941b03fad2452f4d) 
+
+
+Pickup - [advos.io](https://advos.io/en/maxim-ai-raises-3m-to-streamline-ai-development-workflows/20244253)
+
+Pickup - [fishervista.com](https://fishervista.com/en/maxim-ai-secures-3m-in-funding-to-revolutionize-ai-product-development/20244253)
+ 
 
 
 

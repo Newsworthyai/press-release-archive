@@ -40,7 +40,11 @@ Canada
 [Original/Source Press Release](https://newsroom.prkarma.com/drtalks/news_release/1403)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/drtalks-announces-the-super-fertility-summit-a-groundbreaking-event-for-women-s-fertility/d9868169e019d6033b94896dbec88f9f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/09/the-super-fertility-summit-empowering-women-on-their-fertility-journey)
+ 
 
 
 

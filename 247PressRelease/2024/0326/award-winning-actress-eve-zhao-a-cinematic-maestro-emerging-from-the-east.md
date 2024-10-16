@@ -7,7 +7,11 @@ NEW YORK, NY, March 26, 2024 /24-7PressRelease/ -- Eve Zhao, an enchanting lumin
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509522/award-winning-actress-eve-zhao-a-cinematic-maestro-emerging-from-the-east)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/acclaimed-actress-and-filmmaker-eve-zhao-s-dazzling-triumph-in-independent-cinema/a50478f442bdb9f6958f2ae555b9dd4e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/eve-zhao-a-cinematic-force-transcending-cultural-boundaries)
+ 
 
 
 

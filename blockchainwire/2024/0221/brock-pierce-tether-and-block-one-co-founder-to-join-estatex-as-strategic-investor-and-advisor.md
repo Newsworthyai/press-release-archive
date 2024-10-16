@@ -65,7 +65,11 @@ Video of Brock Pierce talking about his work with EstateX is [here](https://doc
 [Original/Source Press Release](https://blockchainwire.io/press-release/brock-pierce-tether-and-blockone-co-founder-to-join-estatex-as-strategic-investor-and-advisor)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-entrepreneur-brock-pierce-joins-forces-with-estatex-to-revolutionize-real-estate-investing/8cc00281c26595c87abac5e8b1ea444f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/21/brock-pierce-joins-estatex-as-strategic-investor-and-advisor)
+ 
 
 
 

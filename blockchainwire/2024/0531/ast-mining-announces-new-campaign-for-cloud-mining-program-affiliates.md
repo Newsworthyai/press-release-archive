@@ -74,7 +74,13 @@ AST MINING APPDownload the app today to experience all the benefits and features
 [Original/Source Press Release](https://blockchainwire.io/press-release/ast-mining-announces-new-campaign-for-cloud-mining-program-affiliates)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ast-mining-launches-lucrative-affiliate-program-for-cryptocurrency-cloud-mining/f064ece88a73d279c7bb1bf5327c7e11) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ast-mining-launches-lucrative-affiliate-program-for-cryptocurrency-cloud-mining)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ast-mining-launches-lucrative-affiliate-program-for-cryptocurrency-cloud-mining)
+ 
 
 
 

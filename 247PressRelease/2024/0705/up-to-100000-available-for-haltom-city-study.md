@@ -7,7 +7,15 @@ HALTOM CITY, TX, July 05, 2024 /24-7PressRelease/ -- While leadership has been f
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512294/up-to-100000-available-for-haltom-city-study)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/haltom-city-business-alliance-pushes-for-revitalization-in-neglected-neighborhoods/eb3970b7d809ed5dca5c4cd9e288b58f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/haltom-city-business-leader-offers-100000-for-urban-revitalization-study/20244722)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/haltom-city-offered-100000-for-revitalization-study-by-strong-towns)
+
+Pickup - [advos.io](https://advos.io/en/haltom-city-business-leader-offers-100000-to-revitalize-declining-neighborhoods/20244722)
+ 
 
 
 

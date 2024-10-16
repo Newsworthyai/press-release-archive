@@ -57,7 +57,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/restaking-sec
 [Original/Source Press Release](https://newsdirect.com/news/restaking-sector-speeds-up-amid-miner-surrender-966987135)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/restaking-sector-sees-tremendous-growth-amid-miner-surrender/6f511d03c518ca6f51e674d221831bd3) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/htx-s-liquid-restaking-event-gains-momentum-amid-bitcoin-miner-surrender/20244765)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/restaking-sector-gains-momentum-as-bitcoin-miners-face-pressure)
+
+Pickup - [advos.io](https://advos.io/en/restaking-sector-gains-momentum-as-bitcoin-miners-face-pressure/20244765)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/restaking-sector-sees-tremendous-growth-amid-miner-surrender)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/restaking-sector-sees-tremendous-growth-amid-miner-surrender)
+ 
 
 
 

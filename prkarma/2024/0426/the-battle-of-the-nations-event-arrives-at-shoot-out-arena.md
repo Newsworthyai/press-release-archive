@@ -50,7 +50,9 @@ Visit Our Website
 [Original/Source Press Release](https://newsroom.prkarma.com/shootoutarena/news_release/1453)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exciting-battle-of-the-nations-bull-riding-event-in-tombstone-az/b00e85ec9a5da0b625c1c2f4bd3c7cc1) 
+
+ 
 
 
 

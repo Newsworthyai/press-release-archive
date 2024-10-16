@@ -33,7 +33,21 @@ Telegram: [https://t.me/WaterBuffalo_Community](https://t.me/WaterBuffalo_Commun
 [Original/Source Press Release](https://blockchainwire.io/press-release/waterbuffalo-vietnams-iconic-meme-coin-launches-new-app)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/waterbuffalo-launches-vietnam-friendly-cryptocurrency-with-daily-meme-competitions/0961f2f88e85b8add894a167aa137de9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/waterbuffalo-launches-new-app-bringing-vietnam-inspired-meme-coin-to-the-forefront)
+
+Pickup - [fishervista.com](https://fishervista.com/en/waterbuffalo-launches-app-to-revolutionize-vietnam-s-digital-currency-landscape/20245225)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/waterbuffalo-launches-vietnam-friendly-cryptocurrency-with-daily-meme-competitions)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/waterbuffalo-launches-vietnam-friendly-cryptocurrency-with-daily-meme-competitions)
+
+Pickup - [advos.io](https://advos.io/en/waterbuffalo-introduces-new-app-to-strengthen-vietnam-s-digital-economy/20245225)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/waterbuffalo-meme-coin-launches-new-app-aims-to-revolutionize-vietnam-s-digital-economy)
+ 
 
 
 

@@ -29,7 +29,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-featured-in-wall-street-journal-article-about-tackling-real-world-optimization-problems-with-quantum/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-inc-featured-in-em-wall-street-journal-em-article-on-quantum-computing-advancements/8abf5611ffb48a9e72bef02a476e81bc) 
+
+ 
 
 
 

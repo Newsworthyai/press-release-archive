@@ -39,7 +39,11 @@ anna@picklejar.com
 [Original/Source Press Release](https://www.newmediawire.com/news/picklejar-announces-new-distinguished-members-to-advisory-board-7076023)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/picklejar-entertainment-group-adds-industry-veterans-to-advisory-board/2e599c9c1c3d07add5e01467b42d4488) 
+
+
+Pickup - [advos.io](https://advos.io/en/picklejar-expands-advisory-board-with-industry-veterans/20246621)
+ 
 
 
 

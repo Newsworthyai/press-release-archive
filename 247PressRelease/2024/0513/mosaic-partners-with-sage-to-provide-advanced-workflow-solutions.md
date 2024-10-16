@@ -7,7 +7,11 @@ ATLANTA, GA, May 13, 2024 /24-7PressRelease/ -- Mosaic Corp., a leader in automa
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510770/mosaic-partners-with-sage-to-provide-advanced-workflow-solutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mosaic-corp-partners-with-sage-to-provide-customizable-workflow-solutions/f306948a1446abc37cbb0afa77b23c81) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/mosaic-corp-joins-sage-partner-ecosystem-expanding-workflow-solutions-for-smbs/20242929)
+ 
 
 
 

@@ -45,7 +45,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cwallet-launches-gift-card-feature--shopping-experience-upgrade)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cwallet-launches-new-gift-card-feature-for-cryptocurrency-users/37c01beccdc3e73ba1bb7e7f7721ea44) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cwallet-introduces-gift-card-feature-for-seamless-crypto-shopping/20244582)
+
+Pickup - [advos.io](https://advos.io/en/cwallet-introduces-innovative-gift-card-feature-for-cryptocurrency-users/20244582)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cwallet-launches-new-gift-card-feature-for-cryptocurrency-users)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cwallet-launches-new-gift-card-feature-for-cryptocurrency-users)
+ 
 
 
 

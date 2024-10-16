@@ -7,7 +7,11 @@ DUBAI, UAE, April 04, 2024 /24-7PressRelease/ -- BYDFi, the well-known Top 20 Cr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509747/bydfi-selected-as-the-best-retail-investor-friendly-and-the-most-popular-cryptocurrency-exchange-in-the-world-for-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bydfi-wins-best-retail-investor-friendly-and-most-popular-cryptocurrency-exchange-globe-2024/d82fe99a7a3946d8ced087fb18fd5951) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/bydfi-crowned-best-retail-investor-friendly-and-most-popular-crypto-exchange-for-2024)
+ 
 
 
 

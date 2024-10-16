@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/a-liberian-go
 [Original/Source Press Release](https://newsdirect.com/news/a-liberian-gold-rush-introducing-pasofino-golds-tsx-v-vein-dugbe-gold-project-140034751)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pasofino-gold-s-dugbe-gold-project-west-africa-s-next-gold-frontier/493912bd603b79dc7a67b21badceab0e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/a-liberian-gold-rush-introducing-pasofino-gold-s-tsx-v-vein-dugbe-gold-project)
+ 
 
 
 

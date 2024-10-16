@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/u-s-gold-corp
 [Original/Source Press Release](https://newsdirect.com/news/u-s-gold-corp-chairman-discusses-new-funding-and-upcoming-mining-permit-966152881)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-gold-corp-secures-4-9m-funding-anticipates-mining-permit/287b3913af2884596ad2b40ada0819a8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/u-s-gold-corp-chairman-discusses-new-funding-and-upcoming-mining-permit)
+ 
 
 
 

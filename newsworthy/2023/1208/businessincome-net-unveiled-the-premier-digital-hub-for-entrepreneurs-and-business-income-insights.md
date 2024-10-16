@@ -23,7 +23,11 @@ Elevate Your Business Acumen. Embark on a journey of discovery at www.BusinessIn
 [Original/Source Press Release](https://newsworthy.ai/news/20231208785/businessincome-net-unveiled-the-premier-digital-hub-for-entrepreneurs-and-business-income-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/businessincome-net-launches-to-demystify-business-income-dynamics/432a0db3c21e6af2c6643fa42b065ba7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/08/businessincome-net-empowering-entrepreneurs-with-invaluable-business-income-insights)
+ 
 
 
 

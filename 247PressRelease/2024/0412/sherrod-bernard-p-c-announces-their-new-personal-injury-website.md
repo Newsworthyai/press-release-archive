@@ -7,7 +7,11 @@ DOUGLASVILLE, GA, April 12, 2024 /24-7PressRelease/ -- After a full redesign and
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509997/sherrod-bernard-pc-announces-their-new-personal-injury-website)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sherrod-bernard-p-c-launches-redesigned-website-with-new-features-and-content/ea15388ad612731fdb30c095ba3c1082) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/sherrod-bernard-p-c-announces-their-new-personal-injury-website)
+ 
 
 
 

@@ -35,7 +35,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/william-miller-spearheads-launch-of-pioneering-okaycoin-staking-protocol)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/okaycoin-announces-launch-of-proprietary-staking-protocol/c7c69bd72ffc0d6a83cda1214201479f) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/okaycoin-announces-launch-of-proprietary-staking-protocol)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/okaycoin-announces-launch-of-proprietary-staking-protocol)
+ 
 
 
 

@@ -23,7 +23,11 @@ Metal Blockchain, developed by Metallicus, is an innovative Layer 0 blockchain t
 [Original/Source Press Release](https://blockchainwire.io/press-release/oneaz-credit-unions-cto-sandeep-uthra-joins-metal-blockchain-advisory-council)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metallicus-appoints-sandeep-uthra-as-chief-technology-officer-at-oneaz-credit-union-to-metal-blockchain-advisory-council/bff7a52bb1213c1d34561717146fb16f) 
+
+
+Pickup - [advos.io](https://advos.io/en/oneaz-credit-unions-cto-sandeep-uthra-joins-metal-blockchain-advisory-council/20244131)
+ 
 
 
 

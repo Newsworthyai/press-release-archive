@@ -33,7 +33,17 @@ Source:Accredited Solutions, Inc.https://www.diamondcreekwater.com
 [Original/Source Press Release](https://www.newmediawire.com/news/accredited-solutions-executes-indication-of-interest-ioi-to-acquire-a-leading-fintech-company-focused-on-b2b-distribution-of-e-gift-cards-7076013)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/accredited-solutions-inc-announces-acquisition-of-leading-us-based-b2b-distributor/4480ae01849fc47dda277b286ab49a9a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/accredited-solutions-aims-to-acquire-leading-b2b-e-gift-card-distributor)
+
+Pickup - [fishervista.com](https://fishervista.com/en/accredited-solutions-signals-intent-to-acquire-leading-fintech-company-in-b2b-e-gift-card-distribution/20246593)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/accredited-solutions-eyes-acquisition-of-major-b2b-e-gift-card-distributor/20246593)
+
+Pickup - [advos.io](https://advos.io/en/accredited-solutions-plans-strategic-acquisition-of-leading-fintech-firm/20246593)
+ 
 
 
 

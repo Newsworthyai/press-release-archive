@@ -42,7 +42,19 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202408151237/performance-management-shows-progress-but-execution-gaps-remain-new-study-by-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-study-reveals-challenges-and-opportunities-in-performance-management/b33295e48bdf1a74a9ec23d49f67725f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/new-study-reveals-gaps-in-performance-management-effectiveness-despite-progress)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hr-study-reveals-execution-gaps-in-performance-management-processes/20245754)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-study-reveals-progress-and-challenges-in-performance-management/20245754)
+
+Pickup - [advos.io](https://advos.io/en/new-study-reveals-gaps-in-performance-management-effectiveness/20245754)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/new-study-reveals-progress-and-challenges-in-performance-management/20245754)
+ 
 
 
 

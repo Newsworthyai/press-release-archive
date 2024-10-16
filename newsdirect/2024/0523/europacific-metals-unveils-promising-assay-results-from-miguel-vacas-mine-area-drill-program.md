@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/europacific-m
 [Original/Source Press Release](https://newsdirect.com/news/europacific-metals-unveils-promising-assay-results-from-miguel-vacas-mine-area-drill-program-466549477)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/europacific-metals-unveils-promising-assay-results-from-miguel-vacas-mine-area-drill-program/f27eda3bb4e400ad5eac7816245461b0) 
+
+ 
 
 
 

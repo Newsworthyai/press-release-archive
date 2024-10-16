@@ -7,7 +7,17 @@ IRVINE, CA, September 15, 2024 /24-7PressRelease/ -- FFTV Media Technology has s
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514327/a-new-era-for-the-content-nft-marketplace-fftv-tokens-drive-digital-asset-monetization)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fftv-media-technology-launches-content-nft-marketplace/595a4b9b33ff9cdb36c891ff2eb138f4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/15/fftv-media-technology-launches-content-nft-marketplace-revolutionizing-digital-asset-monetization)
+
+Pickup - [fishervista.com](https://fishervista.com/en/fftv-media-technology-launches-content-nft-marketplace-revolutionizing-digital-asset-monetization/20246837)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/fftv-media-technology-launches-content-nft-marketplace-revolutionizing-digital-asset-monetization/20246837)
+
+Pickup - [advos.io](https://advos.io/en/fftv-media-technology-launches-content-nft-marketplace-revolutionizing-digital-asset-monetization/20246837)
+ 
 
 
 

@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/dr-paul-nassi
 [Original/Source Press Release](https://newsdirect.com/news/dr-paul-nassif-honored-in-newsweeks-2024-ranking-of-americas-best-plastic-surgeons-245161454)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-paul-nassif-honored-in-newsweek-s-2024-ranking-of-america-s-best-plastic-surgeons/d1ad5e8885d42762a9430c2dafd6cc2e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-paul-nassif-recognized-in-newsweek-s-2024-america-s-best-plastic-surgeons-ranking/20245186)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/dr-paul-nassif-recognized-among-america-s-best-plastic-surgeons-in-newsweek-s-2024-ranking)
+
+Pickup - [advos.io](https://advos.io/en/dr-paul-nassif-receives-newsweek-honor-as-one-of-america-s-best-plastic-surgeons-2024/20245186)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dr-paul-nassif-recognized-among-america-s-best-plastic-surgeons-in-newsweek-s-2024-ranking)
+ 
 
 
 

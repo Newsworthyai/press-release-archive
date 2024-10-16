@@ -7,7 +7,17 @@ ROSELAND, NJ, August 22, 2024 /24-7PressRelease/ -- Investing in equipment lease
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513609/next-generation-trust-shares-insights-into-investing-in-equipment-leasing-through-a-self-directed-ira)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investing-in-equipment-leasing-a-new-opportunity-for-self-directed-iras/161455d8a2985f42f2a4519bcdfb3bf7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/self-directed-iras-open-new-avenues-for-equipment-leasing-investments)
+
+Pickup - [fishervista.com](https://fishervista.com/en/next-generation-trust-highlights-opportunities-in-equipment-leasing-through-self-directed-iras/20245888)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/self-directed-iras-open-door-to-equipment-leasing-investments/20245888)
+
+Pickup - [advos.io](https://advos.io/en/next-generation-trust-highlights-benefits-of-equipment-leasing-in-self-directed-iras/20245888)
+ 
 
 
 

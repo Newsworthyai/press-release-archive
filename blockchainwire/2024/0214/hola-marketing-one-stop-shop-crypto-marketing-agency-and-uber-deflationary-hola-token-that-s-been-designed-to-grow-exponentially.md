@@ -35,7 +35,11 @@ Website: [https://www.holatoken.io/](https://www.holatoken.io/)Twitter X: [https
 [Original/Source Press Release](https://blockchainwire.io/press-release/hola-marketing-one-stop-shop-crypto-marketing-agency---and-uber-deflationary-hola-token-thats-been-designed-to-grow-exponentially-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hola-marketing-agency-relaunches-hola-token-with-deflationary-feature/628a8df5bc9abaa7f9f9a46cc3b2a976) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/14/hola-marketing-a-one-stop-crypto-marketing-agency-with-an-uber-deflationary-token)
+ 
 
 
 

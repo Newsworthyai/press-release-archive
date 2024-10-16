@@ -7,7 +7,17 @@ LONDON, ENGLAND, August 02, 2024 /24-7PressRelease/ -- devBlink AI is excited to
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513006/devblink-ai-launches)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/devblink-ai-launches-to-revolutionize-human-ai-collaboration-in-software-development/74884145b79534e46116d66ace3f0e58) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/devblink-ai-launches-to-revolutionize-human-ai-collaboration-in-software-development/20245455)
+
+Pickup - [advos.io](https://advos.io/en/devblink-ai-launches-to-revolutionize-developer-ai-collaboration/20245455)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/devblink-ai-launches-to-revolutionize-human-ai-collaboration-in-software-development)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/devblink-ai-launches-platform-to-revolutionize-human-ai-collaboration-in-software-development)
+ 
 
 
 

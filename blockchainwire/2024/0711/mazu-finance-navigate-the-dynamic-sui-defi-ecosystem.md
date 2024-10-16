@@ -59,7 +59,19 @@ Twitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Teleg
 [Original/Source Press Release](https://blockchainwire.io/press-release/mazu-finance---navigate-the-dynamic-sui-defi-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mazu-finance-simplifying-defi-for-all-investors/7a29d110dbdaa687b0aa479baedb8ba0) 
+
+
+Pickup - [advos.io](https://advos.io/en/mazu-finance-simplifies-defi-engagement-with-innovative-solutions/20244891)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mazu-finance-simplifies-defi-for-all-investors-with-launch-of-innovative-platform/20244891)
+
+Pickup - [citybuzz.co](https://citybuzz.co/mazu-finance-launches-to-simplify-sui-defi-ecosystem-navigation)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/mazu-finance-simplifying-defi-for-all-investors)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/mazu-finance-simplifying-defi-for-all-investors)
+ 
 
 
 

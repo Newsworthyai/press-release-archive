@@ -32,7 +32,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-nasdaq-lexx-to-validate-earlier-semaglutide-studies-with-successful-glp-1-h24-2-study-dosing/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lexaria-bioscience-completes-human-pilot-study-for-glp-1-drug-delivery/3b7178a1aca022054cd31ef6b38e5a12) 
+
+ 
 
 
 

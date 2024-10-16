@@ -29,7 +29,19 @@ Wemade sits at the exciting intersection of cutting-edge blockchain technology, 
 [Original/Source Press Release](https://blockchainwire.io/press-release/wemade-to-unveil-new-business-strategy-on-wemix-day-shaping-the-future-of-blockchain-gaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemade-announces-wemix-day-event-to-transform-blockchain-gaming/d45e8f02df35a3a5f1151c8b348075fa) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/wemade-to-unveil-new-strategy-for-blockchain-gaming-on-wemix-day/20244711)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/04/wemade-announces-wemix-day-unveiling-new-strategy-for-blockchain-gaming-future)
+
+Pickup - [advos.io](https://advos.io/en/wemade-to-showcase-new-business-strategy-on-wemix-day-revolutionizing-blockchain-gaming/20244711)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/wemade-announces-wemix-day-event-to-transform-blockchain-gaming)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/wemade-announces-wemix-day-event-to-transform-blockchain-gaming)
+ 
 
 
 

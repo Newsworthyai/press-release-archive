@@ -7,7 +7,11 @@ LAKE WORTH, TX, April 04, 2024 /24-7PressRelease/ -- Salon & Spa Galleria Lake W
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509790/discover-the-beauty-tech-xo-at-salon-spa-galleria-in-lake-worth-tx)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/esthetician-jailenne-castro-joins-salon-spa-galleria-lake-worth/44f594a30f0b9b3ae51b2836ae9ad679) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/culinary-flair-meets-beauty-at-the-beauty-tech-xo)
+ 
 
 
 

@@ -35,7 +35,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/is-blockdag-network-legitimate-why-this-projects-commitments-to-transparency-and-social-media-engagement-has-influenced-a-whole-industry--)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-project-built-on-transparency-and-legitimacy/f43eac8d105bedb054a76e3cead16eb2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/blockdag-network-fostering-trust-through-transparency-and-community-engagement)
+ 
 
 
 

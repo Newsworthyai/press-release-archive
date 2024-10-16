@@ -27,7 +27,11 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202406101191/the-keys-to-effective-l-d-technology-are-revealed-new-study-by-hr-coms-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-report-reveals-the-crucial-role-of-integration-in-employee-learning-systems/159aa2ab7923f9f9430663744c74631e) 
+
+
+Pickup - [advos.io](https://advos.io/en/new-study-by-hr-com-reveals-key-to-effective-l-d-technology/20243989)
+ 
 
 
 

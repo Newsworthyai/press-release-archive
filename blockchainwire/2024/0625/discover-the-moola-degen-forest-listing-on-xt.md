@@ -51,7 +51,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-discover-the-moola-degen-forest-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-lists-moola-degen-forest-token-and-announces-exciting-features/91f86ae45f87c85173506c63d939494f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/xt-exchange-lists-moola-token-enhancing-defi-and-layer-2-solutions/20244468)
+
+Pickup - [advos.io](https://advos.io/en/xt-exchange-lists-moola-token-enhancing-defi-and-layer-2-trading/20244468)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/xt-lists-moola-degen-forest-token-and-announces-exciting-features)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/xt-lists-moola-degen-forest-token-and-announces-exciting-features)
+ 
 
 
 

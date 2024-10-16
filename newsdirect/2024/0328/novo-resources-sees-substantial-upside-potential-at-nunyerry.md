@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/novo-resource
 [Original/Source Press Release](https://newsdirect.com/news/novo-resources-sees-substantial-upside-potential-at-nunyerry-101381028)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/novo-resources-corp-sees-promising-gold-outcomes-and-plans-phase-two-drill-program-in-western-australia/d8c45b6e62a2cac61514029c744da645) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/novo-resources-uncovers-significant-gold-potential-at-nunyerry-north)
+ 
 
 
 

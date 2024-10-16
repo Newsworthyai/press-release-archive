@@ -27,7 +27,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-steps-up-
 [Original/Source Press Release](https://newsdirect.com/news/htx-steps-up-security-measures-with-monthly-reports-safeguarding-user-assets-on-full-steam-679316220)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-strengthens-security-measures-to-safeguard-user-assets/2cc6b04c85a2483d90ebe9c4931ece78) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/htx-enhances-security-measures-with-monthly-reports-to-safeguard-user-assets/20244364)
+
+Pickup - [advos.io](https://advos.io/en/htx-enhances-security-protocols-with-monthly-reports-to-protect-user-assets/20244364)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-strengthens-security-measures-to-safeguard-user-assets)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-strengthens-security-measures-to-safeguard-user-assets)
+ 
 
 
 

@@ -41,7 +41,11 @@ X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/airdrop-alert-presents-new-opportunities-for-farmers-in-airdrop-season-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/airdrop-alert-unveils-time-limited-opportunities-for-staking-restaking-and-socialfi-trends/44621cf81b93c20dd431ad4df5442b5a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/airdrop-alert-unveils-new-opportunities-for-farmers-in-upcoming-airdrop-season)
+ 
 
 
 

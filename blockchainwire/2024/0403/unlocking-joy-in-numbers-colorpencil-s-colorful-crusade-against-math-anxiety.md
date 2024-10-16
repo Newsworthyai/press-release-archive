@@ -41,7 +41,11 @@ SOURCE: ColorPencil
 [Original/Source Press Release](https://blockchainwire.io/press-release/unlocking-joy-in-numbers-colorpencils-colorful-crusade-against-math-anxiety)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/colorpencil-igniting-passion-for-learning-with-creativity-and-playfulness/a13ece3e2b8e207cd6bd936b65728ef8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/colorpencil-s-colorful-crusade-unlocks-joy-in-math-learning)
+ 
 
 
 

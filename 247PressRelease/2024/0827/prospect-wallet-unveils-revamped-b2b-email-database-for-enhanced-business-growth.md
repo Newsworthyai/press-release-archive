@@ -7,7 +7,17 @@ DENVER, CO, August 27, 2024 /24-7PressRelease/ -- Prospect Wallet, a leading pro
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513778/prospect-wallet-unveils-revamped-b2b-email-database-for-enhanced-business-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prospect-wallet-announces-major-revamp-of-b2b-database-with-50-million-records/07c9a24b1f09e2c5cd00df9a934d70d6) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/prospect-wallet-enhances-b2b-email-database-to-foster-business-growth/20245980)
+
+Pickup - [advos.io](https://advos.io/en/prospect-wallet-enhances-b2b-email-database-to-drive-business-growth/20245980)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/prospect-wallet-enhances-b2b-email-database-to-50-million-records-boosting-business-growth-potential)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/prospect-wallet-enhances-b2b-email-database-to-50-million-records-boosting-business-growth-potential/20245980)
+ 
 
 
 

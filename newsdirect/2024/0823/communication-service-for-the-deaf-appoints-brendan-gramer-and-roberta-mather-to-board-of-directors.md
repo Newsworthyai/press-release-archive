@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/communication
 [Original/Source Press Release](https://newsdirect.com/news/communication-service-for-the-deaf-appoints-brendan-gramer-and-roberta-mather-to-board-of-directors-867976629)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nonprofit-csd-appoints-amazon-ux-manager-and-international-relations-leader-as-new-board-members/16b76f8bd8b4e0fba2ec14c267ed092e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/23/communication-service-for-the-deaf-strengthens-board-with-two-new-appointments)
+
+Pickup - [fishervista.com](https://fishervista.com/en/communication-service-for-the-deaf-appoints-brendan-gramer-and-roberta-mather-to-board-of-directors/20245921)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/communication-service-for-the-deaf-strengthens-board-with-two-new-appointments/20245921)
+
+Pickup - [advos.io](https://advos.io/en/communication-service-for-the-deaf-appoints-brendan-gramer-and-roberta-mather-to-board-of-directors/20245921)
+ 
 
 
 

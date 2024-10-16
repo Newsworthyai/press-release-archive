@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/investors-rus
 [Original/Source Press Release](https://newsdirect.com/news/investors-rush-to-new-crypto-presale-raboo-rabt-as-pepe-pepe-and-shiba-inu-shib-see-modest-gains-190724697)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investors-rush-to-new-crypto-presale-raboo-rabt-as-pepe-pepe-and-shiba-inu-shib-see-modest-gains/41e8035573a1d97fb7f276855eaf81d8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/raboo-presale-ignites-investor-frenzy-amid-meme-coin-mania)
+ 
 
 
 

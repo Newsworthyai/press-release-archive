@@ -63,7 +63,11 @@ X (Twitter) | Telegram | Medium
 [Original/Source Press Release](https://blockchainwire.io/press-release/0xgpu-presents-new-features-enhancing-gpunpu-decentralized-computing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-features-enhancing-gpu-npu-decentralized-computing/c3d83ee47d2abdddbc1ad72d2e9ea307) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/0xgpu-unveils-new-features-for-decentralized-gpu-and-npu-computing)
+ 
 
 
 

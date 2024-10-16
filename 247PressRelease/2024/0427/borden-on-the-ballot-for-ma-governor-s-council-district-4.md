@@ -7,7 +7,9 @@ BOSTON, MA, April 27, 2024 /24-7PressRelease/ -- The Committee to Elect Stacey B
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510449/borden-on-the-ballot-for-ma-governors-council-district-4)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stacey-borden-secures-spot-on-ballot-for-governor-s-council-district-4/7eb3e8b22ef9110ec0cbe40cc208b3dd) 
+
+ 
 
 
 

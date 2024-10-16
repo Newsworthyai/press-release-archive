@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-tkc-tk-coin-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-tkc-tk-coin-in-innovation-zone-web-3-0/f4d18a4b82fe34072a87e8e44d3898ce) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/revolutionizing-commerce-tkc-lists-on-xt-com-exchange)
+ 
 
 
 

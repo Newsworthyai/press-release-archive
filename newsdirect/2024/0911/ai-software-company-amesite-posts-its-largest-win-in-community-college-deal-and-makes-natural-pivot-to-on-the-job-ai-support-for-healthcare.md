@@ -57,7 +57,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/ai-software-c
 [Original/Source Press Release](https://newsdirect.com/news/ai-software-company-amesite-posts-its-largest-win-in-community-college-deal-and-makes-natural-pivot-to-on-the-job-ai-support-for-healthcare-449699626)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amesite-lands-major-college-deal-and-expands-into-healthcare-ai-support/1c565a2882f76e98270b929f1b30129e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/amesite-secures-largest-community-college-deal-expands-into-healthcare-ai-support)
+
+Pickup - [fishervista.com](https://fishervista.com/en/amesite-secures-landmark-deal-with-maricopa-community-college-and-expands-ai-solutions-to-healthcare/20246735)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/amesite-expands-ai-powered-learning-platform-to-community-colleges-and-healthcare/20246735)
+
+Pickup - [advos.io](https://advos.io/en/amesite-secures-major-community-college-deal-and-expands-ai-support-to-healthcare-sector/20246735)
+ 
 
 
 

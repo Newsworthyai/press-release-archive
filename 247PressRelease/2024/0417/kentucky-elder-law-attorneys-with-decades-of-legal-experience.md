@@ -7,7 +7,11 @@ RICHMOND, KY, April 17, 2024 /24-7PressRelease/ -- Elder law lawyers at Elder La
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510085/kentucky-elder-law-attorneys-with-decades-of-legal-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elder-law-practice-of-scott-e-collins-pllc-protecting-families-and-individuals-with-elder-law-issues/b568ae7bf2c1b6194ae8a6f965ca502a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/kentucky-elder-law-attorneys-with-decades-of-legal-experience)
+ 
 
 
 

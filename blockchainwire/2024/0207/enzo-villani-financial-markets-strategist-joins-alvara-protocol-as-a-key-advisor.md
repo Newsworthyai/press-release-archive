@@ -37,7 +37,11 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/enzo-villani-financial-markets-strategist-joins-alvara-protocol-as-a-key-advisor)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/enzo-villani-joins-alvara-protocol-as-key-advisor-and-investor/4ebefd3517be14e0e0f33dada0e8b611) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/07/enzo-villani-joins-alvara-protocol-as-key-advisor)
+ 
 
 
 

@@ -7,7 +7,17 @@ DALLAS, TX, August 08, 2024 /24-7PressRelease/ -- Arlington, a leading provider 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513190/arlington-announces-availability-of-all-new-nist-800-171-system-security-plan-ssp-version-3-template-for-immediate-download)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arlington-launches-nist-800-171-ssp-version-3-template-for-enhanced-compliance/62fbd9f3ea10b8766af7c75b8d799d55) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/arlington-releases-updated-nist-800-171-system-security-plan-template/20245577)
+
+Pickup - [advos.io](https://advos.io/en/arlington-releases-nist-800-171-system-security-plan-version-3-template/20245577)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/arlington-releases-updated-nist-800-171-system-security-plan-template/20245577)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/arlington-releases-updated-nist-800-171-system-security-plan-template-for-enhanced-cybersecurity-compliance)
+ 
 
 
 

@@ -59,7 +59,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/comcast-rise-
 [Original/Source Press Release](https://newsdirect.com/news/comcast-rise-awards-grant-packages-to-100-southern-colorado-small-businesses-120865963)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-rise-awards-grant-packages-to-100-southern-colorado-small-businesses/ee7d479835e885f2ead55858920388ee) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/comcast-rise-boosts-100-southern-colorado-small-businesses-with-comprehensive-grant-packages)
+
+Pickup - [fishervista.com](https://fishervista.com/en/comcast-rise-awards-grant-packages-to-100-southern-colorado-small-businesses/20245704)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/comcast-rise-program-awards-comprehensive-grant-packages-to-100-southern-colorado-small-businesses/20245704)
+
+Pickup - [advos.io](https://advos.io/en/comcast-rise-awards-grant-packages-to-100-southern-colorado-small-businesses/20245704)
+ 
 
 
 

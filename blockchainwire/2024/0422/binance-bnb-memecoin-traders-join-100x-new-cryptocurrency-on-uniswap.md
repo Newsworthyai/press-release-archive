@@ -53,7 +53,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/binance-bnb-memecoin-traders-join-100x-new-cryptocurrency-on-uniswap)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/binance-traders-flock-to-shiba-budz-budz-promising-100x-return/3893deb440a9fcc7cbc22e8a4a618a4c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/binance-bnb-memecoin-traders-join-100x-new-cryptocurrency-on-uniswap)
+ 
 
 
 

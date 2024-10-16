@@ -69,7 +69,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/analysts-cons
 [Original/Source Press Release](https://newsdirect.com/news/analysts-consensus-reaffirms-significant-upside-potential-for-cardiol-therapeutics-675722872)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cardiol-therapeutics-attracts-investor-interest-with-potential-upside/476b73e2b57c19fe13de6319e8670e14) 
+
+ 
 
 
 

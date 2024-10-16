@@ -29,7 +29,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/for-the-fifth
 [Original/Source Press Release](https://newsdirect.com/news/for-the-fifth-consecutive-year-claravine-makes-the-2024-inc-5000-list-at-no-2967-196155451)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/claravine-ranks-no-2967-on-the-2024-inc-5000-list/e38646f06cd7aa17e8f4a096ed2fa223) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/claravine-secures-spot-on-inc-5000-list-for-fifth-consecutive-year)
+
+Pickup - [fishervista.com](https://fishervista.com/en/claravine-secures-spot-on-2024-inc-5000-list-for-fifth-consecutive-year/20245697)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/claravine-secures-spot-on-inc-5000-list-for-fifth-consecutive-year/20245697)
+
+Pickup - [advos.io](https://advos.io/en/claravine-achieves-fifth-consecutive-year-on-inc-5000-list/20245697)
+ 
 
 
 

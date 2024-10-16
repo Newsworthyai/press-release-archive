@@ -15,7 +15,9 @@ A Victory for Consumers
 [Original/Source Press Release](https://blockchainwire.io/press-release/terpin-wins-ninth-circuit-court-of-appeals-decision-reversing-summary-judgment-in-landmark-att-sim-swap-lawsuit)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/terpin-v-at-t-ninth-circuit-court-reverses-summary-judgment-in-landmark-sim-swap-case/3d5e14243b06664ebf2509095a0760b6) 
+
+ 
 
 
 

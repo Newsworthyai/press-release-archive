@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/tiicker-white
 [Original/Source Press Release](https://newsdirect.com/news/tiicker-whitepaper-findings-shareholder-perks-can-increase-confidence-in-management-promote-longer-term-holding-attract-new-investors-and-offer-many-more-benefits-907132531)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tiicker-launches-new-platform-to-drive-long-term-value-through-shareholder-perks/9dfcd3bb5712d3c1a4af521d57331f97) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/tiicker-study-reveals-untapped-potential-of-shareholder-perks-in-boosting-investor-engagement)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tiicker-whitepaper-highlights-importance-of-shareholder-perks-for-investor-engagement/20246529)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/tiicker-study-reveals-shareholder-perks-potential-to-boost-investor-engagement-and-company-value/20246529)
+
+Pickup - [advos.io](https://advos.io/en/tiicker-study-shows-shareholder-perks-boost-investor-confidence-and-engagement/20246529)
+ 
 
 
 

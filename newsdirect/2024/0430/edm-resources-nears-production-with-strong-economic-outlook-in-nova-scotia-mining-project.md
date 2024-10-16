@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/edm-resources
 [Original/Source Press Release](https://newsdirect.com/news/edm-resources-nears-production-with-strong-economic-outlook-in-nova-scotia-mining-project-937933333)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/edm-resources-nears-production-at-scotia-mine-with-strong-economic-outlook/f923ccf4094913fb7cd93b5dfc9af416) 
+
+ 
 
 
 

@@ -7,7 +7,11 @@ CARLSBAD, NM, June 11, 2024 /24-7PressRelease/ -- The City of Carlsbad will soon
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511607/carlston-ranch-breaks-ground-in-carlsbad-new-mexico)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exciting-news-for-carlsbad-groundbreaking-of-carlston-ranch-master-planned-community/f41db6ea2e61699fcb44f3f2b514f3f4) 
+
+
+Pickup - [advos.io](https://advos.io/en/carlston-ranch-begins-development-in-carlsbad-nm/20244016)
+ 
 
 
 

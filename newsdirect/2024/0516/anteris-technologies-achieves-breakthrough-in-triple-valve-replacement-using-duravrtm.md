@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/anteris-techn
 [Original/Source Press Release](https://newsdirect.com/news/anteris-technologies-achieves-breakthrough-in-triple-valve-replacement-using-duravr-141304101)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/anteris-technologies-achieves-breakthrough-in-triple-valve-replacement-using-duravrtm/bf27b2fb501950e491b309abd7e44a4d) 
+
+ 
 
 
 

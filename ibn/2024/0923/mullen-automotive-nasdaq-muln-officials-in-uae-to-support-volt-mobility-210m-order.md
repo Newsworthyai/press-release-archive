@@ -25,7 +25,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, i
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-officials-in-uae-to-support-volt-mobility-210m-order/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-nasdaq-muln-provides-update-on-210m-volt-mobility-uae-order/47401f0a844f18868189bbb169945fb6) 
+
+ 
 
 
 

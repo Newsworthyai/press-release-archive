@@ -35,7 +35,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/skynet-trading-receives-backing-from-saxo-bank-co-founder-lars-seier-christensen-and-edessa-capital--)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/skynet-trading-announces-private-transaction-with-seier-capital-and-edessa-capital/be1adbf726906c512224581d52736479) 
+
+ 
 
 
 

@@ -63,7 +63,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/chainbitvortex-unveils-robust-security-features-in-new-cryptocurrency-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chainbitvortex-revolutionizing-cryptocurrency-trading-with-cutting-edge-security/ead031b3eef6be44ba880b714955be30) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/chainbitvortex-revolutionizing-cryptocurrency-trading-with-cutting-edge-security)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/chainbitvortex-revolutionizing-cryptocurrency-trading-with-cutting-edge-security)
+ 
 
 
 

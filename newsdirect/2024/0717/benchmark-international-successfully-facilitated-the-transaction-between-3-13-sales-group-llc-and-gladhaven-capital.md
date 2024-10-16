@@ -39,7 +39,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-3-13-sales-group-llc-and-gladhaven-capital-630987950)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-successfully-facilitated-transaction-between-3-13-sales-group-llc-and-gladhaven-capital/35ca7656f77ed427f24d200eb5d8ae92) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/3-13-sales-group-acquired-by-gladhaven-capital-in-strategic-business-to-business-sales-merger)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-acquisition-of-3-13-sales-group-by-gladhaven-capital/20245016)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-acquisition-of-3-13-sales-group-by-gladhaven-capital/20245016)
+ 
 
 
 

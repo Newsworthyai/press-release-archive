@@ -50,7 +50,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/okaycoin-expands-services-to-south-korea-in-response-to-rising-crypto-staking-demand)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/okaycoin-extends-cryptocurrency-staking-services-to-south-korea/d76d85d0e9cd308dcad1e97cee8a4b52) 
+
+
+Pickup - [advos.io](https://advos.io/en/okaycoin-expands-cryptocurrency-staking-services-to-south-korea/20244182)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/okaycoin-extends-cryptocurrency-staking-services-to-south-korea)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/okaycoin-extends-cryptocurrency-staking-services-to-south-korea)
+ 
 
 
 

@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/oni-dex-debuts-multi-chain-ecosystem-launchpads-and-innovative-earning-mechanisms)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/oni-dex-launches-revolutionary-multi-chain-decentralized-exchange/5c9a2ab23e2b61b0571526c9e4bb4dae) 
+
+
+Pickup - [advos.io](https://advos.io/en/oni-dex-unveils-multi-chain-defi-ecosystem-with-launchpads-and-innovative-earning-mechanisms/20244205)
+ 
 
 
 

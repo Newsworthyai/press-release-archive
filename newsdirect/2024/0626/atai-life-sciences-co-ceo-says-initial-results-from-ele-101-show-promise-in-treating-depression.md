@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/atai-life-sci
 [Original/Source Press Release](https://newsdirect.com/news/atai-life-sciences-co-ceo-says-initial-results-from-ele-101-show-promise-in-treating-depression-153343707)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atai-life-sciences-co-ceo-shares-promising-results-of-ele-101-in-depression-treatment/9afa49a2a4baad3c27841d1f3e489310) 
+
+ 
 
 
 

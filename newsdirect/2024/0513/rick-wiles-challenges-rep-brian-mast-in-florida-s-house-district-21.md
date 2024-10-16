@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/rick-wiles-ch
 [Original/Source Press Release](https://newsdirect.com/news/rick-wiles-challenges-rep-brian-mast-in-floridas-house-district-21-388191158)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ft-pierce-businessman-rick-wiles-challenges-rep-brian-mast-in-florida-s-house-district-21/53b5350f33098bbaf2605f836d8eecc5) 
+
+ 
 
 
 

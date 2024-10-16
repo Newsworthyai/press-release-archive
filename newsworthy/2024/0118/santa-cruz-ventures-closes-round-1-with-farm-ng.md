@@ -39,7 +39,11 @@ Santa Cruz Ventures is the first institutional venture firm dedicated to funding
 [Original/Source Press Release](https://newsworthy.ai/news/20240118559/santa-cruz-ventures-closes-round-1-with-farm-ng)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/santa-cruz-ventures-announces-10-05-million-investment-in-farm-ng/70e9e130e6dbbec275a4f6c5f696fc7c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/18/farm-ng-secures-10m-to-bring-robotics-and-ai-to-sustainable-agriculture)
+ 
 
 
 

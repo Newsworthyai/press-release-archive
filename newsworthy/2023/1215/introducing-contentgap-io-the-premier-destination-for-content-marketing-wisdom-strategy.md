@@ -23,7 +23,11 @@ Step into the future of content marketing. Explore more at www.ContentGap.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231215796/introducing-contentgap-io-the-premier-destination-for-content-marketing-wisdom-strategy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-platform-content-gap-launches-to-bridge-knowledge-gap-in-content-marketing/8642a237f7650d8d83a52d5e48359fa4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/15/contentgap-io-the-premier-knowledge-hub-for-content-marketing-excellence)
+ 
 
 
 

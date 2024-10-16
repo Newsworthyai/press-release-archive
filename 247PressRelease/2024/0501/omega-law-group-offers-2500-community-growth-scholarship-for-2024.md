@@ -7,7 +7,9 @@ LOS ANGELES, CA, May 01, 2024 /24-7PressRelease/ -- Undergraduate and graduate s
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510557/omega-law-group-offers-2500-community-growth-scholarship-for-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/omega-law-group-offers-2500-community-growth-scholarship-for-spring-2025/b07522166402f53a3a8acc5a4a6a086d) 
+
+ 
 
 
 

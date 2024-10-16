@@ -51,7 +51,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/time-to-harve
 [Original/Source Press Release](https://newsdirect.com/news/time-to-harvest-htx-liquid-restaking-injects-ethfi-and-zklink-airdrops-and-allows-points-redemption-soon-686343824)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-liquid-restaking-injects-ethfi-and-zklink-airdrops/be849f3edbef4732187f4b16fa3967ea) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-liquid-restaking-injects-ethfi-and-zklink-airdrops)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-liquid-restaking-injects-ethfi-and-zklink-airdrops)
+ 
 
 
 

@@ -35,7 +35,11 @@ Substack: https://substack.com/profile/124411026-clique
 [Original/Source Press Release](https://blockchainwire.io/press-release/clique-raises-8m-in-series-a-to-revolutionize-the-way-smart-contracts-access-data)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clique-secures-8m-in-series-a-funding-for-compute-coordination-network/f1bb4295598f5192c7192ca81fdcd550) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/clique-secures-8m-in-series-a-to-revolutionize-data-access-for-smart-contracts)
+ 
 
 
 

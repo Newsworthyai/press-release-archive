@@ -7,7 +7,13 @@ SACRAMENTO, CA, June 27, 2024 /24-7PressRelease/ -- BZBGEAR®, a global leader i
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512079/fortune-finds-bzbgear-at-infocomm-2024-with-three-new-awards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bzbgear-excels-at-infocomm-2024-receives-three-awards-for-pro-av-solutions/749f6b96267613288e1e908013e5d98b) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bzbgear-honored-with-three-awards-at-infocomm-2024/20244526)
+
+Pickup - [advos.io](https://advos.io/en/bzbgear-triumphs-at-infocomm-2024-with-three-prestigious-awards/20244526)
+ 
 
 
 

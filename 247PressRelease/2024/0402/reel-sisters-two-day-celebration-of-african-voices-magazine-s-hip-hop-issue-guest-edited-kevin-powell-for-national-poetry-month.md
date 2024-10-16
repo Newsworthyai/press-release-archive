@@ -7,7 +7,11 @@ BROOKLYN, NY, April 02, 2024 /24-7PressRelease/ -- Reel Sisters is proud to anno
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509703/reel-sisters-two-day-celebration-of-african-voices-magazines-hip-hop-issue-guest-edited-kevin-powell-for-national-poetry-month)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/reel-sisters-announces-hip-hop-celebration-event-in-new-york/e4e34d38aa096f1fb8a3ff4c45a357bf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/reel-sisters-celebrates-hip-hop-s-50th-with-african-voices-magazine)
+ 
 
 
 

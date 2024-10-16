@@ -19,7 +19,21 @@ BitMart is the premier global digital asset trading platform. With millions of u
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-slashes-fiat-on-ramp-fees-for-a-smoother-trading-experience-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmart-announces-25-reduction-in-on-ramp-processing-fees-and-launches-new-campaign/c76272c8e2f647605acca5a0ce12b728) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitmart-announces-25-reduction-in-on-ramp-processing-fees-and-launches-new-campaign)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitmart-announces-25-reduction-in-on-ramp-processing-fees-and-launches-new-campaign)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bitmart-reduces-fiat-on-ramp-fees-by-25-to-enhance-user-trading-experience/20245817)
+
+Pickup - [advos.io](https://advos.io/en/bitmart-slashes-fiat-on-ramp-fees-to-enhance-trading-experience/20245817)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/19/bitmart-announces-25-reduction-in-fiat-on-ramp-fees-launches-more-benefits-less-fees-campaign)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitmart-reduces-fiat-on-ramp-fees-to-enhance-user-trading-experience/20245817)
+ 
 
 
 

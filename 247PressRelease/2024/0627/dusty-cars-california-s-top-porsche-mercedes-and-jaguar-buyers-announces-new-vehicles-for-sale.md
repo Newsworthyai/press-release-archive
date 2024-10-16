@@ -7,7 +7,13 @@ PLEASANTON, CA, June 27, 2024 /24-7PressRelease/ -- Dusty Cars, California's top
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512078/dusty-cars-californias-top-porsche-mercedes-and-jaguar-buyers-announces-new-vehicles-for-sale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dusty-cars-announces-new-classic-car-listings-and-valuation-services/a10d0adebd0073fa7026101180d085e9) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dusty-cars-announces-new-classic-vehicles-for-sale/20244535)
+
+Pickup - [advos.io](https://advos.io/en/dusty-cars-announces-new-classic-vehicles-for-sale-attracting-enthusiasts-nationwide/20244535)
+ 
 
 
 

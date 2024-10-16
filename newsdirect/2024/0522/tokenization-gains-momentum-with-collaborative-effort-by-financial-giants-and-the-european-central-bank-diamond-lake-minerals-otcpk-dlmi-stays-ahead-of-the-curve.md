@@ -61,7 +61,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/tokenization-
 [Original/Source Press Release](https://newsdirect.com/news/tokenization-gains-momentum-with-collaborative-effort-by-financial-giants-and-the-european-central-bank-diamond-lake-minerals-otcpk-dlmi-stays-ahead-of-the-curve-107445282)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tokenization-gains-momentum-as-diamond-lake-minerals-stays-ahead-of-the-curve/9917682e619ee2fb38d5a6639a8f9a5a) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tokenization-gains-momentum-as-diamond-lake-minerals-stays-ahead-of-the-curve)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tokenization-gains-momentum-as-diamond-lake-minerals-stays-ahead-of-the-curve)
+ 
 
 
 

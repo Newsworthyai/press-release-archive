@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, a
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-subsidiary-inks-contract-for-sale-of-70-b4-ev-trucks/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-and-bollinger-motors-to-sell-70-all-electric-trucks-to-doering-fleet-management/aed64d2bef3b845199a304027ce8064e) 
+
+ 
 
 
 

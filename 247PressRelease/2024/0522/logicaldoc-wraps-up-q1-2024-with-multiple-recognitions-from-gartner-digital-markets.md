@@ -7,7 +7,9 @@ FAIRLAWN, NJ, May 22, 2024 /24-7PressRelease/ --   GetApp • Document Version C
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511060/logicaldoc-wraps-up-q1-2024-with-multiple-recognitions-from-gartner-digital-markets)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/logicaldoc-receives-top-ratings-and-recognition-from-gartner-digital-markets/d2ed24d90d6de38063c76ba3f42624ba) 
+
+ 
 
 
 

@@ -39,7 +39,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/boom-launches-its-defi-ecosystem-to-lead-the-unbanked-generation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boom-technologies-launches-decentralized-finance-market-infrastructure-for-the-unbanked/4e4a8119a5ae8910c1c7edc63f114233) 
+
+ 
 
 
 

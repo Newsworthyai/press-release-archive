@@ -62,7 +62,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/dfcapp-exchange-contract-trading-2024-development-plan-pioneering-innovation-and-leading-the-future)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dfcapp-introduces-cutting-edge-platform-for-contract-trading-in-cryptocurrency-market/cc535ebe3a857261a925e325c9360bfd) 
+
+ 
 
 
 

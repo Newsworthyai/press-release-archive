@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ondo-insurtec
 [Original/Source Press Release](https://newsdirect.com/news/ondo-insurtech-ceo-discusses-upbeat-2023-trading-update-as-us-expansion-gains-momentum-855548519)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ondo-insurtech-ceo-discusses-upbeat-2023-trading-update-as-us-expansion-gains-momentum/f91c20811fc36fd73dbbd8116f2a207a) 
+
+ 
 
 
 

@@ -7,7 +7,15 @@ LAKE PLACID, FL, July 18, 2024 /24-7PressRelease/ -- Inventor Ty Yacoboni recent
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512645/eco-power-meets-pickup-truck-practicality)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/inventor-ty-yacoboni-unveils-revolutionary-retractable-solar-blanket-for-pickup-trucks/12b84d6858d556dd206e1ccbda1e2615) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/revolutionary-retractable-solar-blanket-for-pickup-trucks-unveiled-by-inventor-ty-yacoboni)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ty-yacoboni-unveils-world-s-first-retractable-solar-blanket-for-pickup-trucks/20245043)
+
+Pickup - [advos.io](https://advos.io/en/ty-yacoboni-unveils-world-s-first-retractable-solar-blanket-for-pickup-trucks/20245043)
+ 
 
 
 

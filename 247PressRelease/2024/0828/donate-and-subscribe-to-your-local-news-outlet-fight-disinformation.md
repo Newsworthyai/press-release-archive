@@ -7,7 +7,17 @@ SACRAMENTO, CA, August 28, 2024 /24-7PressRelease/ -- Tired of established media
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513760/donate-and-subscribe-to-your-local-news-outlet-fight-disinformation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/support-local-news-ensure-reliable-information-for-2024-elections/60c9a4db96824b6b483254693c686343) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/local-news-outlets-seek-support-to-combat-disinformation-in-2024-elections)
+
+Pickup - [fishervista.com](https://fishervista.com/en/support-for-local-news-outlets-crucial-in-combating-disinformation-ensuring-informed-democracy/20246314)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/local-news-outlets-seek-support-to-combat-disinformation-in-2024-elections/20246314)
+
+Pickup - [advos.io](https://advos.io/en/support-local-news-to-combat-disinformation-and-strengthen-democracy/20246314)
+ 
 
 
 

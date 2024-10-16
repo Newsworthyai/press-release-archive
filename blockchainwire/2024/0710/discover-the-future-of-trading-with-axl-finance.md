@@ -23,7 +23,19 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-future-of-trading-with-axl-finance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/axl-finance-revolutionizing-trading-with-cutting-edge-ai-algorithms-and-user-friendly-platforms/e1f66749124843d29068bda61c2cadc0) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/axl-finance-revolutionizes-trading-with-advanced-ai-platform-and-upcoming-mobile-app/20244846)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/axl-finance-revolutionizes-trading-with-ai-powered-platform-and-upcoming-mobile-app)
+
+Pickup - [advos.io](https://advos.io/en/axl-finance-revolutionizes-trading-with-advanced-ai-and-upcoming-mobile-app/20244846)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/axl-finance-revolutionizing-trading-with-cutting-edge-ai-algorithms-and-user-friendly-platforms)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/axl-finance-revolutionizing-trading-with-cutting-edge-ai-algorithms-and-user-friendly-platforms)
+ 
 
 
 

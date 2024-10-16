@@ -38,7 +38,11 @@ Part of the first generation of Korean PC online game developers and Korean mobi
 [Original/Source Press Release](https://blockchainwire.io/press-release/multiplayer-strategy-game-robohero-featuring-seamless-integration-of-tokens-and-nfts-to-launch-on-wemix-play)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemade-launches-robohero-game-in-web3-metaverse/d357c96a74480039179b6297fc92f408) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/02/robohero-groundbreaking-web3-strategy-game-launching-on-wemix-play)
+ 
 
 
 

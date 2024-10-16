@@ -53,7 +53,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/goodwag-an-am
 [Original/Source Press Release](https://newsdirect.com/news/goodwag-an-american-woman-owned-company-with-a-mission-to-expand-and-innovate-pet-waste-clean-up-567627151)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/goodwag-tapping-into-the-growing-trend-of-environmentally-conscious-pet-owners/4c7be99d6b15dbd7eb5c15a09686ca50) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/goodwag-innovates-pet-waste-management-tapping-into-millennial-and-gen-z-market-trends)
+
+Pickup - [fishervista.com](https://fishervista.com/en/goodwag-s-innovative-approach-to-pet-waste-management-a-potential-game-changer/20245897)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/goodwag-innovates-pet-waste-management-tapping-into-millennial-and-gen-z-market-trends/20245897)
+
+Pickup - [advos.io](https://advos.io/en/goodwag-poised-to-revolutionize-pet-waste-management-with-innovative-poopail-product/20245897)
+ 
 
 
 

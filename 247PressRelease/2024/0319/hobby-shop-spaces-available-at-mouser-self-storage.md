@@ -7,7 +7,11 @@ ALVARADO, TX, March 19, 2024 /24-7PressRelease/ -- RDS Real Estate, a leader in 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509238/hobby-shop-spaces-available-at-mouser-self-storage)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rds-real-estate-announces-availability-of-small-shop-space-for-rent-in-alvarado-texas/46e8e0fa4fcae1fba31d704cb8497342) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/hobby-shop-spaces-available-at-mouser-self-storage-in-alvarado)
+ 
 
 
 

@@ -17,7 +17,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/doubleview-go
 [Original/Source Press Release](https://newsdirect.com/news/doubleview-gold-corp-resumes-drilling-at-hat-project-in-northern-british-columbia-501581347)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/doubleview-gold-corp-resumes-drilling-at-hat-project-in-bc/9b5de1ca7a383c9ca9d99e631781c93e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/doubleview-gold-corp-resumes-drilling-at-hat-project-aims-to-enhance-mineral-resource-estimate)
+
+Pickup - [fishervista.com](https://fishervista.com/en/doubleview-gold-corp-resumes-drilling-at-hat-project-in-northern-british-columbia/20245327)
+
+Pickup - [advos.io](https://advos.io/en/doubleview-gold-corp-resumes-drilling-at-hat-project-in-northern-british-columbia/20245327)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/doubleview-gold-corp-resumes-drilling-at-hat-project-aims-to-enhance-mineral-resource-estimate)
+ 
 
 
 

@@ -64,7 +64,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-duelgamegpt-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-duel-token-for-trading-in-the-innovation-zone/87ce503bfd3c20e27a49153230a69e42) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/09/gamegpt-s-duel-token-debuts-on-xt-com-exchange)
+ 
 
 
 

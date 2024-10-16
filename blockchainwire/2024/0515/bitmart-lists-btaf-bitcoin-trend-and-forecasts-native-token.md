@@ -17,7 +17,13 @@ For media inquiries, please contact:The BTAF token teamBTAFtoken.io[BTAFtoken@bi
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-lists-btaf-bitcoin-trend-and-forecasts-native-token-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/btaftoken-io-and-bitmart-announce-launch-of-btaf-token-on-bitmart-exchange/75f90580e1e7a907b0b610dc639d7819) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/btaftoken-io-and-bitmart-announce-launch-of-btaf-token-on-bitmart-exchange)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/btaftoken-io-and-bitmart-announce-launch-of-btaf-token-on-bitmart-exchange)
+ 
 
 
 

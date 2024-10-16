@@ -84,7 +84,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-biden-adm
 [Original/Source Press Release](https://newsdirect.com/news/the-biden-administration-just-finalized-a-controversial-new-retirement-rule-here-are-5-things-you-need-to-know-now-720049106)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/biden-administration-s-new-retirement-rule-5-key-facts-you-need-to-know/692b250cc26c6e14351c787f456d5f64) 
+
+
+Pickup - [advos.io](https://advos.io/en/biden-administration-finalizes-controversial-retirement-rule-key-takeaways/20244155)
+ 
 
 
 

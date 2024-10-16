@@ -7,7 +7,15 @@ LAKE FOREST, IL, July 17, 2024 /24-7PressRelease/ -- PepperBall® is excited to 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512594/pepperball-to-showcase-non-lethal-defense-method-at-2024-fbinaa-national-training-conference-booth-107)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pepperball-r-to-showcase-non-lethal-products-at-fbi-national-training-conference/2ebbba702aafff53ec6cb5917891966e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/pepperball-r-to-showcase-non-lethal-defense-solutions-at-fbi-national-training-conference)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pepperball-r-to-present-non-lethal-defense-solutions-at-2024-fbinaa-national-training-conference/20245007)
+
+Pickup - [advos.io](https://advos.io/en/pepperball-r-to-highlight-non-lethal-defense-solutions-at-2024-fbinaa-national-training-conference/20245007)
+ 
 
 
 

@@ -19,7 +19,11 @@ Patient testimonials offer a glimpse into the profound impact of TMS therapy. In
 [Original/Source Press Release](https://newsworthy.ai/news/20231121886/tms-solutions-transforming-lives-through-revolutionary-depression-therapy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tms-solutions-redefines-depression-treatment-landscape/ba1c91158b69237fd06ab5ce726ab01e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/21/revolutionary-depression-therapy-transforms-lives)
+ 
 
 
 

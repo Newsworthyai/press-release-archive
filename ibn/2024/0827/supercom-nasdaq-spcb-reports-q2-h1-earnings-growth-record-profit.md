@@ -7,7 +7,17 @@ Electronic monitoring (“EM”) technology innovator SuperCom (NASDAQ: SPCB) 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/supercom-nasdaq-spcb-reports-q2-h1-earnings-growth-record-profit/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/supercom-reports-impressive-developments-and-new-contracts-in-2024/d9c2b3666f6516be1d1a0bf5073de711) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/supercom-reports-strong-q2-and-h1-2024-earnings-driven-by-electronic-monitoring-technology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/supercom-reports-significant-earnings-growth-and-record-profit-in-q2-h1-2024/20246188)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/supercom-reports-significant-earnings-growth-in-q2-and-h1-2024/20246188)
+
+Pickup - [advos.io](https://advos.io/en/supercom-reports-q2-h1-earnings-growth-and-record-profit/20246188)
+ 
 
 
 

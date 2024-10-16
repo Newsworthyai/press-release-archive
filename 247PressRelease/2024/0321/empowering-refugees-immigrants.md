@@ -7,7 +7,11 @@ ARLINGTON, VA, March 21, 2024 /24-7PressRelease/ -- The Ethiopian Community Deve
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509405/empowering-refugees-immigrants)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ecdc-empowers-refugees-and-immigrants-across-the-u-s/e863310bf0478514df0d93a7466dbac0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/empowering-refugees-and-immigrants-ecdc-s-unique-approach)
+ 
 
 
 

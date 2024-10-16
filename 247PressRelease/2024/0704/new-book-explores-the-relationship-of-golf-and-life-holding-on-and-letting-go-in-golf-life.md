@@ -7,7 +7,15 @@ CHICAGO, IL, July 04, 2024 /24-7PressRelease/ -- A new book that delves into the
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512278/new-book-explores-the-relationship-of-golf-and-life-holding-on-and-letting-go-in-golf-life)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-explores-mental-challenges-of-golf-and-life/fe7f9ee53be3ee5615ec8a8cc2153f1d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-book-explores-the-psychological-parallels-between-golf-and-life/20244708)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/04/new-book-holding-on-and-letting-go-explores-golf-s-lessons-for-life)
+
+Pickup - [advos.io](https://advos.io/en/new-book-explores-the-relationship-of-golf-and-life-holding-on-and-letting-go-in-golf-life/20244708)
+ 
 
 
 

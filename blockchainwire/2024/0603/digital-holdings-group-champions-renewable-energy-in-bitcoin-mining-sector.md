@@ -25,7 +25,9 @@ Website | Twitter | YouTube | Facebook | Discord | Instagram
 [Original/Source Press Release](https://blockchainwire.io/press-release/digital-holdings-group-champions-renewable-energy-in-bitcoin-mining-sector-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/digital-holdings-group-leads-the-way-in-sustainable-cryptocurrency-mining/027ad279b84a2e3b02e23571a25be9e9) 
+
+ 
 
 
 

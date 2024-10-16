@@ -7,7 +7,9 @@ SAN FRANCISCO, CA, May 10, 2024 /24-7PressRelease/ -- Poets&Quants, the leading 
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510788/poetsquants-names-best-brightest-mbas-of-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/poets-quants-honors-100-of-the-most-accomplished-mbas-in-the-class-of-2024/7c63f5136de5c9e7ac9f479c726c3534) 
+
+ 
 
 
 

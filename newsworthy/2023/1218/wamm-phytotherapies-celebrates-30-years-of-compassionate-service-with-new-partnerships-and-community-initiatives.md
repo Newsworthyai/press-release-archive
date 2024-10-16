@@ -53,7 +53,9 @@ Bayley Logan, Marketing Director, Hook Outlet, (707) 815-5923, bayley@hookoutlet
 [Original/Source Press Release](https://newsworthy.ai/news/20231218913/wamm-phytotherapies-celebrates-30-years-of-compassionate-service-with-new-partnerships-and-community-initiatives)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wamm-phytotherapies-celebrates-30-years-and-announces-new-collaborations/354edb4af18fb23168772374617dceca) 
+
+ 
 
 
 

@@ -69,7 +69,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-crossroad
 [Original/Source Press Release](https://newsdirect.com/news/the-crossroads-summit-offers-investors-looking-to-draw-order-from-chaos-an-opportunity-to-discover-innovations-to-navigate-a-changing-world-171418790)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crossroads-summit-navigating-chaos-in-a-changing-world/8ca14d57728a76deea1f6ab198b6227c) 
+
+ 
 
 
 

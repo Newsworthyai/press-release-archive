@@ -31,7 +31,13 @@ Media Contact:Team Retik[bd@retik.com](mailto:bd@retik.com)[https://retik.com/](
 [Original/Source Press Release](https://blockchainwire.io/press-release/retik-finance-retik-schedules-launch-for-21st-may-closed-presale-with-32050000-raised)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/retik-finance-retik-revolutionizing-global-finance-with-innovative-solutions/cd5b3d5f5b3e7985690c3ab7597d61b3) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/retik-finance-retik-revolutionizing-global-finance-with-innovative-solutions)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/retik-finance-retik-revolutionizing-global-finance-with-innovative-solutions)
+ 
 
 
 

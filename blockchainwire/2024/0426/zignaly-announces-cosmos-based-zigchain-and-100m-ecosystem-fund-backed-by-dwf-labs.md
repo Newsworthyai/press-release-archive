@@ -37,7 +37,9 @@ You can learn more about Zignaly at these links: Website | X (Twitter) | Telegra
 [Original/Source Press Release](https://blockchainwire.io/press-release/zignaly-announces-cosmos-based-zigchain-and-100m-ecosystem-fund-backed-by-dwf-labs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zignaly-launches-zigchain-and-100-million-ecosystem-development-fund/38c508fb7247621897676899bced7690) 
+
+ 
 
 
 

@@ -23,7 +23,11 @@ To stay at the forefront of pharmaceutical news and discussions, visit www.Pharm
 [Original/Source Press Release](https://newsworthy.ai/news/20231206861/pharmaceutical-press-debuts-the-source-for-pharmaceutical-news-and-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-pharmaceutical-press-your-authoritative-source-for-pharmaceutical-news-and-insights/e5525fd9a31dcc803d68b3010598ed1e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/06/pharmaceutical-press-a-new-digital-hub-for-pharmaceutical-news-and-insights)
+ 
 
 
 

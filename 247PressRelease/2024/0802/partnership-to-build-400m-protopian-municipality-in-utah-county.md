@@ -7,7 +7,17 @@ PROVO, UT, August 02, 2024 /24-7PressRelease/ -- "Rainbird Development Company, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513035/partnership-to-build-400m-protopian-municipality-in-utah-county)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rainbird-development-company-forms-partnership-to-create-innovative-home-rule-community/89c3ba522e5fa6edd0d8bc56af5315bf) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/partnership-to-build-400m-protopian-municipality-in-utah-county/20245457)
+
+Pickup - [advos.io](https://advos.io/en/rainbird-development-and-rainbird-village-partner-to-build-400m-protopian-municipality-in-utah-county/20245457)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/innovative-400m-cooperative-community-planned-for-utah-county)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/innovative-400m-cooperative-community-planned-for-utah-county)
+ 
 
 
 

@@ -7,7 +7,17 @@ SYDNEY, AUSTRALIA, August 14, 2024 /24-7PressRelease/ -- Procurement management 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513381/how-ai-is-revolutionizing-supply-chains)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-revolutionizing-supply-chain-management/87e892f2130c88f98acf0ecfb61f19bb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/ai-revolutionizes-supply-chain-management-robobai-ceo-outlines-key-transformations)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ai-innovations-transforming-supply-chain-management/20245708)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ai-revolutionizes-supply-chain-management-enhancing-efficiency-and-risk-mitigation/20245708)
+
+Pickup - [advos.io](https://advos.io/en/ai-s-transformative-impact-on-supply-chain-management/20245708)
+ 
 
 
 

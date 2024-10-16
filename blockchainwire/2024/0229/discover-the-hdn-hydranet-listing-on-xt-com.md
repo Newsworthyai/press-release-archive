@@ -54,7 +54,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-hdn-hydranet-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-announces-listing-of-hdn-token-and-hdn-usdt-trading-pair/6be1d9edf36dc2997ec5102c98503526) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/29/hydranet-s-hdn-token-debuts-on-xt-com-exchange)
+ 
 
 
 

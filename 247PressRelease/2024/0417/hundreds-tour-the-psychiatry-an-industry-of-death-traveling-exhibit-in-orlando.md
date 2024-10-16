@@ -7,7 +7,11 @@ ORLANDO, FL, April 17, 2024 /24-7PressRelease/ -- Hundreds of concerned Floridia
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510086/hundreds-tour-the-psychiatry-an-industry-of-death-traveling-exhibit-in-orlando)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/florida-exhibit-exposes-mental-health-abuse-in-psychiatry-industry/2b5a80ee9b7aa96ac7fc868ccf453686) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/hundreds-tour-the-psychiatry-an-industry-of-death-traveling-exhibit-in-orlando)
+ 
 
 
 

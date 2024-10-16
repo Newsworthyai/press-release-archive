@@ -57,7 +57,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/leadstar-and-
 [Original/Source Press Release](https://newsdirect.com/news/leadstar-and-rssa-announce-partnership-to-optimize-agent-access-for-social-security-education-platform-974924403)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leadstar-and-rssa-announce-partnership-to-enhance-social-security-education-platform/3e0aa0e198a2355de445efcf99663044) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/leadstar-and-rssa-join-forces-to-enhance-social-security-education-for-insurance-agents)
+
+Pickup - [fishervista.com](https://fishervista.com/en/leadstar-and-rssa-forge-partnership-to-enhance-social-security-education-for-amerilife-agents/20246199)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/leadstar-partners-with-rssa-to-enhance-social-security-education-for-insurance-agents/20246199)
+
+Pickup - [advos.io](https://advos.io/en/leadstar-partners-with-rssa-to-enhance-social-security-education-for-agents/20246199)
+ 
 
 
 

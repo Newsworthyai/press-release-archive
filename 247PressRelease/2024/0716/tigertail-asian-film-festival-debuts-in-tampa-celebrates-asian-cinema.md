@@ -7,7 +7,15 @@ TAMPA, FL, July 16, 2024 /24-7PressRelease/ -- The Tigertail Asian Film Festival
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512520/tigertail-asian-film-festival-debuts-in-tampa-celebrates-asian-cinema)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tigertail-asian-film-festival-debuts-in-tampa-celebrating-asian-cinema-and-filmmakers/4629de1cea438406adb0c6f884d03871) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/inaugural-tigertail-asian-film-festival-celebrates-diversity-in-cinema)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tigertail-asian-film-festival-debuts-in-tampa-celebrates-asian-cinema/20244970)
+
+Pickup - [advos.io](https://advos.io/en/tigertail-asian-film-festival-makes-its-debut-in-tampa-showcasing-diverse-asian-cinema/20244970)
+ 
 
 
 

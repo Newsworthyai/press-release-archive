@@ -23,7 +23,11 @@ Stay informed and explore the world of statistics at www.StatisticianZone.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231128879/statisticianzone-com-debuts-a-destination-for-data-enthusiasts-and-statistical-minds)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/statisticianzone-com-your-go-to-platform-for-expert-driven-statistical-insights/500237241a9cf8357a94a3f88fac9aba) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/28/statisticianzone-com-a-premier-destination-for-statistical-insights-and-expertise)
+ 
 
 
 

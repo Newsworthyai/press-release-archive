@@ -68,7 +68,11 @@ X - [https://x.com/usharktokens](https://proficientpr.com/wp-json/wp-mail-smtp/v
 [Original/Source Press Release](https://blockchainwire.io/press-release/ushark-bridging-startups-and-crypto-with-real-world-asset-opportunities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionizing-startup-investment-the-rise-of-equity-crowdfunding-and-ushark/98a86dd4280e32c9aef1af845ed3e00a) 
+
+
+Pickup - [advos.io](https://advos.io/en/ushark-pioneering-startup-investment-through-crypto-and-real-world-assets/20244175)
+ 
 
 
 

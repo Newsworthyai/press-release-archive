@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/lithium-austr
 [Original/Source Press Release](https://newsdirect.com/news/lithium-australia-recycling-subsidiary-envirostream-inks-3-year-agreement-with-hyundai-glovis-863848908)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lithium-australia-s-envirostream-inks-3-year-agreement-with-hyundai-glovis-for-battery-recycling-services/eae5142c08b68af086852d12151e5e62) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/lithium-australia-s-envirostream-secures-3-year-battery-recycling-deal-with-hyundai-glovis)
+ 
 
 
 

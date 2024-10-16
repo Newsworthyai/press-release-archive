@@ -77,7 +77,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-future-of
 [Original/Source Press Release](https://newsdirect.com/news/the-future-of-medicine-key-biotech-stocks-to-watch-245954060)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-future-of-medicine-key-biotech-stocks-to-watch/828449eac84e816ed44bc935eaae031e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/biotech-innovations-pave-the-way-for-next-generation-cancer-treatments)
+
+Pickup - [fishervista.com](https://fishervista.com/en/the-future-of-medicine-key-biotech-stocks-to-watch/20245869)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/four-biotech-companies-advancing-cancer-treatment-and-precision-medicine/20245869)
+
+Pickup - [advos.io](https://advos.io/en/the-future-of-medicine-key-biotech-stocks-to-watch/20245869)
+ 
 
 
 

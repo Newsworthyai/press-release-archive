@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/vertical-iq-s
 [Original/Source Press Release](https://newsdirect.com/news/vertical-iq-selected-as-nc-state-master-of-science-in-analytics-practicum-sponsor-678977076)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vertical-iq-collaborates-with-nc-state-university-for-msa-practicum-sponsorship/7eb721d4a6706166e080b5d6d0e8c829) 
+
+ 
 
 
 

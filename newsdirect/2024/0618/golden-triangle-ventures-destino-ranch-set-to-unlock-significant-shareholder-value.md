@@ -87,7 +87,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/golden-triang
 [Original/Source Press Release](https://newsdirect.com/news/golden-triangle-ventures-destino-ranch-set-to-unlock-significant-shareholder-value-902334574)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-triangle-ventures-destino-ranch-project-to-redefine-entertainment-industry/beb8a2dc6878cf451d4fef18d1881c36) 
+
+
+Pickup - [advos.io](https://advos.io/en/golden-triangle-ventures-destino-ranch-poised-to-redefine-entertainment-and-hospitality/20244238)
+
+Pickup - [fishervista.com](https://fishervista.com/en/golden-triangle-ventures-destino-ranch-to-redefine-entertainment-and-hospitality/20244238)
+ 
 
 
 

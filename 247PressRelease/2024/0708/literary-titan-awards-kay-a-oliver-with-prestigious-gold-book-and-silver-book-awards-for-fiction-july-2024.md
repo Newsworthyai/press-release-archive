@@ -7,7 +7,15 @@ LOS ANGELES, CA, July 08, 2024 /24-7PressRelease/ -- We are thrilled to announce
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512313/literary-titan-awards-kay-a-oliver-with-prestigious-gold-book-and-silver-book-awards-for-fiction-july-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/author-kay-a-oliver-wins-gold-and-silver-book-awards-for-exceptional-fiction/f619b4ca828fde8c092238a12dc38cb8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/kay-a-oliver-honored-with-gold-and-silver-literary-titan-awards-for-fiction/20244743)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/kay-a-oliver-wins-gold-and-silver-book-awards-from-literary-titan)
+
+Pickup - [advos.io](https://advos.io/en/kay-a-oliver-honored-with-gold-and-silver-literary-titan-awards/20244743)
+ 
 
 
 

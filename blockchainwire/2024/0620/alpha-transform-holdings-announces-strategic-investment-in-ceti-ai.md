@@ -39,7 +39,17 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/alpha-transform-holdings-announces-strategic-investment-in-cei-ai)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alpha-transform-holdings-invests-in-ce-i-ai-for-decentralized-ai-infrastructure/39ea5670df0ab8bcb1fe07d81b2e9867) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/alpha-transform-holdings-invests-in-ceti-ai-to-advance-decentralized-ai-infrastructure/20244333)
+
+Pickup - [advos.io](https://advos.io/en/alpha-transform-holdings-invests-in-ai-infrastructure-leader-ceti-ai/20244333)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/alpha-transform-holdings-invests-in-ce-i-ai-for-decentralized-ai-infrastructure)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/alpha-transform-holdings-invests-in-ce-i-ai-for-decentralized-ai-infrastructure)
+ 
 
 
 

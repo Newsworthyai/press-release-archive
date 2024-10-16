@@ -39,7 +39,21 @@ Telegram Channel: https://t.me/fantongamebot
 [Original/Source Press Release](https://blockchainwire.io/press-release/fanton-secures-seed-investment-from-animoca-brands-delphi-ventures-hashkey-x-ton-accelerator-and-kenetic-capital-to-propel-its-blockchain-fantasy-football-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fanton-fantasy-football-secures-1m-seed-funding-and-gains-strategic-momentum/2b5411794bc5163d27e4285c5bdd3865) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/fanton-raises-1m-in-seed-funding-to-revolutionize-fantasy-football-on-blockchain)
+
+Pickup - [fishervista.com](https://fishervista.com/en/fanton-secures-1m-seed-funding-to-revolutionize-blockchain-fantasy-football/20245893)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/fanton-fantasy-football-raises-1m-in-seed-funding-to-revolutionize-blockchain-based-sports-gaming/20245893)
+
+Pickup - [advos.io](https://advos.io/en/fanton-secures-1m-seed-investment-to-revolutionize-fantasy-football-with-blockchain/20245893)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/fanton-fantasy-football-secures-1m-seed-funding-and-gains-strategic-momentum)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/fanton-fantasy-football-secures-1m-seed-funding-and-gains-strategic-momentum)
+ 
 
 
 

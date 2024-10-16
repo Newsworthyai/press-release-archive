@@ -35,7 +35,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockypro-unveils-groundbreaking-innovations-at-global-tech-conference-and-initiates-global-expansion)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockypro-unveils-technological-achievements-and-global-expansion-plan-at-global-tech-conference/47d8bb66ffd9deb5c43bf4d07f4b3cd9) 
+
+ 
 
 
 

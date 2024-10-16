@@ -7,7 +7,13 @@ NORMAN, OK, June 29, 2024 /24-7PressRelease/ -- Brockhaus Jewelry is excited to 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512150/celebrate-the-new-location-of-brockhaus-jewelry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brockhaus-jewelry-opens-new-store-in-norman-oklahoma/b393f3e02c8e43a6aac9d1cfccfa7806) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/brockhaus-jewelry-announces-soft-opening-of-new-norman-location/20244597)
+
+Pickup - [advos.io](https://advos.io/en/brockhaus-jewelry-celebrates-new-location-in-norman-oklahoma/20244597)
+ 
 
 
 

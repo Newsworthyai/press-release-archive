@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/vaultymint-exchange-unveils-global-expansion-strategy-to-deepen-global-integration-of-digital-currency-markets)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vaultymint-exchange-unveils-global-expansion-strategy-for-digital-currency-trading/fb4fd6b3de35fb731a0cb9fe42fe1bf6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/vaultymint-exchange-charts-global-expansion-to-democratize-digital-currency-trading)
+ 
 
 
 

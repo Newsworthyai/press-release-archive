@@ -11,7 +11,17 @@ Benefits:Ease of Transactions:Simplify buying, selling, and trading with user-fr
 [Original/Source Press Release](https://blockchainwire.io/press-release/abds-token-a-groundbreaking-crypto-project-has-officially-launched-on-uniswap)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/abds-token-launches-on-uniswap-revolutionizing-the-crypto-landscape/ef69f27404fcacc06420f3b06a11339c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/23/abds-token-launches-on-uniswap-bridging-web-3-0-and-cryptocurrency)
+
+Pickup - [fishervista.com](https://fishervista.com/en/abds-token-launches-on-uniswap-promising-innovation-in-cryptocurrency/20245924)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/abds-token-launches-on-uniswap-aiming-to-transform-cryptocurrency-landscape/20245924)
+
+Pickup - [advos.io](https://advos.io/en/abds-token-launches-on-uniswap-promising-to-revolutionize-digital-finance/20245924)
+ 
 
 
 

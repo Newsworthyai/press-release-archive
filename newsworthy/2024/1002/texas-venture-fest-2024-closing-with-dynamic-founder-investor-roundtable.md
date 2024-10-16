@@ -40,7 +40,9 @@ Register today at kerredc.com/tvf.
 [Original/Source Press Release](https://newsworthy.ai/news/202410021295/texas-venture-fest-2024-closing-with-dynamic-founder-investor-roundtable)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bridging-the-gap-founder-investor-roundtable-at-texas-venture-fest-2024/b3f5f77029ff18aafcec0cd48bd653f7) 
+
+ 
 
 
 

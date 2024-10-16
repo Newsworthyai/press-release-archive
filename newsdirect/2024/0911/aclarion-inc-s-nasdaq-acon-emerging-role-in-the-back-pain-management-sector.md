@@ -43,7 +43,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/aclarion-inc-
 [Original/Source Press Release](https://newsdirect.com/news/aclarion-inc-s-nasdaq-acon-emerging-role-in-the-back-pain-management-sector-380926552)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aclarion-inc-nasdaq-acon-leading-innovation-in-back-pain-management/a79955b877ecd961ff7a06c81c02f08e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/aclarion-s-nociscan-platform-revolutionizes-chronic-low-back-pain-diagnosis-and-treatment)
+
+Pickup - [fishervista.com](https://fishervista.com/en/aclarion-inc-advances-chronic-low-back-pain-diagnosis-with-nociscan-platform/20246728)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/aclarion-s-nociscan-platform-revolutionizes-chronic-low-back-pain-diagnosis-and-treatment/20246728)
+
+Pickup - [advos.io](https://advos.io/en/aclarion-inc-advances-chronic-low-back-pain-management-with-nociscan-platform/20246728)
+ 
 
 
 

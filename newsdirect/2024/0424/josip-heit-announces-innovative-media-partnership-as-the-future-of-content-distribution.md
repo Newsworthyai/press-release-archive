@@ -75,7 +75,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/josip-heit-an
 [Original/Source Press Release](https://newsdirect.com/news/josip-heit-announces-innovative-media-partnership-as-the-future-of-content-distribution-986188618)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/josip-heit-forms-global-media-group-with-42-daily-newspapers/b75a3390598be9c9e090691f30341f87) 
+
+ 
 
 
 

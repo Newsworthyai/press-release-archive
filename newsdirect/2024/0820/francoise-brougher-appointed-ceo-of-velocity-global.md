@@ -39,7 +39,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/francoise-bro
 [Original/Source Press Release](https://newsdirect.com/news/francoise-brougher-appointed-ceo-of-velocity-global-401296015)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/francoise-brougher-appointed-ceo-of-velocity-global/29a6fb4bc4973e72011b6e4f79fa5782) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/velocity-global-appoints-tech-industry-veteran-francoise-brougher-as-new-ceo)
+
+Pickup - [fishervista.com](https://fishervista.com/en/francoise-brougher-appointed-ceo-of-velocity-global/20245847)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/velocity-global-names-tech-industry-veteran-francoise-brougher-as-new-ceo/20245847)
+
+Pickup - [advos.io](https://advos.io/en/francoise-brougher-appointed-ceo-of-velocity-global/20245847)
+ 
 
 
 

@@ -36,7 +36,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/kite-hill-pr-
 [Original/Source Press Release](https://newsdirect.com/news/kite-hill-pr-releases-pr-playbook-for-retail-media-networks-475404503)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kite-hill-pr-launches-comprehensive-pr-playbook-for-retail-media-networks/8e3663ebad8aacf7080ef7fe60d7f9e2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/kite-hill-pr-unveils-strategic-playbook-for-retail-media-networks)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kite-hill-pr-unveils-comprehensive-pr-playbook-for-retail-media-networks/20246526)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/kite-hill-pr-unveils-comprehensive-pr-playbook-for-retail-media-networks/20246526)
+
+Pickup - [advos.io](https://advos.io/en/kite-hill-pr-launches-comprehensive-pr-playbook-for-retail-media-networks/20246526)
+ 
 
 
 

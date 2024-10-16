@@ -65,7 +65,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/brand-engagem
 [Original/Source Press Release](https://newsdirect.com/news/brand-engagement-network-nasdaq-bnai-expands-global-footprint-as-it-secures-5-9m-in-private-placement-financing-and-enters-50m-standby-equity-purchase-agreement-556027394)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brand-engagement-network-expands-reach-in-healthcare-industry-through-ai-solutions-and-financing-transactions/95066a8be0387a279712e93030009469) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/brand-engagement-network-secures-5-9m-financing-and-expands-ai-healthcare-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/brand-engagement-network-secures-5-9m-financing-and-50m-equity-agreement-expands-ai-solutions-in-healthcare/20246666)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/brand-engagement-network-secures-55-9m-in-financing-and-expands-ai-healthcare-solutions/20246666)
+
+Pickup - [advos.io](https://advos.io/en/brand-engagement-network-secures-5-9m-financing-and-50m-equity-purchase-agreement-expands-ai-solutions-in-healthcare/20246666)
+ 
 
 
 

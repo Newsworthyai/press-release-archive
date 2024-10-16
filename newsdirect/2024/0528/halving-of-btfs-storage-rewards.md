@@ -47,7 +47,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/halving-of-bt
 [Original/Source Press Release](https://newsdirect.com/news/halving-of-btfs-storage-rewards-721081393)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/btfs-implements-halving-of-storage-rewards-to-sustain-ecosystem-growth/b7af56f2af99d22b28e5f76d4427baf6) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/btfs-implements-halving-of-storage-rewards-to-sustain-ecosystem-growth)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/btfs-implements-halving-of-storage-rewards-to-sustain-ecosystem-growth)
+ 
 
 
 

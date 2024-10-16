@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotives-nasdaq-muln-boston-area-dealer-plans-expansion-to-meet-demand-makes-new-order/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-expands-ev-fleet-sales-with-7-7-million-order/3f2143227d766e2ed23c1f01552a94a0) 
+
+ 
 
 
 

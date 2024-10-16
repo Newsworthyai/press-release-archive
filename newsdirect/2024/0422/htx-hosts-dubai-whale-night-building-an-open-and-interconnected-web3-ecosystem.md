@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-hosts-dub
 [Original/Source Press Release](https://newsdirect.com/news/htx-hosts-dubai-whale-night-building-an-open-and-interconnected-web3-ecosystem-764870666)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-hosts-dubai-whale-night-building-an-open-and-interconnected-web3-ecosystem/0643f90bab8587e64db4ad5a98d1c813) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/htx-hosts-dubai-whale-night-building-an-open-and-interconnected-web3-ecosystem)
+ 
 
 
 

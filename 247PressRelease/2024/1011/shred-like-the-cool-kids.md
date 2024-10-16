@@ -7,7 +7,9 @@ VANCOUVER, BC, October 11, 2024 /24-7PressRelease/ -- Many hundreds of businesse
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515173/shred-like-the-cool-kids)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/micro-com-systems-on-site-document-scanning-shredding-services-in-vancouver/26fbf3d05aca2ac3a87f0762b297c620) 
+
+ 
 
 
 

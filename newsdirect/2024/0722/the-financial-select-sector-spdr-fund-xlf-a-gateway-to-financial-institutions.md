@@ -93,7 +93,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-financial
 [Original/Source Press Release](https://newsdirect.com/news/the-financial-select-sector-spdr-fund-xlf-a-gateway-to-financial-institutions-728248511)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/financial-select-sector-spdr-fund-xlf-a-gateway-to-financial-institutions/e59575bd48ba6b35702f4b466e8b953e) 
+
+
+Pickup - [advos.io](https://advos.io/en/financial-select-sector-spdr-fund-xlf-provides-comprehensive-access-to-u-s-financial-institutions/20245154)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/financial-select-sector-spdr-fund-a-comprehensive-approach-to-investing-in-u-s-financial-stocks)
+
+Pickup - [fishervista.com](https://fishervista.com/en/financial-select-sector-spdr-fund-xlf-offers-diversified-gateway-to-u-s-financial-sector/20245154)
+ 
 
 
 

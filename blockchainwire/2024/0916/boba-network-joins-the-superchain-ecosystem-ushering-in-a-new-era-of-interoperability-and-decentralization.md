@@ -43,7 +43,17 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/boba-network-joins-the-superchain-ecosystem-ushering-in-a-new-era-of-interoperability-and-decentralization)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boba-network-joins-superchain-ecosystem-for-enhanced-blockchain-interoperability-and-scalability/0568a67f4ce312b2d24972c989fd1417) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/boba-network-joins-superchain-ecosystem-to-enhance-blockchain-interoperability)
+
+Pickup - [fishervista.com](https://fishervista.com/en/boba-network-joins-superchain-ecosystem-enhancing-blockchain-interoperability/20246868)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/boba-network-joins-superchain-ecosystem-enhancing-blockchain-interoperability/20246868)
+
+Pickup - [advos.io](https://advos.io/en/boba-network-joins-superchain-ecosystem-advancing-blockchain-interoperability/20246868)
+ 
 
 
 

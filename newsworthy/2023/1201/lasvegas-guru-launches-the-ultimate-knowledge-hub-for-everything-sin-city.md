@@ -23,7 +23,11 @@ Visit www.LasVegas.guru so that you can experience Las Vegas like never before.
 [Original/Source Press Release](https://newsworthy.ai/news/20231201835/lasvegas-guru-launches-the-ultimate-knowledge-hub-for-everything-sin-city)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lasvegas-guru-redefining-the-vegas-experience-with-expert-insights-and-detailed-guides/8b370ded8e079942b3b55a2697e598e9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/01/lasvegas-guru-your-ultimate-guide-to-sin-city)
+ 
 
 
 

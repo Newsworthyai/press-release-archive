@@ -17,7 +17,9 @@ Pacific Mind Health places great importance on personalized treatment plans desi
 [Original/Source Press Release](https://newsworthy.ai/news/20231122889/pacific-mind-health-offering-comprehensive-and-modern-mental-health-care-in-long-beach-los-angeles-and-orange-county)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pacific-mind-health-offers-comprehensive-mental-health-care-services/4072c29dd23e494d54ac0b8883077270) 
+
+ 
 
 
 

@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-introd
 [Original/Source Press Release](https://newsdirect.com/news/bitget-introduces-stake-to-mine-platform-poolx-with-chatai-as-the-first-project-539001762)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-unveils-poolx-stake-to-mine-platform-with-chatai-as-first-project/84d3879a6cef6310f79b991b993e8695) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/bitget-unveils-poolx-a-pioneering-stake-to-mine-platform-with-chatai-as-the-inaugural-project)
+ 
 
 
 

@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/news-direct-u
 [Original/Source Press Release](https://newsdirect.com/news/news-direct-unveils-tradeup-powered-by-instinct-688750866)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/news-direct-launches-tradeup-powered-by-instinct/5a7d040f0eb336be3bd16c002042517a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/news-direct-launches-ai-powered-tradeup-to-revolutionize-trade-media-outreach)
+
+Pickup - [fishervista.com](https://fishervista.com/en/news-direct-introduces-tradeup-revolutionizing-media-outreach-with-ai/20245731)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/news-direct-launches-ai-powered-tradeup-to-revolutionize-trade-media-outreach/20245731)
+
+Pickup - [advos.io](https://advos.io/en/news-direct-launches-tradeup-a-revolutionary-ai-driven-media-outreach-solution/20245731)
+ 
 
 
 

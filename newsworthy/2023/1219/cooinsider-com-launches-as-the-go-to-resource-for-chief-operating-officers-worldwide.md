@@ -23,7 +23,11 @@ Embark on a journey to operational brilliance. Discover more at www.COOInsider.c
 [Original/Source Press Release](https://newsworthy.ai/news/20231219797/cooinsider-com-launches-as-the-go-to-resource-for-chief-operating-officers-worldwide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-cooinsider-com-the-new-hub-for-operational-excellence/14c605556b6b7b85d779683ed214fa63) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/19/cooinsider-com-emerges-as-premier-destination-for-chief-operating-officers)
+ 
 
 
 

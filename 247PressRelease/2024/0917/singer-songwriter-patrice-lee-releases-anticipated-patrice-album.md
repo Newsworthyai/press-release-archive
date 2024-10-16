@@ -7,7 +7,17 @@ LOS ANGELES, CA, September 17, 2024 /24-7PressRelease/ -- Patrice Lee is an inno
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514334/singersongwriter-patrice-lee-releases-anticipated-patrice-album)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/contemporary-artist-patrice-lee-releases-raw-and-introspective-album-patrice/e74ef17229db2800681dce27a61e210a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/singer-songwriter-patrice-lee-releases-new-album-patrice-exploring-personal-growth-and-societal-themes)
+
+Pickup - [fishervista.com](https://fishervista.com/en/patrice-lee-releases-new-album-patrice-blending-personal-journey-with-musical-innovation/20246878)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/patrice-lee-releases-introspective-album-patrice-challenging-societal-norms-through-music/20246878)
+
+Pickup - [advos.io](https://advos.io/en/singer-songwriter-patrice-lee-releases-new-album-patrice-blending-genres-and-personal-narratives/20246878)
+ 
 
 
 

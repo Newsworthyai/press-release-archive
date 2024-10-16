@@ -37,7 +37,13 @@ For any inquiries, please contact Anna Ivanova anna.ivanova@eakdigital.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/lavita-ai-powered-by-theta-edgecloud-celebrates-victory-at-samsung-next-2024-generative-ai-hackathon-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lavita-ai-wins-first-place-at-samsung-next-2024-generative-ai-hackathon/5be833f18f56498f9bbd3ef2330cff32) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/lavita-ai-wins-first-place-at-samsung-next-2024-generative-ai-hackathon)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/lavita-ai-wins-first-place-at-samsung-next-2024-generative-ai-hackathon)
+ 
 
 
 

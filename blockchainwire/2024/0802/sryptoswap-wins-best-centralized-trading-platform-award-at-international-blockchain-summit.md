@@ -43,7 +43,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/sryptoswap-wins-best-centralized-trading-platform-award-at-international-blockchain-summit)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sryptoswap-wins-best-centralized-trading-platform-award/e6c804ad7bbb4fb010ab13c3637b3b67) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/sryptoswap-clinches-best-centralized-trading-platform-award-at-international-blockchain-summit)
+
+Pickup - [fishervista.com](https://fishervista.com/en/sryptoswap-wins-best-centralized-trading-platform-award-at-international-blockchain-summit/20245469)
+
+Pickup - [advos.io](https://advos.io/en/sryptoswap-wins-best-centralized-trading-platform-award-at-international-blockchain-summit/20245469)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/sryptoswap-recognized-as-best-centralized-trading-platform-at-international-blockchain-summit)
+ 
 
 
 

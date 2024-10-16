@@ -21,7 +21,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/trust-stamp-a
 [Original/Source Press Release](https://newsdirect.com/news/trust-stamp-and-botdoc-forge-strategic-partnership-to-enhance-automotive-security-714548184)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trust-stamp-and-botdoc-forge-strategic-partnership-to-enhance-automotive-security/d45258792d5aeea2a5ed3a338ab41481) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/trust-stamp-and-botdoc-partner-to-bolster-automotive-security-amid-rising-fraud)
+
+Pickup - [fishervista.com](https://fishervista.com/en/trust-stamp-and-botdoc-announce-partnership-to-strengthen-automotive-security-measures/20245291)
+
+Pickup - [advos.io](https://advos.io/en/trust-stamp-and-botdoc-partner-to-enhance-automotive-security/20245291)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/trust-stamp-and-botdoc-partner-to-bolster-automotive-industry-security)
+ 
 
 
 

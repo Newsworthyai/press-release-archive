@@ -31,7 +31,17 @@ About BILLY (Billy)
 [Original/Source Press Release](https://blockchainwire.io/press-release/billy-billy-a-meme-coin-will-be-listed-on-coinw-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-list-billy-meme-coin-on-meme-zone/973e53fe91192b69ba1051cd8456ec55) 
+
+
+Pickup - [advos.io](https://advos.io/en/coinw-to-list-billy-the-adorable-meme-coin-celebrating-with-5000-usdt-bounty-program/20244243)
+
+Pickup - [fishervista.com](https://fishervista.com/en/billy-billy-meme-coin-to-be-listed-on-coinw-exchange/20244243)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-to-list-billy-meme-coin-on-meme-zone)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-to-list-billy-meme-coin-on-meme-zone)
+ 
 
 
 

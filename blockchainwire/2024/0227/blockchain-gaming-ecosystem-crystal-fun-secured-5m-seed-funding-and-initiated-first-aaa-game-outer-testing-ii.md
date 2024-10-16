@@ -39,7 +39,11 @@ Email: official@crystalfun.io
 [Original/Source Press Release](https://blockchainwire.io/press-release/-blockchain-gaming-ecosystem-crystal-fun-secured-5m-seed-funding-and-initiated-first-aaa-game-outer-testing-ii)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crystal-fun-secures-5m-investment-for-new-web3-gaming-experience/bbfa51a823cca2bd6be1fa1ccea73449) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/27/crystal-fun-secures-5m-seed-funding-unveils-aaa-game-outer-testing-ii)
+ 
 
 
 

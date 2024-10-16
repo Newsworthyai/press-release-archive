@@ -7,7 +7,13 @@ GUANGZHOU, CHINA, June 24, 2024 /24-7PressRelease/ -- Welcome to Guangzhou! To f
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511944/visa-free-feel-free-guangzhou-invites-international-transit-passengers-to-enjoy-a-free-one-day-tour)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/guangzhou-offers-free-one-day-tour-to-international-transit-passengers/7fe5755a1b1ec3245675376d37d7f525) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/guangzhou-launches-free-one-day-tour-for-international-transit-passengers/20244407)
+
+Pickup - [advos.io](https://advos.io/en/guangzhou-introduces-free-one-day-tour-for-international-transit-passengers/20244407)
+ 
 
 
 

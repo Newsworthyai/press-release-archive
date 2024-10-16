@@ -31,7 +31,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/inmed-pharmaceuticals-nasdaq-inm-subsidiary-baymedica-releases-market-report-for-2023-on-minor-cannabinoids/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/baymedica-report-reveals-major-growth-in-lesser-known-cannabinoids-market/f5ae5ddb890484495546d6e00b05d042) 
+
+ 
 
 
 

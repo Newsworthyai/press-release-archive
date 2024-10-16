@@ -63,7 +63,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/blackrock-ind
 [Original/Source Press Release](https://newsdirect.com/news/blackrock-indecisive-about-ethereum-etf-solana-staking-overview-bullish-kangamoon-kang-reaches-new-milestone-640450009)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kangamoon-kang-surges-blackrock-contemplates-ethereum-etf-solana-sol-staking-overview/996195228d1437e2805ad2a8d3bfaca1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/kangamoon-altcoin-surges-as-blackrock-weighs-ethereum-etf-and-solana-staking-ecosystem-grows)
+ 
 
 
 

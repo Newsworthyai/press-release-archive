@@ -9,7 +9,19 @@ The enthralling pace of activity set by CoinW is fuelled by the momentum behind 
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-continues-expedition-trek-and-double-down-on-presence-at-eth-native-events)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-continues-global-expansion-with-ethereum-focused-events/7b10932e0b98380981388aa546b1b13d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/coinw-strengthens-ethereum-ecosystem-engagement-with-presence-at-ethcc-and-edcon)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-continues-global-expansion-with-ethereum-focused-events)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-continues-global-expansion-with-ethereum-focused-events)
+
+Pickup - [fishervista.com](https://fishervista.com/en/coinw-strengthens-presence-at-key-ethereum-events-to-drive-web3-innovation/20245179)
+
+Pickup - [advos.io](https://advos.io/en/coinw-strengthens-web3-presence-with-key-appearances-at-eth-focused-events/20245179)
+ 
 
 
 

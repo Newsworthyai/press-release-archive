@@ -21,7 +21,9 @@ About Galaxis  [Galaxis](https://galaxis.xyz) is a groundbreaking platform desig
 [Original/Source Press Release](https://blockchainwire.io/press-release/galaxis-unleashed-the-highly-anticipated-token-launch-on-bybit)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/galaxis-announces-initial-token-launch-through-bybit-exchange-platform/dac601a1fdcb448707f50c5c64066e61) 
+
+ 
 
 
 

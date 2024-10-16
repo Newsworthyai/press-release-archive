@@ -49,7 +49,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/spring-trail-
 [Original/Source Press Release](https://newsdirect.com/news/spring-trail-adventures-await-five-reasons-to-get-outside-on-trails-601503480)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/celebrate-trails-day-get-outside-and-explore/d3cf12d5aad78d5c1afb6b9c1627dd8b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/spring-trail-adventures-await-five-reasons-to-get-outside-on-trails)
+ 
 
 
 

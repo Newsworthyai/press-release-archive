@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/advicepay-ear
 [Original/Source Press Release](https://newsdirect.com/news/advicepay-earns-third-consecutive-spot-on-inc-magazines-list-of-5000-fastest-growing-private-companies-106170115)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/advicepay-earns-third-consecutive-spot-on-inc-magazines-list-of-5000-fastest-growing-private-companies/702ef062992967d7bc2f982ebd956207) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/advicepay-secures-third-consecutive-ranking-on-inc-5000-list-with-322-growth)
+
+Pickup - [fishervista.com](https://fishervista.com/en/advicepay-earns-third-consecutive-spot-on-inc-magazines-list-of-5000-fastest-growing-private-companies/20245900)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/advicepay-secures-third-consecutive-ranking-on-inc-5000-list-with-322-growth/20245900)
+
+Pickup - [advos.io](https://advos.io/en/advicepay-earns-third-consecutive-spot-on-inc-magazines-list-of-5000-fastest-growing-private-companies/20245900)
+ 
 
 
 

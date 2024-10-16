@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-elevates-crypto-compliance-setting-industry-benchmarks-in-regulation-and-security)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-sets-new-standards-in-cryptocurrency-compliance-and-regulation/d2c9ac892dcf89e0af75cb1aaa5b9292) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/29/defiquant-pioneers-crypto-compliance-standards)
+ 
 
 
 

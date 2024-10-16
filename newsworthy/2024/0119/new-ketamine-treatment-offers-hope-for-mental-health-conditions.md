@@ -15,7 +15,9 @@ As the scope of applications widens, ketamine offers hope to individuals endurin
 [Original/Source Press Release](https://newsworthy.ai/news/20240119997/new-ketamine-treatment-offers-hope-for-mental-health-conditions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ketamine-emerges-as-a-promising-treatment-for-psychiatric-disorders/0051f74754abd5c5179582733447a4c2) 
+
+ 
 
 
 

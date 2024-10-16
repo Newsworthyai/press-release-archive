@@ -7,7 +7,9 @@ SINGAPORE, April 28, 2024 /24-7PressRelease/ -- UOL and Singapore Land are thril
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510464/introducing-meyer-blue-premier-freehold-seafront-living-at-meyer-road-singapore)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uol-and-singapore-land-launch-meyer-blue-condominium-in-district-15-singapore/375b70e7c515b1cf83ca0adf89412fd0) 
+
+ 
 
 
 

@@ -82,7 +82,15 @@ For additional information on AST Mining, please visit our website at: https://a
 [Original/Source Press Release](https://blockchainwire.io/press-release/ast-mining-launches-new-cloud-mining-plan-to-earn-bitcoin---earn-cryptocurrency-daily)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ast-mining-earn-passive-income-through-cloud-mining/da007399611298c5e62304d296ca13b9) 
+
+
+Pickup - [advos.io](https://advos.io/en/ast-mining-unveils-new-cloud-mining-plan-for-daily-cryptocurrency-earnings/20244053)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ast-mining-earn-passive-income-through-cloud-mining)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ast-mining-earn-passive-income-through-cloud-mining)
+ 
 
 
 

@@ -7,7 +7,15 @@ RIDGEFIELD, CT, July 08, 2024 /24-7PressRelease/ -- Dr. Roseann Capanna-Hodge, a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512307/dr-roseann-capanna-hodge-delivers-keynote-at-special-needs-expo)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-roseann-capanna-hodge-delivers-inspiring-keynote-address-at-homeschooling-special-needs-expo/b05b2c7d0fa59257505cb2cc800faebc) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-roseann-capanna-hodge-addresses-special-needs-at-christian-homeschooling-expo/20244745)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/dr-roseann-capanna-hodge-shares-expertise-on-neurodivergent-learning-at-special-needs-expo)
+
+Pickup - [advos.io](https://advos.io/en/dr-roseann-capanna-hodge-captivates-audience-at-christian-homeschooling-special-needs-expo/20244745)
+ 
 
 
 

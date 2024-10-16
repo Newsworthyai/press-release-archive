@@ -7,7 +7,15 @@ NEW DELHI, INDIA, July 20, 2024 /24-7PressRelease/ -- MCN Asia, a team of world-
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512701/mcn-asia-launches-a-brand-new-service-in-the-market-of-export-consulting-services-in-india)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcn-asia-launches-new-service-to-support-indian-exporting-companies/cb11aa3c67434795975d621e88e80c79) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/20/mcn-asia-introduces-comprehensive-export-readiness-check-service-for-indian-businesses)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mcn-asia-introduces-comprehensive-export-consulting-service-in-india/20245126)
+
+Pickup - [advos.io](https://advos.io/en/mcn-asia-launches-new-export-consulting-service-in-india/20245126)
+ 
 
 
 

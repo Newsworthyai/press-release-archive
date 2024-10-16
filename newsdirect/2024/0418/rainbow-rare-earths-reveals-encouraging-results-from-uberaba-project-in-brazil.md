@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/rainbow-rare-
 [Original/Source Press Release](https://newsdirect.com/news/rainbow-rare-earths-reveals-encouraging-results-from-uberaba-project-in-brazil-831645493)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rainbow-rare-earths-reveals-encouraging-results-from-uberaba-project-in-brazil/c5b3238f4255dce5d8a09c88dbdb29a0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/rainbow-rare-earths-reveals-encouraging-results-from-uberaba-project-in-brazil)
+ 
 
 
 

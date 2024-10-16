@@ -41,7 +41,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/solana-killer-release-sneak-peak-exchange-platform-analyst-predict-1000x-gains)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-solana-sol-killer-platform-and-option2trade-o2t-integration/22d43150af1bcd1c8be8cf75d6052ece) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/option2trade-poised-for-explosive-growth-with-solana-killer-platform)
+ 
 
 
 

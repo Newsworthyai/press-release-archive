@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/notable-live-
 [Original/Source Press Release](https://newsdirect.com/news/notable-live-announces-partnership-with-nfl-and-tennessee-titans-great-chris-cj2k-johnson-215902208)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-nfl-star-chris-cj2k-johnson-joins-notable-live-as-brand-ambassador/9901a1a3d19ea6204b49a084efab10c3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/former-nfl-star-chris-johnson-joins-notable-live-as-brand-ambassador)
+
+Pickup - [fishervista.com](https://fishervista.com/en/notable-live-partners-with-nfl-legend-chris-cj2k-johnson-to-enhance-fan-engagement/20245733)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/nfl-star-chris-johnson-joins-notable-live-as-brand-ambassador/20245733)
+
+Pickup - [advos.io](https://advos.io/en/notable-live-partners-with-nfl-star-chris-cj2k-johnson/20245733)
+ 
 
 
 

@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/chariot-progr
 [Original/Source Press Release](https://newsdirect.com/news/chariot-progresses-onshore-morocco-drill-program-in-what-it-describes-as-a-pivotal-year-620493589)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chariot-progresses-onshore-morocco-drill-program-in-pivotal-year/12218b5e872470969bafc62d5bd0cbd0) 
+
+ 
 
 
 

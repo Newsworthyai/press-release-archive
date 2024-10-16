@@ -33,7 +33,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/this-biotech-
 [Original/Source Press Release](https://newsdirect.com/news/this-biotech-just-cleared-a-big-fda-hurdle-in-its-quest-to-improve-adhd-treatment-341277340)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/biotech-breakthrough-cingulate-receives-fda-clearance-for-lead-candidate/4930b08deefb5f72df961634baab3b96) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cingulate-receives-fda-clearance-for-adhd-treatment-paving-way-for-full-approval/20244689)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/cingulate-s-adhd-treatment-candidate-receives-fda-clearance-for-full-approval-process)
+
+Pickup - [advos.io](https://advos.io/en/cingulate-advances-adhd-treatment-with-fda-clearance-for-ctx-1301/20244689)
+ 
 
 
 

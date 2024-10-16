@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/a-new-way-to-
 [Original/Source Press Release](https://newsdirect.com/news/a-new-way-to-fly-combining-the-best-of-a-helicopter-and-an-airplane-861357173)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-horizon-aircraft-ceo-discusses-groundbreaking-evtol-aircraft-on-benzingas-all-access/a0087aa0624ba989b07c1f514f9ea687) 
+
+ 
 
 
 

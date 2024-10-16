@@ -55,7 +55,13 @@ Founded In 2021, RedBalloon has quickly become America’s largest woke-free job
 [Original/Source Press Release](https://newsworthy.ai/news/202402151092/new-survey-a-third-of-employees-have-second-jobs-plus-employers-stuck-in-hotel-california)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-survey-reveals-alarming-trends-in-small-business-economy/cba860a82657a8591e518d598fd03a28) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/survey-reveals-widespread-moonlighting-and-business-relocation-trends-among-small-businesses/2024478)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/15/the-struggle-is-real-employees-juggle-multiple-jobs-as-employers-face-relocation-woes)
+ 
 
 
 

@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, t
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-enters-key-northeast-hub-with-addition-of-new-england-area-dealer/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-adds-zero-emissions-commercial-vehicle-dealership-eco-auto-in-boston-area/bcc1631a6dc3741f05fcf3c41b775a3e) 
+
+ 
 
 
 

@@ -21,7 +21,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/american-rare
 [Original/Source Press Release](https://newsdirect.com/news/american-rare-earths-looks-to-upgrade-resource-with-drilling-in-cowboy-state-area-of-halleck-creek-753534279)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-rare-earths-prepares-for-major-drilling-program-at-cowboy-state-mine/16c3884baad0aa8d4e820db42c328605) 
+
+
+Pickup - [advos.io](https://advos.io/en/american-rare-earths-gears-up-for-ambitious-drilling-program-at-cowboy-state-mine/20244221)
+
+Pickup - [fishervista.com](https://fishervista.com/en/american-rare-earths-initiates-drilling-and-environmental-programs-at-halleck-creek/20244221)
+ 
 
 
 

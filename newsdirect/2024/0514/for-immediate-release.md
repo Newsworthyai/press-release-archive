@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/for-immediate
 [Original/Source Press Release](https://newsdirect.com/news/for-immediate-release-237662538)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/apple-rush-company-inc-clears-final-details-of-brand-ownership-with-corr-brands/8019b6e8b89f73db333c8ab971c49926) 
+
+ 
 
 
 

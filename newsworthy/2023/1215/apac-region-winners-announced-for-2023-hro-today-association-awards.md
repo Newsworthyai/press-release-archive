@@ -31,7 +31,13 @@ The HRO Today Association is the premier networking and content community for ad
 [Original/Source Press Release](https://newsworthy.ai/news/20231215909/apac-region-winners-announced-for-2023-hro-today-association-awards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hro-today-association-awards-recognize-apac-region-achievements/7035acaf81113bc2923ec9646a90aba9) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hro-today-association-honors-excellence-in-apac-hr-leadership-and-innovation/2023350)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/15/apac-region-honorees-recognized-for-hr-excellence)
+ 
 
 
 

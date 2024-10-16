@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/vivopower-ann
 [Original/Source Press Release](https://newsdirect.com/news/vivopower-announces-sale-of-australian-critical-power-business-unit-205842555)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vivopower-announces-sale-of-australian-critical-power-business-unit/8a43c20d78a354f07afc7fca24b10a31) 
+
+ 
 
 
 

@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/most-cannabis
 [Original/Source Press Release](https://newsdirect.com/news/most-cannabis-consumers-would-vote-for-pro-cannabis-candidates-regardless-of-party-new-polling-finds-803557725)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-poll-shows-majority-of-cannabis-consumers-would-vote-for-pro-cannabis-candidates-regardless-of-party/99b264c72ccf29c3ce6527b35569178f) 
+
+ 
 
 
 

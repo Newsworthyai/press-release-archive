@@ -19,7 +19,9 @@ Ketamine is revolutionizing the field of psychiatric treatment, offering a new f
 [Original/Source Press Release](https://newsworthy.ai/news/20231229951/ketamine-a-breakthrough-in-psychiatric-treatment-offers-hope-for-patients)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ketamine-revolutionizing-psychiatric-treatment/d09944c580085f62f87a495a51e0dfc5) 
+
+ 
 
 
 

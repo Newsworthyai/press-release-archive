@@ -7,7 +7,17 @@ SAN JOSE, CA, August 20, 2024 /24-7PressRelease/ -- Mahesh Iyer has a career spa
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513505/abacus-semiconductor-announces-addition-of-mahesh-iyer-to-its-executive-management-team)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/seasoned-industry-leader-mahesh-iyer-joins-abacus-semiconductor-as-key-leadership-team-member/313737a013964bcd649c6b1b68bb39d0) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/abacus-semiconductor-strengthens-executive-team-with-industry-veteran-mahesh-iyer/20245824)
+
+Pickup - [advos.io](https://advos.io/en/abacus-semiconductor-welcomes-mahesh-iyer-to-executive-management-team/20245824)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/abacus-semiconductor-strengthens-executive-team-with-industry-veteran-mahesh-iyer)
+
+Pickup - [fishervista.com](https://fishervista.com/en/abacus-semiconductor-welcomes-industry-veteran-mahesh-iyer-to-executive-team/20245824)
+ 
 
 
 

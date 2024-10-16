@@ -59,7 +59,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-revolutionizing-2024s-bitcoin-trading-for-daily-passive-income)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-earn-over-1000-daily-with-revolutionary-cloud-mining-platform/a87c1fa5f232b6007d4e73905823f25a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/18/defiquant-unlocks-daily-bitcoin-profits-for-2024)
+ 
 
 
 

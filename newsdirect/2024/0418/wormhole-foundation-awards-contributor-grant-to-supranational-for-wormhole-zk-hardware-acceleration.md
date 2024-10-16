@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/wormhole-foun
 [Original/Source Press Release](https://newsdirect.com/news/wormhole-foundation-awards-contributor-grant-to-supranational-for-wormhole-zk-hardware-acceleration-509186697)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wormhole-foundation-awards-contributor-grant-to-supranational-for-zk-hardware-acceleration/045c9bfac7651dd62cf24082e75320b1) 
+
+ 
 
 
 

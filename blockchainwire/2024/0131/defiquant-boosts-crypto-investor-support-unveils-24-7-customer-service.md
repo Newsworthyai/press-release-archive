@@ -45,7 +45,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-boosts-crypto-investor-support-unveils-247-customer-service)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-enhances-customer-service-for-crypto-investors/212c3862e1150937cbd32307401a3774) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/31/defiquant-unveils-24-7-customer-support-for-crypto-investors)
+ 
 
 
 

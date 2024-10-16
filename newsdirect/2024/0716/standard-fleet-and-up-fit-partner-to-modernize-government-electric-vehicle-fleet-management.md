@@ -59,7 +59,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/standard-flee
 [Original/Source Press Release](https://newsdirect.com/news/standard-fleet-and-up-fit-partner-to-modernize-government-electric-vehicle-fleet-management-814138548)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/standard-fleet-and-up-fit-partner-to-enhance-government-ev-fleet-management/acc23b4851327cab3ef440eb61c1b7a9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/standard-fleet-and-up-fit-join-forces-to-revolutionize-government-electric-vehicle-fleet-management)
+
+Pickup - [fishervista.com](https://fishervista.com/en/standard-fleet-and-up-fit-join-forces-to-revolutionize-government-ev-fleet-management/20244997)
+
+Pickup - [advos.io](https://advos.io/en/standard-fleet-and-up-fit-join-forces-to-revolutionize-government-ev-fleet-management/20244997)
+ 
 
 
 

@@ -55,7 +55,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bhe-exchange-redefining-the-future-of-digital-asset-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bhe-capital-opens-global-registration-for-financial-asset-service-platform/87aa54d0b0f4ff28e8a864b5132dcaf4) 
+
+ 
 
 
 

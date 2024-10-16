@@ -7,7 +7,17 @@ LOS ANGELES, CA, August 28, 2024 /24-7PressRelease/ -- Roseanne Critelli is back
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513848/roseanne-critellis-sonnys-summertime-sillies-delights-young-readers-with-new-adventures)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/roseanne-critelli-delights-readers-with-new-children-s-book/84aa14be48364b12df660817526aa760) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/children-s-author-roseanne-critelli-launches-new-book-sonny-s-summertime-sillies-amid-growing-success)
+
+Pickup - [fishervista.com](https://fishervista.com/en/roseanne-critelli-releases-new-children-s-book-sonny-s-summertime-sillies/20246325)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/award-winning-author-roseanne-critelli-releases-new-children-s-book-sonny-s-summertime-sillies/20246325)
+
+Pickup - [advos.io](https://advos.io/en/roseanne-critelli-releases-new-children-s-book-sonny-s-summertime-sillies/20246325)
+ 
 
  
 

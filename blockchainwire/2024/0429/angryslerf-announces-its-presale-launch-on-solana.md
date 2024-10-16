@@ -11,7 +11,9 @@ BitMart listing is confirmed;Official Tweet from BitMart Exchange: [https://twit
 [Original/Source Press Release](https://blockchainwire.io/press-release/angryslerf-announces-its-presale-launch-on-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/join-the-angryslerf-revolution-solana-presale-live-now/032d04de319eff4e545a4519ec08e867) 
+
+ 
 
 
 

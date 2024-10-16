@@ -41,7 +41,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/valuezone-enhances-platform-legitimacy-to-bolster-customer-trust-and-security)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/valuezone-reinforces-legitimacy-and-trust-in-cryptocurrency-trading/e05e01d19f99f978be3c65ae160fea47) 
+
+
+Pickup - [advos.io](https://advos.io/en/valuezone-strengthens-platform-security-and-transparency-to-foster-customer-trust/20244176)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/valuezone-reinforces-legitimacy-and-trust-in-cryptocurrency-trading)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/valuezone-reinforces-legitimacy-and-trust-in-cryptocurrency-trading)
+ 
 
 
 

@@ -47,7 +47,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/tectum-softnote-wallet-app-now-available-on-apple-app-store-across-multiple-countries)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/softnote-wallet-application-now-on-the-apple-app-store/c39e0cf8077a3c41b705049041d8fc94) 
+
+ 
 
 
 

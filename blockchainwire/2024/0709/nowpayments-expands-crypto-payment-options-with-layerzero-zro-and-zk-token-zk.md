@@ -31,7 +31,19 @@ This press release is provided for informational purposes only and does not cons
 [Original/Source Press Release](https://blockchainwire.io/press-release/nowpayments-expands-crypto-payment-options-with-layerzero-zro-and-zk-token-zk)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nowpayments-expands-cryptocurrency-payment-options-with-layerzero-and-zk-token/0ee6e3673948f219f2a8960741bc4ad9) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/nowpayments-enhances-crypto-payment-options-with-layerzero-and-zk-token/20244803)
+
+Pickup - [advos.io](https://advos.io/en/nowpayments-expands-crypto-payment-options-with-layerzero-and-zk-token/20244803)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/nowpayments-enhances-crypto-payment-options-with-layerzero-and-zk-token-integration)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/nowpayments-expands-cryptocurrency-payment-options-with-layerzero-and-zk-token)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/nowpayments-expands-cryptocurrency-payment-options-with-layerzero-and-zk-token)
+ 
 
 
 

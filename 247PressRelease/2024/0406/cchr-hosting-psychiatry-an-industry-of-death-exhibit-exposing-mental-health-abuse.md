@@ -7,7 +7,11 @@ ORLANDO, FL, April 06, 2024 /24-7PressRelease/ -- The exhibit, titled "Psychiatr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509853/cchr-hosting-psychiatry-an-industry-of-death-exhibit-exposing-mental-health-abuse)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exhibit-in-orlando-fl-sheds-light-on-psychiatric-abuse-history/5356b50b707727d79d2fcc96918f8481) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/06/cchr-exposes-psychiatric-abuse-through-industry-of-death-exhibit)
+ 
 
 
 

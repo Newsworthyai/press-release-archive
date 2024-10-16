@@ -29,7 +29,13 @@ Lexaria Bioscience (NASDAQ: LEXX, LEXXW), a global innovator in drug delivery pl
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-nasdaq-lexx-reports-positive-body-weight-results-from-diabetes-animal-study/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lexaria-bioscience-reports-positive-results-from-ongoing-animal-study/b3174a9d4748454947a51224400c3753) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/lexaria-bioscience-announces-promising-results-in-diabetes-animal-study/20246092)
+
+Pickup - [advos.io](https://advos.io/en/lexaria-reports-promising-results-in-diabetes-animal-study/20246092)
+ 
 
 
 

@@ -7,7 +7,19 @@ As the Solana Summer and the overall crypto market continue to evolve, the lands
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-solana-surge-how-print-protocol-is-revolutionizing-defi-with-secure-trading-and-revenue-sharing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solana-memecoins-fueling-crypto-market-resurgence/0f662d22fc3b1953b0a9f570f75bec15) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/13/print-protocol-transforms-solana-defi-with-innovative-trading-and-revenue-sharing)
+
+Pickup - [fishervista.com](https://fishervista.com/en/print-protocol-and-solana-lead-the-charge-in-defi-with-secure-trading-and-revenue-sharing/20244936)
+
+Pickup - [advos.io](https://advos.io/en/print-protocol-revolutionizes-defi-with-secure-trading-and-revenue-sharing-on-solana/20244936)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/solana-memecoins-fueling-crypto-market-resurgence)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/solana-memecoins-fueling-crypto-market-resurgence)
+ 
 
 
 

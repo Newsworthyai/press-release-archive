@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-t
 [Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-secures-key-deal-for-wam-v-usvs-in-latin-america-718569417)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ocean-power-technologies-achieves-historic-milestone-with-largest-order-for-wam-v-usvs/b8a85239fd7db2f36ef86bef6c1dd88c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/ocean-power-technologies-achieves-landmark-success-with-major-order-in-latin-america)
+ 
 
 
 

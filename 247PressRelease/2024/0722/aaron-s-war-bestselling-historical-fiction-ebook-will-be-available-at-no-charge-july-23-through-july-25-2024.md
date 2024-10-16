@@ -7,7 +7,15 @@ WILMINGTON, NC, July 22, 2024 /24-7PressRelease/ -- Richard McMaster, author of 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512724/aarons-war-bestselling-historical-fiction-ebook-will-be-available-at-no-charge-july-23-through-july-25-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-richard-mcmaster-offers-free-ebook-version-of-aaron-s-war-on-amazon/c91a933689765e95568988e345c12da9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/bestselling-wwii-novel-aaron-s-war-available-for-free-download)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bestselling-historical-fiction-aaron-s-war-available-for-free-on-amazon-for-limited-time/20245144)
+
+Pickup - [advos.io](https://advos.io/en/bestselling-historical-fiction-ebook-aaron-s-war-free-on-amazon-for-limited-time/20245144)
+ 
 
 
 

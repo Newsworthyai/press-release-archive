@@ -7,7 +7,11 @@ MILPITAS, CA, June 03, 2024 /24-7PressRelease/ -- Humane Society Silicon Valley 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511255/national-nonprofit-petco-love-invests-in-humane-society-silicon-valley-to-save-and-improve-the-lives-of-santa-clara-county-pets-and-pet-parents)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/petco-love-grants-25000-to-humane-society-silicon-valley-for-lifesaving-work/e10aac76157b15c025dcd1a776eaca4a) 
+
+
+Pickup - [advos.io](https://advos.io/en/petco-love-invests-in-humane-society-silicon-valley-to-save-santa-clara-county-pets/20243614)
+ 
 
 
 

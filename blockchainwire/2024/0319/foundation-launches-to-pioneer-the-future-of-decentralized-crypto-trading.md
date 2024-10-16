@@ -31,7 +31,11 @@ Testnet: http://testnet.foundation.network
 [Original/Source Press Release](https://blockchainwire.io/press-release/foundation-launches-to-pioneer-the-future-of-decentralized-crypto-trading-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/foundation-launches-revolutionary-decentralized-exchange-platform/55c361c41515a44e53e4e75a7692f202) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/foundation-pioneers-the-future-of-decentralized-crypto-trading)
+ 
 
 
 

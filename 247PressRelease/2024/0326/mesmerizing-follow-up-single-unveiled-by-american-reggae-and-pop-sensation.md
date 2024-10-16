@@ -7,7 +7,11 @@ PROVIDENCIALES, TURKS AND CAICOS, March 26, 2024 /24-7PressRelease/ -- With a di
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509483/mesmerizing-follow-up-single-unveiled-by-american-reggae-and-pop-sensation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alyxandra-releases-new-single-float-blending-reggae-vibes-and-pop-sensibilities/2381e242074f64e75a1652610d7bc2b1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/alyxandra-s-float-invites-listeners-to-embrace-happiness-and-reggae-vibes)
+ 
 
 
 

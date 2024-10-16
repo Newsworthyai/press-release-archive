@@ -7,7 +7,17 @@ DOMINICAN REPUBLIC, August 15, 2024 /24-7PressRelease/ -- Chrono Jewelry is thri
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513445/exclusive-piercing-event-at-chrono-jewelry-in-santiago-de-los-caballeros)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chrono-jewelry-hosts-exclusive-piercing-event-in-santiago-de-los-caballeros/cee71f07587714822d8b28cf7f7a00d2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/chrono-jewelry-hosts-exclusive-piercing-event-in-santiago-de-los-caballeros)
+
+Pickup - [fishervista.com](https://fishervista.com/en/chrono-jewelry-hosts-exclusive-piercing-event-in-santiago-de-los-caballeros/20245746)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/chrono-jewelry-hosts-exclusive-piercing-event-in-santiago-de-los-caballeros/20245746)
+
+Pickup - [advos.io](https://advos.io/en/chrono-jewelry-hosts-exclusive-piercing-event-in-santiago-de-los-caballeros/20245746)
+ 
 
 
 

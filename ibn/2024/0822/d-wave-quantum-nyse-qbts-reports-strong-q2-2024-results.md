@@ -29,7 +29,13 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-quantum-nyse-qbts-reports-strong-q2-2024-results/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-reports-strong-q2-2024-results-and-strategic-achievements/5b20ce58435631301e68d57d4bb7f46e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/d-wave-quantum-reports-impressive-q2-2024-results-with-significant-growth-across-key-metrics)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/d-wave-quantum-reports-significant-growth-in-q2-2024-financial-results/20246210)
+ 
 
 
 

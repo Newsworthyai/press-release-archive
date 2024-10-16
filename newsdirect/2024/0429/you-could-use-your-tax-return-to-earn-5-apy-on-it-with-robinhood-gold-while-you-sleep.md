@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/you-could-use
 [Original/Source Press Release](https://newsdirect.com/news/you-could-use-your-tax-return-to-earn-5-apy-on-it-with-robinhood-gold-while-you-sleep-760698029)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/robinhood-gold-offers-5-apy-on-uninvested-cash-access-to-professional-research-and-market-data/cacc64ee8245bf5ea4e9c5e7243ccef1) 
+
+ 
 
 
 

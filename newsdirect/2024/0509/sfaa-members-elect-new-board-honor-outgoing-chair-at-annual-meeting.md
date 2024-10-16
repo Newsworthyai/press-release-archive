@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/sfaa-members-
 [Original/Source Press Release](https://newsdirect.com/news/sfaa-members-elect-new-board-honor-outgoing-chair-at-annual-meeting-414483426)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sfaa-holds-annual-meeting-elects-new-board-and-honors-outgoing-chair/0acbb898588dfd658ca7170d83622530) 
+
+ 
 
 
 

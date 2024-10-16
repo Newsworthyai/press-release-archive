@@ -59,7 +59,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/ecoai-coin-pr
 [Original/Source Press Release](https://newsdirect.com/news/ecoai-coin-prepares-for-token-pre-sale-pioneers-green-crypto-mining-717263514)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ecoai-coin-prepares-for-token-pre-sale-pioneers-green-crypto-mining/4e5d6146f4ed210d9ab1806b2f38222b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/ecoai-coin-launches-pre-sale-aims-to-revolutionize-green-crypto-mining)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ecoai-coin-aims-to-revolutionize-crypto-mining-with-sustainable-practices/20245495)
+
+Pickup - [advos.io](https://advos.io/en/ecoai-coin-pioneers-sustainable-crypto-mining-with-strategic-partnerships/20245495)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ecoai-coin-prepares-for-token-pre-sale-pioneers-green-crypto-mining)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ecoai-coin-prepares-for-token-pre-sale-pioneers-green-crypto-mining)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ecoai-coin-launches-pre-sale-aims-to-revolutionize-sustainable-cryptocurrency-mining)
+ 
 
 
 

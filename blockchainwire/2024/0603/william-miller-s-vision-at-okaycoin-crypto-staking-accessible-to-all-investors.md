@@ -48,7 +48,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/william-millers-vision-at-okaycoin-crypto-staking-accessible-to-all-investors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/okaycoin-ceo-unveils-vision-for-inclusive-cryptocurrency-staking/370c29350dc9ce63acdcd2755b390355) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/okaycoin-ceo-unveils-vision-for-inclusive-cryptocurrency-staking)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/okaycoin-ceo-unveils-vision-for-inclusive-cryptocurrency-staking)
+ 
 
 
 

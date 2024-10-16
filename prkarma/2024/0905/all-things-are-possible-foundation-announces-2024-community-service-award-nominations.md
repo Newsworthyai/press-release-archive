@@ -39,7 +39,17 @@ Visit Our Website
 [Original/Source Press Release](https://newsroom.prkarma.com/atapfoundation/news_release/1554)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annual-atap-community-service-awards-in-burlington-county/53a66d45003b9c6e962d506681af48f2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/all-things-are-possible-foundation-opens-nominations-for-2024-community-service-awards)
+
+Pickup - [fishervista.com](https://fishervista.com/en/all-things-are-possible-foundation-opens-nominations-for-2024-community-service-awards/20246574)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/all-things-are-possible-foundation-opens-nominations-for-2024-community-service-awards/20246574)
+
+Pickup - [advos.io](https://advos.io/en/all-things-are-possible-foundation-opens-nominations-for-2024-community-service-awards/20246574)
+ 
 
 
 

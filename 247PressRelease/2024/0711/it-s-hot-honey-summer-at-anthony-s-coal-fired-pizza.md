@@ -7,7 +7,15 @@ FORT LAUDERDALE, FL, July 11, 2024 /24-7PressRelease/ -- Anthony's Coal Fired Pi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512449/its-hot-honey-summer-at-anthonys-coal-fired-pizza)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/anthony-s-coal-fired-pizza-wings-introduces-limited-time-menu-with-mike-s-hot-honey-r-burrata/73f0fc20c983481c07b140094c129468) 
+
+
+Pickup - [advos.io](https://advos.io/en/anthony-s-coal-fired-pizza-launches-limited-time-summer-menu-featuring-mike-s-hot-honey-r-burrata/20244856)
+
+Pickup - [fishervista.com](https://fishervista.com/en/anthony-s-coal-fired-pizza-launches-mike-s-hot-honey-r-burrata-menu-for-summer/20244856)
+
+Pickup - [citybuzz.co](https://citybuzz.co/anthony-s-coal-fired-pizza-launches-sizzling-summer-menu-with-mike-s-hot-honey-r-burrata-offerings)
+ 
 
 
 

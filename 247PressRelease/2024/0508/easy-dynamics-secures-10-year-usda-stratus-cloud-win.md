@@ -7,7 +7,9 @@ MCLEAN, VA, May 08, 2024 /24-7PressRelease/ -- Easy Dynamics is thrilled to anno
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510718/easy-dynamics-secures-10-year-usda-stratus-cloud-win)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/easy-dynamics-secures-10-year-agreement-with-usda-for-cloud-modernization/95eb05f2e6ddc1a9a0125c4003cf28d8) 
+
+ 
 
 
 

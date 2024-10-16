@@ -7,7 +7,9 @@ PRETORIA, SOUTH AFRICA, October 02, 2024 /24-7PressRelease/ -- South Africa's fi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514867/david-sean-to-represent-south-africa-in-global-equities-trading-challenge)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-south-african-analyst-david-sean-to-compete-in-global-equities-trading-challenge/48710223f83c63e74df694ed1ec27510) 
+
+ 
 
 
 

@@ -66,7 +66,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/visionary-dir
 [Original/Source Press Release](https://newsdirect.com/news/visionary-director-jonathan-baker-announces-final-film-icon-and-sets-production-for-2025-499335947)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/visionary-director-jonathan-baker-announces-final-film-icon-and-sets-production-for-2025/879ec83c75aeb2225477af3f4550fc58) 
+
+ 
 
 
 

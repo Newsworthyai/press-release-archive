@@ -21,7 +21,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/hive-digital-
 [Original/Source Press Release](https://newsdirect.com/news/hive-digital-technologies-reports-strong-bitcoin-production-and-expands-mining-capacity-923311819)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hive-digital-reports-strong-bitcoin-production-and-expands-mining-capacity/ea0eb2401ed17d7aa29472c1ab712d16) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/hive-digital-technologies-reports-increased-bitcoin-production-and-expands-mining-capacity/20244807)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/hive-digital-technologies-boosts-bitcoin-production-and-expands-mining-capacity)
+
+Pickup - [advos.io](https://advos.io/en/hive-digital-technologies-reports-strong-bitcoin-production-and-expands-mining-capacity/20244807)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/hive-digital-reports-strong-bitcoin-production-and-expands-mining-capacity)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/hive-digital-reports-strong-bitcoin-production-and-expands-mining-capacity)
+ 
 
 
 

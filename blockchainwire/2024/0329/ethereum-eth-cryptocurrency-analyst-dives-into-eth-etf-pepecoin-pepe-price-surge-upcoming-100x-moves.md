@@ -45,7 +45,11 @@ Twitter: [SHIBA BUDZ "$BUDZ" (@ShibaBudz) / X](https://twitter.com/ShibaBudz)Dis
 [Original/Source Press Release](https://blockchainwire.io/press-release/ethereum-eth-cryptocurrency-analyst-dives-into-eth-etf-pepecoin-pepe-price-surge--upcoming-100x-moves)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-eth-landscape-etf-buzz-pepecoin-surge-and-shiba-budz-potential/76b7d5bd51ce5fa6c02bb046d011acc4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/ethereum-s-evolving-landscape-eth-etf-pepecoin-s-rise-and-shiba-budz-s-potential)
+ 
 
 
 

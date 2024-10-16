@@ -7,7 +7,11 @@ GULFPORT, MS, June 07, 2024 /24-7PressRelease/ -- The Derick Hall One Percent Fo
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511504/from-odds-to-inspiration-the-derick-hall-one-percent-foundation-hosts-the-first-community-impact-event-in-gulfport-ms)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/derick-hall-one-percent-foundation-hosts-inaugural-community-impact-event/1e2e82605419b5992083d27fb86d8d60) 
+
+
+Pickup - [advos.io](https://advos.io/en/derick-hall-one-percent-foundation-to-host-inaugural-community-impact-event-in-gulfport-ms/20243918)
+ 
 
 
 

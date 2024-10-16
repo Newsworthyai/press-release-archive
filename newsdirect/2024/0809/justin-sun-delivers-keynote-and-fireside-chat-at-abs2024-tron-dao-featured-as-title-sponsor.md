@@ -43,7 +43,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/justin-sun-de
 [Original/Source Press Release](https://newsdirect.com/news/justin-sun-delivers-keynote-and-fireside-chat-at-abs2024-tron-dao-featured-as-title-sponsor-604697709)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tron-dao-takes-center-stage-at-asia-blockchain-summit-2024/4c7ba5d3f1e50cc4059976d4958a22eb) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tron-dao-takes-center-stage-at-asia-blockchain-summit-2024)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tron-dao-takes-center-stage-at-asia-blockchain-summit-2024)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/tron-dao-takes-center-stage-at-asia-blockchain-summit-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/justin-sun-shines-at-abs2024-highlighting-tron-daos-role-in-financial-inclusion/20245608)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/tron-dao-takes-center-stage-at-asia-blockchain-summit-2024/20245608)
+
+Pickup - [advos.io](https://advos.io/en/justin-sun-highlights-tron-s-progress-at-abs2024-emphasizes-financial-inclusion/20245608)
+ 
 
 
 

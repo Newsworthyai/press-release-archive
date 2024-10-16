@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/tron-x-htx-da
 [Original/Source Press Release](https://newsdirect.com/news/tron-x-htx-dao-hong-kong-meetup-2024-building-a-metaverse-free-port-in-hong-kong-853551573)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tron-x-htx-dao-hong-kong-meetup-2024-building-a-metaverse-free-port-in-hong-kong/ac58b5e8832ee359e85957859a16037b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/tron-x-htx-dao-hong-kong-meetup-2024-building-a-metaverse-free-port-in-hong-kong)
+ 
 
 
 

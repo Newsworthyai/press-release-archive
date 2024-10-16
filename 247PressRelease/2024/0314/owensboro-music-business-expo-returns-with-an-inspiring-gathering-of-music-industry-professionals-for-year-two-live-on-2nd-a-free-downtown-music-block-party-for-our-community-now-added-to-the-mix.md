@@ -8,7 +8,11 @@ OWENSBORO, KY, March 14, 2024 /24-7PressRelease/ -- The line-up has surpassed ex
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509251/owensboro-music-business-expo-returns-with-an-inspiring-gathering-of-music-industry-professionals-for-year-twolive-on-2nd-a-free-downtown-music-block-party-for-our-community-now-added-to-the-mix)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/owensboro-music-business-expo-returns-with-star-studded-lineup/69e0ee7483010025a55f5be176da884b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/owensboro-music-expo-returns-with-star-studded-lineup-and-downtown-block-party)
+ 
 
 
 

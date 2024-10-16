@@ -23,7 +23,11 @@ Experience the new frontier of marketing at www.MarketerMagazine.co
 [Original/Source Press Release](https://newsworthy.ai/news/20231129844/marketer-magazine-debuts-a-revolutionary-online-hub-for-marketing-enthusiasts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marketer-magazine-launches-offering-exclusive-insights-for-marketing-professionals/d715d72b0a3039ed7373c3fd7fc6cf5f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/29/marketer-magazine-launches-as-premier-online-hub-for-marketing-professionals)
+ 
 
 
 

@@ -15,7 +15,11 @@ IV Plus prioritizes individualized care, aiming to improve the lives of individu
 [Original/Source Press Release](https://newsworthy.ai/news/202401241031/iv-plus-introduces-tms-therapy-for-effective-mental-health-treatment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iv-plus-introduces-tms-therapy-for-mental-health-conditions/078f8e7652ebd82c8c21c8a4b40d3bbb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/24/iv-plus-pioneers-non-invasive-tms-therapy-for-mental-health-treatment)
+ 
 
 
 

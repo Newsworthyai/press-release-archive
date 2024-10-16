@@ -43,7 +43,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/satnode-snd-sets-sights-on-70-140-million-market-cap-amidst-industry-undervaluation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/satnode-snd-announces-ambitious-market-cap-target-of-70-140-million/f4a49460b6789a7378c1724124a5d3d2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/15/satnode-aims-for-70-140-million-market-cap-with-innovative-dpos-blockchain)
+ 
 
 
 

@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/crossword-cyb
 [Original/Source Press Release](https://newsdirect.com/news/crossword-cybersecurity-launches-cyberai-practice-to-address-generative-ai-risks-290755054)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crossword-cybersecurity-launches-cyberai-practice-to-address-generative-ai-risks/1beceb28751729eac7dcb296170a0c99) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/crossword-cybersecurity-unveils-cyberai-practice-to-tackle-generative-ai-risks)
+ 
 
 
 

@@ -51,7 +51,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcx-to-host-ama-with-cmo-mr-sato-on-wallet-testnet-and-milestones)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/upcx-to-host-exclusive-ama-on-twitter-spaces-with-chief-marketing-officer/b3b0fef1fce134c955b272e8cf2d5b8e) 
+
+ 
 
 
 

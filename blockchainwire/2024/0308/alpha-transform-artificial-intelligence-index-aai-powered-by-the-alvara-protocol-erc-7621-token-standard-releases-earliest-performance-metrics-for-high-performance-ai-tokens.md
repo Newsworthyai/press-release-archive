@@ -37,7 +37,11 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/alpha-transform-artificial-intelligence-index-aai-powered-by-the-alvara-protocol-erc-7621-token-standard-releases-earliest-performance-metrics-for-high-performance-ai-tokens)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alpha-transform-research-releases-alpha-transform-artificial-intelligence-index-performance-metrics/a436641683e1ddda6640f5ab0a3a0f31) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/08/alpha-transform-unveils-ai-token-index-powered-by-alvara-protocol)
+ 
 
 
 

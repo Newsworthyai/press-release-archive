@@ -7,7 +7,11 @@ MegaMemeChain, the revolutionary blockchain platform tailored for meme enthusias
 [Original/Source Press Release](https://blockchainwire.io/press-release/megamemechain-announces-launch-on-solana-chain-with-fairlaunch-on-pinksale-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/megamemechain-launching-on-solana-chain-with-fair-launch-event-on-pinksale/1155d489dbc62e12e4175bc5a6abfad1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/megamemechain-launches-on-solana-with-fairlaunch-on-pinksale)
+ 
 
 
 

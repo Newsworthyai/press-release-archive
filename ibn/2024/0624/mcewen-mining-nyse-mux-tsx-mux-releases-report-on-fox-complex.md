@@ -23,7 +23,9 @@ McEwen Mining (NYSE: MUX) (TSX: MUX), a gold and silver producer with operations
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-releases-report-on-fox-complex/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-mining-making-progress-at-fox-complex-with-new-mine-on-stock-property/3f9c4f413b1aa0c23f3c9f523bf750a4) 
+
+ 
 
 
 

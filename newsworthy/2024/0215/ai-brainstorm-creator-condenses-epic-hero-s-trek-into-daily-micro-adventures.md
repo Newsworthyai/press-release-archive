@@ -29,7 +29,11 @@ Facebook Group | Facebook | Linkedin | X (Twitter) |Instagram | Pinterest
 [Original/Source Press Release](https://newsworthy.ai/news/202402151091/ai-brainstorm-creator-condenses-epic-hero-s-trek-into-daily-micro-adventures)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nonprofit-launches-program-to-tap-into-inner-hero-through-ai-and-social-media/5b686f23335819dae2589f475f8ab228) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/15/ai-brainstorm-creator-unlocks-daily-heroic-experiences)
+ 
 
 
 

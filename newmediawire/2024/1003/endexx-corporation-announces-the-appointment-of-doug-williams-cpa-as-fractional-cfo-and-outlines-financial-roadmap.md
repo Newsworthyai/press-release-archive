@@ -41,7 +41,9 @@ CAVE CREEK, Ariz. - (NewMediaWire) - October 03, 2024 - Endexx Corporation (OTC
 [Original/Source Press Release](https://www.newmediawire.com/news/endexx-corporation-announces-the-appointment-of-doug-williams-cpa-as-fractional-cfo-and-outlines-financial-roadmap-7076151)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/endexx-corporation-appoints-doug-williams-cpa-as-fractional-cfo/9a661d9b79365681770452107255e4f4) 
+
+ 
 
 
 

@@ -7,7 +7,9 @@ CINCINNATI, OH, September 26, 2024 /24-7PressRelease/ -- In little over 25 years
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514660/could-simple-eye-exercises-help-the-more-than-four-billion-people-globally-who-will-need-glasses-by-2050)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/4-billion-people-to-need-vision-correction-snipersight-app-offers-low-cost-solution/a572d686cac30aa2f910af0833fb2d4d) 
+
+ 
 
 
 

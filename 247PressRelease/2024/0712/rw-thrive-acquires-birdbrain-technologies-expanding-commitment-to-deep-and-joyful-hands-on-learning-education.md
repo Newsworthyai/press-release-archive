@@ -7,7 +7,15 @@ EAU CLAIRE, WI, July 12, 2024 /24-7PressRelease/ -- RW Thrive, the employee-owne
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512462/rw-thrive-acquires-birdbrain-technologies-expanding-commitment-to-deep-and-joyful-hands-on-learning-education)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rw-thrive-acquires-birdbrain-technologies-expanding-educational-robotics-offerings/8c562222bdcc7d3788ff81f9b8dedb2f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/rw-thrive-expands-stem-education-reach-with-birdbrain-technologies-acquisition)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rw-thrive-acquires-birdbrain-technologies-strengthening-educational-robotics-market/20244904)
+
+Pickup - [advos.io](https://advos.io/en/rw-thrive-acquires-birdbrain-technologies-to-enhance-stem-education/20244904)
+ 
 
 
 

@@ -7,7 +7,17 @@ NEW HOLLAND, PA, August 26, 2024 /24-7PressRelease/ -- Horning Manufacturing, a 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513739/horning-manufacturing-introduces-the-shredder-mill-2800)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/horning-manufacturing-unveils-revolutionary-shredder-mill-2800-for-faster-corn-processing/c079617bedfca0cad614a8fc22632293) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/horning-manufacturing-unveils-high-efficiency-corn-processing-solution-shredder-mill-2800)
+
+Pickup - [fishervista.com](https://fishervista.com/en/horning-manufacturing-unveils-high-efficiency-shredder-mill-2800/20245942)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/horning-manufacturing-unveils-high-capacity-shredder-mill-2800-for-efficient-corn-processing/20245942)
+
+Pickup - [advos.io](https://advos.io/en/horning-manufacturing-launches-the-shredder-mill-2800/20245942)
+ 
 
 
 

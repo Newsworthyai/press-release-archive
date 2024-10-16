@@ -47,7 +47,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/copper-prices
 [Original/Source Press Release](https://newsdirect.com/news/copper-prices-cross-10-000-per-ton-in-q2-is-copper-entering-a-new-supercycle-948165323)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/copper-prices-surge-is-copper-entering-a-new-supercycle/5a1b186a4130e9d3800c612a31256989) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/copper-prices-surge-past-10000-per-ton-signs-of-a-new-supercycle-emerge)
+
+Pickup - [fishervista.com](https://fishervista.com/en/copper-prices-surpass-10000-per-ton-indicators-of-a-new-supercycle/20245323)
+
+Pickup - [advos.io](https://advos.io/en/copper-prices-surpass-10000-per-ton-indicating-potential-new-supercycle/20245323)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/copper-prices-surge-past-10000-per-ton-potential-supercycle-emerges)
+ 
 
 
 

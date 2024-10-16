@@ -7,7 +7,9 @@ WASHINGTON, DC, October 03, 2024 /24-7PressRelease/ -- Kevin D. McCall's much-an
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514912/kevin-d-mccalls-my-good-government-job-vol-1-a-story-of-triumph-and-resilience-is-now-available)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kevin-d-mccall-s-memoir-my-good-government-job-vol-1-offers-insights-and-inspiration-for-overcoming-workplace-challenges/3711505df8e085108fc2ac7b2ad038b3) 
+
+ 
 
 
 

@@ -69,7 +69,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-annual-be
 [Original/Source Press Release](https://newsdirect.com/news/the-annual-bellami-showcase-returns-september-in-vegas-236418753)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bellami-showcase-returns-to-las-vegas-in-september-2024/3d00e3260cbb7dd827163946486884b6) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bellami-showcase-returns-to-las-vegas-promises-innovative-education-and-industry-recognition/20245522)
+
+Pickup - [advos.io](https://advos.io/en/the-annual-bellami-showcase-returns-to-las-vegas-in-2024/20245522)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/bellami-announces-return-of-annual-showcase-and-awards-in-las-vegas)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bellami-announces-return-of-annual-showcase-for-hair-extension-industry)
+ 
 
 
 

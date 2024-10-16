@@ -59,7 +59,11 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/biceps-coin-introduces-bitcoin-earning-potential-for-bics-token-holders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/biceps-coin-introduces-bitcoin-rewards-for-token-holders/15d6e9291fd08aa213972e6c67776b26) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/biceps-coin-introduces-bitcoin-earning-potential-for-bics-token-holders)
+ 
 
 
 

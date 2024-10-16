@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/hove-capital-
 [Original/Source Press Release](https://newsdirect.com/news/hove-capital-management-explores-potential-strategic-partnerships-with-bnp-paribas-and-societe-generale-722906753)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hove-capital-management-seeks-strategic-partnerships-with-bnp-paribas-and-societe-generale/37ceb722008eba0f8b48c1da48c1bab0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/23/hove-capital-management-seeks-strategic-alliances-with-bnp-paribas-and-societe-generale)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hove-capital-management-pursues-strategic-partnerships-with-bnp-paribas-and-societe-generale/20245925)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hove-capital-management-seeks-strategic-alliances-with-bnp-paribas-and-societe-generale/20245925)
+
+Pickup - [advos.io](https://advos.io/en/hove-capital-management-eyes-strategic-partnerships-with-bnp-paribas-and-societe-generale/20245925)
+ 
 
 
 

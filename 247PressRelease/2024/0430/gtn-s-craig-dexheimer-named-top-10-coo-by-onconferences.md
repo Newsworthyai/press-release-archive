@@ -7,7 +7,9 @@ MINNEAPOLIS, MN, April 30, 2024 /24-7PressRelease/ -- Global Tax Network (GTN), 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510508/gtns-craig-dexheimer-named-top-10-coo-by-onconferences)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gtn-s-coo-craig-dexheimer-named-oncon-icon-award-top-10-coo-for-second-consecutive-year/a57302acd8d6d3a3bf891ba5b413c494) 
+
+ 
 
 
 

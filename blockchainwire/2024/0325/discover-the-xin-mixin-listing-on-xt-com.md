@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-xin-mixin-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-xin-mixin-in-innovation-zone/b8a3bb14efe29efe04718e77843e2fe6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/xt-com-embraces-decentralized-finance-with-xin-mixin-listing)
+ 
 
 
 

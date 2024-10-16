@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/futura-medica
 [Original/Source Press Release](https://newsdirect.com/news/futura-medical-targets-global-expansion-with-eroxon-eyeing-profitability-in-2024-720550188)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/futura-medical-targets-global-expansion-with-eroxon-eyeing-profitability-in-2024/343e5ec20bdce7c579e14dc0ad21201c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/futura-medical-plc-targets-global-expansion-with-eroxon-aiming-for-profitability-in-2024)
+ 
 
 
 

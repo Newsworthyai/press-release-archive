@@ -7,7 +7,13 @@ AUSTIN, TX, June 28, 2024 /24-7PressRelease/ -- Announcing a special recognition
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512031/shirley-mueller-selected-for-2023-top-va-volume)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shirley-mueller-honored-as-2023-top-va-volume-by-scotsman-guide-residential-edition/104e9dc6672afd04e71335bcd726585b) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/shirley-mueller-honored-with-2023-top-va-volume-by-scotsman-guide/20244565)
+
+Pickup - [advos.io](https://advos.io/en/shirley-mueller-honored-with-2023-top-va-volume-award-by-scotsman-guide/20244565)
+ 
 
 
 

@@ -62,7 +62,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-aiming-to-lead-as-global-adoption-of-crypto-staking-surge)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-enhances-staking-platform-to-meet-global-demand/75e96f07a13f3af6c13a8e3206155879) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/stakingfarm-aiming-to-lead-as-global-adoption-of-crypto-staking-surge)
+ 
 
 
 

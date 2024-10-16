@@ -7,7 +7,9 @@ VANCOUVER, BC, September 23, 2024 /24-7PressRelease/ -- Maintaining the structur
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514564/vancouver-chimney-repair-re-pointing-for-long-lasting-structural-integrity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chimney-re-pointing-essential-maintenance-for-long-lasting-structural-integrity/f287d5851951e083f359188d40f1c5fa) 
+
+ 
 
 
 

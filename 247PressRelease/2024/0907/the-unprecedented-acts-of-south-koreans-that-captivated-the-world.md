@@ -7,7 +7,17 @@ LOS ANGELES, CA, September 07, 2024 /24-7PressRelease/ -- The keychain featuring
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514101/the-unprecedented-acts-of-south-koreans-that-captivated-the-world)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/south-korean-company-s-flag-keychain-honors-korean-war-veterans-and-sparks-global-interest/a3fdbd188f4c0e565d83b963e30a5b3d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/07/south-korean-flag-keychain-honoring-war-veterans-sparks-global-interest)
+
+Pickup - [fishervista.com](https://fishervista.com/en/infresh-s-historic-keychain-captivates-global-attention-and-honors-korean-war-veterans/20246600)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/south-korean-flag-keychain-honors-war-veterans-sparks-global-interest/20246600)
+
+Pickup - [advos.io](https://advos.io/en/infresh-s-korean-war-keychain-sparks-global-interest-and-honors-veterans/20246600)
+ 
 
 
 

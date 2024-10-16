@@ -51,7 +51,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/fiscalnote-ny
 [Original/Source Press Release](https://newsdirect.com/news/fiscalnote-nyse-note-strategic-review-in-focus-as-board-org-divested-for-103-million-or-7x-sales-company-surpasses-adjusted-ebitda-guidance-706733309)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fiscalnote-exceeds-expectations-with-financial-results-and-strategic-divestment/5a51995f52448d55444273b4d312ec09) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/fiscalnote-undergoes-strategic-review-divests-board-org-for-103-million)
+ 
 
 
 

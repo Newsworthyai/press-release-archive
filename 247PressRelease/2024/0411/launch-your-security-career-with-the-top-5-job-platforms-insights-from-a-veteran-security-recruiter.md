@@ -7,7 +7,13 @@ HOLLYWOOD, FL, April 11, 2024 /24-7PressRelease/ -- With the ongoing demand for 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509970/launch-your-security-career-with-the-top-5-job-platforms-insights-from-a-veteran-security-recruiter)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/security-recruiting-expert-reveals-top-online-resources-for-job-seekers/ca0f562532fde0a348aa690c59b43488) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/expert-security-recruiter-reveals-top-5-job-platforms-for-industry-professionals/20241658)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/top-5-job-platforms-for-launching-your-security-career-expert-insights)
+ 
 
 
 

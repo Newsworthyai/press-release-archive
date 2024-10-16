@@ -37,7 +37,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/american-pape
 [Original/Source Press Release](https://newsdirect.com/news/american-paper-plate-coalition-welcomes-preliminary-duties-on-imports-from-china-and-vietnam-162708537)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/commerce-imposes-preliminary-duties-on-paper-plate-imports-from-china-and-vietnam/2130b5898d04e7fa5e3677eae8f9051c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/u-s-department-of-commerce-imposes-duties-on-paper-plate-imports-from-china-and-vietnam/20244471)
+
+Pickup - [advos.io](https://advos.io/en/u-s-department-of-commerce-imposes-preliminary-duties-on-chinese-and-vietnamese-paper-plate-imports/20244471)
+ 
 
 
 

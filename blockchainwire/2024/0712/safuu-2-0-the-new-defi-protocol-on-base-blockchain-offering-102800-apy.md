@@ -57,7 +57,19 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/safuu-20-the-new-defi-protocol-on-base-blockchain-offering-102800-apy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/safuu-2-0-revolutionizes-defi-with-unprecedented-earning-opportunities/acac7c742fbefffc0282235b3c777763) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/safuu-2-0-launches-on-base-blockchain-offering-unprecedented-102800-apy)
+
+Pickup - [fishervista.com](https://fishervista.com/en/safuu-2-0-launches-on-base-blockchain-promising-unmatched-102800-apy/20244921)
+
+Pickup - [advos.io](https://advos.io/en/safuu-2-0-introduces-unprecedented-102800-apy-in-defi-space-on-base-blockchain/20244921)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/safuu-2-0-revolutionizes-defi-with-unprecedented-earning-opportunities)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/safuu-2-0-revolutionizes-defi-with-unprecedented-earning-opportunities)
+ 
 
 
 

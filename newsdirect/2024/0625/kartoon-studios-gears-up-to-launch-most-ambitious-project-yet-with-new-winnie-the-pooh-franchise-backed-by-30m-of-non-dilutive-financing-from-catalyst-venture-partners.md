@@ -43,7 +43,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/kartoon-studi
 [Original/Source Press Release](https://newsdirect.com/news/kartoon-studios-gears-up-to-launch-most-ambitious-project-yet-with-new-winnie-the-pooh-franchise-backed-by-30m-of-non-dilutive-financing-from-catalyst-venture-partners-874478472)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kartoon-studios-launches-epic-winnie-the-pooh-franchise/4aa1826f95e2b88d2a447a4008615670) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/kartoon-studios-announces-new-winnie-the-pooh-franchise-backed-by-30m-financing/20244456)
+
+Pickup - [advos.io](https://advos.io/en/kartoon-studios-to-revamp-winnie-the-pooh-franchise-with-30m-backing/20244456)
+ 
 
 
 

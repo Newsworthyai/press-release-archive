@@ -7,7 +7,15 @@ SPRINGFIELD, MA, July 13, 2024 /24-7PressRelease/ -- Franklin Publishers is thri
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512515/franklin-publishers-celebrates-the-release-of-ill-see-you-tomorrow-a-collection-of-poems-about-growing-up-and-growing-out-by-cecelia-allentuck)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-poetry-collection-i-ll-see-you-tomorrow-by-cecelia-allentuck-explores-the-journey-from-adolescence-to-adulthood/161e6c0e795cded9a3fe06fe8f0bbc43) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/13/emerging-poet-cecelia-allentuck-releases-debut-collection-i-ll-see-you-tomorrow)
+
+Pickup - [fishervista.com](https://fishervista.com/en/franklin-publishers-celebrates-release-of-cecelia-allentuck-s-poignant-poetry-collection/20244933)
+
+Pickup - [advos.io](https://advos.io/en/franklin-publishers-celebrates-release-of-poetry-collection-by-cecelia-allentuck/20244933)
+ 
 
 
 

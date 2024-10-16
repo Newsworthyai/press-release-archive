@@ -21,7 +21,13 @@ RChilli resume parser for ERP recruiting simplifies the recruitment process acro
 [Original/Source Press Release](https://newsworthy.ai/news/202403111114/innovative-browser-extension-elevates-rchilli-s-sap-successfactors-presence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-introduces-innovative-browser-extension-for-sap-successfactors/ea9334a48af20fa081866b2650448753) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-launches-browser-extension-to-enhance-sap-successfactors-recruitment-process/2024687)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/rchilli-unveils-innovative-browser-extension-for-streamlined-sap-successfactors-recruitment)
+ 
 
 
 

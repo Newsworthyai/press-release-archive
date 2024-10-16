@@ -7,7 +7,9 @@ LOS ANGELES, CA, May 06, 2024 /24-7PressRelease/ -- In recent days, the buzz sur
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510676/kevin-costners-passion-project-horizon-an-american-saga-is-a-journey-to-embrace)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kevin-costner-s-horizon-challenges-doubts-and-promises-cinematic-spectacle/9fe83a14f994ef52bca14d1b1a5cab26) 
+
+ 
 
 
 

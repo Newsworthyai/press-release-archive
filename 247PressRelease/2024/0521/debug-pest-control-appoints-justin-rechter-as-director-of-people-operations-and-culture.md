@@ -7,7 +7,11 @@ SMITHFIELD, RI, May 21, 2024 /24-7PressRelease/ -- Debug Pest Control, an indust
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511027/debug-pest-control-appoints-justin-rechter-as-director-of-people-operations-and-culture)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/industry-leader-debug-pest-control-welcomes-new-director-of-people-operations-and-culture/8548206800986658eed05b7e4c25d447) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/debug-pest-control-hires-justin-rechter-as-director-of-people-operations-and-culture/20243241)
+ 
 
 
 

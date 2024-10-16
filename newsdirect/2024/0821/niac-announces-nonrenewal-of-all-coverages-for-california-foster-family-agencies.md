@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/niac-announce
 [Original/Source Press Release](https://newsdirect.com/news/niac-announces-nonrenewal-of-all-coverages-for-california-foster-family-agencies-804277863)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/niac-announces-nonrenewal-of-coverages-for-california-foster-family-agencies/17efbffe4b13d4df340e737f4b584632) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/california-foster-family-agencies-face-insurance-crisis-as-niac-announces-coverage-nonrenewal)
+
+Pickup - [fishervista.com](https://fishervista.com/en/niac-to-cease-insurance-coverage-for-california-foster-family-agencies/20245883)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/california-foster-family-agencies-face-insurance-crisis-as-niac-announces-coverage-nonrenewal/20245883)
+
+Pickup - [advos.io](https://advos.io/en/niac-announces-nonrenewal-of-insurance-coverages-for-california-foster-family-agencies/20245883)
+ 
 
 
 

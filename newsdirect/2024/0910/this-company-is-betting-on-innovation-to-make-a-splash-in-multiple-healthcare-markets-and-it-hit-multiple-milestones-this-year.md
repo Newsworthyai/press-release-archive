@@ -57,7 +57,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/this-company-
 [Original/Source Press Release](https://newsdirect.com/news/this-company-is-betting-on-innovation-to-make-a-splash-in-multiple-healthcare-markets-and-it-hit-multiple-milestones-this-year-893527361)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/therma-bright-innovating-in-healthcare-markets/344172c87621d9ca5b040c5f26776913) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/therma-bright-inc-makes-significant-strides-in-healthcare-innovation-with-multiple-product-developments)
+
+Pickup - [fishervista.com](https://fishervista.com/en/therma-bright-makes-strides-in-healthcare-innovation-with-key-milestones/20246664)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/therma-bright-advances-in-healthcare-innovation-with-multiple-product-milestones/20246664)
+
+Pickup - [advos.io](https://advos.io/en/therma-bright-inc-achieves-key-milestones-in-healthcare-innovations/20246664)
+ 
 
 
 

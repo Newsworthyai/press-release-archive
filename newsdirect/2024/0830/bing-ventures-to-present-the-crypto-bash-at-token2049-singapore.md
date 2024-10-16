@@ -62,7 +62,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/bing-ventures
 [Original/Source Press Release](https://newsdirect.com/news/bing-ventures-to-present-the-crypto-bash-at-token2049-singapore-866496986)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bing-ventures-to-present-the-crypto-bash-at-token2049-singapore/dbeac1c604260ca45c198db41e11c4e0) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bing-ventures-to-present-the-crypto-bash-at-token2049-singapore)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bing-ventures-to-present-the-crypto-bash-at-token2049-singapore)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/30/bing-ventures-announces-the-crypto-bash-at-token2049-singapore)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bing-ventures-to-host-the-crypto-bash-at-token2049-singapore/20246399)
+
+Pickup - [advos.io](https://advos.io/en/bing-ventures-to-host-the-crypto-bash-at-token2049-singapore/20246399)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/bing-ventures-announces-the-crypto-bash-event-at-token2049-singapore/20246399)
+ 
 
 
 

@@ -7,7 +7,11 @@ EVANSVILLE, IN, April 05, 2024 /24-7PressRelease/ -- 1-800-HANSONS, one of the t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509848/1-800-hansons-the-trusted-home-improvement-expert-for-a-lifetime-announces-the-ribbon-cutting-of-its-newest-location-evansville-in)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/1-800-hansons-expands-into-evansville-in-with-ribbon-cutting-event/dfd853e3be0aebaac980a2c9ee2cda63) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/1-800-hansons-expands-home-improvement-services-to-evansville-in)
+ 
 
 
 

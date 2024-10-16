@@ -51,7 +51,21 @@ Ourbit aspires to revolutionize the CEX trading experience and establish itself 
 [Original/Source Press Release](https://blockchainwire.io/press-release/ourbit-introduces-its-revolutionary-blast-bridge-offering-unmatched-user-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ourbit-launches-blast-bridge-to-address-user-concerns-on-blast-chain/d1265fbe2bc4bbbe3759ec4bfa27192d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/ourbit-launches-innovative-blast-bridge-revolutionizing-asset-transfers-in-cryptocurrency)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ourbit-launches-blast-bridge-to-enhance-user-experience-in-cryptocurrency-transfers/20245404)
+
+Pickup - [advos.io](https://advos.io/en/ourbit-launches-blast-bridge-to-address-crypto-transfer-challenges/20245404)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ourbit-launches-blast-bridge-to-address-user-concerns-on-blast-chain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ourbit-launches-blast-bridge-to-address-user-concerns-on-blast-chain)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ourbit-launches-innovative-blast-bridge-to-enhance-cryptocurrency-transfers)
+ 
 
 
 

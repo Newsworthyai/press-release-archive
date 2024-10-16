@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/atfx-integrat
 [Original/Source Press Release](https://newsdirect.com/news/atfx-integrates-priceon-from-tradertools-to-enhance-global-group-trading-efficiency-911776892)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atfx-integrates-priceon-from-tradertools-to-revolutionize-global-trading-infrastructure/a6a5b985145bc5d5daef54e2a36533b8) 
+
+
+Pickup - [advos.io](https://advos.io/en/atfx-integrates-tradertools-priceontm-for-enhanced-global-trading-efficiency/20244203)
+ 
 
 
 

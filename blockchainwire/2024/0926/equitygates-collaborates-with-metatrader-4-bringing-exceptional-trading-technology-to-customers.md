@@ -23,7 +23,9 @@ Its commitment to transparency also ensures that clients have access to clear in
 [Original/Source Press Release](https://blockchainwire.io/press-release/equitygates-collaborates-with-metatrader-4-bringing-exceptional-trading-technology-to-customers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/equitygates-announces-strategic-partnership-with-metatrader-4/f20d493d0b8dc38dca2ba36a625fda55) 
+
+ 
 
 
 

@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kincora-coppe
 [Original/Source Press Release](https://newsdirect.com/news/kincora-copper-ceo-sam-spring-discusses-strategic-exploration-and-partnerships-943356706)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kincora-copper-ceo-seeks-strategic-partnerships-in-australia/92e1353e6c7ac2f89bc315ecc1d45704) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/kincora-copper-ceo-sam-spring-discusses-strategic-exploration-and-partnerships)
+ 
 
 
 

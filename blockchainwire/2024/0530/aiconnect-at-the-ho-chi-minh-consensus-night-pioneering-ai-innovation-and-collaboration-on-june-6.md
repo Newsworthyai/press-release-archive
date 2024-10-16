@@ -35,7 +35,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/aiconnect-at-the-ho-chi-minh-consensus-night-pioneering-ai-innovation-and-collaboration-on-june-6)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aiconnect-to-showcase-innovative-ai-and-blockchain-solutions-at-ho-chi-minh-consensus-night/e353d39e642d27e5ee3966fa0d02ad35) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/aiconnect-to-showcase-innovative-ai-and-blockchain-solutions-at-ho-chi-minh-consensus-night)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/aiconnect-to-showcase-innovative-ai-and-blockchain-solutions-at-ho-chi-minh-consensus-night)
+ 
 
 
 

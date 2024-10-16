@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-innova
 [Original/Source Press Release](https://newsdirect.com/news/bitget-innovation-zone-adds-ai-based-masa-network-masa-to-its-spot-offerings-978968915)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-adds-masa-network-to-innovation-zone-for-spot-offerings/8317e90c963b8808f405af4d2a510b79) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/bitget-adds-ai-based-masa-network-masa-to-innovation-zone-spot-offerings)
+ 
 
 
 

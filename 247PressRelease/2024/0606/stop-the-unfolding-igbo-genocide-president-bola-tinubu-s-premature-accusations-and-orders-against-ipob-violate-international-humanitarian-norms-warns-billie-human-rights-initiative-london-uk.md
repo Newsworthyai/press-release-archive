@@ -7,7 +7,11 @@ LONDON, ENGLAND, June 06, 2024 /24-7PressRelease/ -- London, United Kingdom — 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511490/stop-the-unfolding-igbo-genocide-president-bola-tinubus-premature-accusations-and-orders-against-ipob-violate-international-humanitarian-norms-warns-billie-human-rights-initiative-london-uk)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/billie-human-rights-initiative-condemns-human-rights-abuses-in-nigeria/a4f710b062c2db0fa4c260f6c925b344) 
+
+
+Pickup - [advos.io](https://advos.io/en/billie-human-rights-initiative-condemns-president-tinubu-s-actions-against-ipob-alleges-humanitarian-violations/20243879)
+ 
 
 
 

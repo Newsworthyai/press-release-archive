@@ -57,7 +57,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/michael-saylors-microstrategy-holds-over-1-of-all-bitcoins-now-the-company-could-move-onto-blockdag-network-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/michael-saylor-s-microstrategy-eyes-potential-investment-in-blockdag-network/f3f9f64b0ba21f335166ddcf9f1894cf) 
+
+ 
 
 
 

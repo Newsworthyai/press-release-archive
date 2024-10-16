@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/greenwave-tec
 [Original/Source Press Release](https://newsdirect.com/news/greenwave-technology-shores-up-balance-sheet-with-debt-for-equity-swap-expects-to-process-record-volumes-of-steel-and-copper-with-2024-revenues-exceeding-40-million-152698355)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greenwave-technology-solutions-cleans-up-balance-sheet-expects-record-revenues-in-2024/0cab6bd3decf993cc1a27db3d0e80ae5) 
+
+ 
 
 
 

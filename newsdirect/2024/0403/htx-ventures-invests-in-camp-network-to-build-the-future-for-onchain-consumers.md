@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-
 [Original/Source Press Release](https://newsdirect.com/news/htx-ventures-invests-in-camp-network-to-build-the-future-for-onchain-consumers-771848205)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-ventures-invests-in-camp-network-to-revolutionize-on-chain-consumers/38abb9479d200f810fae6cb6b3948384) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/htx-ventures-backs-camp-network-to-bridge-web2-and-web3-for-consumers)
+ 
 
 
 

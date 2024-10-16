@@ -7,7 +7,9 @@ MADISON, WI, May 28, 2024 /24-7PressRelease/ -- In a validation study performed 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511190/bioionix-cipcop-validation-studies-confirm-over-6-log-pathogen-reduction)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bioionix-r-activated-water-study-shows-significant-pathogen-reduction-in-food-manufacturing/aa2864479b2260b8000098e29de8a07a) 
+
+ 
 
 
 

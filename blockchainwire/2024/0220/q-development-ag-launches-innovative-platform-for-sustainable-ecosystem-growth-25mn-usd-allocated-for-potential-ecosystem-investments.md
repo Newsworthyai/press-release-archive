@@ -45,7 +45,11 @@ Q is an EVM-compatible blockchain protocol, redefining Web3 with its groundbreak
 [Original/Source Press Release](https://blockchainwire.io/press-release/q-development-ag-launches-innovative-platform-for-sustainable-ecosystem-growth---25mn-usd-allocated-for-potential-ecosystem-investments)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/q-development-ag-launches-q-ecosystem-fund-for-web3-innovation/a72adb95f58d191b1c99dc899afb6684) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/20/q-development-ag-unveils-innovative-ecosystem-fund-for-sustainable-growth)
+ 
 
 
 

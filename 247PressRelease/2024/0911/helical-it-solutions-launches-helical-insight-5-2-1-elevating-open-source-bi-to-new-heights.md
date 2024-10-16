@@ -7,7 +7,17 @@ HYDERABAD, INDIA, September 11, 2024 /24-7PressRelease/ -- Helical IT Solutions 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514188/helical-it-solutions-launches-helical-insight-521-elevating-open-source-bi-to-new-heights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/helical-it-solutions-unveils-helical-insight-5-2-1-redefining-analytics-with-powerful-new-features/f66a8fb4cd8701fac902df40436ea8e4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/helical-insight-5-2-1-redefines-open-source-business-intelligence)
+
+Pickup - [fishervista.com](https://fishervista.com/en/helical-it-solutions-unveils-helical-insight-5-2-1-a-leap-forward-in-open-source-bi/20246685)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/helical-insight-5-2-1-revolutionizes-open-source-business-intelligence/20246685)
+
+Pickup - [advos.io](https://advos.io/en/helical-it-solutions-unveils-helical-insight-5-2-1-a-game-changer-in-open-source-bi/20246685)
+ 
 
 
 

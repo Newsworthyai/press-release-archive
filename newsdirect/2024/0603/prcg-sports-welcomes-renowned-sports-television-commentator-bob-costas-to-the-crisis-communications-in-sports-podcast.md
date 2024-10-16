@@ -40,7 +40,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/prcg-sports-w
 [Original/Source Press Release](https://newsdirect.com/news/prcg-sports-welcomes-renowned-sports-television-commentator-bob-costas-to-the-crisis-communications-in-sports-podcast-492404971)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/legendary-broadcaster-bob-costas-discusses-impact-of-legalized-sports-betting-on-crisis-communications-in-sports-podcast/acac291a2de71acd0acda313761a08d7) 
+
+
+Pickup - [advos.io](https://advos.io/en/legendary-sports-broadcaster-bob-costas-discusses-impact-of-legalized-sports-betting-on-crisis-communications-in-sports-podcast/20243638)
+ 
 
 
 

@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/fppathfinder-
 [Original/Source Press Release](https://newsdirect.com/news/fppathfinder-partners-with-moneytree-solutions-to-create-knowledge-integration-878741000)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fppathfinder-and-moneytree-solutions-partner-to-create-knowledge-integration/5ea2deac3043844e7125cab7028f80de) 
+
+ 
 
 
 

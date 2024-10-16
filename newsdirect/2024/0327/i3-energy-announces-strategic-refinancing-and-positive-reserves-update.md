@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/i3-energy-ann
 [Original/Source Press Release](https://newsdirect.com/news/i3-energy-announces-strategic-refinancing-and-positive-reserves-update-664930597)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/i3-energy-ceo-discusses-positive-refinancing-and-growth-plans/89a387ed533b61efde40b4b34a1f9ec6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/i3-energy-secures-strategic-refinancing-and-reports-stable-reserves)
+ 
 
 
 

@@ -47,7 +47,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-puc-parallel-universe-coin-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-announces-listing-of-puc-token-on-socially-infused-trading-platform/e3329937ca38f136a112d41c7d4bd578) 
+
+ 
 
 
 

@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/western-metal
 [Original/Source Press Release](https://newsdirect.com/news/western-metallica-resources-intensifies-exploration-at-luz-maria-and-cana-brava-1-targets-374121119)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/western-metallica-resources-intensifies-exploration-at-luz-maria-and-cana-brava-1-targets/52344fedbe123c0c37be304f3f9814c2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/western-metallica-resources-intensifies-exploration-efforts)
+ 
 
 
 

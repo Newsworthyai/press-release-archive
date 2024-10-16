@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/cooper-metals
 [Original/Source Press Release](https://newsdirect.com/news/cooper-metals-makes-substantial-progress-at-brumby-ridge-assays-due-shortly-603545038)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cooper-metals-makes-substantial-progress-at-brumby-ridge-assays-due-shortly/73a317ebeb69b3b21a09faf3248b2f19) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/cooper-metals-nears-key-milestone-at-brumby-ridge-project)
+ 
 
 
 

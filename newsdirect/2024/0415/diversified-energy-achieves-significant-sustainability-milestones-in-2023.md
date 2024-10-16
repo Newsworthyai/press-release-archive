@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/diversified-e
 [Original/Source Press Release](https://newsdirect.com/news/diversified-energy-achieves-significant-sustainability-milestones-in-2023-816671995)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/diversified-energy-achieves-significant-sustainability-milestones-in-2023/7118ba7e9a7c5eabe23306925f5ff566) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/diversified-energy-achieves-significant-sustainability-milestones-in-2023)
+ 
 
 
 

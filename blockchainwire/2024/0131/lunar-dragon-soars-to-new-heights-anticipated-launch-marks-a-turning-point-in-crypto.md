@@ -45,7 +45,11 @@ Disclaimer: This press release may contain forward-looking statements. Forward-l
 [Original/Source Press Release](https://blockchainwire.io/press-release/lunar-dragon-soars-to-new-heights-anticipated-launch-marks-a-turning-point-in-crypto)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lunar-dragon-prepares-for-launch-in-volatile-crypto-market/e4c000fcacbd816e4bf8a7c4a09a2c05) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/31/lunar-dragon-soars-towards-crypto-stardom-with-innovative-gamefi-launch)
+ 
 
 
 

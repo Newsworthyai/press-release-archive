@@ -25,7 +25,9 @@ Contact:  Denise M. Pace-Sanders, SVP-Managing Principal, Brand and Marketing D
 [Original/Source Press Release](https://www.newmediawire.com/news/peapack-gladstone-financial-corporation-and-peapack-gladstone-bank-s-investment-grade-ratings-confirmed-by-moody-s-investors-service-7076125)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/moody-s-confirms-investor-grade-ratings-for-peapack-gladstone-financial-corporation-and-peapack-gladstone-bank/2812465c306ccd11b3d9ba6e5d25ef77) 
+
+ 
 
 
 

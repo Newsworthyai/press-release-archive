@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/american-hear
 [Original/Source Press Release](https://newsdirect.com/news/american-heart-association-honors-centre-for-neuro-skills-with-group-stroke-hero-award-292353658)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/centre-for-neuro-skills-honored-with-group-stroke-heroes-award-by-american-heart-association/1420ea50066d41c8352c45f4acbd2b75) 
+
+ 
 
 
 

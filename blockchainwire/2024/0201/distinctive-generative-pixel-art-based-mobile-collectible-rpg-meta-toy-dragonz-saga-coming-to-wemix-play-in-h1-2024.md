@@ -29,7 +29,11 @@ Part of the first generation of Korean PC online game developers and Korean mobi
 [Original/Source Press Release](https://blockchainwire.io/press-release/distinctive-generative-pixel-art-based-mobile-collectible-rpg-meta-toy-dragonz-saga-coming-to-wemix-play-in-h1-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemade-announces-launch-of-meta-toy-dragonz-saga-on-wemix-play-blockchain-platform/7de16ede6632688a0f000478df9da50d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/01/distinctive-generative-pixel-art-based-mobile-rpg-meta-toy-dragonz-saga-coming-to-wemix-play)
+ 
 
 
 

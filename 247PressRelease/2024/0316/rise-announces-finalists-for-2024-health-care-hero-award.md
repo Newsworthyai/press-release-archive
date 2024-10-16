@@ -7,7 +7,11 @@ NEW ORLEANS, LA, March 16, 2024 /24-7PressRelease/ -- RISE is pleased to announc
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509293/rise-announces-finalists-for-2024-health-care-hero-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rise-announces-finalists-for-2024-health-care-hero-award/1f6b02b55157b75e0297d011dd3f8c72) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/16/rise-announces-finalists-for-prestigious-2024-health-care-hero-award)
+ 
 
 
 

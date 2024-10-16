@@ -7,7 +7,11 @@ NASHVILLE, TN, March 18, 2024 /24-7PressRelease/ -- Venture X®, a leading provi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509261/venture-x-expands-presence-in-downtown-nashville-tn-with-strategic-acquisition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/venture-x-r-expands-into-nashville-tn-with-historic-building-acquisition/c498a804717e66b5a151772822a0b439) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/venture-x-r-expands-presence-in-downtown-nashville-with-historic-acquisition)
+ 
 
 
 

@@ -39,7 +39,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/greelance-marks-january-2024-with-record-earnings-token-burn-and-ai-module-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greelance-announces-groundbreaking-achievements-in-january-2024/85a8b1a5ede03cba8c0933aefbf854aa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/12/greelance-soars-with-record-earnings-and-groundbreaking-ai-module-launch)
+ 
 
 
 

@@ -43,7 +43,11 @@ Dedicated to upholding the highest regulatory standards, we prioritize security,
 [Original/Source Press Release](https://blockchainwire.io/press-release/pirlo-endorsed-coinw-uplifts-the-game-a-legendary-crypto-exchange-takes-center-stage-in-the-next-level-of-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/andrea-pirlo-partners-with-coinw-to-bring-precision-and-influence-to-crypto-trading/8da583c6fcaa05e8111783c5fd009cb4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/20/coinw-and-andrea-pirlo-a-legendary-partnership-elevating-crypto-trading)
+ 
 
 
 

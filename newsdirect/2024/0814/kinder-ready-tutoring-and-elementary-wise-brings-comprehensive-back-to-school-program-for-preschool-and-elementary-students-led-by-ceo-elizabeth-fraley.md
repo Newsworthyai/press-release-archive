@@ -48,7 +48,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/kinder-ready-
 [Original/Source Press Release](https://newsdirect.com/news/kinder-ready-tutoring-and-elementary-wise-brings-comprehensive-back-to-school-program-for-preschool-and-elementary-students-led-by-ceo-elizabeth-fraley-759537800)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kinder-ready-and-elementary-wise-launch-back-to-school-program-for-preschool-and-elementary-students/ee1a2c9f966075af45b94110a90e6fb6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/kinder-ready-and-elementary-wise-launch-comprehensive-back-to-school-program)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kinder-ready-and-elementary-wise-launch-comprehensive-back-to-school-program/20245726)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/kinder-ready-and-elementary-wise-launch-comprehensive-back-to-school-program/20245726)
+
+Pickup - [advos.io](https://advos.io/en/kinder-ready-and-elementary-wise-launch-comprehensive-back-to-school-program/20245726)
+ 
 
 
 

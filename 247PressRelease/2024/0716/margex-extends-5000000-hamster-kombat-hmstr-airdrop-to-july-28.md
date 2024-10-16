@@ -7,7 +7,19 @@ VICTORIA, SEYCHELLES, July 16, 2024 /24-7PressRelease/ -- Margex, a cryptocurren
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512563/margex-extends-5000000-hamster-kombat-hmstr-airdrop-to-july-28)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/margex-extends-5-million-airdrop-campaign-of-hamster-kombat-hmstr-tokens/34d4ee5a2c3e05c768908b42ded9428e) 
+
+
+Pickup - [advos.io](https://advos.io/en/margex-extends-5-million-hamster-kombat-hmstr-airdrop-campaign-to-july-28-2024/20244966)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/margex-extends-5-million-hamster-kombat-token-airdrop-campaign)
+
+Pickup - [fishervista.com](https://fishervista.com/en/margex-extends-5-million-hamster-kombat-hmstr-airdrop-to-july-28/20244966)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/margex-extends-5-million-airdrop-campaign-of-hamster-kombat-hmstr-tokens)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/margex-extends-5-million-airdrop-campaign-of-hamster-kombat-hmstr-tokens)
+ 
 
 
 

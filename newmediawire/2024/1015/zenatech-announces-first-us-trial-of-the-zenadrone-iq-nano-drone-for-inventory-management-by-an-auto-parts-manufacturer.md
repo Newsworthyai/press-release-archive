@@ -69,7 +69,9 @@ Further, any forward-looking statement speaks only as of the date on which such 
 [Original/Source Press Release](https://www.newmediawire.com/news/zenatech-announces-first-us-trial-of-the-zenadrone-iq-nano-drone-for-inventory-management-by-an-auto-parts-manufacturer-7076224)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zenatech-inc-begins-first-us-trial-of-iq-nano-drone-for-inventory-management/34398112f77ce69940d3e54e4bf37d18) 
+
+ 
 
 
 

@@ -29,7 +29,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptoheap-to-include-major-cryptocurrencies-in-updated-staking-options)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptoheap-expands-staking-plans-to-include-top-market-cryptocurrencies/6ed68c2c69bc06962931176fc02a5062) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cryptoheap-expands-staking-plans-to-include-top-market-cryptocurrencies)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cryptoheap-expands-staking-plans-to-include-top-market-cryptocurrencies)
+ 
 
 
 

@@ -37,7 +37,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/technology-ha
 [Original/Source Press Release](https://newsdirect.com/news/technology-has-made-trading-more-accessible-than-ever-get-the-edge-you-need-to-potentially-make-profits-with-morningstar-data-through-robinhood-gold-334448551)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/robinhood-gold-subscription-offers-valuable-insights-and-benefits-for-retail-investors/3a3346e39f4259ac39da3d9842b6d525) 
+
+
+Pickup - [advos.io](https://advos.io/en/trading-becomes-more-accessible-with-morningstar-data-through-robinhood-gold/20244249)
+
+Pickup - [fishervista.com](https://fishervista.com/en/robinhood-gold-empowers-retail-investors-with-advanced-trading-tools-and-data/20244249)
+ 
 
 
 

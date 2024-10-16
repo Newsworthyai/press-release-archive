@@ -27,7 +27,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/dive-into-sum
 [Original/Source Press Release](https://newsdirect.com/news/dive-into-summer-travel-bliss-st-kitts-could-be-your-ultimate-vacation-destination-525307111)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/st-kitts-offers-authentic-summer-of-fun-experience-for-travelers/4da7f56f813008f3f6eb808b40cc8966) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/experience-the-vibrant-summer-of-fun-in-st-kitts-your-ultimate-caribbean-getaway/20244503)
+
+Pickup - [advos.io](https://advos.io/en/experience-summer-bliss-in-st-kitts-the-ultimate-vacation-destination/20244503)
+ 
 
 
 

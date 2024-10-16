@@ -23,7 +23,11 @@ To dive into the world of public relations expertise, visit www.PRThrive.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231205866/introducing-prthrive-com-a-new-hub-for-public-relations-expertise-and-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prthrive-com-the-new-hub-for-pr-enthusiasts-and-professionals/95a3c6b15d05274ea3101e88d773385a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/05/prthrive-com-the-new-hub-for-public-relations-expertise)
+ 
 
 
 

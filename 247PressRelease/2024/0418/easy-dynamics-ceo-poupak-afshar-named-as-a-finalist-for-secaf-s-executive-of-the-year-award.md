@@ -7,7 +7,11 @@ MCLEAN, VA, April 18, 2024 /24-7PressRelease/ -- Easy Dynamics is thrilled to an
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510151/easy-dynamics-ceo-poupak-afshar-named-as-a-finalist-for-secafs-executive-of-the-year-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/easy-dynamics-ceo-poupak-afshar-named-finalist-for-executive-of-the-year-at-16th-annual-secaf-awards/f30c4dabe5247ed9d44a70d6e4c0f458) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/easy-dynamics-ceo-poupak-afshar-recognized-as-finalist-for-secaf-s-executive-of-the-year-award)
+ 
 
 
 

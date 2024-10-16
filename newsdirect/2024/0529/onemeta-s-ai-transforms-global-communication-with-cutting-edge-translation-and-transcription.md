@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/onemetas-ai-t
 [Original/Source Press Release](https://newsdirect.com/news/onemetas-ai-transforms-global-communication-with-cutting-edge-translation-and-transcription-155294585)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/onemeta-s-ai-powered-translation-and-transcription-services-revolutionize-global-communication/fe50aebfb02aad3ccb4455f13cc2704f) 
+
+ 
 
 
 

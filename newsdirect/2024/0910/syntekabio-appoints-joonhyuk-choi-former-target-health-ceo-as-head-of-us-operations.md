@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/syntekabio-ap
 [Original/Source Press Release](https://newsdirect.com/news/syntekabio-appoints-joonhyuk-choi-former-target-health-ceo-as-head-of-us-operations-964458569)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/syntekabio-appoints-joonhyuk-choi-as-head-of-us-operations/1dbf468429cd930f40aa8b6b5df66a5a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/syntekabio-strengthens-us-presence-with-appointment-of-industry-veteran-joonhyuk-choi)
+
+Pickup - [fishervista.com](https://fishervista.com/en/syntekabio-appoints-joonhyuk-choi-as-head-of-us-operations/20246661)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/syntekabio-strengthens-us-presence-with-appointment-of-industry-veteran-joonhyuk-choi/20246661)
+
+Pickup - [advos.io](https://advos.io/en/syntekabio-appoints-joonhyuk-choi-as-head-of-us-operations/20246661)
+ 
 
 
 

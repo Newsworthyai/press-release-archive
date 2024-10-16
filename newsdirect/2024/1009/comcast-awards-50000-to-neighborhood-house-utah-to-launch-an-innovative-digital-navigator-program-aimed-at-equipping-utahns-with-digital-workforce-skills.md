@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/comcast-award
 [Original/Source Press Release](https://newsdirect.com/news/comcast-awards-50-000-to-neighborhood-house-utah-to-launch-an-innovative-digital-navigator-program-aimed-at-equipping-utahns-with-digital-workforce-skills-775864430)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-grants-50000-to-neighborhood-house-for-digital-navigator-program-in-utah/4c5764eca5eae692712b07be3378922a) 
+
+ 
 
 
 

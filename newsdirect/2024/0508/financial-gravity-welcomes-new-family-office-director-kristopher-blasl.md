@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/financial-gra
 [Original/Source Press Release](https://newsdirect.com/news/financial-gravity-welcomes-new-family-office-director-kristopher-blasl-653020351)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/financial-gravity-welcomes-new-family-office-director-kristopher-blasl/9ded2a99f32491be2546af015c7b1705) 
+
+ 
 
 
 

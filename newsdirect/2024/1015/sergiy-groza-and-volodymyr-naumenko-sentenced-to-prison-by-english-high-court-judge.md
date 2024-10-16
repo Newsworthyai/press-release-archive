@@ -68,7 +68,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/sergiy-groza-
 [Original/Source Press Release](https://newsdirect.com/news/sergiy-groza-and-volodymyr-naumenko-sentenced-to-prison-by-english-high-court-judge-836758192)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-ukrainian-business-owners-sentenced-to-prison/6e42fe691c0499ba1701c841b612bca4) 
+
+ 
 
 
 

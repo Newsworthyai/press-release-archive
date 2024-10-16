@@ -24,7 +24,13 @@ Event Details for CoinW Listing To celebrate the listing on CoinW, Bad Idea AI h
 [Original/Source Press Release](https://blockchainwire.io/press-release/bad-idea-ai-bad-now-listed-on-coinw-and-bingx-centralized-exchanges)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bad-idea-ai-listed-on-coinw-and-bingx-exchanges-announces-exciting-bounty-programs/3b39e59e5a1f3974e98c05110712d106) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bad-idea-ai-listed-on-coinw-and-bingx-exchanges-announces-exciting-bounty-programs)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bad-idea-ai-listed-on-coinw-and-bingx-exchanges-announces-exciting-bounty-programs)
+ 
 
 
 

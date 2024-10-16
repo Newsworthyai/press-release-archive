@@ -7,7 +7,9 @@ LOS ANGELES, CA October 12, 2024 /24-7PressRelease/ -- The Gyeonggi Youth Gap Ye
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515225/gyeonggi-youth-gap-year-a-12-week-journey-of-ambition-and-creativity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gyeonggi-youth-gap-year-project-concludes-showcasing-young-innovators-talents/883775eed2fa0ff89fb9d438075d2904) 
+
+ 
 
 
 

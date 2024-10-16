@@ -7,7 +7,9 @@ WILMINGTON, NC, June 01, 2024 /24-7PressRelease/ -- Bestselling author Jody Shar
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511287/bestselling-author-jody-sharpe-takes-regional-first-place-award-in-2024-national-federation-of-press-womens-professional-communications-contest-with-new-novel-summer-of-angels)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-jody-sharpe-s-summer-of-angels-wins-first-place-at-regional-level-in-national-contest/125c59c564bcc570f082e228094fbe93) 
+
+ 
 
 
 

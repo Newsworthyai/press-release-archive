@@ -7,7 +7,13 @@ CHARLOTTE, NC, June 27, 2024 /24-7PressRelease/ -- Crete United ("Crete"), a lea
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512053/crete-united-enters-atlanta-market-by-partnering-with-legacy-mechanical)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crete-united-announces-strategic-alliance-with-legacy-mechanical-services-inc/23a0bd88bd816bb31d52636433b31d9a) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/crete-united-expands-to-atlanta-through-partnership-with-legacy-mechanical/20244523)
+
+Pickup - [advos.io](https://advos.io/en/crete-united-partners-with-legacy-mechanical-to-expand-into-atlanta-market/20244523)
+ 
 
 
 

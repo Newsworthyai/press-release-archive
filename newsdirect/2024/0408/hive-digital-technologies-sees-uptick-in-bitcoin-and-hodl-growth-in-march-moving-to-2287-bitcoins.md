@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/hive-digital-
 [Original/Source Press Release](https://newsdirect.com/news/hive-digital-technologies-sees-uptick-in-bitcoin-and-hodl-growth-in-march-moving-to-2-287-bitcoins-653695730)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hive-digital-technologies-sees-uptick-in-bitcoin-and-hodl-growth-in-march-2024-moving-to-2287-bitcoins/a874263eae3235edc8dc6c167ee38e57) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/hive-digital-technologies-boosts-bitcoin-holdings-and-mining-prowess)
+ 
 
 
 

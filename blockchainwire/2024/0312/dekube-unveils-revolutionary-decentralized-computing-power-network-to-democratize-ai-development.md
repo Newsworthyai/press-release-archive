@@ -31,7 +31,11 @@ For more information about Dekube and its revolutionary platform, visit its offi
 [Original/Source Press Release](https://blockchainwire.io/press-release/dekube-unveils-revolutionary-decentralized-computing-power-network-to-democratize-ai-development)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dekube-launches-decentralized-computing-power-network-for-ai-development/980df98ad87cd4a18fb12b797f87d706) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/dekube-unleashes-decentralized-computing-power-for-democratized-ai-development)
+ 
 
 
 

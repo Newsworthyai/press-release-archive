@@ -46,7 +46,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/keeper-ai-tes
 [Original/Source Press Release](https://newsdirect.com/news/keeper-ai-test-how-likely-are-you-to-find-your-ideal-match-866004389)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/decode-your-dating-dilemma-with-keeper-ai-test-standards-calculator/bef9c86fe0d0b76174c446d468fa8e83) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/keeper-ai-test-unlocking-the-secrets-to-finding-your-ideal-match)
+ 
 
 
 

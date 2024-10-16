@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/cadiz-inc-nas
 [Original/Source Press Release](https://newsdirect.com/news/cadiz-inc-nasdaq-cdzi-prepares-for-major-pipeline-build-amid-rising-water-demand-807672665)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cadiz-inc-prepares-for-major-pipeline-build-amid-rising-water-demand/175ce18564fe2791bbe9f399811cbc0f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/cadiz-inc-secures-agreements-for-major-pipeline-project-to-address-water-scarcity)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cadiz-inc-secures-major-water-contracts-set-to-begin-pipeline-construction-in-2025/20246848)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cadiz-inc-secures-agreements-for-major-water-pipeline-project-in-california/20246848)
+
+Pickup - [advos.io](https://advos.io/en/cadiz-inc-secures-85-capacity-for-northern-pipeline-set-to-begin-construction-in-2025/20246848)
+ 
 
 
 

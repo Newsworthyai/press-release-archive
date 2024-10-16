@@ -31,7 +31,11 @@ Website: https://koddpa.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/koddpa-corporation-invited-to-participate-in-the-world-class-neurips-ai-summit-in-canada-leading-the-innovation-wave-in-quantitative-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/koddpa-corporation-showcases-leading-ai-quantitative-trading-technologies-at-canadian-ai-summit/06bf34dc4020f0e6e59acca1b1ca3f2b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/19/koddpa-corporation-leads-innovation-wave-in-quantitative-trading-at-neurips-ai-summit)
+ 
 
 
 

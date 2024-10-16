@@ -7,7 +7,11 @@ Introducing Gud Coin | $GUD: The Crypto Gem with Good IntentionsIn a world where
 [Original/Source Press Release](https://blockchainwire.io/press-release/bull-is-back--life-is-gud--crypto-is-gud)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gud-coin-gud-the-crypto-gem-with-good-intentions/7e699e8239cf66c48de1d61c0f373bf3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/gud-coin-revolutionizing-crypto-with-positivity-and-good-intentions)
+ 
 
 
 

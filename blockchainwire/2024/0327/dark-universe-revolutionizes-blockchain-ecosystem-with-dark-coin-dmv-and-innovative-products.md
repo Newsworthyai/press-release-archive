@@ -11,7 +11,11 @@ Zero Code Smart ContractsExperience the future of smart contract deployment with
 [Original/Source Press Release](https://blockchainwire.io/press-release/-dark-universe-revolutionizes-blockchain-ecosystem-with-dark-coin-dmv-and-innovative-products)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dark-universe-introduces-groundbreaking-ecosystem-with-dark-coin-dmv-and-innovative-products/4e8ffd423ae9d34140ca2968fcafe952) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/dark-universe-unveils-revolutionary-blockchain-ecosystem-with-privacy-centric-cryptocurrency)
+ 
 
 
 

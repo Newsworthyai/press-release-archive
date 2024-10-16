@@ -7,7 +7,9 @@ CLAYTON, GA, May 25, 2024 /24-7PressRelease/ -- Acknowledging concerning trends 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511140/blue-ridge-therapeutic-wilderness-helps-teens-break-free-from-social-media-and-tech-addiction)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nature-based-therapy-program-tackles-adolescent-technology-addiction/ce3ec2b1a7135eb542915ca557766364) 
+
+ 
 
 
 

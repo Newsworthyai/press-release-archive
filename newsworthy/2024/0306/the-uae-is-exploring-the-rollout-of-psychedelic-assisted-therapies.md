@@ -25,7 +25,9 @@ Energia Foundation is focused on solving the "coordination challenge", the abili
 [Original/Source Press Release](https://newsworthy.ai/news/202403061110/the-uae-is-exploring-the-rollout-of-psychedelic-assisted-therapies)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/energia-foundation-and-tabula-rasa-ventures-pioneering-psychedelic-therapy-in-the-uae/c5da09fc5d1b48ff85905dc24a6240e8) 
+
+ 
 
 
 

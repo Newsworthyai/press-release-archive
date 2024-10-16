@@ -31,7 +31,11 @@ Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/pandoshi-presale-approaches-2m-mark)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pandoshi-pambo-nears-2-million-milestone-in-presale-gaining-traction-in-defi-space/47bf3ad3c485bc2d234855f5029ce1a0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/15/pandoshi-presale-surges-towards-2m-milestone)
+ 
 
 
 

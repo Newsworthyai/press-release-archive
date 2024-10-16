@@ -7,7 +7,17 @@ SEOUL, KOREA, August 14, 2024 /24-7PressRelease/ -- On September 18, 2024, the 1
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513414/annual-hwpl-world-peace-summit-celebrates-a-decade-of-global-commitment-to-peace)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/10th-anniversary-of-hwpl-world-peace-summit-a-decade-of-commitment-to-global-harmony/dea76c14167618985d60cdf5afe01aa9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/global-peace-initiative-marks-decade-of-progress-with-10th-annual-hwpl-world-peace-summit)
+
+Pickup - [fishervista.com](https://fishervista.com/en/10th-annual-hwpl-world-peace-summit-to-focus-on-regional-collaboration/20245713)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hwpl-world-peace-summit-marks-10-years-of-global-peace-initiatives/20245713)
+
+Pickup - [advos.io](https://advos.io/en/10th-annual-hwpl-world-peace-summit-to-focus-on-regional-collaboration/20245713)
+ 
 
 
 

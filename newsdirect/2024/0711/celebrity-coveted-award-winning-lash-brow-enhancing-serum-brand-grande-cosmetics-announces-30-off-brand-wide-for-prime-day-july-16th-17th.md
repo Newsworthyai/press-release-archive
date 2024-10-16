@@ -29,7 +29,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/celebrity-cov
 [Original/Source Press Release](https://newsdirect.com/news/celebrity-coveted-award-winning-lash-and-brow-enhancing-serum-brand-grande-cosmetics-announces-30-off-brand-wide-for-prime-day-july-16th-and-17th-712651639)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/grande-cosmetics-prime-day-sale-30-off-lash-and-brow-serums/333a510bae00a46553284b0c92b6ef9b) 
+
+
+Pickup - [advos.io](https://advos.io/en/grande-cosmetics-announces-30-off-brand-wide-for-prime-day-on-july-16th-17th/20244879)
+
+Pickup - [fishervista.com](https://fishervista.com/en/grande-cosmetics-offers-30-discount-on-prime-day-for-award-winning-lash-and-brow-serums/20244879)
+
+Pickup - [citybuzz.co](https://citybuzz.co/grande-cosmetics-offers-30-off-sitewide-for-amazon-prime-day)
+ 
 
 
 

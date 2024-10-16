@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/mj-attache-la
 [Original/Source Press Release](https://newsdirect.com/news/mj-attache-launches-business-with-debut-of-first-of-its-kind-luxury-cache-and-carry-bag-for-cannabis-connoisseurs-in-time-for-april-20-cannabis-celebration-day-682715954)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mj-attache-launches-luxury-cache-and-carry-bag-for-cannabis-connoisseurs/326b87afe9d890bad96683ab96830d90) 
+
+ 
 
 
 

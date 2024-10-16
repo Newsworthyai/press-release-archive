@@ -35,7 +35,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/zuma-payroll-
 [Original/Source Press Release](https://newsdirect.com/news/zuma-payroll-and-processing-makes-the-inc-5000-list-of-americas-fastest-growing-private-companies-838327257)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zuma-payroll-processing-named-to-inc-5000-list-for-third-consecutive-year/bdb786f9d109dd10ff00ea609f5cd952) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/zuma-payroll-processing-achieves-316-growth-secures-spot-on-inc-5000-list-for-third-consecutive-year)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/zuma-payroll-processing-secures-spot-on-inc-5000-list-for-third-consecutive-year/20245699)
+
+Pickup - [fishervista.com](https://fishervista.com/en/zuma-payroll-processing-earns-spot-on-inc-5000-list-for-third-consecutive-year/20245699)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/zuma-payroll-processing-achieves-316-growth-earns-spot-on-inc-5000-list-for-third-consecutive-year/20245699)
+
+Pickup - [advos.io](https://advos.io/en/zuma-payroll-processing-listed-among-america-s-fastest-growing-companies/20245699)
+ 
 
 
 

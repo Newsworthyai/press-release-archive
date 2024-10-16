@@ -7,7 +7,15 @@ LOS ANGELES, CA, July 16, 2024 /24-7PressRelease/ -- HBO's CEO Casey Bloys and t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512529/hbo-executive-leadership-announces-exciting-news-harry-potter-tv-series-aims-for-2026-premiere-date-on-max)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hbo-confirms-harry-potter-tv-series-for-2026-premiere-on-hbo-max/8fe47f27b49d1d263eca9a102d4933a7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/hbo-confirms-harry-potter-tv-series-set-for-2026-premiere-on-max)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hbo-confirms-harry-potter-tv-series-set-to-premiere-on-max-in-2026/20244974)
+
+Pickup - [advos.io](https://advos.io/en/hbo-confirms-harry-potter-tv-series-set-for-2026-premiere-on-hbo-max/20244974)
+ 
 
 
 

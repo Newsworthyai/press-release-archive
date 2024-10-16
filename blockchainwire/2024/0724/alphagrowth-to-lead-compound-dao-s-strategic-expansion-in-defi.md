@@ -30,7 +30,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/alphagrowth-to-lead-compound-daos-strategic-expansion-in-defi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/compound-dao-partners-with-alphagrowth-to-drive-defi-revenue-generation/08fa921778b9509ca4cfd8b09e5231bc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/compound-dao-partners-with-alphagrowth-to-accelerate-defi-growth-and-innovation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/alphagrowth-to-propel-compound-dao-s-defi-expansion-with-strategic-partnership/20245221)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/compound-dao-partners-with-alphagrowth-to-drive-defi-revenue-generation)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/compound-dao-partners-with-alphagrowth-to-drive-defi-revenue-generation)
+
+Pickup - [advos.io](https://advos.io/en/alphagrowth-partners-with-compound-dao-to-propel-defi-expansion/20245221)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/compound-dao-partners-with-alphagrowth-to-boost-defi-operations)
+ 
 
 
 

@@ -33,7 +33,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/kosmicwap-announces-establishment-of-new-data-centers-in-europe-and-the-americas-solidifying-its-global-market-leadership)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kosmicwap-announces-establishment-of-two-new-data-centers-in-strategic-global-expansion/87336d5bbb29be72d172d3f2c5659c21) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/kosmicwap-announces-establishment-of-two-new-data-centers-in-strategic-global-expansion)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/kosmicwap-announces-establishment-of-two-new-data-centers-in-strategic-global-expansion)
+ 
 
 
 

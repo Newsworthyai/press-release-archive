@@ -7,7 +7,11 @@ CLEARWATER, FL, April 06, 2024 /24-7PressRelease/ -- The Florida chapter of the 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509819/the-florida-chapter-of-the-citizens-commission-on-human-rights-recognized-in-the-2024-impact-awards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/florida-chapter-of-cchr-recognized-for-activism-in-mental-health-rights-protection/0ac3e5b94d64587160809367784df5d8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/06/florida-cchr-chapter-recognized-for-activism-against-coercive-psychiatry)
+ 
 
 
 

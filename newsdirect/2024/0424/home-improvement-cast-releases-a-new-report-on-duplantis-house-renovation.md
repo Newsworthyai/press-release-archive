@@ -46,7 +46,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/home-improvem
 [Original/Source Press Release](https://newsdirect.com/news/home-improvement-cast-releases-a-new-report-on-duplantis-house-renovation-583365398)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/home-improvement-cast-releases-comprehensive-report-on-duplantis-house-renovation/0c44d1d473988963c848f300171ef08a) 
+
+ 
 
 
 

@@ -21,7 +21,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/ageagle-aeria
 [Original/Source Press Release](https://newsdirect.com/news/ageagle-aerial-systems-inc-expands-in-military-and-security-sectors-201658045)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ageagle-aerial-systems-announces-major-contract-for-uav-defense-solutions-in-the-uae/78dd886730f104de0a612db1c6585d8f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/ageagle-aerial-systems-secures-2-million-contract-in-uae-for-enhanced-uav-defense-solutions/20244335)
+
+Pickup - [advos.io](https://advos.io/en/ageagle-aerial-systems-secures-2-million-contract-in-uae-expands-military-and-security-focus/20244335)
+ 
 
 
 

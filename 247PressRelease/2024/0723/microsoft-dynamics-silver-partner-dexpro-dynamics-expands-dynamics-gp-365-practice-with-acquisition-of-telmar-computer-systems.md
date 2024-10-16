@@ -7,7 +7,15 @@ SAN FRANCISCO, CA, July 23, 2024 /24-7PressRelease/ -- Dexpro Dynamics is expand
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512733/microsoft-dynamics-silver-partner-dexpro-dynamics-expands-dynamics-gp365-practice-with-acquisition-of-telmar-computer-systems)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dexpro-dynamics-expands-national-practice-with-acquisition-of-telmar-computer-solutions/3467534d4fff3c4036a8dd0f83bd5cdf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/dexpro-dynamics-acquires-telmar-computer-systems-expanding-microsoft-dynamics-capabilities)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dexpro-dynamics-expands-microsoft-dynamics-practice-with-telmar-acquisition/20245165)
+
+Pickup - [advos.io](https://advos.io/en/dexpro-dynamics-acquires-telmar-computer-solutions-to-expand-microsoft-dynamics-practice/20245165)
+ 
 
 
 

@@ -39,7 +39,15 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/anita-coin-announces-2024-launch-with-charitable-foundation-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/anita-coin-set-to-launch-new-erc-20-token-with-unique-features/85471cf2f94d4a748431d98bc626c469) 
+
+
+Pickup - [advos.io](https://advos.io/en/anita-coin-set-to-launch-in-2024-with-robust-charitable-foundation/20245075)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/anita-coin-set-to-launch-in-2024-with-innovative-charitable-foundation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/anita-coin-to-launch-in-2024-with-charitable-foundation-and-unique-features/20245075)
+ 
 
 
 

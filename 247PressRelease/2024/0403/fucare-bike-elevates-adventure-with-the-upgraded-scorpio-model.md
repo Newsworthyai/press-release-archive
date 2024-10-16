@@ -7,7 +7,11 @@ NEW YORK, NY, April 03, 2024 /24-7PressRelease/ -- In its relentless pursuit of 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509740/fucare-bike-elevates-adventure-with-the-upgraded-scorpio-model)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fucare-bike-unveils-upgraded-scorpio-electric-bike-with-enhanced-performance-and-comfort/ce8d17e9d0890b09f1e5a33cd5d61ac9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/fucare-bike-elevates-adventure-with-upgraded-scorpio-model)
+ 
 
 
 

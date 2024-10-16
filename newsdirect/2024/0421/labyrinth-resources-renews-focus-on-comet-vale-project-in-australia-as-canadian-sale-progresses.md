@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/labyrinth-res
 [Original/Source Press Release](https://newsdirect.com/news/labyrinth-resources-renews-focus-on-comet-vale-project-in-australia-as-canadian-sale-progresses-403440243)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/labyrinth-resources-renews-focus-on-comet-vale-project-as-canadian-sale-progresses/ba7c6c5ccba6bdad134be099530e9ab5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/21/labyrinth-resources-renews-focus-on-comet-vale-project-in-australia-as-canadian-sale-progresses)
+ 
 
 
 

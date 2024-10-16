@@ -7,7 +7,11 @@ FORT WORTH, TX, April 09, 2024 /24-7PressRelease/ -- RDS Real Estate is excited 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509415/just-completed-office-warehouse-space-at-alvarado-industrial-park)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rds-real-estate-announces-availability-of-office-warehouse-space-at-4572-jd-mouser-parkway-unit-108/5888e191dc4c373bbc69214070d4a2de) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/versatile-office-warehouse-space-available-at-alvarado-industrial-park)
+ 
 
 
 

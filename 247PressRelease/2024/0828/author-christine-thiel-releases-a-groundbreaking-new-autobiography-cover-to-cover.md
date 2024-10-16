@@ -7,7 +7,17 @@ ADELAIDE, AUSTRALIA, August 28, 2024 /24-7PressRelease/ -- Author Christine Thie
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513852/author-christine-thiel-releases-a-groundbreaking-new-autobiography-cover-to-cover)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-autobiography-cover-to-cover-released-by-author-christine-thiel/61d1c1c510a3b6bdb9108c532728bfd6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/new-autobiography-cover-to-cover-offers-inspiring-tale-of-resilience)
+
+Pickup - [fishervista.com](https://fishervista.com/en/christine-thiel-releases-new-autobiography-cover-to-cover/20246326)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-autobiography-cover-to-cover-chronicles-journey-of-resilience-and-self-discovery/20246326)
+
+Pickup - [advos.io](https://advos.io/en/christine-thiel-releases-autobiography-cover-to-cover-exploring-resilience-and-personal-growth/20246326)
+ 
 
 
 

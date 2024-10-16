@@ -59,7 +59,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/learn-the-key
 [Original/Source Press Release](https://newsdirect.com/news/learn-the-key-differences-between-octoblock-and-xrp-140715277)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exploring-the-key-differences-between-octoblock-and-xrp/aa01bde1c42dcff4cef5ab916f6986e6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/navigating-the-cryptocurrency-landscape-octoblock-vs-xrp)
+ 
 
 
 

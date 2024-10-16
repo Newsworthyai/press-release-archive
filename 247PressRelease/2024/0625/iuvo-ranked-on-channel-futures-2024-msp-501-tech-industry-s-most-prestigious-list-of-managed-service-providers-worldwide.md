@@ -7,7 +7,13 @@ BOSTON, MA, June 25, 2024 /24-7PressRelease/ -- iuvo has been named as one of th
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511695/iuvo-ranked-on-channel-futures-2024-msp-501tech-industrys-most-prestigious-list-of-managed-service-providers-worldwide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iuvo-named-top-performing-managed-service-provider-in-2024-msp-501-rankings/803297d56223520b3b99a87b79710ef2) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/iuvo-recognized-in-2024-channel-futures-msp-501-rankings-for-sixth-consecutive-year/20244441)
+
+Pickup - [advos.io](https://advos.io/en/iuvo-secures-spot-on-channel-futures-msp-501-for-sixth-consecutive-year/20244441)
+ 
 
 
 

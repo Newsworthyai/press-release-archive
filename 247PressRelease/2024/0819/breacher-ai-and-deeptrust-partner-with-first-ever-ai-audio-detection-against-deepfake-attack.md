@@ -7,7 +7,17 @@ SAN FRANCISCO, CA, August 19, 2024 /24-7PressRelease/ -- In response to the rapi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513554/breacherai-and-deeptrust-partner-with-first-ever-ai-audio-detection-against-deepfake-attack)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/breacher-ai-and-deeptrust-partner-to-combat-deepfake-audio-fraud/e638c5bc04eee85c1a99ef447a5fd275) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/19/breacher-ai-and-deeptrust-join-forces-to-combat-deepfake-audio-fraud)
+
+Pickup - [fishervista.com](https://fishervista.com/en/breacher-ai-and-deeptrust-form-partnership-to-combat-deepfake-audio-threats/20245808)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/breacher-ai-and-deeptrust-join-forces-to-combat-deepfake-audio-fraud/20245808)
+
+Pickup - [advos.io](https://advos.io/en/breacher-ai-and-deeptrust-partner-to-combat-deepfake-audio-threats/20245808)
+ 
 
 
 

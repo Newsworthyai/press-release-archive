@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nexus-mineral
 [Original/Source Press Release](https://newsdirect.com/news/nexus-minerals-announces-significant-expansion-of-crusader-templar-resource-179194079)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nexus-minerals-announces-significant-expansion-of-crusader-templar-resource-at-wallbrook-gold-project/1eac1c1439e4d42751f75e939631a50f) 
+
+ 
 
 
 

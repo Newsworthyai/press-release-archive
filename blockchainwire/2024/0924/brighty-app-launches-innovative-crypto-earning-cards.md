@@ -48,7 +48,9 @@ LinkedIn | Instagram | X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/brighty-app-launches-innovative-crypto-earning-cards-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brighty-app-unveils-new-crypto-earning-cards-and-tools/3b883cc07ef90e592f65b6c75e7e49f2) 
+
+ 
 
 
 

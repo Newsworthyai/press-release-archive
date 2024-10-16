@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/applied-graph
 [Original/Source Press Release](https://newsdirect.com/news/applied-graphite-technology-announces-company-now-trading-on-otcqb-with-ticker-agrtf-723516622)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/applied-graphite-technology-ceo-announces-cross-listing-on-otcqb/87a8403b836eebf5a7a371d49c15b621) 
+
+ 
 
 
 

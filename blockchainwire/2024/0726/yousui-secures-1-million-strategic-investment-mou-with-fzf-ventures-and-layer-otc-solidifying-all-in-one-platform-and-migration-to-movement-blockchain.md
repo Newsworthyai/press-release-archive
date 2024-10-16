@@ -57,7 +57,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/yousui-secures-1-million-strategic-investment-mou-with-fzf-ventures-and-layer-otc-solidifying-all-in-one-platform-and-migration-to-movement-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/yousui-secures-1-million-investment-for-defi-expansion/7d765954639947b5a6c2a872ea065193) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/yousui-secures-1-million-investment-for-defi-expansion)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/yousui-secures-1-million-investment-for-defi-expansion)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/yousui-secures-1-million-investment-mou-plans-migration-to-movement-blockchain)
+
+Pickup - [fishervista.com](https://fishervista.com/en/yousui-secures-1-million-investment-and-plans-migration-to-movement-blockchain/20245288)
+
+Pickup - [advos.io](https://advos.io/en/yousui-secures-1-million-investment-to-advance-defi-platform-and-migrate-to-movement-blockchain/20245288)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/yousui-secures-1-million-strategic-investment-plans-migration-to-movement-blockchain)
+ 
 
 
 

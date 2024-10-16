@@ -7,7 +7,11 @@ HENDERSON, NV, April 18, 2024 /24-7PressRelease/ -- Romance scams continue to ta
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510170/uncover-the-dangers-of-online-romance-scams-with-becky-shawvers-book)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/best-romance-scam-victim-ever-a-stark-reminder-of-online-deception/ba27d1cbda1325ff545373de1bdea76f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/uncover-the-dangers-of-online-romance-scams-with-becky-shawver-s-book)
+ 
 
 
 

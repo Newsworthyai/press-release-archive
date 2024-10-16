@@ -11,7 +11,21 @@ For more details and T&Cs, please visit: https://www.bitmart.com/activity/2024Pa
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-launches-2024-epic-paris-campaign-with-50000-usdt-in-rewards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmart-launches-2024-epic-paris-campaign-for-summer-olympics/1645fcfca61325b2d4b4c02035f97f9e) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitmart-launches-2024-epic-paris-campaign-for-summer-olympics)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitmart-launches-2024-epic-paris-campaign-for-summer-olympics)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/bitmart-launches-2024-epic-paris-campaign-with-50000-usdt-prize-pool)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitmart-launches-2024-epic-paris-campaign-with-50000-usdt-in-rewards/20245268)
+
+Pickup - [advos.io](https://advos.io/en/bitmart-unveils-2024-epic-paris-campaign-with-50000-usdt-prize-pool/20245268)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bitmart-launches-olympic-themed-crypto-trading-campaign-with-50000-usdt-prize-pool)
+ 
 
 
 

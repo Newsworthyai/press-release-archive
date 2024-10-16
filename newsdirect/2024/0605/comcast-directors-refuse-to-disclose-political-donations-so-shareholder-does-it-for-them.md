@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/comcast-direc
 [Original/Source Press Release](https://newsdirect.com/news/comcast-directors-refuse-to-disclose-political-donations-so-shareholder-does-it-for-them-833747923)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-directors-political-donations-revealed-amid-shareholder-dispute/cbda932e6df9662449451e39570c6ec7) 
+
+ 
 
 
 

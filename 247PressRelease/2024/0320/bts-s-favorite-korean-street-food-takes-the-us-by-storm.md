@@ -7,7 +7,11 @@ LOS ANGELES, CA, March 20, 2024 /24-7PressRelease/ -- Move over burgers and frie
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509389/btss-favorite-korean-street-food-takes-the-us-by-storm)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/korean-street-food-trend-sweeps-usa-jaws-tpk-leads-the-way/7165416e5eab7f412e6a3f130dee807f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/korean-street-food-craze-sweeps-across-america)
+ 
 
 
 

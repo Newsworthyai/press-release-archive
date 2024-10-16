@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/horizon-miner
 [Original/Source Press Release](https://newsdirect.com/news/horizon-minerals-outlines-gold-production-blueprint-406971063)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/horizon-minerals-outlines-strategic-blueprint-for-gold-production-in-kalgoorlie/b8216fbb08c8208138e2b37acd06dc48) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/horizon-minerals-charts-path-to-gold-production-in-western-australia)
+ 
 
 
 

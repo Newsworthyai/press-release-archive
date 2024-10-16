@@ -25,7 +25,11 @@ Visit Bitcoin Vault's social media pages to stay in touch with the project: X (T
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-vault-btcv-proudly-announces-mining-decentralization-with-bitcoin-btc-merge-mining-opportunity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-vault-btcv-completes-successful-fork-and-decentralizes-for-merge-mining-with-bitcoin/a52fe336be6301704b204b059350dc36) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/07/bitcoin-vault-embraces-mining-decentralization-through-bitcoin-merge-mining)
+ 
 
 
 

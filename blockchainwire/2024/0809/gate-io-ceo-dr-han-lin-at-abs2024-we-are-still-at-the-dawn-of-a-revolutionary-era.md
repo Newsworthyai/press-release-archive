@@ -57,7 +57,21 @@ This event is for professional knowledge sharing and networking purposes only. T
 [Original/Source Press Release](https://blockchainwire.io/press-release/gateio-ceo-dr-han-lin-at-abs2024-we-are-still-at-the-dawn-of-a-revolutionary-era)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gate-io-ceo-dr-han-lin-delivers-insightful-presentation-on-crypto-evolution-at-asia-blockchain-summit-2024/1658bf05221323586526e6bb1df3db50) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gate-io-ceo-dr-han-lin-delivers-insightful-presentation-on-crypto-evolution-at-asia-blockchain-summit-2024)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gate-io-ceo-dr-han-lin-delivers-insightful-presentation-on-crypto-evolution-at-asia-blockchain-summit-2024)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/gate-io-ceo-highlights-blockchain-s-ongoing-revolution-at-asia-blockchain-summit-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gate-io-ceo-dr-han-lin-highlights-revolutionary-potential-of-blockchain-at-abs2024/20245616)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gate-io-ceo-highlights-cryptocurrency-industry-s-growth-and-future-potential-at-asia-blockchain-summit-2024/20245616)
+
+Pickup - [advos.io](https://advos.io/en/gate-io-ceo-dr-han-lin-highlights-crypto-industry-s-evolution-at-abs2024/20245616)
+ 
 
 
 

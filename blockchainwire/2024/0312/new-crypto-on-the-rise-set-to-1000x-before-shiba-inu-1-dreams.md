@@ -45,7 +45,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/new-crypto-on-the-rise-set-to-1000x-before-shiba-inu-1-dreams)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/option2trade-o2t-a-game-changer-in-the-crypto-market/aa7ae2f751376108695b99fd5633d8d4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/option2trade-emerges-as-a-trailblazer-in-crypto-trading)
+ 
 
 
 

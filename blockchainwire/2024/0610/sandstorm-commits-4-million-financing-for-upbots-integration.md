@@ -25,7 +25,15 @@ For more information, visit sandstorminnov.com and upbots.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/sandstorm-commits-4-million-financing-for-upbots-integration)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sandstorm-commits-4-million-in-financing-to-upbots-crypto-trading-platform/3608e458eb4fb494153f2e1c9195987e) 
+
+
+Pickup - [advos.io](https://advos.io/en/sandstorm-commits-4-million-financing-for-upbots-integration/20244000)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/sandstorm-commits-4-million-in-financing-to-upbots-crypto-trading-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/sandstorm-commits-4-million-in-financing-to-upbots-crypto-trading-platform)
+ 
 
 
 

@@ -52,7 +52,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/zulu-network-secures-3-million-in-pre-seed-funding-to-revolutionize-bitcoin-layer-2)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zulu-network-closes-3m-in-pre-seed-funding-for-bitcoin-layer-2-innovation/9171302d2e6d45e5e9f48b6d626b6e4f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/zulu-network-secures-3-million-to-revolutionize-bitcoin-layer-2)
+ 
 
 
 

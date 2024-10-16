@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-capital-a
 [Original/Source Press Release](https://newsdirect.com/news/new-capital-allocation-framework-positions-ecora-firmly-for-energy-transition-growth-115352727)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ecora-resources-plc-ceo-discusses-transition-from-kestrel-royalty-capital-allocation-framework-and-future-growth/6e0bc8eb0139e7d12058a561e99cd9b1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/ecora-resources-shifts-focus-to-energy-transition-unveils-new-capital-allocation-strategy)
+ 
 
 
 

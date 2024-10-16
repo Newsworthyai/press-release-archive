@@ -7,7 +7,17 @@ SAN FRANCISCO, CA, August 23, 2024 /24-7PressRelease/ -- Robert P. Cotton is an 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513665/robert-p-cotton-has-been-recognized-as-one-of-americas-most-influential-businessmen-by-the-international-association-of-whos-who)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elevator-and-escalator-expert-robert-p-cotton-advocates-for-safety-and-awareness/62e28348563fc5f22e2c37ce0c860b9a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/23/elevator-expert-robert-p-cotton-recognized-as-one-of-america-s-most-influential-businessmen)
+
+Pickup - [fishervista.com](https://fishervista.com/en/robert-p-cotton-recognized-as-one-of-america-s-most-influential-businessmen/20245912)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/elevator-expert-robert-p-cotton-recognized-as-one-of-america-s-most-influential-businessmen/20245912)
+
+Pickup - [advos.io](https://advos.io/en/robert-p-cotton-named-one-of-america-s-most-influential-businessmen/20245912)
+ 
 
 
 

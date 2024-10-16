@@ -7,7 +7,11 @@ MAGNOLIA, TX, March 19, 2024 /24-7PressRelease/ -- Author Philip L Arnold began 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509338/author-philip-l-arnold-introduces-the-release-of-his-new-book-the-day-god-rested)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-the-day-god-rested-provides-exhaustive-biblical-study-on-the-sabbath/f5f0229f2642914948aecdc54deab3d5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/author-sheds-new-light-on-biblical-sabbath-in-the-day-god-rested)
+ 
 
 
 

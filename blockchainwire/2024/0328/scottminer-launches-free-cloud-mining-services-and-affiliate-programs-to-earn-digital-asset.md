@@ -45,7 +45,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/scottminer-launches-free-cloud-mining-services-and-affiliate-programs-to-earn-digital-asset)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scott-miner-launches-cloud-digital-asset-mining-services-for-novice-users/c2cd31938b8d8490cca203cc7de174a6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/scottminer-launches-free-cloud-mining-and-affiliate-programs)
+ 
 
 
 

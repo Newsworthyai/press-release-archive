@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-lists-
 [Original/Source Press Release](https://newsdirect.com/news/bitget-lists-solana-based-cat-in-a-dogs-world-mew-in-the-innovation-and-meme-token-zone-316391598)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-lists-solana-based-cat-in-a-dogs-world-mew-in-the-innovation-and-meme-token-zone/71c80d956238def00959b1743e16e2b3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/bitget-exchange-lists-solana-based-cat-in-a-dogs-world-memecoin-mew)
+ 
 
 
 

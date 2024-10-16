@@ -31,7 +31,17 @@ Contact: Natsune Otsukimarketing@doublejump.tokyoDisclaimer: The information p
 [Original/Source Press Release](https://blockchainwire.io/press-release/gate-ventures-invests-in-japans-largest-web3-gaming-pioneer-double-jumptokyo-paving-the-way-for-web3-mass-adoption)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gate-ventures-announces-strategic-investment-in-web3-gaming-company/0f32267f8b6bc844183019d21aff1d7e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/gate-ventures-invests-in-double-jump-tokyo-boosting-web3-gaming-development)
+
+Pickup - [advos.io](https://advos.io/en/gate-ventures-invests-in-double-jump-tokyo-boosting-web3-gaming-development/20246706)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gate-ventures-backs-japan-s-web3-gaming-leader-in-10-million-funding-round/20246706)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gate-ventures-invests-in-double-jump-tokyo-boosting-web3-gaming-development/20246706)
+ 
 
 
 

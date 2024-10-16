@@ -33,7 +33,11 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/alpha-transform-holdings-releases-march-report-on-asc-ai-index)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alpha-transform-holdings-releases-march-report-on-asc-ai-index/3c000b8d71fbb3d7952591e6ef01acf8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/alpha-transform-holdings-releases-march-report-on-asc-ai-index)
+ 
 
 
 

@@ -31,7 +31,17 @@ URL: www.nitroholdingsllc.comX:  X.com/SMEVCO
 [Original/Source Press Release](https://www.newmediawire.com/news/simulated-environment-concepts-inc-executes-a-letter-of-intent-loi-concerning-a-prospective-merger-with-cmr-construction-roofing-llc-recognized-as-one-of-the-leading-roofing-firms-in-north-america-7076009)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/simulated-environment-concepts-inc-and-cmr-construction-roofing-llc-announce-strategic-merger/80a865add61a9ce484fdcafaa7d4286c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/simulated-environment-concepts-inc-and-cmr-construction-roofing-llc-announce-potential-merger)
+
+Pickup - [fishervista.com](https://fishervista.com/en/simulated-environment-concepts-inc-announces-potential-merger-with-cmr-construction-roofing-llc/20246549)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/simulated-environment-concepts-and-cmr-construction-roofing-announce-potential-merger/20246549)
+
+Pickup - [advos.io](https://advos.io/en/simulated-environment-concepts-inc-announces-potential-merger-with-cmr-construction-roofing/20246549)
+ 
 
 
 

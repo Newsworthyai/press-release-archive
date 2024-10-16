@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/trident-royal
 [Original/Source Press Release](https://newsdirect.com/news/trident-royalties-reports-strong-quarterly-performance-and-strategic-asset-developments-975086152)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trident-royalties-reports-strong-quarterly-performance-and-strategic-asset-developments/e0eded581082132b4c34a6360b07e21e) 
+
+ 
 
 
 

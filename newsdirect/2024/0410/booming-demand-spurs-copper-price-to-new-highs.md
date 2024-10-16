@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/booming-deman
 [Original/Source Press Release](https://newsdirect.com/news/booming-demand-spurs-copper-price-to-new-highs-936816355)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/booming-demand-spurs-copper-price-to-new-highs/6838dba8010e230cf7d73ced79859bc6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/booming-demand-spurs-copper-price-to-record-highs)
+ 
 
 
 

@@ -49,7 +49,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/panther-miner
 [Original/Source Press Release](https://newsdirect.com/news/panther-minerals-inc-cse-purr-otc-gliof-gears-up-for-growth-in-the-uranium-revival-560294021)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/panther-minerals-inc-gears-up-for-growth-in-the-uranium-revival/7437991e60d01573795ebc7c5c09b120) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/panther-minerals-inc-positions-for-uranium-market-growth-with-strategic-exploration-projects)
+
+Pickup - [fishervista.com](https://fishervista.com/en/panther-minerals-inc-positions-itself-at-the-forefront-of-the-uranium-market-revival/20245735)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/panther-minerals-inc-positions-for-growth-in-resurgent-uranium-market/20245735)
+
+Pickup - [advos.io](https://advos.io/en/panther-minerals-inc-positions-for-growth-amid-uranium-market-revival/20245735)
+ 
 
 
 

@@ -45,7 +45,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/how-this-social-trading-exchange-token-positioned-itself-to-rally-past-ethereum-eth-and-bitcoin-btc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/option2trade-o2t-positioned-to-surpass-ethereum-eth-and-bitcoin-btc-in-crypto-market/f5334af3ebd89bfa9bd4d4c24e49b493) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/option2trade-s-social-trading-exchange-token-poised-to-outshine-ethereum-and-bitcoin)
+ 
 
 
 

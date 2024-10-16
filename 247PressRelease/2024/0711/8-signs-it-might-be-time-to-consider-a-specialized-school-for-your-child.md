@@ -7,7 +7,15 @@ BALSAM, NC, July 11, 2024 /24-7PressRelease/ -- Parents of children with ADHD an
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512421/8-signs-it-might-be-time-to-consider-a-specialized-school-for-your-child)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/when-to-consider-a-specialized-school-for-children-with-adhd-and-learning-disabilities/515dfaac853000be8b4ccd573786dd16) 
+
+
+Pickup - [advos.io](https://advos.io/en/identifying-the-need-for-specialized-schools-for-children-with-adhd-and-learning-disabilities/20244853)
+
+Pickup - [fishervista.com](https://fishervista.com/en/8-signs-it-might-be-time-to-consider-a-specialized-school-for-your-child/20244853)
+
+Pickup - [citybuzz.co](https://citybuzz.co/specialized-schools-a-potential-solution-for-children-struggling-with-adhd-and-learning-disabilities)
+ 
 
 
 

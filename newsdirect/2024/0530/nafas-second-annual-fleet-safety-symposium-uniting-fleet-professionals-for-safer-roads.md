@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nafas-second-
 [Original/Source Press Release](https://newsdirect.com/news/nafas-second-annual-fleet-safety-symposium-uniting-fleet-professionals-for-safer-roads-466961927)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nafa-hosts-second-annual-fleet-safety-symposium-in-chicago/9c79063a8a27a4424cf3f77837c9bfaf) 
+
+ 
 
 
 

@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bioharvest-sc
 [Original/Source Press Release](https://newsdirect.com/news/bioharvest-sciences-secures-new-state-of-the-art-80-0000-square-foot-manufacturing-facility-793781877)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bioharvest-sciences-unveils-transformative-milestone-with-new-facility-and-agreements/f116bd07631ce796dd1823d1be319632) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/bioharvest-sciences-secures-new-state-of-the-art-800000-square-foot-manufacturing-facility)
+ 
 
 
 

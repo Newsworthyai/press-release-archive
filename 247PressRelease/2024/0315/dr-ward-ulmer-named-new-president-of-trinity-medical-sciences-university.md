@@ -7,7 +7,11 @@ ROSWELL, GA, March 15, 2024 /24-7PressRelease/ -- Trinity Medical Sciences Unive
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509248/dr-ward-ulmer-named-new-president-of-trinity-medical-sciences-university)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trinity-medical-sciences-university-welcomes-dr-ward-ulmer-as-new-president/21ff55d814d5aa98bfcf246da9a2f8f4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/trinity-medical-sciences-university-appoints-experienced-educator-as-new-president)
+ 
 
 
 

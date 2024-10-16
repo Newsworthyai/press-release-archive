@@ -7,7 +7,17 @@ LOS ANGELES, CA, August 29, 2024 /24-7PressRelease/ -- California Pictures, in p
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513900/saint-nick-movie-selected-for-two-prestigious-film-festivals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heartwarming-holiday-film-the-saint-nick-movie-selected-for-two-acclaimed-festivals/7412db990534d931cbe2bb34c9e06eef) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/holiday-film-the-saint-nick-movie-earns-spots-at-two-prestigious-festivals)
+
+Pickup - [fishervista.com](https://fishervista.com/en/the-saint-nick-movie-earns-spots-in-two-prestigious-film-festivals/20246361)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/holiday-film-the-saint-nick-movie-gains-recognition-at-two-prestigious-festivals/20246361)
+
+Pickup - [advos.io](https://advos.io/en/the-saint-nick-movie-earns-selections-for-prestigious-film-festivals/20246361)
+ 
 
 
 

@@ -52,7 +52,11 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1441)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/taktiful-software-solutions-launches-innovative-print-embellishment-software/4ec0f1b2928f72e64a5eada6e04d902d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/taktiful-software-solutions-launches-to-revolutionize-digital-print-embellishment-industry)
+ 
 
 
 

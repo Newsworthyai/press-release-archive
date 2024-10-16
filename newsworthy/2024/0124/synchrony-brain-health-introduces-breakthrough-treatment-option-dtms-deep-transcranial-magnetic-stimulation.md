@@ -13,7 +13,11 @@ With its non-invasive nature and minimal side effects, deep TMS therapy is emerg
 [Original/Source Press Release](https://newsworthy.ai/news/202401241030/synchrony-brain-health-introduces-breakthrough-treatment-option-dtms-deep-transcranial-magnetic-stimulation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/synchrony-brain-health-introduces-groundbreaking-dtms-therapy/e4de76f0fde07377eb4a2305c4c46328) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/24/synchrony-brain-health-introduces-breakthrough-dtms-treatment-for-mental-health)
+ 
 
 
 

@@ -7,7 +7,11 @@ BERLIN, GERMANY, April 02, 2024 /24-7PressRelease/ -- TechBehemoths, the platfor
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509713/826-of-uxui-designers-consider-project-complexity-as-most-impactful-factor-on-project-cost)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-survey-reveals-challenges-and-trends-in-ux-ui-design-projects/07a61922ac6e83a69b3a621ae94f57ef) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/ux-ui-designers-prioritize-project-complexity-in-pricing-and-execution)
+ 
 
 
 

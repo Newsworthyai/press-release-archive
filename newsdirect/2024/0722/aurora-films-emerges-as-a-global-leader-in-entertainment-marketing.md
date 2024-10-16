@@ -75,7 +75,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/aurora-films-
 [Original/Source Press Release](https://newsdirect.com/news/aurora-films-emerges-as-a-global-leader-in-entertainment-marketing-428743369)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aurora-films-a-leader-in-global-entertainment-marketing/d8b42db29fbf7cc9a395ead45dd58f9e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/aurora-films-emerges-as-a-global-leader-in-entertainment-marketing/20245150)
+
+Pickup - [advos.io](https://advos.io/en/aurora-films-rises-as-a-dominant-force-in-global-entertainment-marketing/20245150)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/aurora-films-revolutionizes-entertainment-marketing-with-innovative-online-platform)
+ 
 
 
 

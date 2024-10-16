@@ -49,7 +49,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/shib-investors-drop-001-shiba-inu-dreams--migrate-to-new-memecoin-rival-positioned-for-pump)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiba-inu-shib-investors-pivot-to-shiba-budz-budz-amidst-price-stagnation/85b3165b20ba2ea4235f38510fc3f63a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/shiba-inu-investors-shift-focus-to-shiba-budz-fueling-meme-coin-rivalry)
+ 
 
 
 

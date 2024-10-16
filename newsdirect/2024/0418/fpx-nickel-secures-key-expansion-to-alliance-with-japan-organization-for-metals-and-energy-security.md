@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/fpx-nickel-se
 [Original/Source Press Release](https://newsdirect.com/news/fpx-nickel-secures-key-expansion-to-alliance-with-japan-organization-for-metals-and-energy-security-613020069)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fpx-nickel-expands-alliance-with-jogmec-secures-key-expansion/054be2d9be1e8de892ddd5bd8315d722) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/fpx-nickel-secures-key-expansion-to-alliance-with-japan-organization-for-metals-and-energy-security)
+ 
 
 
 

@@ -45,7 +45,9 @@ Further, any forward-looking statement speaks only as of the date on which such 
 [Original/Source Press Release](https://www.newmediawire.com/news/zenatech-inc-ai-drone-and-enterprise-saas-company-announces-direct-listing-on-the-nasdaq-capital-market-under-the-symbol-zena-7076128)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zenatech-inc-commences-trading-on-nasdaq-capital-market-under-ticker-symbol-zena/04b257c2a7f6615fda00973b5e7e3088) 
+
+ 
 
 
 

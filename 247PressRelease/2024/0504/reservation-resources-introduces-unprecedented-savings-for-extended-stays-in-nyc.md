@@ -7,7 +7,9 @@ NEW YORK, NY, May 04, 2024 /24-7PressRelease/ -- In a groundbreaking move, Reser
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510660/reservation-resources-introduces-unprecedented-savings-for-extended-stays-in-nyc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/affordable-new-york-city-accommodations-starting-at-45-night/a61183ba84615a38f89908a368ba1955) 
+
+ 
 
 
 

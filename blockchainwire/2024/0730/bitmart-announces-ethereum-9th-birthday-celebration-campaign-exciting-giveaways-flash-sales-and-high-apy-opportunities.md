@@ -25,7 +25,21 @@ BitMart is the premier global digital asset trading platform. With millions of u
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-announces-ethereum-9th-birthday-celebration-campaign-exciting-giveaways-flash-sales-and-high-apy-opportunities-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmart-announces-ethereum-9th-birthday-celebration-campaign/09d97586df7905acdfda99a787e8a657) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/bitmart-launches-ethereum-9th-birthday-celebration-with-exciting-promotions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitmart-celebrates-ethereum-s-9th-birthday-with-exciting-campaign/20245374)
+
+Pickup - [advos.io](https://advos.io/en/bitmart-celebrates-ethereum-s-9th-birthday-with-exciting-campaign/20245374)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitmart-announces-ethereum-9th-birthday-celebration-campaign)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitmart-announces-ethereum-9th-birthday-celebration-campaign)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bitmart-launches-ethereum-9th-birthday-celebration-campaign-with-giveaways-and-promotions)
+ 
 
 
 

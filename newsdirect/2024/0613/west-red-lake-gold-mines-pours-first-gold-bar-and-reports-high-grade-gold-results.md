@@ -87,7 +87,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/west-red-lake
 [Original/Source Press Release](https://newsdirect.com/news/west-red-lake-gold-mines-pours-first-gold-bar-and-reports-high-grade-gold-results-484663640)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/west-red-lake-gold-mines-pours-first-gold-bar-and-reports-high-grade-gold-results/86c5e6442eeb5d76d73f117a9286c6e0) 
+
+
+Pickup - [advos.io](https://advos.io/en/west-red-lake-gold-mines-pours-first-gold-bar-and-reports-promising-drill-results/20244120)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/west-red-lake-gold-mines-pours-first-gold-bar-and-reports-high-grade-gold-results)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/west-red-lake-gold-mines-pours-first-gold-bar-and-reports-high-grade-gold-results)
+ 
 
 
 

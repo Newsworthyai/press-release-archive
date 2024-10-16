@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/cable-cabana-
 [Original/Source Press Release](https://newsdirect.com/news/cable-cabana-announces-expansion-of-inventory-to-include-affordable-electrical-cable-and-wire-solutions-416644143)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cable-cabana-expands-inventory-to-include-affordable-electrical-cable-and-wire-solutions/86c5f48f2e52c9fff4cb341983cae4c1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/cable-cabana-announces-expansion-of-inventory-to-include-affordable-electrical-cable-and-wire-solutions)
+ 
 
 
 

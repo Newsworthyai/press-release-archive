@@ -7,7 +7,11 @@ GLENDALE, CA, June 11, 2024 /24-7PressRelease/ -- Cayenne Wellness Center and Ch
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511592/world-sickle-cell-day-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-event-for-world-sickle-cell-day-2024-uniting-communities-and-showcasing-talents/b9ff52ce2375c3663ec1c37e5b3a20b5) 
+
+
+Pickup - [advos.io](https://advos.io/en/5th-annual-world-sickle-cell-day-marathon-to-raise-awareness-and-support/20244006)
+ 
 
 
 

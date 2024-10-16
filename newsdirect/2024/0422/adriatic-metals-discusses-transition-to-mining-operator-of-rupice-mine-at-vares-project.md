@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/adriatic-meta
 [Original/Source Press Release](https://newsdirect.com/news/adriatic-metals-discusses-transition-to-mining-operator-of-rupice-mine-at-vares-project-526465607)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/adriatic-metals-plc-commences-transition-to-mining-operator-at-rupice-mine/ca7406a280a2da1fe3a10511bc833dc7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/adriatic-metals-discusses-transition-to-mining-operator-of-rupice-mine-at-vares-project)
+ 
 
 
 

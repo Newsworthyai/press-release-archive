@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/in-a-show-of-
 [Original/Source Press Release](https://newsdirect.com/news/in-a-show-of-confidence-for-onemetas-ai-technology-microsoft-adds-verbum-for-teams-to-its-app-stores-849646790)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/onemeta-s-verbum-for-microsoft-teams-added-to-microsoft-app-stores-breaking-down-language-barriers/cd3590ed63a9249b8b75dbfbe4270e8c) 
+
+
+Pickup - [advos.io](https://advos.io/en/microsoft-adds-onemeta-s-verbum-for-teams-to-app-stores-breaking-language-barriers/20243974)
+ 
 
 
 

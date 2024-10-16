@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/mainz-biomed-
 [Original/Source Press Release](https://newsdirect.com/news/mainz-biomed-nasdaq-mynz-announces-positive-topline-results-from-cancer-detection-studies-including-92-sensitivity-rate-211982546)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mainz-biomed-announces-positive-results-for-next-generation-cancer-detection-study/2384758eb453cd830c4f031a86421cea) 
+
+ 
 
 
 

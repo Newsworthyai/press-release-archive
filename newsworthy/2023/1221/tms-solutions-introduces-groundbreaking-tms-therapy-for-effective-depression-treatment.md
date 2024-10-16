@@ -17,7 +17,11 @@ TMS Solutions is spearheading a mental health revolution through the provision o
 [Original/Source Press Release](https://newsworthy.ai/news/20231221915/tms-solutions-introduces-groundbreaking-tms-therapy-for-effective-depression-treatment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-tms-therapy-transforming-lives-and-offering-hope-for-depression/aada80b25fd932b6be2e1dfbf79879ee) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/21/tms-solutions-pioneers-cutting-edge-depression-treatment)
+ 
 
 
 

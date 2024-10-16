@@ -7,7 +7,11 @@ LOS ANGELES, CA, March 31, 2024 /24-7PressRelease/ -- In a visionary move to thr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509690/hbo-execs-evolution-to-max-a-strategic-shift-for-casey-bloys)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hbo-ceo-unveils-success-of-hbo-max-rebranding/16f0f62e17cd13d87c99297a3a928dbf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/31/hbo-max-casey-bloys-strategic-vision-reshapes-streaming-landscape)
+ 
 
 
 

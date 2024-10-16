@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nevis-brands-
 [Original/Source Press Release](https://newsdirect.com/news/nevis-brands-announces-major-shots-are-now-for-sale-in-dozens-if-dispensaries-in-missouri-356054807)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nevis-brands-expands-product-offerings-with-major-shots-in-missouri/07909163bf97c744acbe9b47e4e67a1f) 
+
+ 
 
 
 

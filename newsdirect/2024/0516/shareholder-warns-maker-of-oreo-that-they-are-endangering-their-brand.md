@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/shareholder-w
 [Original/Source Press Release](https://newsdirect.com/news/shareholder-warns-maker-of-oreo-that-they-are-endangering-their-brand-811797969)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nlpc-urges-mondelez-to-reconsider-disturbing-partnerships-after-oreo-s-pflag-ad/198d916bfe94cb0178e6846b0d19c89d) 
+
+ 
 
 
 

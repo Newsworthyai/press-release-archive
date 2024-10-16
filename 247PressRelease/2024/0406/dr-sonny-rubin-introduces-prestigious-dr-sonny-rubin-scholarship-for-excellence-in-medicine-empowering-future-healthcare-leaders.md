@@ -7,7 +7,11 @@ LOS ANGELES, CA, April 06, 2024 /24-7PressRelease/ -- Dr. Sonny Rubin, a renowne
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509859/dr-sonny-rubin-introduces-prestigious-dr-sonny-rubin-scholarship-for-excellence-in-medicine-empowering-future-healthcare-leaders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-sonny-rubin-announces-scholarship-for-excellence-in-medicine/34c4f75321029ff7190d2cd363f6564c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/06/dr-sonny-rubin-empowers-future-medical-leaders-with-prestigious-scholarship)
+ 
 
 
 

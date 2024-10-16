@@ -31,7 +31,15 @@ Website: [https://www.shirocoin.io/](https://www.shirocoin.io/)
 [Original/Source Press Release](https://blockchainwire.io/press-release/shiro-coin-the-feline-sensation-in-the-world-of-memecoins)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiro-coin-a-new-challenger-in-the-world-of-memecoins/de3870f61d650592e55cb5238e47bf6c) 
+
+
+Pickup - [advos.io](https://advos.io/en/shiro-coin-the-feline-sensation-in-the-world-of-memecoins/20244139)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/shiro-coin-a-new-challenger-in-the-world-of-memecoins)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/shiro-coin-a-new-challenger-in-the-world-of-memecoins)
+ 
 
 
 

@@ -47,7 +47,21 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/tectum-wins-the-best-blockchain-innovation-award-at-the-leaders-in-fintech-awards-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tectum-wins-best-blockchain-innovation-award-at-leaders-in-fintech-awards-2024/9c31222a800b43a7df7c946e55a5ef0b) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tectum-wins-best-blockchain-innovation-award-at-leaders-in-fintech-awards-2024)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tectum-wins-best-blockchain-innovation-award-at-leaders-in-fintech-awards-2024)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/tectum-recognized-for-blockchain-innovation-at-leaders-in-fintech-awards-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tectum-recognized-for-blockchain-innovation-at-leaders-in-fintech-awards-2024/20246803)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/tectum-recognized-for-blockchain-innovation-at-leaders-in-fintech-awards-2024/20246803)
+
+Pickup - [advos.io](https://advos.io/en/tectum-secures-best-blockchain-innovation-award-at-leaders-in-fintech-awards-2024/20246803)
+ 
 
 
 

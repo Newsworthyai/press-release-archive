@@ -54,7 +54,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/avrio-announc
 [Original/Source Press Release](https://newsdirect.com/news/avrio-announces-merger-with-moon-to-deliver-crypto-lending-to-the-market-759947998)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avrio-worldwide-pbc-announces-merger-with-moon-mortgage-inc-to-deliver-crypto-lending-products/282621f617ace38bb75dc8e757a17b46) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/avrio-worldwide-pbc-announces-merger-with-moon-mortgage-inc-to-deliver-crypto-lending-products)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/avrio-worldwide-pbc-announces-merger-with-moon-mortgage-inc-to-deliver-crypto-lending-products)
+
+Pickup - [fishervista.com](https://fishervista.com/en/avrio-and-moon-mortgage-announce-merger-to-revolutionize-crypto-lending/20245526)
+
+Pickup - [advos.io](https://advos.io/en/avrio-merges-with-moon-to-introduce-crypto-lending-products/20245526)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/avrio-and-moon-merge-to-revolutionize-crypto-lending-market)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/avrio-and-moon-merge-to-expand-crypto-lending-services)
+ 
 
 
 

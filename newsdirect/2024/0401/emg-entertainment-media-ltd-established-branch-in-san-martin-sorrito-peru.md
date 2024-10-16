@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/emg-entertain
 [Original/Source Press Release](https://newsdirect.com/news/emg-entertainment-media-ltd-established-branch-in-san-martin-sorrito-peru-222572990)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/emg-entertainment-media-ltd-expands-to-sorito-peru/ddf035efcf1cb03b346a5baa204cf3b0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/emg-entertainment-media-co-ltd-expands-global-reach-with-new-branch-in-sorrito-peru)
+ 
 
 
 

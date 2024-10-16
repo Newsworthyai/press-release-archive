@@ -7,7 +7,17 @@ PHOENIX, AZ, August 15, 2024 /24-7PressRelease/ -- Arizona Sunrays Gymnastics an
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513457/arizona-sunrays-hosts-successful-olympic-watch-party-to-celebrate-community-and-sportsmanship)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arizona-sunrays-hosts-spectacular-olympic-watch-party/57f44acbf4c142e3dbf90a0202a7ac16) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/arizona-sunrays-gymnastics-center-unites-community-with-olympic-watch-party)
+
+Pickup - [fishervista.com](https://fishervista.com/en/arizona-sunrays-hosts-successful-olympic-watch-party-to-celebrate-community-and-sportsmanship/20245747)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/arizona-sunrays-gymnastics-center-unites-community-with-olympic-watch-party/20245747)
+
+Pickup - [advos.io](https://advos.io/en/arizona-sunrays-hosts-successful-olympic-watch-party-to-celebrate-community-and-sportsmanship/20245747)
+ 
 
 
 

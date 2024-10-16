@@ -7,7 +7,9 @@ OAKLAND COUNTY, MI, May 29, 2024 /24-7PressRelease/ -- Disability Law Group prou
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511201/randall-mansour-granted-membership-into-the-oakland-together-40-under-40-class-of-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/disability-law-group-partner-randall-mansour-named-to-oakland-together-40-under-40-class-of-2024/6f0851a3fcde6533f5d150ae47c3b99d) 
+
+ 
 
 
 

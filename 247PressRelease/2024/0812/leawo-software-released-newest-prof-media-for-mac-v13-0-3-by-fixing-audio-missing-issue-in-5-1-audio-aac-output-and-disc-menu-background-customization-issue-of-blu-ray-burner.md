@@ -7,7 +7,17 @@ SHENZHEN, CHINA, August 12, 2024 /24-7PressRelease/ -- Leawo Software, one of th
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513317/leawo-software-released-newest-prof-media-for-mac-v1303-by-fixing-audio-missing-issue-in-51-audio-aac-output-and-disc-menu-background-customization-issue-of-blu-ray-burner)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leawo-software-releases-prof-media-for-mac-v13-0-3-addressing-audio-playback-and-disc-menu-issues/a8f5ac9f8353fe4d23d3202efa09b3d4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/leawo-software-enhances-prof-media-for-mac-with-version-13-0-3-update)
+
+Pickup - [fishervista.com](https://fishervista.com/en/leawo-software-enhances-prof-media-for-mac-with-critical-fixes-in-version-13-0-3/20245643)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/leawo-software-enhances-prof-media-for-mac-with-version-13-0-3-update/20245643)
+
+Pickup - [advos.io](https://advos.io/en/leawo-software-launches-prof-media-for-mac-v13-0-3-with-key-fixes/20245643)
+ 
 
 
 

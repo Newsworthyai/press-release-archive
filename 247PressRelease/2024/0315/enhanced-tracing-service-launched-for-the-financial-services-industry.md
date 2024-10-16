@@ -7,7 +7,11 @@ LONDON, ENGLAND, March 15, 2024 /24-7PressRelease/ -- Estatetrace has officially
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509253/enhanced-tracing-service-launched-for-the-financial-services-industry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/estatetrace-launches-high-discovery-tracing-service-for-financial-institutions/7dff7b36532f694102d1fbadbe08a190) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/estatetrace-launches-tracing-service-to-reconnect-financial-firms-with-lost-customers)
+ 
 
 
 

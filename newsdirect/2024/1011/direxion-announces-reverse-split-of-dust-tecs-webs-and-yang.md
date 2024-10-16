@@ -191,7 +191,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/direxion-anno
 [Original/Source Press Release](https://newsdirect.com/news/direxion-announces-reverse-split-of-dust-tecs-webs-and-yang-612264675)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/direxion-announces-reverse-split-of-dust-tecs-webs-and-yang/6b0c1b009b98735598ab0383ccf623f2) 
+
+ 
 
 
 

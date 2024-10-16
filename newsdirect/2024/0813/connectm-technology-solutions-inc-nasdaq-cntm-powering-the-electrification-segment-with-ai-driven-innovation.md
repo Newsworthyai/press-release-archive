@@ -49,7 +49,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/connectm-tech
 [Original/Source Press Release](https://newsdirect.com/news/connectm-technology-solutions-inc-nasdaq-cntm-powering-the-electrification-segment-with-ai-driven-innovation-441069613)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/connectm-technology-solutions-nasdaq-cntm-driving-electrification-segment-with-ai-driven-innovation/9d0d375817576ae878beb54a158cc47a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/connectm-technology-solutions-leads-electrification-revolution-with-ai-driven-platform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/connectm-technology-solutions-inc-nasdaq-cntm-powering-the-electrification-segment-with-ai-driven-innovation/20245681)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/connectm-technology-solutions-leads-electrification-revolution-with-ai-driven-platform/20245681)
+
+Pickup - [advos.io](https://advos.io/en/connectm-technology-solutions-advances-electrification-with-ai-driven-platform/20245681)
+ 
 
 
 

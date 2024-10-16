@@ -7,7 +7,9 @@ JACKSONVILLE, FL, May 15, 2024 /24-7PressRelease/ -- The escalating apocalyptic 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510882/veterans-answer-the-call-increasing-urgency-for-emergency-preparedness-and-disaster-response-solutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/usmc-vets-launch-pioneering-survival-gear-for-household-preparedness/c897070e25c49671e1e0db2121ed3bf5) 
+
+ 
 
 
 

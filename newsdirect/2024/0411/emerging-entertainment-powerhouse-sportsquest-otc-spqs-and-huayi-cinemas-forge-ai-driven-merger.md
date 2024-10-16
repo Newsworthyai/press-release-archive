@@ -69,7 +69,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/emerging-ente
 [Original/Source Press Release](https://newsdirect.com/news/emerging-entertainment-powerhouse-sportsquest-otc-spqs-and-huayi-cinemas-forge-ai-driven-merger-547638478)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sportsquest-inc-otc-spqs-and-huayi-cinemas-forge-ai-driven-merger/c2da6893133e28fc703f4e3d90b029bc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/sportsquest-otc-spqs-and-huayi-cinemas-forge-ai-driven-merger)
+ 
 
 
 

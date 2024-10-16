@@ -7,7 +7,17 @@ BLOOMINGTON, IN, September 07, 2024 /24-7PressRelease/ -- Emmanuel Ceysson, worl
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514109/emmanuel-ceysson-principal-harpist-at-the-los-angeles-philharmonic-to-perform-at-the-usa-international-harp-competition-fall-concert-series)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/world-renowned-harpist-emmanuel-ceysson-to-perform-special-concert-in-bloomington-indiana/9ae568572125a93b2980e5682bf9ab7e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/07/world-renowned-harpist-emmanuel-ceysson-to-perform-in-bloomington)
+
+Pickup - [fishervista.com](https://fishervista.com/en/emmanuel-ceysson-to-perform-at-usa-international-harp-competition-s-fall-concert-series/20246596)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/emmanuel-ceysson-la-philharmonic-s-principal-harpist-to-perform-in-bloomington/20246596)
+
+Pickup - [advos.io](https://advos.io/en/emmanuel-ceysson-to-perform-at-usa-international-harp-competition-fall-concert-series/20246596)
+ 
 
 
 

@@ -7,7 +7,17 @@ HUDSON VALLEY, NY, September 08, 2024 /24-7PressRelease/ -- Franklin Publishers 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514120/kathryn-kavickys-debut-novel-yellow-bird-takes-flight)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/08/kathryn-kavicky-s-yellow-bird-marks-debut-in-literary-fiction)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kathryn-kavicky-s-debut-novel-yellow-bird-takes-flight/20246605)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/kathryn-kavicky-s-debut-novel-yellow-bird-explores-love-and-self-discovery/20246605)
+
+Pickup - [advos.io](https://advos.io/en/kathryn-kavicky-s-debut-novel-yellow-bird-now-available/20246605)
+ 
 
  
 

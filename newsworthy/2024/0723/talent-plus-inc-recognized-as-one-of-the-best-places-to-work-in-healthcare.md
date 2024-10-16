@@ -19,7 +19,19 @@ Talent Plus, an internationally recognized global talent consulting firm in over
 [Original/Source Press Release](https://newsworthy.ai/news/202407231216/talent-plus-inc-recognized-as-one-of-the-best-places-to-work-in-healthcare)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/talent-plus-inc-named-one-of-the-2024-best-places-to-work-in-healthcare/26a6808a65e821faad4a2e9f28069c31) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/talent-plus-inc-named-among-2024-best-places-to-work-in-healthcare/20245187)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/talent-plus-named-one-of-2024-s-best-places-to-work-in-healthcare-by-modern-healthcare)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/talent-plus-named-among-best-places-to-work-in-healthcare-for-2024/20245187)
+
+Pickup - [advos.io](https://advos.io/en/talent-plus-inc-named-among-best-places-to-work-in-healthcare-by-modern-healthcare/20245187)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/talent-plus-earns-spot-on-modern-healthcare-s-best-places-to-work-list-for-2024)
+ 
 
 
 

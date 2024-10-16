@@ -7,7 +7,15 @@ GENEVA, July 22, 2024 /24-7PressRelease/ -- PONS, a company pioneering ultrasoun
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512614/wipo-honours-pons-with-global-accolade-for-innovation-and-ip-excellence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pons-receives-wipo-global-award-for-pioneering-ultrasound-imaging/d4e2d60364dc898707b4fdc0fe93657b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/pons-receives-prestigious-wipo-global-award-for-innovative-ultrasound-technology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pons-receives-wipo-global-award-for-innovation-in-mobile-ultrasound-technology/20245143)
+
+Pickup - [advos.io](https://advos.io/en/pons-receives-prestigious-wipo-global-award-for-innovation-in-ultrasound-technology/20245143)
+ 
 
 
 

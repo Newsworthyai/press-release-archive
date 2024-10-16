@@ -49,7 +49,9 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/aria-coin-prepares-for-launch-on-solana-tap-to-win-earnand-explore-the-memeverse)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exciting-launch-of-aria-coin-on-solana-blockchain/f13338400ad4bece9203b603def80ea7) 
+
+ 
 
 
 

@@ -36,7 +36,11 @@ Media Contact:pr@bit.store
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitstore-enhances-crypto-card-services-with-trueusd-integration)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bit-store-announces-collaboration-with-trueusd-to-expand-crypto-card-offerings/81e6d8360da46414158b57ac2d720b59) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/19/bit-store-embraces-trueusd-for-enhanced-crypto-card-flexibility)
+ 
 
 
 

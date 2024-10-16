@@ -29,7 +29,11 @@ CoinW is a leading crypto trading platform that places a high priority on secur
 [Original/Source Press Release](https://blockchainwire.io/press-release/sonia-shaw-president-of-coinw-attends-the-10th-satoshi-roundtable-and-the-coinw-sponsored-after-party)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-president-sonia-shaw-attends-10th-satoshi-roundtable-and-after-party-in-dubai/14f174cb50db4d657b87d7871f9e4f2c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/15/coinw-president-attends-exclusive-satoshi-roundtable-fostering-bitcoin-ecosystem-growth)
+ 
 
 
 

@@ -34,7 +34,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/peru-hosts-ap
 [Original/Source Press Release](https://newsdirect.com/news/peru-hosts-apec-2024-building-leadership-in-the-asia-pacific-region-262143256)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peru-to-host-apec-2024-building-leadership-in-the-asia-pacific-region/464ac50f5042b05bffe395f697ad9d82) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/peru-to-host-apec-2024-strengthening-leadership-in-asia-pacific-region/20244844)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/peru-to-host-apec-2024-showcasing-economic-potential-and-regional-leadership)
+
+Pickup - [advos.io](https://advos.io/en/peru-to-host-apec-2024-strengthening-leadership-in-asia-pacific-region/20244844)
+ 
 
 
 

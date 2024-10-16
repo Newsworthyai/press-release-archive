@@ -49,7 +49,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/btc-vs-bch-investors-split-bitcoin-bags-to-join-bitcoin-cash-pump-heres-what-next)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-btc-vs-bitcoin-cash-bch-a-shift-in-momentum/0947bd4bca09cba2e5e253218333ef45) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/07/btc-vs-bch-investors-diversify-portfolios-with-shiba-budz-budz)
+ 
 
 
 

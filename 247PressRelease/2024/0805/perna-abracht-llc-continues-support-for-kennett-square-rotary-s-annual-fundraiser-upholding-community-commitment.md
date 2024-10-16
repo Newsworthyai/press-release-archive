@@ -7,7 +7,17 @@ KENNETT SQUARE, PA, August 05, 2024 /24-7PressRelease/ -- This event, which took
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513115/perna-abracht-llc-continues-support-for-kennett-square-rotarys-annual-fundraiser-upholding-community-commitment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kennett-square-rotary-s-annual-fundraiser-supported-by-perna-abracht-llc/2eba83863de2017864af548d2ee21717) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/perna-abracht-llc-reaffirms-community-support-at-kennett-square-rotary-s-annual-fundraiser)
+
+Pickup - [fishervista.com](https://fishervista.com/en/perna-abracht-llc-reaffirms-commitment-to-kennett-square-rotary-s-annual-fundraiser/20245485)
+
+Pickup - [advos.io](https://advos.io/en/perna-abracht-llc-reinforces-community-commitment-through-support-of-kennett-square-rotary-fundraiser/20245485)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/perna-abracht-llc-bolsters-kennett-square-community-through-rotary-fundraiser-support)
+ 
 
 
 

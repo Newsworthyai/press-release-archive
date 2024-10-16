@@ -49,7 +49,11 @@ X (Twitter) | Instagram | Telegram (Chat) | Telegram (News) | Discord | YouTube 
 [Original/Source Press Release](https://blockchainwire.io/press-release/marine-moguls-by-metfi-announces-59-million-erc-404-token-and-nft-airdrop-running-until-may)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marine-moguls-airdrop-collect-free-mogul-tokens-and-nfts/8a5b945cf278c7fd48e0c2c35a2b9dac) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/metfi-s-marine-moguls-launches-5-9-million-erc-404-token-and-nft-airdrop)
+ 
 
 
 

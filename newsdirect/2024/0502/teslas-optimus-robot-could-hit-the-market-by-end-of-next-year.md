@@ -75,7 +75,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/teslas-optimu
 [Original/Source Press Release](https://newsdirect.com/news/teslas-optimus-robot-could-hit-the-market-by-end-of-next-year-467727008)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tesla-s-optimus-robot-development-and-knightscope-s-security-solutions/73f51e2e3413e035a183f89c9e2ed860) 
+
+ 
 
 
 

@@ -44,7 +44,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/graphlinq-sec
 [Original/Source Press Release](https://newsdirect.com/news/graphlinq-secures-investment-from-dwf-labs-to-expand-ecosystem-811620045)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/graphlinq-secures-strategic-investment-from-dwf-labs-for-ecosystem-expansion/f91da01fdf8b335a5dbb589c6ea4dee4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/graphlinq-forges-strategic-partnership-with-dwf-labs-accelerating-defi-innovation)
+ 
 
 
 

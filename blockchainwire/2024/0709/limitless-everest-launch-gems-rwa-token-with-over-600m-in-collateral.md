@@ -45,7 +45,19 @@ Contact: [contact@everlaunch.org](mailto:contact@everlaunch.org)
 [Original/Source Press Release](https://blockchainwire.io/press-release/limitless--everest-launch-gems-rwa-token-with-over-600m-in-collateral)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/limitless-and-everest-launch-gems-tokens-backed-by-600-million-in-assets/c8adde3b7234cfbed42d6226a6c74c9c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/limitless-and-everest-introduce-groundbreaking-gems-rwa-token-with-over-600m-in-collateral/20244813)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/limitless-and-everest-introduce-gems-a-revolutionary-rwa-token-backed-by-600m-in-liquid-assets)
+
+Pickup - [advos.io](https://advos.io/en/limitless-and-everest-unveil-gems-token-with-600m-in-collateral/20244813)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/limitless-and-everest-launch-gems-tokens-backed-by-600-million-in-assets)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/limitless-and-everest-launch-gems-tokens-backed-by-600-million-in-assets)
+ 
 
 
 

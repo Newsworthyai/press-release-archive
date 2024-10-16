@@ -39,7 +39,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/stusdt-publis
 [Original/Source Press Release](https://newsdirect.com/news/stusdt-published-security-audit-report-by-chainsecurity-and-whitepaper-916242839)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stusdt-partners-with-chainsecurity-for-smart-contract-security-audit/b9df9d8aafcf888df9fa91bbc77e89d8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/stusdt-completes-comprehensive-security-audit-by-chainsecurity/20244771)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/stusdt-bolsters-security-with-chainsecurity-audit-releases-comprehensive-whitepaper)
+
+Pickup - [advos.io](https://advos.io/en/stusdt-partners-with-chainsecurity-to-complete-comprehensive-security-audit/20244771)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/stusdt-partners-with-chainsecurity-for-smart-contract-security-audit)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/stusdt-partners-with-chainsecurity-for-smart-contract-security-audit)
+ 
 
 
 

@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/game-on-for-p
 [Original/Source Press Release](https://newsdirect.com/news/game-on-for-pakistan-historic-talent-gathering-for-game-developers-animators-and-designers-in-islamabad-436499640)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/game-on-for-pakistan-historic-talent-gathering-for-game-developers-animators-and-designers-in-islamabad/3e96d475de347db32325a158b094e995) 
+
+
+Pickup - [advos.io](https://advos.io/en/game-developers-animators-and-designers-gather-for-historic-event-in-islamabad/20243636)
+ 
 
 
 

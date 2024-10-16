@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kneeling-on-b
 [Original/Source Press Release](https://newsdirect.com/news/kneeling-on-broken-glass-the-chronicles-of-ezekiels-riders-a-journey-of-faith-and-service-launches-this-easter-sunday-521162769)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-release-kneeling-on-broken-glass-chronicles-the-journey-of-faith-and-service/0a1dce1d2ce1b983a9346e39f2599d14) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/kneeling-on-broken-glass-a-powerful-journey-of-faith-and-service)
+ 
 
 
 

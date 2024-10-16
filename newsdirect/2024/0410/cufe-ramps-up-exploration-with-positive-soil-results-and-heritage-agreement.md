@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/cufe-ramps-up
 [Original/Source Press Release](https://newsdirect.com/news/cufe-ramps-up-exploration-with-positive-soil-results-and-heritage-agreement-316116733)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cufe-ramps-up-exploration-with-positive-soil-results-and-heritage-agreement/07f5087d0a6761744e5fdcd2703fc34f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/cufe-ltd-expands-exploration-efforts-with-positive-soil-results-and-heritage-agreement)
+ 
 
 
 

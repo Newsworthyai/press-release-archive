@@ -31,7 +31,9 @@ Shauna Schuda Primary: 630-468-7075 Public Relations Dept. Manager   [Shauna.Sc
 [Original/Source Press Release](https://newsdirect.com/news/lions-international-honors-stephen-lewis-foundation-with-humanitarian-award-672980744)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stephen-lewis-foundation-to-receive-2024-lions-humanitarian-award/74190b08decd86f63341204ec0650d45) 
+
+ 
 
 
 

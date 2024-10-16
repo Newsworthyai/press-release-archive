@@ -19,7 +19,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/clever-robot-ceo-angelo-dilibero-predicts-a-transformational-year-for-artificial-intelligence-and-cryptocurrency-in-2024-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clever-robot-group-ceo-predicts-monumental-year-for-a-i-and-cryptocurrency/056c7c5afa908964354ade0a4d83eff1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/09/ai-and-crypto-poised-for-transformative-year-says-clever-robot-ceo)
+ 
 
 
 

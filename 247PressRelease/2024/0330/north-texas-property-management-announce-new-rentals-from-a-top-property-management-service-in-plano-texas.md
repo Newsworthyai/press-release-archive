@@ -7,7 +7,11 @@ PLANO, TX, March 30, 2024 /24-7PressRelease/ -- North Texas Property Management,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509672/north-texas-property-management-announce-new-rentals-from-a-top-property-management-service-in-plano-texas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-single-family-homes-for-rent-in-north-texas/e7476932acedf18ad1f34f155da0a5e7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/30/north-texas-property-management-unveils-new-rental-homes-in-prime-locations)
+ 
 
 
 

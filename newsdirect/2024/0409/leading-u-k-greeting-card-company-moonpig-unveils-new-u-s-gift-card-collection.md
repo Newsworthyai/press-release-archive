@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/leading-u-k-g
 [Original/Source Press Release](https://newsdirect.com/news/leading-u-k-greeting-card-company-moonpig-unveils-new-u-s-gift-card-collection-747032359)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/moonpig-launches-gift-card-add-ons-just-in-time-for-mother-s-day/721f5ddb7ba644fce1703158f6dfa35b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/moonpig-brings-innovative-gift-card-integration-to-u-s-greeting-card-market)
+ 
 
 
 

@@ -19,7 +19,17 @@ Mr. Ji Kun, the co-founder and president of Linklogis, highlighted, "This acquis
 [Original/Source Press Release](https://blockchainwire.io/press-release/linklogis-strategically-acquires-bytter-to-develop-a-new-tresasury-management-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/linklogis-to-acquire-controlling-shareholder-of-bytter-in-strategic-acquisition/c3f07b38dacda76c6197fbb71d3e7341) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/linklogis-acquires-bytter-to-enhance-treasury-management-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/linklogis-acquires-bytter-to-revolutionize-treasury-management-ecosystem/20246380)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/linklogis-acquires-bytter-to-enhance-treasury-management-solutions/20246380)
+
+Pickup - [advos.io](https://advos.io/en/linklogis-acquires-bytter-to-revolutionize-treasury-management/20246380)
+ 
 
 
 

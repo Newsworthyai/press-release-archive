@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/casa-blui-lau
 [Original/Source Press Release](https://newsdirect.com/news/casa-blui-launches-new-range-of-home-wellness-products-134875943)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/casa-blui-launches-new-range-of-home-wellness-products/fb4f2ec7d29ba6d5ca47fd3047001878) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/casa-blui-unveils-luxury-home-wellness-collection-bringing-spa-experience-to-households)
+
+Pickup - [fishervista.com](https://fishervista.com/en/casa-blui-unveils-new-luxury-home-wellness-product-line/20246665)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/casa-blui-unveils-luxury-home-wellness-collection/20246665)
+
+Pickup - [advos.io](https://advos.io/en/casa-blui-unveils-new-luxury-home-wellness-product-line/20246665)
+ 
 
 
 

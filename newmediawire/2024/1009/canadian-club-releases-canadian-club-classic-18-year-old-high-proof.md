@@ -27,7 +27,9 @@ Distributed by: Reportable, Inc.
 [Original/Source Press Release](https://www.newmediawire.com/news/canadian-club-releases-canadian-club-classic-18-year-old-high-proof-7076172)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/canadian-club-releases-canadian-club-classic-18-year-old-high-proof/a4c5c57a322da7b3d05579181ecda0ce) 
+
+ 
 
 
 

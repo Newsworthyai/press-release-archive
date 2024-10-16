@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/boadicea-reso
 [Original/Source Press Release](https://newsdirect.com/news/boadicea-resources-embarks-on-biggest-drill-program-in-its-history-793545143)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boadicea-resources-embarks-on-biggest-drill-program-in-its-history/8c6c909b64069c6a79701a80e8e0171c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/boadicea-resources-launches-largest-drill-program-in-company-history)
+ 
 
 
 

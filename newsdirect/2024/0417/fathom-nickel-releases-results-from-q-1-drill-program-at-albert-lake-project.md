@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/fathom-nickel
 [Original/Source Press Release](https://newsdirect.com/news/fathom-nickel-releases-results-from-q-1-drill-program-at-albert-lake-project-615342206)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fathom-nickel-unveils-promising-q1-drill-program-results-at-albert-lake-project/ef60431598f91c98f59bbfedaa8c0bbf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/fathom-nickel-uncovers-promising-nickel-mineralization-at-albert-lake-project)
+ 
 
 
 

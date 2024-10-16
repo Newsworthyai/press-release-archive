@@ -27,7 +27,9 @@
 [Original/Source Press Release](http://www.newmediawire.com/news/museums-emerge-as-haven-for-dementia-sufferers-7076109)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/museums-as-essential-resources-for-individuals-living-with-dementia/36bda6dbec3cfc1c470fd1c4b6aa7389) 
+
+ 
 
 
 

@@ -41,7 +41,11 @@ The information provided in this press release is not a solicitation for investm
 [Original/Source Press Release](https://blockchainwire.io/press-release/breaking-boundaries-mumu-the-bull-achieves-new-heights-in-the-crypto-market)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mumu-the-bull-charges-into-the-crypto-scene-with-the-muuvement/3b30b9fd07d01d85047d696c2f85e67e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/mumu-the-bull-stampedes-into-the-crypto-market)
+ 
 
 
 

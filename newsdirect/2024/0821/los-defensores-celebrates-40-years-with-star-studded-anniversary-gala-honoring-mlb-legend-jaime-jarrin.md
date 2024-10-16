@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/los-defensore
 [Original/Source Press Release](https://newsdirect.com/news/los-defensores-celebrates-40-years-with-star-studded-anniversary-gala-honoring-mlb-legend-jaime-jarrin-690535148)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/los-defensores-celebrates-40-years-with-star-studded-gala-honoring-mlb-legend-jaime-jarrin/c4047d21970a1e60c9ab78283350e69a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/los-defensores-marks-40-year-milestone-with-gala-honoring-mlb-icon-jaime-jarrin)
+
+Pickup - [fishervista.com](https://fishervista.com/en/los-defensores-commemorates-40-years-with-gala-honoring-mlb-legend-jaime-jarrin/20245879)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/los-defensores-marks-40-years-of-service-to-latino-community-with-gala-and-new-initiative/20245879)
+
+Pickup - [advos.io](https://advos.io/en/los-defensores-celebrates-40th-anniversary-with-tribute-to-mlb-legend-jaime-jarrin/20245879)
+ 
 
 
 

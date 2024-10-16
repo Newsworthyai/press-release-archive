@@ -77,7 +77,11 @@ Coinstore Social MediaTwitter | Discord | Facebook | Instagram | Youtube | Teleg
 [Original/Source Press Release](https://blockchainwire.io/press-release/drift-labs---a-web3-game-studio)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/drift-labs-introduces-drift-token-for-web3-gaming-with-unique-utility/7e121b9c0ac9de4581209ca8204ab60e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/drift-labs-a-web3-game-studio-redefining-the-future-of-gaming-tokens)
+ 
 
 
 

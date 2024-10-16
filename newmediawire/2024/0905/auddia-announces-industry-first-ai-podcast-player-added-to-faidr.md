@@ -39,7 +39,17 @@ www.pcgadvisory.com
 [Original/Source Press Release](https://www.newmediawire.com/news/auddia-announces-industry-first-ai-podcast-player-added-to-faidr-7076002)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/auddia-inc-introduces-new-features-for-podcast-listening-on-faidr-app/0072ac2e99445c703b07c9502bd6f5a5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/auddia-introduces-ai-powered-podcast-features-on-faidr-app)
+
+Pickup - [fishervista.com](https://fishervista.com/en/auddia-introduces-ai-driven-enhancements-to-podcast-experience-on-faidr-app/20246556)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/auddia-launches-ai-powered-podcast-features-on-faidr-app/20246556)
+
+Pickup - [advos.io](https://advos.io/en/auddia-introduces-ai-powered-podcast-features-on-faidr/20246556)
+ 
 
 
 

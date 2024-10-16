@@ -7,7 +7,17 @@ WILLIAMSBURG, VA, September 04, 2024 /24-7PressRelease/ -- Legacy Life Books, a 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514008/legacy-life-books-launches-premier-personal-biography-service)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/legacy-life-books-launches-premium-service-for-preserving-personal-narratives/01bf3c7a9c12e539e263bca3d2e60de2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/legacy-life-books-launches-innovative-personal-biography-service)
+
+Pickup - [fishervista.com](https://fishervista.com/en/legacy-life-books-debuts-premier-personal-biography-service/20246503)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/legacy-life-books-launches-innovative-personal-biography-service/20246503)
+
+Pickup - [advos.io](https://advos.io/en/legacy-life-books-unveils-premier-service-for-preserving-personal-biographies/20246503)
+ 
 
 
 

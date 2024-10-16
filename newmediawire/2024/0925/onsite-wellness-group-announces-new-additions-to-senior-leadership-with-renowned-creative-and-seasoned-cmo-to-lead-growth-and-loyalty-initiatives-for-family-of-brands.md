@@ -33,7 +33,9 @@ lindsey@onsiteworkshops.com
 [Original/Source Press Release](http://www.newmediawire.com/news/onsite-wellness-group-announces-new-additions-to-senior-leadership-with-renowned-creative-and-seasoned-cmo-to-lead-growth-and-loyalty-initiatives-for-family-of-brands-7076091)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/onsite-wellness-group-welcomes-two-executives-to-drive-growth-and-impact/f70f020f82f2de1ae90b3459f860f0d3) 
+
+ 
 
 
 

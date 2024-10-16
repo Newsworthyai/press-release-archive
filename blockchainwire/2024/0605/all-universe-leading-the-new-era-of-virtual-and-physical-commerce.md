@@ -25,7 +25,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/all-universe-leading-the-new-era-of-virtual-and-physical-commerce)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/all-universe-revolutionizing-virtual-and-physical-industries/c2abbb5c8a0b295e1072abac29137fc2) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/all-universe-revolutionizing-virtual-and-physical-industries)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/all-universe-revolutionizing-virtual-and-physical-industries)
+ 
 
 
 

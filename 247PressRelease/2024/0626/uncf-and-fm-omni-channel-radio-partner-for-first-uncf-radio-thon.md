@@ -7,7 +7,13 @@ CHICAGO, IL, June 26, 2024 /24-7PressRelease/ -- It was the party of parties –
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512019/uncf-and-fm-omni-channel-radio-partner-for-first-uncf-radio-thon)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uncf-celebrates-80th-anniversary-with-omni-channel-radio-thon/5cc2d7656c53cdc18ae9a3abec9fe67a) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/uncf-and-fm-omni-channel-radio-partner-for-first-uncf-radio-thon/20244484)
+
+Pickup - [advos.io](https://advos.io/en/uncf-and-fm-omni-channel-radio-host-first-radio-thon-to-fund-scholarships/20244484)
+ 
 
 
 

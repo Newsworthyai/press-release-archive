@@ -7,7 +7,9 @@ LIMASSOL, CYPRUS, April 30, 2024 /24-7PressRelease/ -- VSTAR.com, an emerging CF
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510470/vstarcom-now-approved-and-regulated-by-asic-expanding-global-financial-reach)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vstar-com-obtains-asic-financial-license-paving-the-way-for-international-expansion/f6a267d480fe015d9fca64f42a4e6f53) 
+
+ 
 
 
 

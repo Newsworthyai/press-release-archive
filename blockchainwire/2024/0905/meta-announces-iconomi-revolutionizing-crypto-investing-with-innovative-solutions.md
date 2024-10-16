@@ -55,7 +55,15 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/meta-announces-iconomi-revolutionizing-crypto-investing-with-innovative-solutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iconomi-bridging-the-gap-between-traditional-and-digital-finance/738520be1568671b2a63c346d123dd7e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/iconomi-introduces-innovative-crypto-investment-strategies-for-long-term-investors)
+
+Pickup - [advos.io](https://advos.io/en/iconomi-launches-innovative-crypto-investment-platform-for-long-term-investors/20246713)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/iconomi-launches-revolutionary-crypto-investment-platform-for-long-term-investors/20246713)
+ 
 
 
 

@@ -7,7 +7,11 @@ LOS ANGELES, CA, April 16, 2024 /24-7PressRelease/ -- Prepare to embark on a tra
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510059/american-opera-singer-boris-martinovich-and-diana-elizabeth-martinovich-unveil-groundbreaking-book-the-art-of-bel-canto-where-science-and-spirit-meet)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-opera-singers-release-the-art-of-bel-canto-where-science-and-spirit-meet/e5c51ef454675055e7ea482e1eddc58e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/american-opera-singer-boris-martinovich-and-diana-elizabeth-martinovich-unveil-groundbreaking-book-the-art-of-bel-canto-where-science-and-spirit-meet)
+ 
 
 
 

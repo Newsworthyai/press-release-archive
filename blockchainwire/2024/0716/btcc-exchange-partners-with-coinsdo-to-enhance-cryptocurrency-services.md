@@ -21,7 +21,15 @@ LinkedIn: https://www.linkedin.com/company/coinsdo/
 [Original/Source Press Release](https://blockchainwire.io/press-release/btcc-exchange-partners-with-coinsdo-to-enhance-cryptocurrency-services-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/btcc-announces-partnership-with-coinsdo-to-enhance-cryptocurrency-services/cb057c509a48234b67ffb82774b9b922) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/btcc-exchange-enhances-cryptocurrency-services-through-partnership-with-coinsdo)
+
+Pickup - [fishervista.com](https://fishervista.com/en/btcc-exchange-partners-with-coinsdo-to-enhance-cryptocurrency-services/20245067)
+
+Pickup - [advos.io](https://advos.io/en/btcc-partners-with-coinsdo-to-enhance-cryptocurrency-services/20245067)
+ 
 
 
 

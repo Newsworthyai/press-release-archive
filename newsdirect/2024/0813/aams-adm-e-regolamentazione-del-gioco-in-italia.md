@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/aams-adm-e-re
 [Original/Source Press Release](https://newsdirect.com/news/aams-adm-e-regolamentazione-del-gioco-in-italia-206765201)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/understanding-casino-non-aams-in-italy-legal-implications-and-risks/dc0319551e5b15074cf865c0cb648eba) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/italy-s-strict-gambling-regulations-understanding-aams-and-non-aams-casinos)
+
+Pickup - [fishervista.com](https://fishervista.com/en/understanding-non-aams-casinos-and-their-legal-implications-in-italy/20245669)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/italy-s-strict-gambling-regulations-understanding-aams-and-non-aams-casinos/20245669)
+
+Pickup - [advos.io](https://advos.io/en/la-regolamentazione-del-gioco-d-azzardo-in-italia-e-i-rischi-dei-casino-non-aams/20245669)
+ 
 
 
 

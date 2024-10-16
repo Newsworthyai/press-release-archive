@@ -53,7 +53,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-leads-the-charge-in-high-frequency-crypto-trading-with-advanced-bot-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-introduces-high-frequency-trading-capabilities-with-defi-trading-bot-and-cryptocurrency-quant-robot/cb330f2852397bfaa8a7a63f5ab5a7ff) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/09/defiquant-revolutionizes-crypto-trading-with-high-frequency-bots)
+ 
 
 
 

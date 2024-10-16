@@ -53,7 +53,11 @@ Whitepaper: [https://robingames.gitbook.io/robin-fi](https://robingames.gitbook.
 [Original/Source Press Release](https://blockchainwire.io/press-release/robin-open-social-fi-revolutionizes-gaming-with-innovative-integration-and-global-partnerships)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/robin-open-social-fi-pioneers-next-generation-gaming-platform-with-global-impact/9f6363033c0b385f2bd357864cf902ae) 
+
+
+Pickup - [advos.io](https://advos.io/en/robin-open-social-fi-innovating-gaming-with-social-integration-and-global-partnerships/20244034)
+ 
 
 
 

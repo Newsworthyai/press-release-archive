@@ -36,7 +36,19 @@ Website: https://qmgt.io/
 [Original/Source Press Release](https://blockchainwire.io/press-release/quantum-metal-bullion-launches-qmgt-project-revolutionizing-precious-metals-ownership-with-web3-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-metal-bullion-launches-quantum-metal-gold-token-qmgt-project/7f2721b7d9d1db54a4a59e1db0beaead) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/quantum-metal-bullion-unveils-qmgt-project-pioneering-gold-ownership-with-web3-technology/20244845)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/quantum-metal-bullion-introduces-qmgt-a-web3-revolution-in-precious-metals-ownership)
+
+Pickup - [advos.io](https://advos.io/en/quantum-metal-bullion-unveils-qmgt-project-integrating-web3-technology-with-precious-metals-ownership/20244845)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/quantum-metal-bullion-launches-quantum-metal-gold-token-qmgt-project)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/quantum-metal-bullion-launches-quantum-metal-gold-token-qmgt-project)
+ 
 
 
 

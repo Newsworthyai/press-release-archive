@@ -7,7 +7,9 @@ NEW YORK, NY, May 23, 2024 /24-7PressRelease/ -- Deep Market Making (Deep MM), a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511089/deep-market-making-recognizes-james-finer-and-mark-rozeboom-as-co-founders-kyle-hendrick-appointed-chief-financial-officer)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/deep-market-making-recognizes-new-co-founders-and-cfo/6d8d372ecf48255de08683d784ecf523) 
+
+ 
 
 
 

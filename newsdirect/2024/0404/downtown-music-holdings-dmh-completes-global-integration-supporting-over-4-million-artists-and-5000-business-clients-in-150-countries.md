@@ -30,7 +30,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/downtown-musi
 [Original/Source Press Release](https://newsdirect.com/news/downtown-music-holdings-dmh-completes-global-integration-supporting-over-4-million-artists-and-5-000-business-clients-in-150-countries-212931386)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/downtown-music-holdings-completes-global-integration-supporting-over-4-million-artists-and-5000-business-clients-in-150-countries/33cbbdb06569554da9842da4a94d3e22) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/downtown-music-holdings-unifies-global-operations-under-downtown-music-brand)
+ 
 
 
 

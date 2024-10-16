@@ -7,7 +7,17 @@ FAIRFAX, VA, August 27, 2024 /24-7PressRelease/ -- Bixal is excited to announce 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513811/bixal-welcomes-malcolm-harden-as-new-senior-vice-president-of-consulting-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bixal-welcomes-malcolm-harden-as-sr-vice-president-of-consulting-services/3b545026478fe35131e8d8cb7a4112db) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bixal-appoints-malcolm-harden-as-senior-vice-president-of-consulting-services/20245970)
+
+Pickup - [advos.io](https://advos.io/en/bixal-appoints-malcolm-harden-as-senior-vice-president-of-consulting-services/20245970)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/bixal-appoints-malcolm-harden-as-senior-vice-president-of-consulting-services)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/malcolm-harden-joins-bixal-as-senior-vice-president-of-consulting-services/20245970)
+ 
 
 
 

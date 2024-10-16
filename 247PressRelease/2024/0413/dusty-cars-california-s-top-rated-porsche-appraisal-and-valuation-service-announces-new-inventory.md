@@ -7,7 +7,11 @@ PLEASANTON, CA, April 13, 2024 /24-7PressRelease/ -- Dusty Cars, California's to
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509926/dusty-cars-californias-top-rated-porsche-appraisal-and-valuation-service-announces-new-inventory)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dusty-cars-acquires-1974-porsche-911-coupe-for-sale/0c84ccb2c55e082a172b25ace506d897) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/13/dusty-cars-announces-new-inventory-of-rare-1974-porsche-911-coupe)
+ 
 
 
 

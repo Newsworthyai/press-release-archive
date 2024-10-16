@@ -8,7 +8,9 @@ MIAMI, FL, May 26, 2024 /24-7PressRelease/ -- First-time Nebraska author V.V. Ed
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511057/debut-novel-this-isnt-what-i-ordered-by-vv-edwards-offers-powerful-tale-of-survival-andresilience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/debut-novel-this-isn-t-what-i-ordered-delivers-message-of-resilience-and-hope/f3bad741a53be2713e130630a2702311) 
+
+ 
 
 
 

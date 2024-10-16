@@ -55,7 +55,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/agc-biologics
 [Original/Source Press Release](https://newsdirect.com/news/agc-biologics-and-bioconnection-partner-to-offer-new-end-to-end-biopharmaceutical-drug-substance-and-drug-product-development-and-manufacturing-offering-961424576)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/agc-biologics-and-bioconnection-announce-strategic-partnership/7fa6b44d1242de9cb435676f7748fdfe) 
+
+ 
 
 
 

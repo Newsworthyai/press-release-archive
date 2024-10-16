@@ -15,7 +15,11 @@ The intensive outpatient program at Depression Treatment in California adopts a 
 [Original/Source Press Release](https://newsworthy.ai/news/20231229953/depression-treatment-in-california-offers-effective-intensive-outpatient-program-for-adults-with-depression)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/personalized-outpatient-program-for-depression-treatment-in-california/6aefcd1e17526b6e54896cbb329759d6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/29/depression-treatment-in-california-offers-personalized-intensive-outpatient-program)
+ 
 
 
 

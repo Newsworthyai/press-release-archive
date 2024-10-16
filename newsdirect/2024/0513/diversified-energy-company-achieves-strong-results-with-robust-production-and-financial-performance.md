@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/diversified-e
 [Original/Source Press Release](https://newsdirect.com/news/diversified-energy-company-achieves-strong-results-with-robust-production-and-financial-performance-823449060)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/diversified-energy-achieves-strong-q1-results-with-robust-production-and-financial-performance/68911b5e74227c0668442228363c7d93) 
+
+ 
 
 
 

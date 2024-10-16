@@ -25,7 +25,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-class-3-ev-truck-receives-carb-certification-2/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-s-electric-truck-receives-carb-certification/b2fa15fb07ec0733830a8b65c83d0006) 
+
+ 
 
 
 

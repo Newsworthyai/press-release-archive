@@ -7,7 +7,9 @@ LACONIA, NH, October 04, 2024 /24-7PressRelease/ -- Rogue Space Systems is excit
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514940/rogue-space-systems-begins-work-under-first-delivery-orders-of-r2c2)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rogue-space-systems-supports-us-space-force-s-r2c2-program/0a103ab9b6055e55a09636c45f486c69) 
+
+ 
 
 
 

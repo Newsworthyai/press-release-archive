@@ -77,7 +77,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/utilities-sec
 [Original/Source Press Release](https://newsdirect.com/news/utilities-sector-etf-xlu-top-holdings-217970167)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xlu-top-holdings-provide-insights-into-utilities-sector-etf/9d2ffae1fead2388b6b49f38736b44a6) 
+
+ 
 
 
 

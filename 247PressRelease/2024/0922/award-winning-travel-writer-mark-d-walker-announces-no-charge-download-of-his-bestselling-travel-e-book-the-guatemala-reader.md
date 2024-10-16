@@ -7,7 +7,9 @@ WILMINGTON, NC, September 22, 2024 /24-7PressRelease/ -- Bestselling travel writ
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514559/award-winning-travel-writer-mark-d-walker-announces-no-charge-download-of-his-bestselling-travel-e-book-the-guatemala-reader)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-travel-writer-mark-d-walker-announces-free-download-of-the-guatemala-reader-extraordinary-lives-and-amazing-stories/8d8b32052233daeab809ba8974915a72) 
+
+ 
 
 
 

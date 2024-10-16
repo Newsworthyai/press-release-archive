@@ -25,7 +25,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/evonsys-launc
 [Original/Source Press Release](https://newsdirect.com/news/evonsys-launches-reg-cf-investment-opportunity-to-fuel-low-code-market-expansion-295606931)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/evonsys-launches-regulation-crowdfunding-investment-opportunity-in-low-code-market/8aefa49439c7f86686fbe7b50e421768) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/evonsys-introduces-reg-cf-investment-opportunity-to-propel-low-code-market-growth/20245524)
+
+Pickup - [advos.io](https://advos.io/en/evonsys-introduces-reg-cf-investment-to-propel-low-code-market-growth/20245524)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/evonsys-opens-reg-cf-investment-opportunity-targets-100m-revenue-in-low-code-market)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/evonsys-opens-reg-cf-investment-round-to-capitalize-on-3-6t-low-code-market)
+ 
 
 
 

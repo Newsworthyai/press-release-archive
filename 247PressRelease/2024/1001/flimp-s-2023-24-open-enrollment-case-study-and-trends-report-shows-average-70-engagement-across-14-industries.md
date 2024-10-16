@@ -7,7 +7,9 @@ BOSTON, MA, October 01, 2024 /24-7PressRelease/ -- Flimp, a leading provider of 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514827/flimps-2023-24-open-enrollment-case-study-and-trends-report-shows-average-70-engagement-across-14-industries)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/flimp-announces-70-average-engagement-rate-in-open-enrollment-campaigns/6372e9e34983a742966f5835282a0021) 
+
+ 
 
 
 

@@ -35,7 +35,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/nueboo-tape-u
 [Original/Source Press Release](https://newsdirect.com/news/nueboo-tape-unveils-a-game-changing-fashion-solution-for-women-474800726)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nueboo-tape-launches-game-changing-fashion-solution-for-women/6a00ace0d2388ca742ea7b4c8edb10a4) 
+
+
+Pickup - [advos.io](https://advos.io/en/nueboo-tape-revolutionizes-women-s-fashion-with-innovative-boob-tape/20244237)
+
+Pickup - [fishervista.com](https://fishervista.com/en/nueboo-tape-introduces-innovative-boob-tape-for-enhanced-fashion-flexibility/20244237)
+ 
 
 
 

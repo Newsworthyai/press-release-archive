@@ -25,7 +25,13 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-subsidiary-to-begin-production-of-all-new-class-4-commercial-truck-in-september/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-s-bollinger-motors-to-begin-production-of-b4-chassis-cab-ev-truck-in-september-2024/38342c86c71e50dc211c948bc3527450) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/mullen-s-subsidiary-bollinger-motors-set-to-launch-new-electric-commercial-truck-in-fall-2024)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mullen-subsidiary-bollinger-motors-set-to-launch-class-4-electric-truck-in-september-2024/20246209)
+ 
 
 
 

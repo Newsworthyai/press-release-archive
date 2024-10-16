@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/torque-metals
 [Original/Source Press Release](https://newsdirect.com/news/torque-metals-secures-strategic-tenement-package-in-wa-395325023)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/torque-metals-secures-strategic-tenement-package-in-wa/fdee5e83d5ca89c8054ca2b8b8e18901) 
+
+ 
 
 
 

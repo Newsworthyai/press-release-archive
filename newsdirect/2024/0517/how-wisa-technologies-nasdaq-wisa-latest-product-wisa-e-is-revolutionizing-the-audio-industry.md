@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-wisa-tech
 [Original/Source Press Release](https://newsdirect.com/news/how-wisa-technologies-nasdaq-wisa-latest-product-wisa-e-is-revolutionizing-the-audio-industry-435808740)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wisa-technologies-revolutionizes-audio-industry-with-wisa-e-launch/b938f99df98650f2d1251a2cd13d47a4) 
+
+ 
 
 
 

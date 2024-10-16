@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/hoag-health-s
 [Original/Source Press Release](https://newsdirect.com/news/hoag-health-system-selects-pathai-and-the-aisight-image-management-system-to-support-the-transition-to-digital-and-ai-enabled-pathology-751851189)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hoag-health-system-adopts-pathai-s-aisight-image-management-system-for-digital-pathology-transition/27dcf86aebeb33fcd1184fc9fb7ab75e) 
+
+ 
 
 
 

@@ -7,7 +7,17 @@ MINNEAPOLIS, MN, August 01, 2024 /24-7PressRelease/ -- Global Tax Network (GTN) 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512903/gtn-announces-retirement-of-jennifer-stein-managing-director)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-tax-network-managing-director-retires-after-13-years/5f24174b5c277ce27f57d994e2b22d0b) 
+
+
+Pickup - [advos.io](https://advos.io/en/gtn-announces-retirement-of-long-time-managing-director-jennifer-stein/20245415)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/global-tax-network-managing-director-jennifer-stein-to-retire-after-13-year-tenure)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gtn-announces-retirement-of-managing-director-jennifer-stein/20245415)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/global-tax-network-managing-director-jennifer-stein-set-to-retire-after-13-years-of-service)
+ 
 
 
 

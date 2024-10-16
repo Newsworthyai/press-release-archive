@@ -65,7 +65,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/tron-founder-
 [Original/Source Press Release](https://newsdirect.com/news/tron-founder-justin-sun-wins-landmark-case-in-the-peoples-court-of-china-936352034)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tron-dao-founder-justin-sun-wins-defamation-suit-in-landmark-court-victory/baa9247efd4acd7b8ea7d687a7ff9bc9) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/justin-sun-wins-defamation-case-against-chongqing-business-media-group-in-china/20244515)
+
+Pickup - [advos.io](https://advos.io/en/justin-sun-wins-defamation-case-against-chongqing-business-media-group-in-chinese-court/20244515)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tron-dao-founder-justin-sun-wins-defamation-suit-in-landmark-court-victory)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tron-dao-founder-justin-sun-wins-defamation-suit-in-landmark-court-victory)
+ 
 
 
 

@@ -67,7 +67,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/scrut-automat
 [Original/Source Press Release](https://newsdirect.com/news/scrut-automation-raises-10m-in-growth-capital-from-lightspeed-and-massmutual-ventures-to-accelerate-growth-in-north-america-239522860)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scrut-automation-raises-10m-in-growth-capital-to-expand-globally/bc8448bba5f2fdb2da14b5614c1b7355) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/scrut-automation-secures-10m-to-bolster-grc-platform-for-mid-market-companies)
+ 
 
 
 

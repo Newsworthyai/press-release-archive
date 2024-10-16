@@ -57,7 +57,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-company-d
 [Original/Source Press Release](https://newsdirect.com/news/the-company-driving-blockchain-adoption-in-spain-unknown-gravity-871492166)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unknown-gravity-revolutionizing-blockchain-technology-in-spain/aaacc55a0b12c2c3c99af4698c18f8aa) 
+
+ 
 
 
 

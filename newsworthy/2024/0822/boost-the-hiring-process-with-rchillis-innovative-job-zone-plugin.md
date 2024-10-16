@@ -43,7 +43,19 @@ Since 2010, RChilli has been enabling companies to hire better talent faster. It
 [Original/Source Press Release](https://newsworthy.ai/news/202408221244/boost-the-hiring-process-with-rchillis-innovative-job-zone-plugin)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-introduces-innovative-job-zone-plugin-for-streamlined-recruitment-process/f22ceddc7b451a62812a0734bdc5d3d6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/rchilli-launches-job-zone-plugin-to-revolutionize-recruitment-process)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-unveils-job-zone-plugin-to-revolutionize-recruitment-process/20245904)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rchilli-unveils-job-zone-plugin-to-revolutionize-recruitment-efficiency/20245904)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/rchilli-introduces-job-zone-plugin-to-revolutionize-recruitment-process/20245904)
+
+Pickup - [advos.io](https://advos.io/en/rchilli-unveils-ai-driven-job-zone-plugin-to-revolutionize-recruitment/20245904)
+ 
 
 
 

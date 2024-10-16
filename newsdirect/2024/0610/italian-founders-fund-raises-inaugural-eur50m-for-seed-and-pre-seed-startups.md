@@ -52,7 +52,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/italian-found
 [Original/Source Press Release](https://newsdirect.com/news/italian-founders-fund-raises-inaugural-eu50m-for-seed-and-pre-seed-startups-343771634)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/italian-founders-fund-launches-eur50m-fund-to-empower-italian-startups/c5f2ffc8d0fd88d7e56733148ab49c6c) 
+
+
+Pickup - [advos.io](https://advos.io/en/italian-founders-fund-raises-inaugural-eur50m-for-seed-and-pre-seed-startups/20243971)
+ 
 
 
 

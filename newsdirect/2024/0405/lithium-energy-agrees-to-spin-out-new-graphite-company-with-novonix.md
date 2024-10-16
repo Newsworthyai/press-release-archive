@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/lithium-energ
 [Original/Source Press Release](https://newsdirect.com/news/lithium-energy-agrees-to-spin-out-new-graphite-company-with-novonix-706014513)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lithium-energy-forms-axon-graphite-ltd-in-strategic-merger-with-novonix/fb9ebf9f967fcbe0ea44b2839f057b9f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/lithium-energy-and-novonix-join-forces-to-create-axon-graphite-ltd)
+ 
 
 
 

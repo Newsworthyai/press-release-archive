@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/red-capitals-
 [Original/Source Press Release](https://newsdirect.com/news/red-capitals-revamped-platform-outshines-competitors-in-the-fintech-savings-arena-641646207)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/red-capital-s-revamped-platform-outshines-competitors-in-the-fintech-savings-arena/ec01e16d32245a5225856e0a702ee52b) 
+
+ 
 
 
 

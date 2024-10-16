@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/na-editoriala
 [Original/Source Press Release](https://newsdirect.com/news/na-editorialatproactiveinvestors-com-502065999)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/europacific-metals-ceo-announces-major-breakthrough-in-miguel-vacas-mine-exploration/4c0ab1d7c2362245998a6becd4574a47) 
+
+ 
 
 
 

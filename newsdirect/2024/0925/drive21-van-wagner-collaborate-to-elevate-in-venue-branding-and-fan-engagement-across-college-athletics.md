@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/drive21-van-w
 [Original/Source Press Release](https://newsdirect.com/news/drive21-van-wagner-collaborate-to-elevate-in-venue-branding-and-fan-engagement-across-college-athletics-522181443)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/drive21-and-van-wagner-collaborate-to-elevate-in-venue-branding-and-fan-engagement-across-college-athletics/00e03c27e6e4d33629806e4bb58cf2eb) 
+
+ 
 
 
 

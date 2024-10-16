@@ -37,7 +37,9 @@ Oar, Michael A, et al. “Thermography of Cannabis Extract Vaporization Cartridg
 [Original/Source Press Release](https://newsworthy.ai/news/202401301043/cannabis-cartridges-industry-standard-soon-to-be-replaced-by-superior-quartz-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lab-analysis-reveals-quartz-cartridges-produce-fewer-harmful-constituents-than-ceramic/8831dc1636dce0f883b21b5a50c7869f) 
+
+ 
 
 
 

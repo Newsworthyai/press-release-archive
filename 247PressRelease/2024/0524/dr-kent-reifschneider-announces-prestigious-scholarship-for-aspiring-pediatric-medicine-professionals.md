@@ -7,7 +7,9 @@ NORFOLK, VA, May 24, 2024 /24-7PressRelease/ -- Dr. Kent Reifschneider, an estee
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511161/dr-kent-reifschneider-announces-prestigious-scholarship-for-aspiring-pediatric-medicine-professionals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-kent-reifschneider-announces-scholarship-for-pediatric-medicine/b544ca9326a44a0669696f65c4ec0abe) 
+
+ 
 
 
 

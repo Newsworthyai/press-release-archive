@@ -48,7 +48,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/teccryptos-global-expansion-opening-new-frontiers-in-cloud-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teccrypto-com-expands-global-operations-with-new-data-centres-promising-unprecedented-access-and-efficiency/48699650e5cb46695fe2e5422a4fe78f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/12/teccrypto-expands-global-footprint-with-new-data-centers)
+ 
 
 
 

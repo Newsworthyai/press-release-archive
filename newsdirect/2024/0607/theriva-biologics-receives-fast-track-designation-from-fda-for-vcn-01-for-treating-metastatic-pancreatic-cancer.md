@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/theriva-biolo
 [Original/Source Press Release](https://newsdirect.com/news/theriva-biologics-receives-fast-track-designation-from-fda-for-vcn-01-for-treating-metastatic-pancreatic-cancer-427600911)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/theriva-biologics-receives-fda-fast-track-designation-for-vcn-01-in-pancreatic-cancer-treatment/acb19ee3214a10c7c0498ea7b5e4b7a4) 
+
+ 
 
 
 

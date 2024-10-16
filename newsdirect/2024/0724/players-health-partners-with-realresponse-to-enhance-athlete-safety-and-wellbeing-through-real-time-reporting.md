@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/players-healt
 [Original/Source Press Release](https://newsdirect.com/news/players-health-partners-with-realresponse-to-enhance-athlete-safety-and-wellbeing-through-real-time-reporting-212415874)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/players-health-partners-with-realresponse-to-enhance-athlete-safety-and-wellbeing-through-real-time-reporting/bccf08c334d6d70d590e9c454f2f2f2b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/players-health-and-realresponse-join-forces-to-revolutionize-athlete-safety-in-youth-sports)
+
+Pickup - [fishervista.com](https://fishervista.com/en/players-health-and-realresponse-partner-to-enhance-athlete-safety-and-wellbeing/20245212)
+
+Pickup - [advos.io](https://advos.io/en/players-health-and-realresponse-join-forces-to-boost-athlete-safety/20245212)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/players-health-and-realresponse-join-forces-to-revolutionize-athlete-safety-in-youth-sports)
+ 
 
 
 

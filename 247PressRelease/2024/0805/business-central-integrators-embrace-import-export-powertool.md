@@ -7,7 +7,17 @@ EDMONTON, AB, August 05, 2024 /24-7PressRelease/ -- Insight Works is pleased to 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512966/business-central-integrators-embrace-import-export-powertool)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/insight-works-celebrates-one-year-anniversary-of-game-changing-import-export-powertool/1f27a37a965418ec1859fa3f2b0e1b14) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/insight-works-import-export-powertool-transforms-business-central-data-management)
+
+Pickup - [fishervista.com](https://fishervista.com/en/insight-works-celebrates-success-of-import-export-powertool-for-dynamics-365-business-central/20245482)
+
+Pickup - [advos.io](https://advos.io/en/insight-works-celebrates-first-anniversary-of-import-export-powertool-for-dynamics-365-business-central/20245482)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/import-export-powertool-for-dynamics-365-business-central-marks-first-anniversary-with-stellar-reviews)
+ 
 
 
 

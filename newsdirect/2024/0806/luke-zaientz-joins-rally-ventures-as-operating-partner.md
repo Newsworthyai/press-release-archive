@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/luke-zaientz-
 [Original/Source Press Release](https://newsdirect.com/news/luke-zaientz-joins-rally-ventures-as-operating-partner-670745874)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rally-ventures-welcomes-luke-zaientz-as-operating-partner/58eab9c36837547b85f575cf20a94ce4) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/luke-zaientz-joins-rally-ventures-as-operating-partner/20245527)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/rally-ventures-strengthens-team-with-addition-of-experienced-entrepreneur-luke-zaientz-as-operating-partner)
+
+Pickup - [advos.io](https://advos.io/en/luke-zaientz-joins-rally-ventures-as-operating-partner/20245527)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/rally-ventures-appoints-luke-zaientz-as-operating-partner-to-boost-portfolio-company-growth)
+ 
 
 
 

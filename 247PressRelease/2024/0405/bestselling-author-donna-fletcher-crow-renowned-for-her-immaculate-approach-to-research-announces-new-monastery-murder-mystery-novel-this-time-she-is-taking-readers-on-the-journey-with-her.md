@@ -7,7 +7,11 @@ WILMINGTON, NC, April 05, 2024 /24-7PressRelease/ -- Award-winning author Donna 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509786/bestselling-author-donna-fletcher-crow-renowned-for-her-immaculate-approach-to-research-announces-new-monastery-murder-mystery-novel-this-time-she-is-taking-readers-on-the-journey-with-her)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/award-winning-author-donna-fletcher-crow-announces-new-novel-in-monastery-mystery-series/77d619802d786d2840de01fa4f5cd81b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/bestselling-author-invites-readers-on-literary-journey)
+ 
 
 
 

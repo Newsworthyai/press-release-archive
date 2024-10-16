@@ -77,7 +77,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/wellness-and-
 [Original/Source Press Release](https://newsdirect.com/news/wellness-and-dietary-supplement-company-safety-shot-reports-bringing-worlds-first-patented-rapid-blood-alcohol-detox-solution-to-market-795150189)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/safety-shot-launches-groundbreaking-beverage-to-alleviate-alcohol-effects/88e0a585e298a53d43bf61e2bb342d7d) 
+
+
+Pickup - [advos.io](https://advos.io/en/safety-shot-launches-world-s-first-patented-rapid-blood-alcohol-detox-solution/20244251)
+
+Pickup - [fishervista.com](https://fishervista.com/en/safety-shot-introduces-world-s-first-patented-rapid-blood-alcohol-detox-solution/20244251)
+ 
 
 
 

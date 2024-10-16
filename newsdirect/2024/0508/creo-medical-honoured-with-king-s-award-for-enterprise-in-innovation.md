@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/creo-medical-
 [Original/Source Press Release](https://newsdirect.com/news/creo-medical-honoured-with-kings-award-for-enterprise-in-innovation-997307048)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/creo-medical-receives-king-s-award-for-innovation-in-healthcare-technology/61a4186e19fc682e07e11b6807f45224) 
+
+ 
 
 
 

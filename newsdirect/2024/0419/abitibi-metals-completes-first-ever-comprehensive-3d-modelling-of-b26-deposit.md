@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/abitibi-metal
 [Original/Source Press Release](https://newsdirect.com/news/abitibi-metals-completes-first-ever-comprehensive-3d-modelling-of-b26-deposit-130037504)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/abitibi-metals-unveils-3d-model-for-b26-polymetallic-deposit-in-quebec/5eee87a0a87935a4f5fd3288ba40c790) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/abitibi-metals-completes-first-ever-comprehensive-3d-modelling-of-b26-deposit)
+ 
 
 
 

@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/quantum-bioph
 [Original/Source Press Release](https://newsdirect.com/news/quantum-biopharma-ltd-nasdaq-qntm-pioneering-alcohol-metabolism-support-with-unbuzzd-914254463)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-biopharma-ltd-nasdaq-qntm-cse-qntm-expands-market-reach-with-unbuzzd-s-master-distribution-agreement/f9b8e6f7ddd0eb29e8fccb66625c721d) 
+
+ 
 
 
 

@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/unusual-machi
 [Original/Source Press Release](https://newsdirect.com/news/unusual-machines-ceo-discusses-growth-and-strategic-plans-post-ipo-828057748)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unusual-machines-ceo-talks-growth-and-strategic-plans-post-ipo/645e160692d02911cc39972aa9fc1c83) 
+
+ 
 
 
 

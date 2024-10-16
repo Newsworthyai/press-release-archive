@@ -39,7 +39,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/feedspot-reco
 [Original/Source Press Release](https://newsdirect.com/news/feedspot-recognizes-take-pride-in-retirement-podcast-as-a-leading-lgbtq-voice-for-pride-month-2024-625490775)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/take-pride-in-retirement-podcast-recognized-as-leading-lgbtq-voice/88f9142fc193efb4c89402d9de1cc425) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/take-pride-in-retirement-podcast-honored-as-leading-lgbtq-resource-for-pride-month-2024/20244508)
+
+Pickup - [advos.io](https://advos.io/en/take-pride-in-retirement-podcast-earns-top-recognition-from-feedspot-for-pride-month-2024/20244508)
+ 
 
 
 

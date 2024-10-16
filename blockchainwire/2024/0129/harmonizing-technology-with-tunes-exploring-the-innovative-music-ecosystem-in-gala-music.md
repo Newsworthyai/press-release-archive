@@ -63,7 +63,11 @@ Coinstore Social MediaTwitter | Discord | Facebook | Instagram | Youtube
 [Original/Source Press Release](https://blockchainwire.io/press-release/harmonizing-technology-with-tunes-exploring-the-innovative-music-ecosystem-in-gala-music)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gala-music-revolutionizing-the-music-industry-with-blockchain-technology/044eff5086fbf55adafbb743fb0f8eaa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/29/gala-music-harmonizing-blockchain-and-tunes-for-a-revolutionary-music-experience)
+ 
 
 
 

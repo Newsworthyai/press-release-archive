@@ -31,7 +31,11 @@ Curbio is the leading general contractor working with real estate agents to get 
 [Original/Source Press Release](https://newsworthy.ai/news/20231208905/chicago-homeowners-life-changing-journey-with-curbio)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/curbio-helps-homeowner-sell-outdated-home-with-modern-pre-listing-improvements/adeb3550242cebab11803d0ac0939c5b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/08/curbio-eases-homeowner-s-burden-during-difficult-time)
+ 
 
 
 

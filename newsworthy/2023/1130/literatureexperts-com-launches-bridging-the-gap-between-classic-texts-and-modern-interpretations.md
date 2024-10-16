@@ -23,7 +23,11 @@ To immerse oneself in the literary universe, visit www.LiteratureExperts.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231130839/literatureexperts-com-launches-bridging-the-gap-between-classic-texts-and-modern-interpretations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-platform-literatureexperts-com-unveils-a-world-of-literary-arts/d0bb1bdefe206ef99d86026ce0ab6312) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/30/literatureexperts-com-bridges-classic-texts-and-modern-interpretations)
+ 
 
 
 

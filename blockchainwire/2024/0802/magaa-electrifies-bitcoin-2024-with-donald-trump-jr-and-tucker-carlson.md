@@ -37,7 +37,17 @@ Disclaimer: The information provided in this press release is for informational 
 [Original/Source Press Release](https://blockchainwire.io/press-release/magaa-electrifies-bitcoin-2024-with-donald-trump-jr-and-tucker-carlson)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/politifi-memecoin-magaa-gains-momentum-after-successful-event-with-donald-trump-jr-and-tucker-carlson/0afe365dfc2781abe0acc11b481239c6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/memecoin-magaa-hosts-high-profile-event-at-bitcoin-2024-with-trump-jr-and-carlson)
+
+Pickup - [fishervista.com](https://fishervista.com/en/magaa-shines-at-bitcoin-2024-conference-with-donald-trump-jr-and-tucker-carlson/20245470)
+
+Pickup - [advos.io](https://advos.io/en/magaa-gains-momentum-after-bitcoin-2024-event-featuring-donald-trump-jr-and-tucker-carlson/20245470)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cryptocurrency-magaa-hosts-high-profile-event-at-bitcoin-2024-conference)
+ 
 
 
 

@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/royal-road-mi
 [Original/Source Press Release](https://newsdirect.com/news/royal-road-minerals-advances-exploration-at-jabal-sahabiyah-project-in-saudi-arabia-144885209)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/royal-road-minerals-advances-exploration-at-jabal-sahabiyah-project-in-saudi-arabia/1c5e7b141dd71df73bcef2a06ef6b9c3) 
+
+ 
 
 
 

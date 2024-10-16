@@ -7,7 +7,15 @@ RUTHERFORDTON, NC, July 04, 2024 /24-7PressRelease/ -- Jordan Tye is the 2023 wi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512279/announcing-our-2023-farmer-morris-law-pllc-volunteer-service-scholarship-winner)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jordan-tye-wins-farmer-morris-law-pllc-volunteer-service-scholarship/e310d2b8482486a16d65c90c5dda6b0d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/jordan-tye-awarded-2023-farmer-morris-law-pllc-volunteer-service-scholarship/20244705)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/04/jordan-tye-awarded-2023-farmer-morris-law-pllc-volunteer-service-scholarship)
+
+Pickup - [advos.io](https://advos.io/en/jordan-tye-awarded-2023-farmer-morris-law-pllc-volunteer-service-scholarship/20244705)
+ 
 
 
 

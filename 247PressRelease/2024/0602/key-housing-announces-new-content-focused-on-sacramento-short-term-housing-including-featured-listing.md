@@ -7,7 +7,11 @@ SACRAMENTO, CA, June 02, 2024 /24-7PressRelease/ -- Key Housing, a top provider 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511366/key-housing-announces-new-content-focused-on-sacramento-short-term-housing-including-featured-listing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/key-housing-announces-new-content-for-june-2024-featuring-the-mansion-in-sacramento/721b8457bc19b151068da7ad4d723caa) 
+
+
+Pickup - [advos.io](https://advos.io/en/key-housing-unveils-new-content-highlighting-sacramento-short-term-housing-options/20243604)
+ 
 
 
 

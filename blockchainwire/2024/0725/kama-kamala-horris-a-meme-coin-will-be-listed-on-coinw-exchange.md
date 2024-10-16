@@ -33,7 +33,21 @@ About CoinW
 [Original/Source Press Release](https://blockchainwire.io/press-release/kama-kamala-horris-a-meme-coin-will-be-listed-on-coinw-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-list-kama-a-meme-coin-inspired-by-kamala-harris-on-meme-zone/484350e5b47489527641f946a4a0aab9) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-to-list-kama-a-meme-coin-inspired-by-kamala-harris-on-meme-zone)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-to-list-kama-a-meme-coin-inspired-by-kamala-harris-on-meme-zone)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/kama-meme-coin-inspired-by-kamala-harris-to-list-on-coinw-exchange)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kama-meme-coin-inspired-by-kamala-harris-to-be-listed-on-coinw-exchange/20245262)
+
+Pickup - [advos.io](https://advos.io/en/kama-meme-coin-to-be-listed-on-coinw-exchange/20245262)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/coinw-exchange-to-list-kama-a-meme-coin-inspired-by-kamala-harris)
+ 
 
 
 

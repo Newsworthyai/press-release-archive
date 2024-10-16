@@ -63,7 +63,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/pipfarm-enter
 [Original/Source Press Release](https://newsdirect.com/news/pipfarm-enters-trader-evaluation-and-funding-niche-with-experience-focused-program-735307754)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pipfarm-launches-as-a-solution-to-recent-trading-disruptions/92eca59bf8c2818e77ebfb71b0997333) 
+
+ 
 
 
 

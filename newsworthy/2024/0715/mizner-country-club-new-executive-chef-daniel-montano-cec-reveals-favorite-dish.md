@@ -60,7 +60,15 @@ Mizner Country Club is proudly recognized as a Platinum Club of America and Dist
 [Original/Source Press Release](https://newsworthy.ai/news/202407151179/mizner-country-club-new-executive-chef-daniel-montano-cec-reveals-favorite-dish)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/celebrated-chef-daniel-montano-adds-fresh-perspective-to-mizner-country-clubs-culinary-landscape-with-pozole-verde-recipe/8598c8e6dbc4044b9cdbff2024693b40) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/mizner-country-club-s-new-executive-chef-shares-favorite-pozole-verde-recipe)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mizner-country-club-welcomes-executive-chef-daniel-montano/20244960)
+
+Pickup - [advos.io](https://advos.io/en/mizner-country-club-welcomes-new-executive-chef-daniel-montano/20244960)
+ 
 
 
 

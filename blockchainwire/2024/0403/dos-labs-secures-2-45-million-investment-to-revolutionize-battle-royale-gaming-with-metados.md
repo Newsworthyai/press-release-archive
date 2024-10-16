@@ -43,7 +43,11 @@ Email: press@metados.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/dos-labs-secures-245-million-investment-to-revolutionize-battle-royale-gaming-with-metados)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dos-labs-raises-2-45m-for-metados-game-launch/6203a6ccbd7b63e029c7cbfcc1e4ee91) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/dos-labs-secures-2-45m-to-revolutionize-battle-royale-gaming-with-metados)
+ 
 
 
 

@@ -7,7 +7,19 @@ ROCKVILLE, MD, September 10, 2024 /24-7PressRelease/ -- PNI•HCM (PNI) is thril
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514153/pnihcm-partners-with-the-encompass-group-to-add-talent-acquisition-to-their-payroll-benefits-employee-engagement-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pni-hcm-partners-with-the-encompass-group-to-expand-talent-acquisition-services/bdaa1b5654e0206728e9a0fe9448f2b0) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/pni-hcm-expands-services-with-the-encompass-group-partnership-adding-talent-acquisition-to-hr-solutions/20246638)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/pni-hcm-expands-services-with-the-encompass-group-partnership-to-enhance-talent-acquisition)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pni-hcm-partners-with-the-encompass-group-to-elevate-talent-acquisition-services/20246638)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/pni-hcm-expands-services-with-the-encompass-group-partnership-offering-comprehensive-talent-acquisition-solutions/20246638)
+
+Pickup - [advos.io](https://advos.io/en/pni-hcm-partners-with-the-encompass-group-to-enhance-talent-acquisition-services/20246638)
+ 
 
 
 

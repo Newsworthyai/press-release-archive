@@ -21,7 +21,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/openbet-score
 [Original/Source Press Release](https://newsdirect.com/news/openbet-scores-big-with-euro-2024-over-140-million-bets-processed-131321430)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/openbet-processes-over-140-million-bets-during-uefa-euro-2024/0ac1a02147afd305c6e84d86af501a4f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/openbet-processes-over-140-million-bets-during-uefa-euro-2024/20245155)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/openbet-processes-over-140-million-bets-during-uefa-euro-2024)
+
+Pickup - [advos.io](https://advos.io/en/openbet-processes-over-140-million-bets-during-euro-2024-showcasing-technological-prowess/20245155)
+ 
 
 
 

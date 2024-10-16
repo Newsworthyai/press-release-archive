@@ -37,7 +37,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/mexc-learn-relaunch-attracts-massive-audience-futures-trading-becomes-most-popular-topic)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mexc-relaunches-educational-portal-mexc-learn-with-over-300-articles-in-eight-languages/12967c52d5f26bfbc5b7f1631c7d5b3d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/mexc-learn-relaunch-sees-surge-in-popularity-futures-trading-education-takes-center-stage)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mexc-relaunches-educational-portal-futures-trading-gains-prominence/20245736)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mexc-learn-relaunch-sees-surge-in-user-engagement-futures-trading-education-takes-center-stage/20245736)
+
+Pickup - [advos.io](https://advos.io/en/mexc-relaunches-educational-portal-futures-trading-gains-popularity/20245736)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/mexc-relaunches-educational-portal-mexc-learn-with-over-300-articles-in-eight-languages)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/mexc-relaunches-educational-portal-mexc-learn-with-over-300-articles-in-eight-languages)
+ 
 
 
 

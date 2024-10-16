@@ -7,7 +7,11 @@ LOS ANGELES, CA, April 18, 2024 /24-7PressRelease/ -- Recently, Medriva reported
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510124/regain-health-from-chronic-prostatitis-diuretic-and-anti-inflammatory-pill-solves-your-worries)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-dr-arnold-system-offers-hope-for-chronic-prostatitis-treatment/e31e9f5bec6a0fbdae0a53e52bdcc677) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/regain-health-from-chronic-prostatitis-diuretic-and-anti-inflammatory-pill-offers-new-hope)
+ 
 
 
 

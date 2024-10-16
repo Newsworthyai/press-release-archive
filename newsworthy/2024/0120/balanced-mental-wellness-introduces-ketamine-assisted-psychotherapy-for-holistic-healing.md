@@ -13,7 +13,9 @@ Integrating indigenous practices with psychedelic medicines, Balanced Mental Wel
 [Original/Source Press Release](https://newsworthy.ai/news/202401201000/balanced-mental-wellness-introduces-ketamine-assisted-psychotherapy-for-holistic-healing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/denver-s-balanced-mental-wellness-introduces-ketamine-assisted-psychotherapy-for-mental-health-treatment/97e45f650627a055380fe776f5883b93) 
+
+ 
 
 
 

@@ -27,7 +27,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/copper-proper
 [Original/Source Press Release](https://newsdirect.com/news/copper-property-ctl-pass-through-trust-issues-monthly-reporting-package-for-august-2024-595693731)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/copper-property-ctl-trust-issues-monthly-reporting-package-for-august-2024/5f49c1437068766fd834b29db21353f7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/copper-property-ctl-pass-through-trust-announces-7-77-million-distribution-for-august-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/copper-property-ctl-pass-through-trust-announces-7-77-million-distribution-for-august-2024/20246577)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/copper-property-ctl-pass-through-trust-announces-7-77-million-distribution-for-august-2024/20246577)
+
+Pickup - [advos.io](https://advos.io/en/copper-property-ctl-pass-through-trust-announces-7-77-million-distribution-for-august-2024/20246577)
+ 
 
 
 

@@ -17,7 +17,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/flynn-gold-di
 [Original/Source Press Release](https://newsdirect.com/news/flynn-gold-discovers-significant-high-grade-gold-at-link-zone-809921962)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/flynn-gold-discovers-high-grade-gold-at-link-zone-prospect/8982296908f96efa500ac675b0ced4c7) 
+
+ 
 
 
 

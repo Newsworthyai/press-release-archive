@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/unos-applauds
 [Original/Source Press Release](https://newsdirect.com/news/unos-applauds-passage-of-faa-reauthorization-bill-253190234)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unos-applauds-passage-of-faa-reauthorization-bill-to-enhance-organ-transportation/acbe72929e70bbfcde00feb704220b19) 
+
+ 
 
 
 

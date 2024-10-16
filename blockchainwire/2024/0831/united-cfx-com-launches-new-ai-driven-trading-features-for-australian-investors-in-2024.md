@@ -35,7 +35,21 @@ For more details, visit United-CFX.com or contact our customer support team for 
 [Original/Source Press Release](https://blockchainwire.io/press-release/united-cfxcom-launches-new-ai-driven-trading-features-for-australian-investors-in-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/united-cfx-com-launches-game-changing-ai-features-for-australian-traders/4c74d38b1c05894a948453b09b63fc26) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/31/united-cfx-com-introduces-advanced-ai-driven-trading-tools-for-australian-investors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/united-cfx-com-unveils-ai-driven-trading-features-tailored-for-australian-investors/20246433)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/united-cfx-com-unveils-ai-powered-trading-tools-for-australian-investors/20246433)
+
+Pickup - [advos.io](https://advos.io/en/united-cfx-com-introduces-ai-driven-trading-tools-for-australian-investors/20246433)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/united-cfx-com-launches-game-changing-ai-features-for-australian-traders)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/united-cfx-com-launches-game-changing-ai-features-for-australian-traders)
+ 
 
 
 

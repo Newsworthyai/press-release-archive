@@ -36,7 +36,9 @@ You can learn more about ReadyCorp and stay up-to-date with its developments on 
 [Original/Source Press Release](https://blockchainwire.io/press-release/readycorp-introduces-expert-consultation-services-for-companies-eyeing-the-argentinian-crypto-market)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/readycorp-offers-expert-regulatory-and-compliance-support-for-businesses-entering-argentina-s-crypto-sector/36c791ff550ab2cf87f5356199fd88ab) 
+
+ 
 
 
 

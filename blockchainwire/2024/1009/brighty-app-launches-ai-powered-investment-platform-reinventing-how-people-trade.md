@@ -41,7 +41,9 @@ LinkedIn | Instagram | X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/brighty-app-launches-ai-powered-investment-platform-reinventing-how-people-trade)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brighty-app-introduces-ai-powered-investment-platform-to-revolutionize-asset-management/97cd32f64053cfcbb5dacbd86bb4b3b5) 
+
+ 
 
 
 

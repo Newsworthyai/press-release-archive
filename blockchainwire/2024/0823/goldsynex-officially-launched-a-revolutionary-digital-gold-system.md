@@ -54,7 +54,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/goldsynex-officially-launched-a-revolutionary-digital-gold-system)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/goldsynex-launches-revolutionary-blockchain-based-digital-gold-system/c218135a8375bb87bcf02ea0be28a2b9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/23/goldsynex-launches-revolutionary-blockchain-based-digital-gold-trading-platform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/goldsynex-launches-blockchain-based-digital-gold-system/20245926)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/goldsynex-launches-blockchain-based-digital-gold-trading-platform/20245926)
+
+Pickup - [advos.io](https://advos.io/en/goldsynex-launches-blockchain-based-digital-gold-system/20245926)
+ 
 
 
 

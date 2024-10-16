@@ -39,7 +39,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/zingly-ai-exp
 [Original/Source Press Release](https://newsdirect.com/news/zingly-ai-expands-leadership-team-with-new-cmo-and-cro-986779020)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zingly-ai-expands-leadership-team-with-new-cmo-and-cro/7e7738c8e25d9f669845d2640a5d77c2) 
+
+
+Pickup - [advos.io](https://advos.io/en/zingly-ai-strengthens-leadership-with-new-cmo-and-cro-appointments/20244889)
+
+Pickup - [fishervista.com](https://fishervista.com/en/zingly-ai-expands-leadership-team-with-strategic-appointments/20244889)
+
+Pickup - [citybuzz.co](https://citybuzz.co/zingly-ai-bolsters-executive-team-with-new-cmo-and-cro-appointments)
+ 
 
 
 

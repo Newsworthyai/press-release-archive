@@ -63,7 +63,17 @@ Contact: [business@coralapp.network](mailto:business@coralapp.network)
 [Original/Source Press Release](https://blockchainwire.io/press-release/coralapp-incubated-by-binance-labs-set-to-launch-first-ai-driven-flagship-phone-for-web3)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coralapp-revolutionizes-digital-interaction-with-the-coral-phone-and-ai-driven-features/41a8c34d3fc85fb7b8dadb0ca4df3b88) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/coralapp-unveils-ai-driven-coral-phone-to-revolutionize-web3-experience/20244459)
+
+Pickup - [advos.io](https://advos.io/en/coralapp-unveils-ai-driven-smartphone-for-web3-ecosystem/20244459)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coralapp-revolutionizes-digital-interaction-with-the-coral-phone-and-ai-driven-features)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coralapp-revolutionizes-digital-interaction-with-the-coral-phone-and-ai-driven-features)
+ 
 
 
 

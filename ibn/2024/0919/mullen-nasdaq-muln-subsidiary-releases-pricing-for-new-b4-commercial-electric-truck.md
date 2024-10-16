@@ -25,7 +25,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, a
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-subsidiary-releases-pricing-for-new-b4-commercial-electric-truck/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-announces-pricing-for-2025-bollinger-b4-chassis-cab/5c2e3e03020463fb402071c6b0a8d5dd) 
+
+ 
 
 
 

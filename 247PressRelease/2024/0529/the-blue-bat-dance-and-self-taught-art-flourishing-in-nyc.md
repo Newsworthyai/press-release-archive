@@ -7,7 +7,9 @@ BRONX, NY, May 29, 2024 /24-7PressRelease/ -- Elisa Huberman—an incredible art
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511228/the-blue-bat-dance-and-self-taught-art-flourishing-in-nyc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/incredible-artist-elisa-huberman-releases-masterpiece-the-blue-bat-dance-on-amazon-kdp/e34bcdd6b334ad119f49dbd8e503fab9) 
+
+ 
 
 
 

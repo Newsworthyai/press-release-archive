@@ -29,7 +29,17 @@ info@ecochem.us | 1-614-764-3835 | www.hpcdfuel.com
 [Original/Source Press Release](https://www.newmediawire.com/news/cleveland-metropolitan-school-testing-validates-over-8-fuel-savings-using-ecochem-s-high-performance-clean-diesel-fuel-and-delivers-250-000-in-annual-savings-7075999)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cmsd-saves-over-250000-annually-with-ecochem-s-hpcd-fuel/e03fae8b93eed1345a5a5f2280829c5f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/cleveland-metropolitan-school-district-achieves-significant-fuel-savings-and-emissions-reduction-with-ecochem-s-clean-diesel)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cleveland-metropolitan-school-district-achieves-significant-cost-and-environmental-benefits-with-ecochem-s-high-performance-clean-diesel-fuel/20246515)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/cleveland-school-district-achieves-250000-annual-savings-with-ecochem-s-clean-diesel-fuel/20246515)
+
+Pickup - [advos.io](https://advos.io/en/cleveland-school-district-achieves-significant-savings-and-cleaner-air-with-ecochem-s-high-performance-clean-diesel/20246515)
+ 
 
 
 

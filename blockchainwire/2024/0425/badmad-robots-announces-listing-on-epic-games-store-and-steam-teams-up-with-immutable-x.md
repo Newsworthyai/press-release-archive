@@ -33,7 +33,9 @@ You can learn more about BADMAD ROBOTS at these links: Website | X (Twitter) | Y
 [Original/Source Press Release](https://blockchainwire.io/press-release/badmad-robots-announces-listing-on-epic-games-store-and-steam-teams-up-with-immutable-x)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/badmad-robots-listed-on-epic-games-store-and-steam-secures-exclusive-partnership-with-immutable-x/245bb7903491ffb493430f13136c0280) 
+
+ 
 
 
 

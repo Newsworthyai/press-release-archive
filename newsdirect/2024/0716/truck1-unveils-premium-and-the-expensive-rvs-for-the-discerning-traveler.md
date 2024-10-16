@@ -55,7 +55,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/truck1-unveil
 [Original/Source Press Release](https://newsdirect.com/news/truck1-unveils-premium-and-the-expensive-rvs-for-the-discerning-traveler-575044515)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/truck1-redefines-luxury-with-most-expensive-rv-models/4a025a132d66fdb8bb472813de599d71) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/luxury-on-wheels-truck1-showcases-elite-rvs-for-high-end-travelers)
+
+Pickup - [fishervista.com](https://fishervista.com/en/truck1-unveils-luxurious-and-expensive-rvs-for-elite-travelers/20244987)
+
+Pickup - [advos.io](https://advos.io/en/truck1-showcases-ultra-luxury-rvs-for-elite-travelers/20244987)
+ 
 
 
 

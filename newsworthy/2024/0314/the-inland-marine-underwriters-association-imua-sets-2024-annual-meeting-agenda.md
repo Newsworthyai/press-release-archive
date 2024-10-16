@@ -40,7 +40,11 @@ For more information on the Annual Meeting, visit IMUA's website, www.imua.org.
 [Original/Source Press Release](https://newsworthy.ai/news/202403141117/the-inland-marine-underwriters-association-imua-sets-2024-annual-meeting-agenda)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/imua-announces-93rd-annual-meeting-educational-symposium-agenda/568e27a81f78ab0e7838559b380ce5be) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/imua-unveils-agenda-for-93rd-annual-meeting)
+ 
 
 
 

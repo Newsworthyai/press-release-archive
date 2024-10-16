@@ -7,7 +7,15 @@ MESA, AZ, July 11, 2024 /24-7PressRelease/ -- Longtree, a leading healthcare con
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512451/longtree-launches-keynote-speaker-engagement-programs-publishes-certification-and-operations-manual-for-assisted-living-administrators)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/longtree-launches-keynote-speaker-engagement-programs-and-assisted-living-administrator-manual/ea94c797558d067ed0ff7958e800aa1a) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/longtree-launches-keynote-speaker-programs-and-publishes-assisted-living-administrator-manual/20244862)
+
+Pickup - [citybuzz.co](https://citybuzz.co/longtree-launches-keynote-speaker-programs-and-publishes-assisted-living-administrator-manual)
+
+Pickup - [advos.io](https://advos.io/en/longtree-introduces-keynote-speaker-programs-and-certification-manual-for-assisted-living-administrators/20244862)
+ 
 
 
 

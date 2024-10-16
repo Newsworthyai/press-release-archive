@@ -188,7 +188,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-anno
 [Original/Source Press Release](https://newsdirect.com/news/tron-dao-announces-hackatron-season-6-winners-and-season-7-preview-742186952)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tron-dao-announces-hackatron-season-6-winners-and-season-7-preview/4c55346c447c2ee9d6bf2e558138d8ec) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/tron-dao-announces-hackatron-season-6-winners-and-previews-season-7/20244761)
+
+Pickup - [advos.io](https://advos.io/en/tron-dao-announces-hackatron-season-6-winners-and-previews-season-7/20244761)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/tron-dao-concludes-hackatron-season-6-with-650000-in-prizes-announces-season-7)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tron-dao-announces-hackatron-season-6-winners-and-season-7-preview)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tron-dao-announces-hackatron-season-6-winners-and-season-7-preview)
+ 
 
 
 

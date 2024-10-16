@@ -7,7 +7,9 @@ LOS ANGELES, CA, May 10, 2024 /24-7PressRelease/ -- Veteran photojournalist Patr
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510787/patrick-o-donnell-honored-with-lifetime-achievement-awards-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/veteran-photojournalist-patrick-o-donnell-receives-lifetime-achievement-award/fc998cedee615bd26af8594d6518e7b6) 
+
+ 
 
 
 

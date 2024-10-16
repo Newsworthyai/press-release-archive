@@ -39,7 +39,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/voesh-new-yor
 [Original/Source Press Release](https://newsdirect.com/news/voesh-new-york-launches-new-28-oz-vegan-hand-and-body-creme-collection-912577457)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/voesh-new-york-launches-new-28-oz-vegan-hand-body-creme-collection/f7fff40e33a4731ffdba9ea78330143d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/voesh-new-york-unveils-larger-eco-friendly-vegan-hand-body-creme-collection-for-salons)
+
+Pickup - [fishervista.com](https://fishervista.com/en/voesh-new-york-introduces-28-oz-vegan-hand-body-creme-collection/20246589)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/voesh-new-york-introduces-larger-size-vegan-hand-body-cremes-for-salons/20246589)
+
+Pickup - [advos.io](https://advos.io/en/voesh-new-york-introduces-28-oz-vegan-hand-body-creme-collection/20246589)
+ 
 
 
 

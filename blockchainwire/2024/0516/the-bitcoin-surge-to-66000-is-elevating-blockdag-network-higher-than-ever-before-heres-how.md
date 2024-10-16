@@ -51,7 +51,13 @@ Discord: https://discord.gg/Q7BxghMVyu
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-bitcoin-surge-to-66000-is-elevating-blockdag-network-higher-than-ever-before-heres-how-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-surges-to-66000-blockdag-network-introduces-innovative-updates/6f9240d5f80b26e1ac9524ce233714dc) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-surges-to-66000-blockdag-network-introduces-innovative-updates)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-surges-to-66000-blockdag-network-introduces-innovative-updates)
+ 
 
 
 

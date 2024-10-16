@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/firefly-metal
 [Original/Source Press Release](https://newsdirect.com/news/firefly-metals-raises-52-million-secures-port-access-agreement-123419960)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/firefly-metals-raises-a-52-million-secures-port-access-agreement/9cd7a84a7f2fd9aef2f8a92bb4bb5ab3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/firefly-metals-secures-funding-and-logistics-for-copper-project-advancement)
+ 
 
 
 

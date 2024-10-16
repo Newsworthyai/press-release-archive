@@ -27,7 +27,9 @@ Website: www.coresky.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/coresky-initiates-seed-round-of-financing-following-strategic-brand-upgrade)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coresky-enters-seed-round-of-financing-with-innovative-investment-approach/412e538a247056116c4bc064ff3f7677) 
+
+ 
 
 
 

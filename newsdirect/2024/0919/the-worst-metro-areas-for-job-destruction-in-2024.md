@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-worst-met
 [Original/Source Press Release](https://newsdirect.com/news/the-worst-metro-areas-for-job-destruction-in-2024-163822452)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/job-destruction-analysis-reveals-worst-metro-areas/a89649ad5921cba548b2778d9590e2ab) 
+
+ 
 
 
 

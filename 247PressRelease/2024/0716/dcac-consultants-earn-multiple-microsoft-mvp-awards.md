@@ -7,7 +7,15 @@ OCEANSIDE, CA, July 16, 2024 /24-7PressRelease/ -- Microsoft announced five cons
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512524/dcac-consultants-earn-multiple-microsoft-mvp-awards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dcac-consultants-receive-2024-microsoft-mvp-awards/67be1b98018ec0919bac81e4b9e9def3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/five-dcac-consultants-earn-six-microsoft-mvp-awards-for-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dcac-consultants-earn-multiple-microsoft-mvp-awards/20244972)
+
+Pickup - [advos.io](https://advos.io/en/dcac-consultants-garner-multiple-2024-microsoft-mvp-awards/20244972)
+ 
 
 
 

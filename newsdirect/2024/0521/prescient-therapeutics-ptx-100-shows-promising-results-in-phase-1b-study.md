@@ -17,7 +17,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/prescient-the
 [Original/Source Press Release](https://newsdirect.com/news/prescient-therapeutics-ptx-100-shows-promising-results-in-phase-1b-study-106846685)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prescient-therapeutics-ptx-100-shows-promising-results-in-phase-1b-study-at-t-cell-lymphoma-forum/4a2148353abf4a2521c1df6f70b10a6f) 
+
+ 
 
 
 

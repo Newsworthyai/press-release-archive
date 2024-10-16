@@ -7,7 +7,9 @@ LOS ANGELES, CA, October 05, 2024 /24-7PressRelease/ -- In a remarkable display 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514970/queennak-take-over-hollywood-beverly-hills-and-los-angeles-with-the-queennak-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/queennak-experience-a-cultural-celebration-uniting-hollywood-beverly-hills-and-africa/963c8d4924b0a8c19d15ac5d0d0a47d5) 
+
+ 
 
 
 

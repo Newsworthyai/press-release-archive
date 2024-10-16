@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-has-successfully-facilitated-the-transaction-between-curie-environmental-services-llc-and-tradebe-environmental-services-llc-869948603)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-facilitates-acquisition-of-curie-environmental-services-llc-by-tradebe-environmental-services-llc/b2645095b28e4b746ebbae8765acf967) 
+
+ 
 
 
 

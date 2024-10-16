@@ -7,7 +7,11 @@ CHANDLER, AZ, March 20, 2024 /24-7PressRelease/ -- Adrienne Provost was recogniz
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509402/adrienne-provost-recognized-with-league-for-innovations-terry-obanion-legacy-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/adrienne-provost-honored-with-2024-terry-o-banion-legacy-award/370249a8ee98feb51a9352c7c683e744) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/adrienne-provost-recognized-for-innovative-scholarship-on-community-college-narrative)
+ 
 
 
 

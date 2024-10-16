@@ -41,7 +41,9 @@ contactus@galaxyinvesco.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/galaxy-market---making-foundation-introduces-glt-coin-catalyzing-a-new-phase-in-pledge-mining-and-digital-governance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/galaxy-market-making-foundation-introduces-revolutionary-glt-coin-for-decentralized-finance/38f408b0e90c95ab4f36ef0bbace63a4) 
+
+ 
 
 
 

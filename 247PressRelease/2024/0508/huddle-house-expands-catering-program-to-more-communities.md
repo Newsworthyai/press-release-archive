@@ -7,7 +7,9 @@ ATLANTA, GA, May 08, 2024 /24-7PressRelease/ -- Huddle House, serving freshly pr
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510737/huddle-house-expands-catering-program-to-more-communities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/huddle-house-expands-catering-program-in-partnership-with-ezcater/7f1f2b9330b7b2c91563feb2169889c4) 
+
+ 
 
 
 

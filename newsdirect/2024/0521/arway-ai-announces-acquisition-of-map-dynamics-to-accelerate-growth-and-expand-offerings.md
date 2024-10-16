@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/arway-ai-anno
 [Original/Source Press Release](https://newsdirect.com/news/arway-ai-announces-acquisition-of-map-dynamics-to-accelerate-growth-and-expand-offerings-417326728)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arway-ai-acquires-map-dynamics-to-revolutionize-mapping-technology/867359e6d52f5b78f6dc7da29cdc88db) 
+
+ 
 
 
 

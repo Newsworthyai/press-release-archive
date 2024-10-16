@@ -7,7 +7,9 @@ ORANGE, TX, April 12, 2024 /24-7PressRelease/ -- Jim Sharon Bearden Sr. is a wel
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509990/the-remarkable-legal-career-of-jim-sharon-bearden-sr)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jim-sharon-bearden-sr-a-distinguished-legal-career-spanning-six-decades/ed8d7be7284abbb1b41285f494524d3d) 
+
+ 
 
 
 

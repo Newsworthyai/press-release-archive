@@ -47,7 +47,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-discover-the-aipgai-power-grid-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-announces-listing-of-aipg-ai-power-grid-on-its-socially-infused-trading-platform/3a3ff4bfa90f629717a6d43c8216e724) 
+
+
+Pickup - [advos.io](https://advos.io/en/xt-lists-ai-power-grid-aipg-in-innovation-zone-on-trading-platform/20243979)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/xt-announces-listing-of-aipg-ai-power-grid-on-its-socially-infused-trading-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/xt-announces-listing-of-aipg-ai-power-grid-on-its-socially-infused-trading-platform)
+ 
 
 
 

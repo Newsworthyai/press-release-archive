@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ukrainian-cri
 [Original/Source Press Release](https://newsdirect.com/news/ukrainian-critical-minerals-for-british-technologies-bgv-presented-ukraines-mining-potential-in-london-701673128)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bgv-group-management-presents-ukrainian-mining-potential-in-london/c8e97f62992a790e7b4d8ddb6e93e301) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/ukraine-s-mining-potential-a-key-to-britain-s-advanced-technologies)
+ 
 
 
 

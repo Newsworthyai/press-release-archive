@@ -68,7 +68,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/anthony-milew
 [Original/Source Press Release](https://newsdirect.com/news/anthony-milewski-unveils-monthly-newsletter-for-mastering-market-speculation-228468030)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/anthony-milewski-unveils-monthly-newsletter-for-mastering-market-speculation/77523f92330ed5772a7f84abf62ec70a) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/anthony-milewski-launches-newsletter-to-navigate-commodities-market-with-greed-guts-and-glory/20245589)
+
+Pickup - [advos.io](https://advos.io/en/anthony-milewski-launches-newsletter-greed-guts-and-glory-to-aid-market-speculators/20245589)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/anthony-milewski-launches-greed-guts-and-glory-newsletter-for-commodities-investors/20245589)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/anthony-milewski-launches-greed-guts-and-glory-newsletter-for-commodities-investors)
+ 
 
 
 

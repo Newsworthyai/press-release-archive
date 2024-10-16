@@ -7,7 +7,9 @@ NEW YORK, NY, May 29, 2024 /24-7PressRelease/ -- Carlos Martinez, a promising yo
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511199/debut-author-carlos-martinez-unleashes-gripping-ya-fantasy-novel-immortal-lover)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/debut-author-carlos-martinez-releases-action-packed-romance-novel-immortal-lover/60fed8c90d05987f98d7147661d754be) 
+
+ 
 
 
 

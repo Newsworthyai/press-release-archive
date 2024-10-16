@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/fintech-firm-
 [Original/Source Press Release](https://newsdirect.com/news/fintech-firm-powder-closes-5-million-in-seed-funding-570177622)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fintech-firm-powder-closes-5-million-in-seed-funding-to-scale-generative-ai-technology/9758a80a98bfbc2e32bc11ca1f757958) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/powder-secures-5-million-in-seed-funding-to-revolutionize-wealth-management-with-ai)
+
+Pickup - [fishervista.com](https://fishervista.com/en/powder-secures-5-million-seed-funding-to-revolutionize-wealth-management-with-ai/20245189)
+
+Pickup - [advos.io](https://advos.io/en/fintech-firm-powder-secures-5-million-in-seed-funding-to-revolutionize-wealth-management-with-ai/20245189)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/powder-secures-5-million-seed-funding-to-advance-ai-in-wealth-management)
+ 
 
 
 

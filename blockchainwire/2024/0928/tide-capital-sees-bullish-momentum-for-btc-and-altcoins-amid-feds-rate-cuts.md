@@ -48,7 +48,9 @@ Institutional interest in Sui is growing rapidly. In September, Grayscale launch
 [Original/Source Press Release](https://blockchainwire.io/press-release/tide-capital-sees-bullish-momentum-for-btc-and-altcoins-amid-feds-rate-cuts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-end-of-tightening-a-turning-point-for-crypto/80abec433769d999664649b435260622) 
+
+ 
 
 
 

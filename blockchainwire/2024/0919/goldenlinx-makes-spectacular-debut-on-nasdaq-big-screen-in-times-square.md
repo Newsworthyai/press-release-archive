@@ -37,7 +37,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/goldenlinx-makes-spectacular-debut-on-nasdaq-big-screen-in-times-square)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/goldenlinx-makes-groundbreaking-debut-on-nasdaq-big-screen/7d818973189a47fa29af0b18a1fb67ec) 
+
+ 
 
 
 

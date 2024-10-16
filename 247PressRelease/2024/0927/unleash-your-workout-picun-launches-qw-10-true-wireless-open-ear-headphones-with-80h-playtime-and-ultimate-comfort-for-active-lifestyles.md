@@ -7,7 +7,9 @@ SHENZHEN, CHINA, September 27, 2024 /24-7PressRelease/ -- Picun is thrilled to a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514716/unleash-your-workout-picun-launches-qw-10-true-wireless-open-ear-headphones-with-80h-playtime-and-ultimate-comfort-for-active-lifestyles)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/picun-launches-qw-10-true-wireless-open-ear-headphones-for-fitness-enthusiasts/b8da4df758350add561dde83c482ae7d) 
+
+ 
 
 
 

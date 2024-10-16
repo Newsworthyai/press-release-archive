@@ -33,7 +33,9 @@ Media Contact:Robert Smithhttps://furrevertoken.com/ support@furrevertoken.comDi
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-ultimate-investor-guide-furrever-token-presale-roi-guide-soars-amid-bitcoin-btc-and-ethereum-eth-challenges)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-market-trends-bitcoin-and-ethereum-face-bearish-signals-furrever-token-furr-emerges-as-promising-investment-amid-turbulence/dd00ca57cb331d19389a5983a0140bb4) 
+
+ 
 
 
 

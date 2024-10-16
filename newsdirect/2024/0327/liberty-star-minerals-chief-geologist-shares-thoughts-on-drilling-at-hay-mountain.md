@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/liberty-star-
 [Original/Source Press Release](https://newsdirect.com/news/liberty-star-minerals-chief-geologist-shares-thoughts-on-drilling-at-hay-mountain-513743200)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/liberty-star-minerals-chief-geologist-gives-drilling-updates-at-hay-mountain-property/08be90bc33b7b908f63c8be61320cec3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/liberty-star-minerals-explores-promising-geological-features-at-hay-mountain)
+ 
 
 
 

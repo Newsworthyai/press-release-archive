@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/marimed-close
 [Original/Source Press Release](https://newsdirect.com/news/marimed-closes-acquisition-of-a-dispensary-in-illinois-marking-the-companys-5th-in-that-state-772617180)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marimed-expands-with-acquisition-of-dispensaries-in-illinois-and-maryland/fce5933405c78923d23ed2f53512d494) 
+
+ 
 
 
 

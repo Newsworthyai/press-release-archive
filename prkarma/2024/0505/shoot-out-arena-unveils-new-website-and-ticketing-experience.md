@@ -33,7 +33,9 @@ Visit Our Website
 [Original/Source Press Release](https://newsroom.prkarma.com/shootoutarena/news_release/1454)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exciting-debut-of-newly-redesigned-shoot-out-arena-website/888e1e7978c8a62a8e7939cb50126f7f) 
+
+ 
 
 
 

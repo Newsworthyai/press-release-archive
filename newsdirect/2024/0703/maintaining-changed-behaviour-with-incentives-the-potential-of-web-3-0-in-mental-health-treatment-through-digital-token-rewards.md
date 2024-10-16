@@ -43,7 +43,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/maintaining-c
 [Original/Source Press Release](https://newsdirect.com/news/maintaining-changed-behaviour-with-incentives-the-potential-of-web-3-0-in-mental-health-treatment-through-digital-token-rewards-828977872)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elevate-health-and-wellness-explores-web-3-0-and-contingency-management-for-mental-health-support/743016dd7b69856f24b350d7d1451ef7) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/elevate-health-and-wellness-explores-web-3-0-and-contingency-management-for-mental-health-support)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/elevate-health-and-wellness-explores-web-3-0-and-contingency-management-for-mental-health-support)
+ 
 
 
 

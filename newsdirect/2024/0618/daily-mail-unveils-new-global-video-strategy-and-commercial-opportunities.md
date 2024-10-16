@@ -35,7 +35,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/daily-mail-un
 [Original/Source Press Release](https://newsdirect.com/news/daily-mail-unveils-new-global-video-strategy-and-commercial-opportunities-890390705)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/daily-mail-unveils-new-global-video-strategy-and-commercial-opportunities/09ad64e186971689a148851b1f9134c9) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/daily-mail-introduces-comprehensive-global-video-strategy-and-enhanced-commercial-opportunities/20244256)
+
+Pickup - [advos.io](https://advos.io/en/daily-mail-launches-new-global-video-strategy-and-commercial-opportunities/20244256)
+ 
 
 
 

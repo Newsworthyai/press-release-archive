@@ -7,7 +7,11 @@ SOUTH LAKE TAHOE, NV, June 13, 2024 /24-7PressRelease/ -- American Century Inves
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511708/robot-joins-charity-competition-at-american-century-championship-american-century-investments-adds-beat-the-bot-to-the-roster-of-charity-contests-at-the-premier-celebrity-golf-tournament)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-century-championship-announces-beat-the-bot-charity-challenge-and-fantasy-golf-contest/fb75462cd79b1eaa364c3ed877d92a79) 
+
+
+Pickup - [advos.io](https://advos.io/en/robot-joins-charity-competition-at-american-century-championship/20244134)
+ 
 
 
 

@@ -25,7 +25,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/atfxs-strateg
 [Original/Source Press Release](https://newsdirect.com/news/atfxs-strategic-meeting-at-the-chinese-embassy-in-jordan-highlights-dedication-to-regional-economic-development-336910997)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atfx-s-strategic-meeting-at-the-chinese-embassy-in-jordan-highlights-dedication-to-regional-economic-development/9eab90b1978437af9c8c6f4c032c363b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/atfx-strengthens-commitment-to-levant-region-in-strategic-meeting-with-chinese-embassy-in-jordan)
+
+Pickup - [fishervista.com](https://fishervista.com/en/atfx-s-commitment-to-economic-growth-in-jordan-highlighted-in-strategic-meeting/20244924)
+
+Pickup - [advos.io](https://advos.io/en/atfx-strengthens-commitment-to-economic-development-in-jordan-and-the-levant/20244924)
+ 
 
 
 

@@ -30,7 +30,9 @@ oracle@prophetbrands.com
 [Original/Source Press Release](https://newsworthy.ai/news/20240116991/announcing-the-comeback-of-a-lifetime-introducing-the-launch-of-prophet-inspired-by-the-life-stories-of-luke-scarmazzo-and-ricardo-montes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prophet-brands-makes-debut-at-premier-group-dispensaries-in-california/81e340219f921e94f4f8a9ac521f0e81) 
+
+ 
 
 
 

@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/two-thirds-of
 [Original/Source Press Release](https://newsdirect.com/news/two-thirds-of-top-20-pharmaceutical-companies-have-prohibited-ai-brand-engagement-network-aims-to-change-that-perception-with-its-solutions-139393567)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/survey-reveals-ban-on-chatgpt-in-pharma-industry-brand-engagement-network-changing-ai-perception/4b88a80944ebc26b3cf6d1e3789db04b) 
+
+ 
 
 
 

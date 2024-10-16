@@ -7,7 +7,17 @@ SANTA ROSA BEACH, FL, August 20, 2024 /24-7PressRelease/ -- 30A Media, (30A.Medi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513586/30a-media-announces-exciting-partnership-with-idtvflix-and-iron-dragon-tv)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/30a-media-idtvflix-and-iron-dragon-tv-revolutionize-martial-arts-film-experience/2db467f1db43961771024a7450e181fb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/30a-media-partners-with-idtvflix-and-iron-dragon-tv-to-revolutionize-martial-arts-film-streaming)
+
+Pickup - [fishervista.com](https://fishervista.com/en/30a-media-partners-with-idtvflix-and-iron-dragon-tv-to-revolutionize-martial-arts-film-streaming/20245828)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/30a-media-partners-with-idtvflix-and-iron-dragon-tv-to-transform-martial-arts-entertainment/20245828)
+
+Pickup - [advos.io](https://advos.io/en/30a-media-forms-strategic-partnership-with-idtvflix-and-iron-dragon-tv/20245828)
+ 
 
 
 

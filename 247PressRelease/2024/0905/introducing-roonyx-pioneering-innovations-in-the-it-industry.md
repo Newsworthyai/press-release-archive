@@ -7,7 +7,17 @@ ST. PETERSBURG, FL, September 05, 2024 /24-7PressRelease/ --   Company Overview 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514029/introducing-roonyx-pioneering-innovations-in-the-it-industry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/roonyx-leading-the-way-in-fintech-it-solutions/60e85fa62e82c4a4a5039de604eb0e38) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/roonyx-emerges-as-innovative-force-in-fintech-and-it-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/roonyx-leading-innovation-in-fintech-and-it-solutions/20246545)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/roonyx-emerges-as-fintech-innovator-with-bnpl-platform-on-the-horizon/20246545)
+
+Pickup - [advos.io](https://advos.io/en/roonyx-transforming-fintech-with-innovative-bnpl-solutions/20246545)
+ 
 
 
 

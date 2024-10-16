@@ -7,7 +7,19 @@ MIAMI BEACH, FL, July 09, 2024 /24-7PressRelease/ -- Baller Mixed Reality, a sub
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512315/baller-mixed-reality-partners-with-sft-the-largest-mixed-martial-arts-league-in-brazil-with-global-viewership)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/baller-mixed-reality-partners-with-sft-to-revolutionize-fan-engagement/1ead3947b7be1e96dd71630fb9a39088) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/baller-mixed-reality-and-sft-forge-partnership-to-revolutionize-mma-fan-engagement/20244792)
+
+Pickup - [advos.io](https://advos.io/en/baller-mixed-reality-partners-with-sft-to-revolutionize-fan-engagement-in-mma/20244792)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/baller-mixed-reality-and-sft-partner-to-revolutionize-mma-fan-experience)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/baller-mixed-reality-partners-with-sft-to-revolutionize-fan-engagement)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/baller-mixed-reality-partners-with-sft-to-revolutionize-fan-engagement)
+ 
 
 
 

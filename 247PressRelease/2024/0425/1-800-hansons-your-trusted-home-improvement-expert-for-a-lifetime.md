@@ -7,7 +7,9 @@ EVANSVILLE, IN, April 25, 2024 /24-7PressRelease/ -- 1-800-HANSONS, renowned as 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510310/1-800-hansons-your-trusted-home-improvement-expert-for-a-lifetime)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/1-800-hansons-opens-new-branch-in-evansville-indiana/eef2ad13dac6b3828cd07df9af713f29) 
+
+ 
 
 
 

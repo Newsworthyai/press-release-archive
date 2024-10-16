@@ -27,7 +27,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/solana-sols-dip-shiba-inu-shib-surge-can-furrever-token-furrs-20000-competition-catapult-it-past-competitors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-market-showdown-solana-shiba-inu-and-furrever-token-s-20000-competition/afea11762277085b1e77f59a754c7cde) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/crypto-market-showdown-solana-shiba-inu-and-furrever-token-s-20000-competition)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/crypto-market-showdown-solana-shiba-inu-and-furrever-token-s-20000-competition)
+ 
 
 
 

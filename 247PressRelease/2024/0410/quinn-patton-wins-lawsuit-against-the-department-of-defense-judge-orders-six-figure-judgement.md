@@ -7,7 +7,11 @@ BALTIMORE, MD, April 10, 2024 /24-7PressRelease/ -- Quinn Patton won a lawsuit a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509932/quinn-patton-wins-lawsuit-against-the-department-of-defense-judge-orders-six-figure-judgement)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quinn-patton-wins-major-disability-retaliation-lawsuit-against-department-of-defense/a688f7cea7ef668dde1f0553e6f1a97b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/quinn-patton-wins-lawsuit-against-department-of-defense-judge-orders-six-figure-judgement)
+ 
 
 
 

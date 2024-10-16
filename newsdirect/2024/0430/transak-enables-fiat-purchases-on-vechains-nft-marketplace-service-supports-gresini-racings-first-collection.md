@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/transak-enabl
 [Original/Source Press Release](https://newsdirect.com/news/transak-enables-fiat-purchases-on-vechains-nft-marketplace-service-supports-gresini-racings-first-collection-619022061)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/transak-s-nft-checkout-integration-with-vechains-maas-platform-revolutionizes-nft-purchases/0c880dba246e2a28b101bc266573dfb4) 
+
+ 
 
 
 

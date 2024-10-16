@@ -7,7 +7,11 @@ OREM, UT, April 01, 2024 /24-7PressRelease/ -- Security managers of enterprise-l
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509689/spotter-global-the-leader-in-compact-surveillance-radar-announces-preview-of-integrated-management-center-imc-20-at-isc-west-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/spotter-global-to-release-imc-version-2-0-for-enhanced-perimeter-security-management/6bf69ca22cc47fbc0f10c3bad3eb2ce1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/spotter-global-unveils-integrated-management-center-2-0-for-enterprise-perimeter-security)
+ 
 
 
 

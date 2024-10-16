@@ -39,7 +39,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-ceo-highlights-impact-of-staking-on-ethereum-liquidity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-ceo-reveals-impact-of-staking-on-ethereum-liquidity/025caa6ce7aa7b0e2f5b0b9c0f875ad6) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/stakingfarm-ceo-reveals-impact-of-staking-on-ethereum-liquidity)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/stakingfarm-ceo-reveals-impact-of-staking-on-ethereum-liquidity)
+ 
 
 
 

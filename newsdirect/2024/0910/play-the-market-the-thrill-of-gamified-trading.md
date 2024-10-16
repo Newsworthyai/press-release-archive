@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/play-the-mark
 [Original/Source Press Release](https://newsdirect.com/news/play-the-market-the-thrill-of-gamified-trading-667117407)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bullrush-ceo-discusses-gamified-trading-platform-on-benzingas-all-access/ddf6526fb5b2816aa7bd51958efe2758) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/bullrush-revolutionizing-trading-with-gamified-platform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bullrush-revolutionizes-trading-with-gamified-platform/20246667)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bullrush-emerges-as-a-gamified-trading-platform-attracting-global-participants/20246667)
+
+Pickup - [advos.io](https://advos.io/en/bullrush-revolutionizes-trading-with-gamified-platform/20246667)
+ 
 
 
 

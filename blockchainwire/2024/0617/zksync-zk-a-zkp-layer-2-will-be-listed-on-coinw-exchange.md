@@ -39,7 +39,15 @@ About ZK (zkSync Era)
 [Original/Source Press Release](https://blockchainwire.io/press-release/zksync-zk-a-zkp-layer-2-will-be-listed-on-coinw-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-list-zk-on-layer-2-zone-celebrates-with-5000-usdt-reward-pool/b49f66676fd21cfec8b15afd06e5d232) 
+
+
+Pickup - [advos.io](https://advos.io/en/coinw-listing-zksync-era-zk-and-launching-5000-usdt-bounty-program/20244209)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-to-list-zk-on-layer-2-zone-celebrates-with-5000-usdt-reward-pool)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-to-list-zk-on-layer-2-zone-celebrates-with-5000-usdt-reward-pool)
+ 
 
 
 

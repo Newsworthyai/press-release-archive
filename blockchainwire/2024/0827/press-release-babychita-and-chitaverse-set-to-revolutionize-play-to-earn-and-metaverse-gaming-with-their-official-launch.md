@@ -49,7 +49,21 @@ Disclaimer: The information presented in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/press-release-babychita-and-chitaverse-set-to-revolutionize-play-to-earn-and-metaverse-gaming-with-their-official-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chitaverse-launches-as-the-dynamic-hub-of-the-metaverse-gaming-ecosystem/1cb9a5bb339d3de51349ba04c6f68618) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/chitaverse-launches-as-the-dynamic-hub-of-the-metaverse-gaming-ecosystem)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/chitaverse-launches-as-the-dynamic-hub-of-the-metaverse-gaming-ecosystem)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/babychita-and-chitaverse-launch-a-new-era-in-play-to-earn-and-metaverse-gaming)
+
+Pickup - [fishervista.com](https://fishervista.com/en/babychita-and-chitaverse-officially-launch-pioneering-the-future-of-play-to-earn-and-metaverse-gaming/20246340)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/babychita-and-chitaverse-launch-a-new-era-in-play-to-earn-and-metaverse-gaming/20246340)
+
+Pickup - [advos.io](https://advos.io/en/babychita-and-chitaverse-launch-to-transform-play-to-earn-and-metaverse-gaming/20246340)
+ 
 
 
 

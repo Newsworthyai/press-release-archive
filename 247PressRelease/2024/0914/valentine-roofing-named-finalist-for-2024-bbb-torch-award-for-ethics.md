@@ -7,7 +7,17 @@ SEATTLE, WA, September 14, 2024 /24-7PressRelease/ -- Valentine Roofing has been
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514295/valentine-roofing-named-finalist-for-2024-bbb-torch-award-for-ethics)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/valentine-roofing-named-finalist-for-2024-bbb-torch-award-for-ethics/c9a5a535b307757cdda04448dbd20683) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/14/valentine-roofing-named-finalist-for-2024-bbb-torch-award-for-ethics)
+
+Pickup - [fishervista.com](https://fishervista.com/en/valentine-roofing-recognized-as-finalist-for-2024-bbb-torch-award-for-ethics/20246827)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/valentine-roofing-named-finalist-for-2024-bbb-torch-award-for-ethics/20246827)
+
+Pickup - [advos.io](https://advos.io/en/valentine-roofing-named-finalist-for-2024-bbb-torch-award-for-ethics/20246827)
+ 
 
 
 

@@ -7,7 +7,17 @@ BLOOMINGTON, IN, July 26, 2024 /24-7PressRelease/ -- Today, the Indiana Arts Com
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512885/indiana-arts-commission-invests-in-the-usa-international-harp-competition-to-strengthen-bloomington-in-through-arts-and-creativity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/indiana-arts-commission-supports-usa-international-harp-competition-with-12276-grant/6c42f1c92b43e0b752ed28e5cbb85764) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/indiana-arts-commission-awards-12276-to-usa-international-harp-competition)
+
+Pickup - [fishervista.com](https://fishervista.com/en/indiana-arts-commission-funds-usa-international-harp-competition-to-bolster-community-and-creativity/20245278)
+
+Pickup - [advos.io](https://advos.io/en/indiana-arts-commission-awards-grant-to-usa-international-harp-competition/20245278)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/indiana-arts-commission-awards-12276-grant-to-usa-international-harp-competition)
+ 
 
 
 

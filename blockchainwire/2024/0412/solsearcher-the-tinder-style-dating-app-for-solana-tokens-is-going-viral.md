@@ -33,7 +33,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/solsearcher-the-tinder-style-dating-app-for-solana-tokens-is-going-viral)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solsearcher-the-tinder-of-token-trading/d2242d22848128184c1c17073023517f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/solsearcher-the-tinder-style-dating-app-for-solana-tokens-is-going-viral)
+ 
 
 
 

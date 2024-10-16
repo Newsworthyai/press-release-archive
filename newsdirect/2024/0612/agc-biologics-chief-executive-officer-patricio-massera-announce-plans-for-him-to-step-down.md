@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/agc-biologics
 [Original/Source Press Release](https://newsdirect.com/news/agc-biologics-and-chief-executive-officer-patricio-massera-announce-plans-for-him-to-step-down-501638257)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/agc-biologics-ceo-patricio-massera-to-step-down/2a3e544a09e8724154189401fb504e60) 
+
+
+Pickup - [advos.io](https://advos.io/en/agc-biologics-ceo-patricio-massera-to-step-down-after-12-years/20244054)
+ 
 
 
 

@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kangamoon-kan
 [Original/Source Press Release](https://newsdirect.com/news/kangamoon-kang-hits-4m-with-expert-predictions-of-100x-leaving-traders-second-guessing-other-meme-coins-413029856)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kangamoon-kang-set-to-surpass-pepe-and-bonk-in-meme-coin-market/72f7edb17d4e304dbc0972df12533491) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/06/kangamoon-meme-coin-surges-to-4m-outshining-rivals-pepe-and-bonk)
+ 
 
 
 

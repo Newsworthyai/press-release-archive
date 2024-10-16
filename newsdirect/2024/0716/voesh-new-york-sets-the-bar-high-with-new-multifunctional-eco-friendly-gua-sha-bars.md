@@ -33,7 +33,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/voesh-new-yor
 [Original/Source Press Release](https://newsdirect.com/news/voesh-new-york-sets-the-bar-high-with-new-multifunctional-and-eco-friendly-gua-sha-bars-360491103)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/voesh-new-york-launches-eco-friendly-gua-sha-bars/3d64c661abb4b1605f50d20fe5f88233) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/voesh-new-york-launches-innovative-gua-sha-cleansing-and-shampoo-bars)
+
+Pickup - [fishervista.com](https://fishervista.com/en/voesh-new-york-introduces-eco-friendly-multifunctional-gua-sha-bars/20244989)
+
+Pickup - [advos.io](https://advos.io/en/voesh-new-york-introduces-eco-friendly-gua-sha-cleansing-and-shampoo-bars/20244989)
+ 
 
 
 

@@ -95,7 +95,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-highly-an
 [Original/Source Press Release](https://newsdirect.com/news/the-highly-anticipated-nilu-hypercar-has-arrived-388263654)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sasha-selipanov-s-nilu27-unveils-groundbreaking-nilu-hypercar/4747b3f7a6e56cd26996eceac8a9319e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/nilu27-unveils-revolutionary-nilu-hypercar-a-return-to-raw-driving-experience)
+
+Pickup - [fishervista.com](https://fishervista.com/en/nilu27-unveils-groundbreaking-nilu-hypercar/20245555)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/nilu27-unveils-groundbreaking-nilu-hypercar-with-over-1000-horsepower)
+
+Pickup - [advos.io](https://advos.io/en/nilu27-unveils-groundbreaking-nilu-hypercar-a-manual-marvel-in-the-age-of-electrification/20245555)
+ 
 
 
 

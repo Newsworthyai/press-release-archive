@@ -31,7 +31,11 @@ Byte Federal Inc. is excited about Byte Federal Australia's launch and partnersh
 [Original/Source Press Release](https://newsworthy.ai/news/20231204903/byte-federal-expands-global-presence-with-the-launch-of-byte-federal-australia)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/byte-federal-inc-launches-byte-federal-australia-revolutionizing-access-to-cryptocurrency-services/9ed3bb37fd275e1283475600e11b7996) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/04/byte-federal-expands-cryptocurrency-services-to-australia)
+ 
 
 
 

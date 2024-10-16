@@ -25,7 +25,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/tonix-pharmac
 [Original/Source Press Release](https://newsdirect.com/news/tonix-pharmaceuticals-awarded-potential-34-million-dollar-contract-with-u-s-department-of-defence-309772027)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tonix-pharmaceuticals-awarded-34-million-contract-with-u-s-department-of-defence/73faaeca08af2b4080fb6826365f6eb6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/19/tonix-pharmaceuticals-secures-34-million-contract-with-u-s-department-of-defense-for-broad-spectrum-antiviral-development)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tonix-pharmaceuticals-secures-34-million-contract-with-u-s-department-of-defense/20245119)
+
+Pickup - [advos.io](https://advos.io/en/tonix-pharmaceuticals-secures-potential-34-million-contract-with-u-s-department-of-defense/20245119)
+ 
 
 
 

@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/green-global-
 [Original/Source Press Release](https://newsdirect.com/news/green-global-fx-introduces-ai-powered-signals-app-for-australian-investors-609637571)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/green-global-fx-unveils-ai-powered-signals-app-for-australian-investors/7c96795824b8fbaf32c4d39c6c107586) 
+
+ 
 
 
 

@@ -7,7 +7,9 @@ HEMPSTEAD, NY, May 15, 2024 /24-7PressRelease/ -- Richard Hochhauser, DWI & Crim
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510848/new-york-criminal-defense-attorney-with-a-decade-of-legal-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/experienced-criminal-defense-lawyer-in-new-york/2421c7ef75f764d70671ae746b9fb830) 
+
+ 
 
 
 

@@ -63,7 +63,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/four-stocks-m
 [Original/Source Press Release](https://newsdirect.com/news/four-stocks-making-their-mark-in-a-strong-gold-market-222443002)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/four-stocks-making-their-mark-in-a-strong-gold-market/151a3a7bea4405f6e19a9f15797e0222) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/30/gold-market-surge-spotlights-four-promising-stocks)
+
+Pickup - [fishervista.com](https://fishervista.com/en/key-players-in-the-gold-market-how-four-companies-are-capitalizing-on-record-gold-prices/20246391)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/gold-market-surges-four-companies-positioned-for-growth/20246391)
+
+Pickup - [advos.io](https://advos.io/en/key-players-in-the-booming-gold-market/20246391)
+ 
 
 
 

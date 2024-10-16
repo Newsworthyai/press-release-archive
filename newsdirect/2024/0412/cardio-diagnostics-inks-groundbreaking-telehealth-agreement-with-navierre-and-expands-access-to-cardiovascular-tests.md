@@ -69,7 +69,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/cardio-diagno
 [Original/Source Press Release](https://newsdirect.com/news/cardio-diagnostics-inks-groundbreaking-telehealth-agreement-with-navierre-and-expands-access-to-cardiovascular-tests-127263786)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cardio-diagnostics-expands-access-to-cardiovascular-tests-through-groundbreaking-telehealth-agreement/c8a51779cbb18377115f214fcc34b1c0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/cardio-diagnostics-partners-with-navierre-to-expand-access-to-cutting-edge-cardiovascular-tests)
+ 
 
 
 

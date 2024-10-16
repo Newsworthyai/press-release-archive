@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ai-specialist
 [Original/Source Press Release](https://newsdirect.com/news/ai-specialist-rezolve-ai-forges-strategic-alliance-and-co-sell-support-with-microsoft-to-transform-the-retail-industry-379759345)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rezolve-ai-limited-partners-with-microsoft-to-drive-retail-innovation/da618e5af86cb56ea350cac24b86ffa4) 
+
+ 
 
 
 

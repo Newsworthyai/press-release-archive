@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/why-nvidia-da
 [Original/Source Press Release](https://newsdirect.com/news/why-nvidia-daimler-truck-nikon-and-top-u-s-security-organization-are-partnering-with-this-ai-chip-stock-774089712)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aeva-technologies-inc-revolutionizes-automated-vehicles-with-advanced-4d-lidar-technology/3e023f77a6502e3074062fac77b7879c) 
+
+ 
 
 
 

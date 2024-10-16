@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/just-in-time-
 [Original/Source Press Release](https://newsdirect.com/news/just-in-time-for-fathers-day-258393314)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sunpower-renewables-launches-cutting-edge-solar-energy-products-in-the-us/397fac4f6a1120f6fed061812157a605) 
+
+ 
 
 
 

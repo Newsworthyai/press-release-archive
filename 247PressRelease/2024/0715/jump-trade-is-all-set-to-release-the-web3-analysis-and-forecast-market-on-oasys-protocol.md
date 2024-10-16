@@ -7,7 +7,19 @@ SINGAPORE, July 15, 2024 /24-7PressRelease/ -- As a prominent move in the fast-g
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512485/jumptrade-is-all-set-to-release-the-web3-analysis-and-forecast-market-on-oasys-protocol)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/soccersage-partners-with-oasys-to-revolutionize-soccer-analysis-and-prediction-industry/4da72841d3a77d8a6642a17530144886) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/jump-trade-to-launch-soccersage-a-decentralized-soccer-analysis-platform-on-oasys-blockchain)
+
+Pickup - [fishervista.com](https://fishervista.com/en/jump-trade-to-launch-soccersage-on-oasys-blockchain-revolutionizing-web3-analysis-and-forecast-market/20244946)
+
+Pickup - [advos.io](https://advos.io/en/jump-trade-to-launch-soccersage-on-oasys-blockchain-for-web3-analysis-and-prediction/20244946)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/soccersage-partners-with-oasys-to-revolutionize-soccer-analysis-and-prediction-industry)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/soccersage-partners-with-oasys-to-revolutionize-soccer-analysis-and-prediction-industry)
+ 
 
 
 

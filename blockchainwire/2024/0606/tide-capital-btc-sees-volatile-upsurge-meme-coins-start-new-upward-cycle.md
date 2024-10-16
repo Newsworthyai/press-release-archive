@@ -59,7 +59,15 @@ The information and data presented in this article are obtained from public sour
 [Original/Source Press Release](https://blockchainwire.io/press-release/tide-capital-btc-sees-volatile-upsurge-meme-coins-start-new-upward-cycle)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/btc-and-eth-etfs-boost-crypto-assets-u-s-election-impact/1271c63c96077ddfa00792fd164c4f99) 
+
+
+Pickup - [advos.io](https://advos.io/en/tide-capital-reports-btc-volatility-meme-coins-surge-and-crypto-market-trends/20243883)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/btc-and-eth-etfs-boost-crypto-assets-u-s-election-impact)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/btc-and-eth-etfs-boost-crypto-assets-u-s-election-impact)
+ 
 
 
 

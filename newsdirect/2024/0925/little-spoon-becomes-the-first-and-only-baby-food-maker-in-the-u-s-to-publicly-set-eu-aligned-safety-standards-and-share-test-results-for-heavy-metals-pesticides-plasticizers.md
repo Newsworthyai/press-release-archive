@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/little-spoon-
 [Original/Source Press Release](https://newsdirect.com/news/little-spoon-becomes-the-first-and-only-baby-food-maker-in-the-u-s-to-publicly-set-eu-aligned-safety-standards-and-share-test-results-for-heavy-metals-pesticides-plasticizers-587601640)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/little-spoon-sets-new-transparency-standards-for-baby-food-safety/f7e7beba9ecfe6401c843a2ccf6a9bd1) 
+
+ 
 
 
 

@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/prodigy-disc-
 [Original/Source Press Release](https://newsdirect.com/news/prodigy-disc-announces-the-launch-of-the-mx-2-midrange-disc-368735262)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prodigy-disc-launches-new-mx-2-midrange-disc/f36bf1bfbb3cd7d748c1f41a5bfc74b2) 
+
+ 
 
 
 

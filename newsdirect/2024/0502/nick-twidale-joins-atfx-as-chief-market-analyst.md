@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nick-twidale-
 [Original/Source Press Release](https://newsdirect.com/news/nick-twidale-joins-atfx-as-chief-market-analyst-235122120)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atfx-appoints-nick-twidale-as-chief-market-analyst-for-australia/a3e30a7960741cfca290ea67cece8626) 
+
+ 
 
 
 

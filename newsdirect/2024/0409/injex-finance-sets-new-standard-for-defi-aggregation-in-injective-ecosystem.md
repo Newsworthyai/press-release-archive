@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/injex-finance
 [Original/Source Press Release](https://newsdirect.com/news/injex-finance-sets-new-standard-for-defi-aggregation-in-injective-ecosystem-583648643)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/injective-introduces-injex-finance-revolutionizing-defi-aggregation/b63459ba01b5e6725825ba8416c0a5f8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/injex-finance-revolutionizes-defi-aggregation-on-injective-network)
+ 
 
 
 

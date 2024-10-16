@@ -44,7 +44,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/buy-with-bitcoin-and-more--blockdag-network-amplifies-reach-with-added-payment-methods)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-expands-payment-options-for-bdag-coin-purchase/1d46983a6fb546bff65a516a09fb142f) 
+
+ 
 
 
 

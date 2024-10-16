@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/tnr-gold-chai
 [Original/Source Press Release](https://newsdirect.com/news/tnr-gold-chairman-kirill-klip-discusses-asset-valuations-the-gold-price-and-project-developments-250845748)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tnr-gold-corp-s-kirill-klip-discusses-strategic-moves-and-upcoming-projects/0df5b94405a98f3deaa5051bb26724a7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/tnr-gold-chairman-kirill-klip-discusses-asset-valuations-the-gold-price-and-project-developments)
+ 
 
 
 

@@ -29,7 +29,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/minerva-surgi
 [Original/Source Press Release](https://newsdirect.com/news/minerva-surgical-launches-next-generation-symphion-fluid-management-accessory-with-fluid-deficit-readout-971230383)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/minerva-surgical-launches-symphion-fluid-deficit-readout/30c151e7712cfd36e6bca94d13596776) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/minerva-surgical-introduces-innovative-fluid-management-technology-for-hysteroscopy-procedures)
+
+Pickup - [fishervista.com](https://fishervista.com/en/minerva-surgical-introduces-symphion-fluid-deficit-readout-for-enhanced-hysteroscopy-safety/20245962)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/minerva-surgical-enhances-patient-safety-with-new-symphion-fluid-deficit-readout/20245962)
+
+Pickup - [advos.io](https://advos.io/en/minerva-surgical-introduces-symphion-fluid-deficit-readout-for-enhanced-hysteroscopy-safety/20245962)
+ 
 
 
 

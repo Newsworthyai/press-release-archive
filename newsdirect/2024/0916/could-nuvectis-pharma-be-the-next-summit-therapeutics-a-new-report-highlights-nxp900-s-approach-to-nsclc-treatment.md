@@ -53,7 +53,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/could-nuvecti
 [Original/Source Press Release](https://newsdirect.com/news/could-nuvectis-pharma-be-the-next-summit-therapeutics-a-new-report-highlights-nxp900s-approach-to-nsclc-treatment-845770131)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-report-highlights-nuvectis-pharma-s-nxp900-approach-to-nsclc-treatment/37bce2568d2b2a67884d14d1764d0467) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/nuvectis-pharma-s-nxp900-shows-promise-in-nsclc-treatment-new-report-suggests)
+
+Pickup - [fishervista.com](https://fishervista.com/en/nuvectis-pharma-s-nxp900-shows-promise-in-tackling-nsclc-treatment-resistance/20246856)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/nuvectis-pharma-s-nxp900-shows-promise-in-tackling-nsclc-treatment-resistance/20246856)
+
+Pickup - [advos.io](https://advos.io/en/nuvectis-pharma-s-nxp900-shows-promise-in-nsclc-treatment-addressing-drug-resistance/20246856)
+ 
 
 
 

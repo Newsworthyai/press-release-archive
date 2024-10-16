@@ -39,7 +39,9 @@ Don’t miss the opportunity to join the ranks of traders benefiting from Warric
 [Original/Source Press Release](https://blockchainwire.io/press-release/warrick-beckett-announces-record-breaking-profits-on-its-ai-powered-crypto-trading-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/warrick-beckett-s-ai-powered-crypto-trading-platform-delivers-record-breaking-profits/2721d57c3095266babce5f65a3cd81c6) 
+
+ 
 
 
 

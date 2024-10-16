@@ -41,7 +41,11 @@ Our team has gathered people with rich experience in creating high-grossing game
 [Original/Source Press Release](https://blockchainwire.io/press-release/worldshards-shares-first-sale-results)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/worldshards-mmorpg-developer-sale-sells-out-in-120-seconds/005697f67093ff24d478db962b2a5c3d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/16/worldshards-early-access-keys-sell-out-in-120-seconds)
+ 
 
 
 

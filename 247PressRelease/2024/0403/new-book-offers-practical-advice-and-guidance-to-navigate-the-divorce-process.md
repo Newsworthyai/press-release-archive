@@ -7,7 +7,11 @@ HUNTSVILLE, AL, April 03, 2024 /24-7PressRelease/ -- Leigh Daniel Family Law is 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509615/new-book-offers-practical-advice-and-guidance-to-navigate-the-divorce-process)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-release-practical-advice-for-before-during-and-after-divorce/a1ddd0351ce3c723037da777f8eac9cd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/new-book-offers-guidance-for-navigating-divorce)
+ 
 
 
 

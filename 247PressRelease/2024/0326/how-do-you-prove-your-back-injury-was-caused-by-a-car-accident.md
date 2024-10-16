@@ -7,7 +7,11 @@ NEW YORK, NY, March 26, 2024 /24-7PressRelease/ -- The aftermath of a car accide
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509531/how-do-you-prove-your-back-injury-was-caused-by-a-car-accident)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/immediate-medical-attention-and-legal-representation-vital-after-a-car-accident/f3bf15acd994040642e3613e034ff075) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/proving-back-injuries-from-car-accidents)
+ 
 
 
 

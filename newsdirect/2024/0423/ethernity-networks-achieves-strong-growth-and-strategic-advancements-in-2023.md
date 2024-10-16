@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ethernity-net
 [Original/Source Press Release](https://newsdirect.com/news/ethernity-networks-achieves-strong-growth-and-strategic-advancements-in-2023-835555785)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethernity-networks-achieves-strong-growth-and-strategic-advancements-in-2023/e8a9793a3371f78845d9f62b6e521211) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/ethernity-networks-achieves-strong-growth-and-strategic-advancements-in-2023)
+ 
 
 
 

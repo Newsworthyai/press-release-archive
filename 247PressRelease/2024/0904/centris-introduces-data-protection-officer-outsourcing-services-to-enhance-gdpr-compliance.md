@@ -7,7 +7,17 @@ DALLAS, TX, September 04, 2024 /24-7PressRelease/ -- Centris, a premier consulti
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513974/centris-introduces-data-protection-officer-outsourcing-services-to-enhance-gdpr-compliance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/centris-launches-data-protection-officer-dpo-outsourcing-services-for-gdpr-compliance/6f0a4380b8e0f4b927abe4f75a6da444) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/centris-launches-data-protection-officer-outsourcing-services-to-bolster-gdpr-compliance)
+
+Pickup - [fishervista.com](https://fishervista.com/en/centris-launches-data-protection-officer-outsourcing-services-to-enhance-gdpr-compliance/20246506)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/centris-launches-data-protection-officer-outsourcing-services-for-enhanced-gdpr-compliance/20246506)
+
+Pickup - [advos.io](https://advos.io/en/centris-launches-data-protection-officer-outsourcing-services-to-bolster-gdpr-compliance/20246506)
+ 
 
 
 

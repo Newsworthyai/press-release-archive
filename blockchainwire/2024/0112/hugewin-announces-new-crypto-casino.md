@@ -29,7 +29,11 @@ Telegram | X (Twitter)
 [Original/Source Press Release](https://blockchainwire.io/press-release/hugewin-announces-new-crypto-casino)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hugewin-introduces-new-crypto-casino-with-lucrative-bonuses-and-diverse-activities/d016d585b34987fc38ecd5250a143848) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/12/hugewin-unveils-crypto-casino-offering-diverse-gaming-experiences)
+ 
 
 
 

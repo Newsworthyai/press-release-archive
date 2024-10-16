@@ -7,7 +7,11 @@ DUBAI, UAE, March 26, 2024 /24-7PressRelease/ -- His Excellency Abdulla Bin Touq
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509519/iota-foundation-launches-10m-investment-fund-at-investopia-2024-to-develop-trade-technology-solutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uae-minister-attends-unveiling-of-10m-investment-fund-at-investopia-2024/e66799401efd3920ba038180709afc47) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/iota-foundation-unveils-10m-investment-fund-at-investopia-2024-to-boost-tradetech-solutions)
+ 
 
 
 

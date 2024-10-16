@@ -89,7 +89,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/3-trends-in-h
 [Original/Source Press Release](https://newsdirect.com/news/3-trends-in-healthcare-guided-by-ai-and-the-companies-behind-the-innovation-489286769)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-transforming-healthcare-moderna-johnson-johnson-and-cardio-diagnostics-leading-the-way/3d83b59783b0ac8fb96d98bdfa4eecd1) 
+
+ 
 
 
 

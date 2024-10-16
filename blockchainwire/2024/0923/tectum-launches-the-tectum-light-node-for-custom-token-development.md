@@ -65,7 +65,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/tectum-launches-the-tectum-light-node-for-custom-token-development)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tectum-launches-light-node-for-custom-token-development-and-management/3667ec96af1af7291c6fe8212bfb0372) 
+
+ 
 
 
 

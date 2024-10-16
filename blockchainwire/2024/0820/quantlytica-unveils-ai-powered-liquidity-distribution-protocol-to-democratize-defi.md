@@ -51,7 +51,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/quantlytica-unveils-ai-powered-liquidity-distribution-protocol-to-democratize-defi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quantlytica-revolutionizing-defi-accessibility-and-liquidity/01e8dbc9e11168c2e205963e11588664) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/quantlytica-launches-ai-driven-protocol-to-simplify-defi-access)
+
+Pickup - [fishervista.com](https://fishervista.com/en/quantlytica-introduces-ai-powered-liquidity-protocol-to-transform-defi-accessibility/20245852)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/quantlytica-introduces-ai-driven-liquidity-distribution-protocol-to-simplify-defi/20245852)
+
+Pickup - [advos.io](https://advos.io/en/quantlytica-launches-ai-powered-liquidity-distribution-protocol-to-democratize-defi/20245852)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/quantlytica-revolutionizing-defi-accessibility-and-liquidity)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/quantlytica-revolutionizing-defi-accessibility-and-liquidity)
+ 
 
 
 

@@ -7,7 +7,17 @@ DALLAS, TX, September 10, 2024 /24-7PressRelease/ -- PROLIM, a global leader in 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514100/prolim-achieves-aws-advanced-tier-services-status)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prolim-achieves-aws-advanced-tier-services-partner-status/abbba94cedb27c466b7fb7ba687ec95c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/prolim-achieves-aws-advanced-tier-services-partner-status-enhancing-cloud-solution-capabilities)
+
+Pickup - [fishervista.com](https://fishervista.com/en/prolim-achieves-aws-advanced-tier-services-status/20246641)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/prolim-achieves-aws-advanced-tier-services-partner-status-enhancing-cloud-solution-capabilities/20246641)
+
+Pickup - [advos.io](https://advos.io/en/prolim-achieves-aws-advanced-tier-services-status/20246641)
+ 
 
 
 

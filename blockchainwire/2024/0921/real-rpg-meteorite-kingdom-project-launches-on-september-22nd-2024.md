@@ -116,7 +116,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/real-rpg-meteorite-kingdom-project-launches-on-september-22nd-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-real-rpg-platform-launches-today/85c4fc25974be5d331455510f728411c) 
+
+ 
 
 
 

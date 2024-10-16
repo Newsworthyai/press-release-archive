@@ -35,7 +35,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/accessible-investing-peimax-launches-groundbreaking-financial-solution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peimax-unveils-revolutionary-investment-platform-for-global-expansion/ab711fba077082665a970a7a370ec5af) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/peimax-introduces-revolutionary-platform-to-democratize-investing)
+
+Pickup - [fishervista.com](https://fishervista.com/en/peimax-revolutionizes-investing-with-new-accessible-financial-platform/20245403)
+
+Pickup - [advos.io](https://advos.io/en/peimax-democratizes-investing-with-innovative-financial-platform/20245403)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/peimax-unveils-innovative-platform-to-democratize-investing)
+ 
 
 
 

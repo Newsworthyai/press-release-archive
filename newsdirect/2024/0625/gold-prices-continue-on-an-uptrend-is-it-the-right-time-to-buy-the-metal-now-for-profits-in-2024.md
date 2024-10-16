@@ -52,7 +52,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/gold-prices-c
 [Original/Source Press Release](https://newsdirect.com/news/gold-prices-continue-on-an-uptrend-is-it-the-right-time-to-buy-the-metal-now-for-profits-in-2024-888318904)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-prices-surge-in-2024-is-it-time-to-buy/02224e247ae5e58818ce6cc349e39b1d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/gold-prices-surge-amid-economic-uncertainty-investment-opportunities-for-2024/20244458)
+
+Pickup - [advos.io](https://advos.io/en/gold-prices-surge-amid-economic-uncertainty-is-now-the-time-to-invest/20244458)
+ 
 
 
 

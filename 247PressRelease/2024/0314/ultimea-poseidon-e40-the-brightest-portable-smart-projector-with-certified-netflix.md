@@ -7,7 +7,11 @@ SAN FRANCISCO, CA, March 14, 2024 /24-7PressRelease/ -- The demand for portable 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509227/ultimea-poseidon-e40-the-brightest-portable-smart-projector-with-certified-netflix)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ultimea-unveils-poseidon-e40-the-brightest-portable-smart-projector/6c4f6bd276839e2bffee2864e64861b1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/ultimea-poseidon-e40-redefining-portable-entertainment-with-unparalleled-brightness-and-features)
+ 
 
 
 

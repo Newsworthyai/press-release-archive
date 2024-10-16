@@ -7,7 +7,11 @@ WILMINGTON, NC, April 04, 2024 /24-7PressRelease/ -- Dr. Kixx Goldman, bestselli
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509749/create-your-own-blueprint-for-healing-your-trauma-dr-kixx-goldman-announces-bestseller-status-for-her-inspirational-ebook-speak-from-your-heart-and-be-heard-stories-of-courage-and-healing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-dr-kixx-goldman-s-ebook-speak-from-your-heart-attains-bestseller-status/14900a7d5f0af35eb9f5905d4be30c92) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/dr-kixx-goldman-s-speak-from-your-heart-and-be-heard-attains-bestseller-status)
+ 
 
 
 

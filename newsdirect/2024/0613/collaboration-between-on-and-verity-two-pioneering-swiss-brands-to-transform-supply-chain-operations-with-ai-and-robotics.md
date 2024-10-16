@@ -51,7 +51,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/collaboration
 [Original/Source Press Release](https://newsdirect.com/news/collaboration-between-on-and-verity-two-pioneering-swiss-brands-to-transform-supply-chain-operations-with-ai-and-robotics-241375800)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/on-and-verity-partner-to-revolutionize-supply-chain-operations-with-ai-and-robotics/1194d1ca5dc69081eb6ba096b6aa7358) 
+
+
+Pickup - [advos.io](https://advos.io/en/on-and-verity-collaborate-to-revolutionize-supply-chain-operations-with-ai-and-robotics/20244115)
+ 
 
 
 

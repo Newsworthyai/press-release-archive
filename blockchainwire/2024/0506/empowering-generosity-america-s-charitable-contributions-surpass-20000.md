@@ -31,7 +31,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/empowering-generosity-americas-charitable-contributions-surpass-20000)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-crypto-project-america-redefines-digital-currencies/aca11c0930e6ac3e11c2e150c8cdf3c4) 
+
+ 
 
 
 

@@ -19,7 +19,11 @@ Stay Updated on CRUIZVisit CRUIZ’s website: https://cruiz.ai/, follow them on 
 [Original/Source Press Release](https://blockchainwire.io/press-release/revolutionary-depin-rideshare-platform-cruiz-rewards-early-adopters-with-crypto-incentives)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cruiz-launches-ai-driven-rideshare-service-with-cryptocurrency-rewards/4c33f6bcdeeb090d7970e746155120c1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/cruiz-revolutionizes-rideshare-with-depin-technology-and-crypto-incentives)
+ 
 
 
 

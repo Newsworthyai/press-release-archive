@@ -41,7 +41,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/ethereum-eth-etfs-approved-crudo-protocol-crudo-price-set-to-increase-soon)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-etf-approval-sets-stage-for-crudo-protocol-s-explosive-growth/aa273dc1f5240fb5b200aa4a2419334f) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ethereum-etf-approval-sets-stage-for-crudo-protocol-s-explosive-growth)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ethereum-etf-approval-sets-stage-for-crudo-protocol-s-explosive-growth)
+ 
 
 
 

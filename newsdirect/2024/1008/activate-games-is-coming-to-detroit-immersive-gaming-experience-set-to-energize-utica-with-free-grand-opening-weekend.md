@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/activate-game
 [Original/Source Press Release](https://newsdirect.com/news/activate-games-is-coming-to-detroit-immersive-gaming-experience-set-to-energize-utica-with-free-grand-opening-weekend-665580861)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/activate-opens-new-detroit-location-with-free-grand-opening-weekend/0bf4c07edc89b6583081f088d3d2fddf) 
+
+ 
 
 
 

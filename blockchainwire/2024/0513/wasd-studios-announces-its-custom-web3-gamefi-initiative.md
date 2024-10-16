@@ -41,7 +41,13 @@ Get ready to experience gaming like never before with WASD Studios. Stay tuned f
 [Original/Source Press Release](https://blockchainwire.io/press-release/wasd-studios-announces-its-custom-web3-gamefi-initiative)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wasd-studios-redefines-crypto-gaming-landscape/6d1bc703fcdabbf01f975341f96893fe) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/wasd-studios-redefines-crypto-gaming-landscape)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/wasd-studios-redefines-crypto-gaming-landscape)
+ 
 
 
 

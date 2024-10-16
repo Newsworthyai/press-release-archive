@@ -7,7 +7,11 @@ PHILADELPHIA, PA, April 13, 2024 /24-7PressRelease/ -- VOMOS is renowned for its
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510043/vomos-welcomes-emina-selinovic-as-newest-travel-ambassador)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vomos-welcomes-emina-selinovic-as-new-travel-ambassador/9a19828fd72acc4fa7044e8c5639b742) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/13/vomos-welcomes-emina-selinovic-as-newest-travel-ambassador)
+ 
 
 
 

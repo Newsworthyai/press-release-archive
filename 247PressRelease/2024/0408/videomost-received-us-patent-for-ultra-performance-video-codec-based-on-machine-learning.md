@@ -7,7 +7,11 @@ DUBAI, UAE, April 08, 2024 /24-7PressRelease/ -- VideoMost Research, an R&D divi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509850/videomost-received-us-patent-for-ultra-performance-video-codec-based-on-machine-learning)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/videomost-research-receives-us-patent-for-innovative-video-compression-technology/7c93e0bc559aa474bae0f16ce2fdc526) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/videomost-secures-us-patent-for-groundbreaking-video-compression-technology)
+ 
 
 
 

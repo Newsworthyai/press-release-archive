@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/rainbow-rare-
 [Original/Source Press Release](https://newsdirect.com/news/rainbow-rare-earths-and-us-critical-minerals-policy-ceo-george-bennetts-insights-413680041)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rainbow-rare-earths-ceo-discusses-us-critical-minerals-policy-and-phalaborwa-project/789a75a55bc624b265c27f9f78917dbb) 
+
+ 
 
 
 

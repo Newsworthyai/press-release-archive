@@ -45,7 +45,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bmtex-exchange-leading-innovation-into-the-future-securing-wealth-with-safety-setting-a-new-standard-in-cryptocurrency-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bmtex-exchange-innovating-cryptocurrency-trading-with-security-and-efficiency/97491a1262964f555de6adbb2a8f1138) 
+
+
+Pickup - [advos.io](https://advos.io/en/bmtex-exchange-leading-innovation-in-cryptocurrency-trading-securing-wealth-with-safety/20244222)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bmtex-exchange-sets-new-standards-in-secure-cryptocurrency-trading/20244222)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bmtex-exchange-innovating-cryptocurrency-trading-with-security-and-efficiency)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bmtex-exchange-innovating-cryptocurrency-trading-with-security-and-efficiency)
+ 
 
 
 

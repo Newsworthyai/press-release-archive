@@ -27,7 +27,9 @@ Shauna Schuda Primary: 630-468-7075 Public Relations Dept. Manager   [Shauna.Sc
 [Original/Source Press Release](https://newsdirect.com/news/lion-leaders-meet-with-members-of-congress-in-washington-d-c-244051583)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lions-international-leaders-advocate-for-environmental-protection-and-hunger-relief-in-congress/efc3589dd64de71a991142f3d5b1d847) 
+
+ 
 
 
 

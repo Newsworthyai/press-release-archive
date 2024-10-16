@@ -31,7 +31,13 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/maocat-announces-new-mao-presale-with-initial-results-exceeding-all-expectations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/maocat-memecoin-presale-exceeds-expectations/9a6d08613805805d3c5d0ae806171a6d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/maocat-memecoin-presale-exceeds-expectations)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/maocat-memecoin-presale-exceeds-expectations)
+ 
 
 
 

@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-onesource-professional-search-llc-and-xenspire-group-inc-621207272)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-facilitates-transaction-between-onesource-professional-search-llc-xenspire-group-inc/0950fdb36ab79971ec0cbfbe09c3b1f5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/onesource-professional-search-acquired-by-xenspire-group-in-strategic-expansion)
+
+Pickup - [fishervista.com](https://fishervista.com/en/onesource-professional-search-acquired-by-xenspire-group-in-strategic-expansion/20246858)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/onesource-professional-search-acquired-by-xenspire-group-in-strategic-expansion-move/20246858)
+
+Pickup - [advos.io](https://advos.io/en/onesource-professional-search-acquired-by-xenspire-group-in-strategic-expansion/20246858)
+ 
 
 
 

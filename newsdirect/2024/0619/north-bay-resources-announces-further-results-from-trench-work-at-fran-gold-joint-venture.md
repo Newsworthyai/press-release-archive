@@ -23,7 +23,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/north-bay-res
 [Original/Source Press Release](https://newsdirect.com/news/north-bay-resources-announces-further-results-from-trench-work-at-fran-gold-joint-venture-408372463)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/north-bay-resources-ceo-shares-exciting-exploration-results-at-fran-gold-joint-venture-property/c9415c905182f691ec64e7962862dca2) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/north-bay-resources-unveils-promising-gold-and-copper-assay-results-at-fran-gold-joint-venture/20244286)
+
+Pickup - [advos.io](https://advos.io/en/north-bay-resources-unveils-promising-assay-results-from-fran-gold-joint-venture/20244286)
+ 
 
 
 

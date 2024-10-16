@@ -40,7 +40,9 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/water-drop-protocol-announces-launch-of-wrop-with-upcoming-ambitious-projects)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/water-drop-protocol-introduces-wrop-token-with-ambitious-roadmap/ca798b5cb8594ae1243de5a8be610e66) 
+
+ 
 
 
 

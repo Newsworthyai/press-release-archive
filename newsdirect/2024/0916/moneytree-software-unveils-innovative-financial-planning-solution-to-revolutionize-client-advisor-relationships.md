@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/moneytree-sof
 [Original/Source Press Release](https://newsdirect.com/news/moneytree-software-unveils-innovative-financial-planning-solution-to-revolutionize-client-advisor-relationships-294260244)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/moneytree-software-unveils-innovative-financial-planning-solution/046211ae39365a95c17770b2615fcfcb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/moneytree-software-launches-new-financial-planning-solution-to-enhance-client-advisor-relationships)
+
+Pickup - [fishervista.com](https://fishervista.com/en/moneytree-software-launches-advanced-financial-planning-solution-to-enhance-client-advisor-relationships/20246862)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/moneytree-software-launches-new-financial-planning-solution-to-enhance-client-advisor-relationships/20246862)
+
+Pickup - [advos.io](https://advos.io/en/moneytree-software-launches-new-financial-planning-solution-to-enhance-client-advisor-relationships/20246862)
+ 
 
 
 

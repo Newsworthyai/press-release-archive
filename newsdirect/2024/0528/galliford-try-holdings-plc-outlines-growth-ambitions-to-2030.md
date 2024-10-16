@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/galliford-try
 [Original/Source Press Release](https://newsdirect.com/news/galliford-try-holdings-plc-outlines-growth-ambitions-to-2030-522399622)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/galliford-try-holdings-plc-outlines-ambitious-growth-strategy-for-2030/0a8b5eb62b45d326c318ba3f26b8ae49) 
+
+ 
 
 
 

@@ -73,7 +73,9 @@ Research Highlights:
 [Original/Source Press Release](https://www.newmediawire.com/news/covid-19-infection-appeared-to-increase-risk-of-heart-attack-stroke-up-to-3-years-later-7076168)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/covid-19-infection-linked-to-increased-risk-of-heart-attack-stroke-and-death-new-study-finds/6dfbaa7d931411fa042e067bc266a24c) 
+
+ 
 
 
 

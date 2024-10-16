@@ -33,7 +33,9 @@ You can learn more about World of Dypians and stay up-to-date with its developme
 [Original/Source Press Release](https://blockchainwire.io/press-release/world-of-dypians-reaches-new-prestige-level-by-making-binances-latest-industry-report)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/world-of-dypians-featured-in-binance-s-latest-industry-map-report/2fa973ae3bcd21daf8b97015a3d0186b) 
+
+ 
 
 
 

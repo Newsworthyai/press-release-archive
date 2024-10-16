@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ais-promise-o
 [Original/Source Press Release](https://newsdirect.com/news/ais-promise-on-display-ben-collaborates-with-sail-of-weill-cornell-medical-center-to-explore-ai-for-training-doctors-improving-patient-outcomes-175714081)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brand-engagement-network-inc-raises-4-95-million-from-existing-investors-to-develop-ai-assistants/7033bcf1be05e00ea6ec4e1851fa603e) 
+
+
+Pickup - [advos.io](https://advos.io/en/ben-collaborates-with-sail-to-explore-ai-for-training-doctors-and-improving-patient-outcomes/20243975)
+ 
 
 
 

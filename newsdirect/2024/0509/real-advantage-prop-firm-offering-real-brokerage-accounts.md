@@ -57,7 +57,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/real-advantag
 [Original/Source Press Release](https://newsdirect.com/news/real-advantage-prop-firm-offering-real-brokerage-accounts-612090844)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blusky-trading-company-paving-the-path-to-real-market-success/12036fc2837aa0f0e7b4a6d372cf6241) 
+
+ 
 
 
 

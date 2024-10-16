@@ -70,7 +70,11 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/rapidfire/news_release/1420)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rapidfire-safety-security-enters-texas-market-with-acquisition-of-texas-star-fire-systems/8ce96e77ec07256c83cdf329bf6d823b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/06/rapidfire-safety-security-acquires-texas-star-fire-systems-expanding-footprint-in-texas)
+ 
 
 
 

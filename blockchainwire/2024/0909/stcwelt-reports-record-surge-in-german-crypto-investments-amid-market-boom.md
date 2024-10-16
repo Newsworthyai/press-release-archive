@@ -34,7 +34,17 @@ For more information about how Stcwelt can help you take advantage of the growin
 [Original/Source Press Release](https://blockchainwire.io/press-release/stcwelt-reports-record-surge-in-german-crypto-investments-amid-market-boom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/record-surge-in-german-investors-turning-to-cryptocurrency-in-2024/750f492c206948e81169742527bba9aa) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/record-surge-in-german-crypto-investments-reported-by-stcwelt-amid-market-boom/20246694)
+
+Pickup - [advos.io](https://advos.io/en/record-surge-in-german-crypto-investments-reported-by-stcwelt-amid-market-boom/20246694)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/german-crypto-investments-soar-as-stcwelt-reports-record-surge)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/german-crypto-investments-soar-as-stcwelt-reports-record-surge/20246694)
+ 
 
 
 

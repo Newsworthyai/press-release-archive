@@ -7,7 +7,17 @@ VANCOUVER, BC, August 20, 2024 /24-7PressRelease/ -- As seasoned Chartered Profe
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513562/cra-shifts-audit-activity-in-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cra-audit-patterns-and-taxation-update-for-2024/ac7611983e797cf6f9f74a80b4805872) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cra-shifts-audit-focus-for-2024-key-areas-to-watch/20245827)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cra-intensifies-audit-focus-on-specific-areas-in-2024/20245827)
+
+Pickup - [advos.io](https://advos.io/en/cra-shifts-focus-in-2024-audits/20245827)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/cra-focuses-audit-activity-on-specific-areas-in-2024)
+ 
 
 
 

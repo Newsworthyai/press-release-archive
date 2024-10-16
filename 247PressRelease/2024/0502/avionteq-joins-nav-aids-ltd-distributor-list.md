@@ -7,7 +7,9 @@ VAN NUYS, CA, May 02, 2024 /24-7PressRelease/ -- AvionTEq, a leading distributor
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510587/avionteq-joins-nav-aids-ltd-distributor-list)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avionteq-announces-distributorship-agreement-with-nav-aids-for-premium-aviation-navigation-solutions/ab888f610ed7295e468d111ec5e3b36a) 
+
+ 
 
 
 

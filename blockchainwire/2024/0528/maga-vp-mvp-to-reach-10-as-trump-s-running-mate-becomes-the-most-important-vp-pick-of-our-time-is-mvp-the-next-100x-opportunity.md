@@ -31,7 +31,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/maga-vp-mvp-to-reach-10-as-trumps-running-mate-becomes-the-most-important-vp-pick-of-our-time-is-mvp-the-next-100x-opportunity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/maga-vp-token-mvp-set-to-impact-the-future-of-american-politics/ed93ec51dddd60260945954d458a513c) 
+
+ 
 
 
 

@@ -49,7 +49,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/nodle-is-launching-on-zksync-to-bring-the-fastest-growing-depin-to-ethereum)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nodle-launches-on-zksync-era-to-bring-digital-trust-network-to-ethereum/e76a14a662871c2f68c822e1a996865c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/nodle-launches-on-zksync-to-bring-fastest-growing-depin-to-ethereum)
+ 
 
 
 

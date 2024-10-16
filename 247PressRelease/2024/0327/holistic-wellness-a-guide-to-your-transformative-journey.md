@@ -7,7 +7,11 @@ CORVALLIS, OR, March 27, 2024 /24-7PressRelease/ -- In the pursuit of addiction 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509553/holistic-wellness-a-guide-to-your-transformative-journey)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/transformative-concepts-for-holistic-recovery-the-other-twelve-steps/201f4d4b6641c191ba9104a292f17a85) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/embracing-holistic-wellness-for-sustainable-addiction-recovery)
+ 
 
 
 

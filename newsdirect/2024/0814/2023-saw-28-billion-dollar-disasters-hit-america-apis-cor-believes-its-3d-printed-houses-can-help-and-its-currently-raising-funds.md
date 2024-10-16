@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/2023-saw-28-b
 [Original/Source Press Release](https://newsdirect.com/news/2023-saw-28-billion-dollar-disasters-hit-america-apis-cor-believes-its-3d-printed-houses-can-help-and-its-currently-raising-funds-621922997)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/28-billion-dollar-disasters-in-2023-how-apis-cor-s-3d-printed-homes-can-help/8c112364be0824bb72ee9e601f7efefc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/3d-printed-concrete-homes-a-potential-solution-to-america-s-natural-disaster-challenges)
+
+Pickup - [fishervista.com](https://fishervista.com/en/apis-cor-s-3d-printed-concrete-homes-a-solution-for-increasing-natural-disasters/20245728)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/3d-printed-concrete-homes-a-potential-solution-to-america-s-natural-disaster-crisis/20245728)
+
+Pickup - [advos.io](https://advos.io/en/apis-cor-s-3d-printed-homes-offer-resilient-solution-amid-rising-natural-disasters/20245728)
+ 
 
 
 

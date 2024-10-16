@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-humane-so
 [Original/Source Press Release](https://newsdirect.com/news/the-humane-society-of-the-united-states-helping-pets-in-poverty-keeping-people-and-pets-together-in-hard-times-105263883)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/humane-society-launches-more-than-a-pet-campaign-to-help-pets-in-poverty/dde2a717d1ae4c9128eae30109fee045) 
+
+ 
 
 
 

@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/claravine-lau
 [Original/Source Press Release](https://newsdirect.com/news/claravine-launches-dv360-connector-to-streamline-digital-media-campaigns-956186205)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/claravine-launches-new-dv360-connector-for-improved-marketing-data-compliance/c48019de1fc804927ae81fb64cd8fba6) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/claravine-introduces-dv360-connector-to-enhance-digital-media-campaign-management/20245585)
+
+Pickup - [advos.io](https://advos.io/en/claravine-unveils-dv360-connector-to-enhance-digital-media-campaign-efficiency/20245585)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/claravine-introduces-dv360-connector-to-enhance-digital-marketing-efficiency/20245585)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/claravine-introduces-dv360-connector-to-enhance-digital-media-campaign-management)
+ 
 
 
 

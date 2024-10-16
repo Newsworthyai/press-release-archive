@@ -7,7 +7,9 @@ ABBOTSFORD, BC, September 20, 2024 /24-7PressRelease/ -- Abbotsford's Helical Wo
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514523/helical-works-poised-to-become-major-parts-supplier-for-bulk-handling-in-western-canada)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/helical-works-company-ltd-expands-product-line-to-better-serve-western-canadian-industries/c80b9243d258acf975141ef136896d7a) 
+
+ 
 
 
 

@@ -57,7 +57,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/media-advisor
 [Original/Source Press Release](https://newsdirect.com/news/media-advisory-comcast-partners-with-legendary-mexican-rock-band-el-tri-to-provide-asl-interpretation-for-the-first-time-at-upcoming-music-in-the-park-concert-773609055)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-and-el-tri-collaborate-for-historic-music-in-the-park-event/4206c77011e2bdd228aa223f0dcc3e43) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/comcast-and-el-tri-to-offer-asl-interpretation-at-music-in-the-park-concert/20244376)
+
+Pickup - [advos.io](https://advos.io/en/comcast-and-el-tri-break-barriers-with-asl-interpretation-at-music-in-the-park-concert/20244376)
+ 
 
 
 

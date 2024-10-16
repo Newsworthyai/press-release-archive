@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/college-of-am
 [Original/Source Press Release](https://newsdirect.com/news/college-of-american-pathologists-cancer-rates-soaring-in-younger-adults-105893615)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/college-of-american-pathologists-addresses-soaring-cancer-rates-in-younger-adults/90d56f150cc2b1767fffecff7c3f30b8) 
+
+ 
 
 
 

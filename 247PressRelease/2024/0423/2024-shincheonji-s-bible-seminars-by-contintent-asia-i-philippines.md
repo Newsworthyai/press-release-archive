@@ -7,7 +7,9 @@ MINDANAO, PHILIPPINES, April 23, 2024 /24-7PressRelease/ -- "It is the mission o
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510266/2024-shincheonjis-bible-seminars-by-contintent-asia-i-philippines)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-church-chairman-lee-man-hee-kicks-off-2024-bible-seminars-in-the-philippines/9d7a58fe349fda663e00ad46eb372995) 
+
+ 
 
 
 

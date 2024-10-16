@@ -7,7 +7,11 @@ WINSTON-SALEM, NC, April 19, 2024 /24-7PressRelease/ -- Now folks, get your toe-
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510135/razzoos-cajun-cafe-announces-concert-series-at-winston-salem-nc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/razzoo-s-cajun-cafe-hosts-live-music-series-and-unveils-new-rib-menu/231512de64f215558e5bcef8dd095c24) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/razzoo-s-cajun-cafe-announces-concert-series-at-winston-salem-nc)
+ 
 
 
 

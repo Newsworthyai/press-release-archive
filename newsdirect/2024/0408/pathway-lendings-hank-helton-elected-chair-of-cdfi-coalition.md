@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/pathway-lendi
 [Original/Source Press Release](https://newsdirect.com/news/pathway-lendings-hank-helton-elected-chair-of-cdfi-coalition-814647096)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pathway-lending-s-hank-helton-elected-chair-of-cdfi-coalition/bc44d1b5498fa15b04137e1713eab64f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/pathway-lending-s-hank-helton-takes-helm-of-cdfi-coalition)
+ 
 
 
 

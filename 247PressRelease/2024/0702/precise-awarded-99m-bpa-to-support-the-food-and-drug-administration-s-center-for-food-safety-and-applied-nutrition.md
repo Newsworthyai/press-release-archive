@@ -7,7 +7,15 @@ ROCKVILLE, MD, July 02, 2024 /24-7PressRelease/ -- Precise Software Solutions, I
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512210/precise-awarded-99m-bpa-to-support-the-food-and-drug-administrations-center-for-food-safety-and-applied-nutrition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/precise-software-solutions-inc-wins-competitive-award-to-support-fda-s-cfsan/994bb1f0ad4fa745500dc70c176072b9) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/precise-awarded-99m-contract-to-enhance-fda-s-food-safety-systems/20244642)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/precise-software-solutions-secures-99m-contract-to-support-fda-s-food-safety-mission)
+
+Pickup - [advos.io](https://advos.io/en/precise-awarded-99m-contract-to-enhance-fda-s-food-safety-and-nutrition-systems/20244642)
+ 
 
 
 

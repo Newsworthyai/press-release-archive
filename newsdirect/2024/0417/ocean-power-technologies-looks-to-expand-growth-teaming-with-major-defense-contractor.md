@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-t
 [Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-looks-to-expand-growth-teaming-with-major-defense-contractor-554064198)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ocean-power-technologies-and-defense-contractor-form-groundbreaking-partnership/6e3147d6d5a9dad03e29404249f203b0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/ocean-power-technologies-partners-with-major-defense-contractor-to-enhance-maritime-surveillance)
+ 
 
 
 

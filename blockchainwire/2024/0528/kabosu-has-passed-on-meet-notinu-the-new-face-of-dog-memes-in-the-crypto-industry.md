@@ -11,7 +11,13 @@ Here is a detailed Tutorial on How to Bridge/Migrate to TON Chain- Step 1 - Down
 [Original/Source Press Release](https://blockchainwire.io/press-release/kabosu-has-passed-on-meet-notinu-the-new-face-of-dog-memes-in-the-crypto-industry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/notinu-achieves-milestones-in-ton-ecosystem/58a8991c8dd302da8493cf1b70d3c703) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/notinu-achieves-milestones-in-ton-ecosystem)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/notinu-achieves-milestones-in-ton-ecosystem)
+ 
 
 
 

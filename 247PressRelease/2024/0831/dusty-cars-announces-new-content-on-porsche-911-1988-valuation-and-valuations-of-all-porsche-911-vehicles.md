@@ -7,7 +7,17 @@ PLEASANTON, CA, August 31, 2024 /24-7PressRelease/ -- Dusty Cars, California's t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513732/dusty-cars-announces-new-content-on-porsche-911-1988-valuation-and-valuations-of-all-porsche-911-vehicles)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dusty-cars-releases-new-post-on-valuation-of-1988-porsche-911-carrera-4/d7cba5f7339245dae4bd4c6a7a39fc86) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/31/dusty-cars-unveils-new-insights-on-porsche-911-1988-valuation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dusty-cars-highlights-valuation-insights-for-1988-porsche-911/20246410)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/dusty-cars-unveils-new-content-on-1988-porsche-911-valuation/20246410)
+
+Pickup - [advos.io](https://advos.io/en/dusty-cars-releases-new-valuation-insights-for-1988-porsche-911/20246410)
+ 
 
 
 

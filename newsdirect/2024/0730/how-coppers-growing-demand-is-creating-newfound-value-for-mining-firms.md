@@ -49,7 +49,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-coppers-g
 [Original/Source Press Release](https://newsdirect.com/news/how-coppers-growing-demand-is-creating-newfound-value-for-mining-firms-516874516)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rising-demand-for-copper-sparks-investment-opportunity/07fd70863d78891647a556847b6a79bb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/copper-demand-surge-propels-mining-firms-to-new-heights)
+
+Pickup - [fishervista.com](https://fishervista.com/en/copper-demand-surge-signals-potential-boom-for-mining-companies-and-investors/20245360)
+
+Pickup - [advos.io](https://advos.io/en/coppers-growing-demand-presents-investment-opportunities-for-mining-firms/20245360)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/surging-copper-demand-fuels-potential-investment-opportunities-in-mining-sector)
+ 
 
 
 

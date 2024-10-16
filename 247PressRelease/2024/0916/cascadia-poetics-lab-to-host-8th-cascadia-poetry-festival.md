@@ -7,7 +7,17 @@ SEATTLE, WA, September 16, 2024 /24-7PressRelease/ -- Celebrate the poetry of th
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514316/cascadia-poetics-lab-to-host-8th-cascadia-poetry-festival)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cascadia-poetry-festival-2024-celebrating-bioregional-poetry-at-cascadia-poetics-lab/d4686e8eef06ca9cbb344faf67f32593) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/8th-cascadia-poetry-festival-to-celebrate-bioregional-literature-and-launch-new-anthology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cascadia-poetry-festival-returns-to-seattle-celebrating-regional-art-and-culture/20246841)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/8th-cascadia-poetry-festival-to-celebrate-bioregional-art-and-culture/20246841)
+
+Pickup - [advos.io](https://advos.io/en/cascadia-poetry-festival-returns-to-seattle-for-8th-edition/20246841)
+ 
 
 
 

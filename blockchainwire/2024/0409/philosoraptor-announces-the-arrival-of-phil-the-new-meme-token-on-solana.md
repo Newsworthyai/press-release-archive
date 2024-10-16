@@ -41,7 +41,11 @@ X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/philosoraptor-announces-the-arrival-of-phil-the-new-meme-token-on-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/philosoraptor-team-launches-phil-the-new-meme-token-on-solana/58e11feb7406d34d0d1deff69b3bf926) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/philosoraptor-introduces-phil-a-new-meme-token-on-solana)
+ 
 
 
 

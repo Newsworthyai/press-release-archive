@@ -23,7 +23,21 @@ DappRadar DAO is a Decentralized Autonomous Organization (DAO) built around the 
 [Original/Source Press Release](https://blockchainwire.io/press-release/dappradar-dao-revenue-drives-radar-buyback)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dappradar-dao-completes-first-token-buyback/5c512f95c77f800731e9a8a5175d122b) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/dappradar-dao-completes-first-token-buyback)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/dappradar-dao-completes-first-token-buyback)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/dappradar-dao-completes-first-radar-token-buyback-strengthening-web3-ecosystem)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dappradar-dao-completes-first-radar-token-buyback/20245289)
+
+Pickup - [advos.io](https://advos.io/en/dappradar-dao-completes-first-radar-token-buyback/20245289)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dappradar-dao-completes-first-radar-token-buyback-strengthening-web3-ecosystem)
+ 
 
 
 

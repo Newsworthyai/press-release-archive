@@ -50,7 +50,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/amerilifes-hi
 [Original/Source Press Release](https://newsdirect.com/news/amerilifes-hipe-financial-welcomes-legacy-senior-benefit-to-amplify-value-within-the-final-expense-marketplace-473309488)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hipe-financial-partners-with-legacy-senior-benefit-for-final-expense-market-growth/bc7f6d3fb5091be03d599e616aa4ad47) 
+
+
+Pickup - [advos.io](https://advos.io/en/amerilifes-hipe-financial-partners-with-legacy-senior-benefit-to-enhance-final-expense-market/20244078)
+ 
 
 
 

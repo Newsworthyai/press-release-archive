@@ -49,7 +49,9 @@ anna@picklejar.com
 [Original/Source Press Release](https://www.newmediawire.com/news/picklejar-announces-integration-with-optculture-to-deliver-holistic-fan-experiences-at-venue-point-of-sale-7076057)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/picklejar-adds-omnichannel-retail-marketing-and-customer-engagement-tools/032e1e31da00462fe9a156250ecfadbb) 
+
+ 
 
 
 

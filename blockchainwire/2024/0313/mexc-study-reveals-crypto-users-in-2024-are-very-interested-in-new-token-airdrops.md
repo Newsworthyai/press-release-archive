@@ -31,7 +31,11 @@ DisclaimerThis press release contains forward-looking statements that are subjec
 [Original/Source Press Release](https://blockchainwire.io/press-release/mexc-study-reveals-crypto-users-in-2024-are-very-interested-in-new-token-airdrops)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mexc-study-reveals-surge-in-interest-for-mx-token-airdrops/973f1a9dc356a3d77579477142b7c35f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/13/mexc-study-reveals-growing-interest-in-crypto-airdrops-for-2024)
+ 
 
 
 

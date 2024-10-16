@@ -34,7 +34,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nafa-launches
 [Original/Source Press Release](https://newsdirect.com/news/nafa-launches-new-elearning-courses-for-advanced-fleet-management-659504064)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nafa-launches-new-elearning-courses-for-advanced-fleet-management/dd0fa5c079357233dc0a2851d04cf6ed) 
+
+ 
 
 
 

@@ -37,7 +37,9 @@ Location: SingaporeDisclaimer: The information provided in this press release is
 [Original/Source Press Release](https://blockchainwire.io/press-release/npitime-digital-asset-trading-platform-innovative-technology-provides-solutions-for-financial-markets)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/npitime-introduces-innovative-technology-for-safer-digital-currency-trading/e781a0a7bea8dec17d6ee5fcb1e84717) 
+
+ 
 
 
 

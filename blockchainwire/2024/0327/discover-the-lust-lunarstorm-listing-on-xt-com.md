@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-lust-lunarstorm-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-announces-listing-of-lust-token-on-its-web-3-0-platform/410b7620a80d97a60840d7bcd58bbe4a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/lunarstorm-s-lust-token-fuels-web3-gaming-revolution-on-xt-com)
+ 
 
 
 

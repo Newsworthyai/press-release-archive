@@ -39,7 +39,9 @@ Media Contact:Robert Smith[https://furrevertoken.com/](https://furrevertoken.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/market-downturn-sees-ethereum-eth-drop-65-below-3k-bitcoin-btc-recovers-to-58k-furrever-token-furr-launches-10k-bonanza-amidst-bearish-sentiment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-fluctuations-ethereum-dips-bitcoin-struggles-furrever-token-capitalizes/d61de3052de5c3a72315eb20418202bb) 
+
+ 
 
 
 

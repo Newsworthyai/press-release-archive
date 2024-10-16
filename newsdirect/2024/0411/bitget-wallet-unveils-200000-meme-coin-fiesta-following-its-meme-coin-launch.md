@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-wallet
 [Original/Source Press Release](https://newsdirect.com/news/bitget-wallet-unveils-200-000-meme-coin-fiesta-following-its-meme-coin-launch-949201591)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-wallet-unveils-200000-meme-coin-fiesta/8c6ccb1b9c188a0e992ccc96f3b285c6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/bitget-wallet-launches-200000-meme-coin-fiesta)
+ 
 
 
 

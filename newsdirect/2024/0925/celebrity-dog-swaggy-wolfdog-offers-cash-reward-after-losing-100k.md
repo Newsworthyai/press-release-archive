@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/celebrity-dog
 [Original/Source Press Release](https://newsdirect.com/news/celebrity-dog-swaggy-wolfdog-offers-cash-reward-after-losing-100k-995891912)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/celebrity-dog-swaggy-wolfdog-offers-cash-reward-after-losing-100k-diamond-chain/460c7a8ed1de3a1b85c3bf070bb50f4f) 
+
+ 
 
 
 

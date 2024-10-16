@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/busting-the-m
 [Original/Source Press Release](https://newsdirect.com/news/busting-the-myths-around-weight-loss-medication-311943110)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/busting-the-myths-around-weight-loss-medication-with-dr-craig-primack/8ca113737ef34032698fb264bd7fa6fe) 
+
+ 
 
 
 

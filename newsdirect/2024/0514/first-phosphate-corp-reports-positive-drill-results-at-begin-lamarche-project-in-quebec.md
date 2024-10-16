@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/first-phospha
 [Original/Source Press Release](https://newsdirect.com/news/first-phosphate-corp-reports-positive-drill-results-at-begin-lamarche-project-in-quebec-711329175)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/first-phosphate-corp-ceo-announces-positive-drill-results-at-begin-lamarche-project-in-quebec/e43c5263f817b274990f85f70db229af) 
+
+ 
 
 
 

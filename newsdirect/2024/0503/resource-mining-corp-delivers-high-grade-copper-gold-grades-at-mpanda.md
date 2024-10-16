@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/resource-mini
 [Original/Source Press Release](https://newsdirect.com/news/resource-mining-corp-delivers-high-grade-copper-gold-grades-at-mpanda-812777598)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/resource-mining-corp-delivers-high-grade-copper-gold-grades-at-mpanda/eab562bb609bfdb1a6ca6b66f6087866) 
+
+ 
 
 
 

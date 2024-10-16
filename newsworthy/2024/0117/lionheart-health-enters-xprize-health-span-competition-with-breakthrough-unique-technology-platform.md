@@ -35,7 +35,11 @@ www.leonhardtventures.com
 [Original/Source Press Release](https://newsworthy.ai/news/20240117982/lionheart-health-enters-xprize-health-span-competition-with-breakthrough-unique-technology-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lionheart-health-enters-xprize-healthspan-competition/290b5e19fcd95299845a390de86f6e9a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/17/lionheart-health-pioneers-bioelectric-anti-aging-technology-for-xprize-competition)
+ 
 
 
 

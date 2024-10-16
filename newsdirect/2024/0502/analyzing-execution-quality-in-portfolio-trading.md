@@ -84,7 +84,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/analyzing-exe
 [Original/Source Press Release](https://newsdirect.com/news/analyzing-execution-quality-in-portfolio-trading-587273413)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/analyzing-execution-quality-in-portfolio-trading/6ffb5728e4d471371f4d1589993fd6e1) 
+
+ 
 
 
 

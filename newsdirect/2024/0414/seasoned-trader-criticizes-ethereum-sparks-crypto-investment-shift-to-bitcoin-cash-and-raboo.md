@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/seasoned-trad
 [Original/Source Press Release](https://newsdirect.com/news/seasoned-trader-criticizes-ethereum-sparks-crypto-investment-shift-to-bitcoin-cash-and-raboo-852776776)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-cash-and-raboo-leading-the-shift-in-crypto-investment/0a79eca8fadd38bd7f62c309b8844931) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/14/seasoned-trader-criticizes-ethereum-sparks-crypto-investment-shift-to-bitcoin-cash-and-raboo)
+ 
 
 
 

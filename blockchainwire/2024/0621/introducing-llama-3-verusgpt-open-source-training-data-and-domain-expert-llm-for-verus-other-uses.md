@@ -33,7 +33,17 @@ X: [https://x.com/veruscoin](https://x.com/veruscoin)Telegram: [https://t.me/ver
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-llama-3-verusgpt--open-source-training-data-and-domain-expert-llm-for-verus--other-uses)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/verus-community-launches-llama-3-verusgpt-a-domain-expert-ai-model-for-verus-protocol/4c8dee0c8931f1280f4ebfbbfa82a96c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/verus-community-launches-llama-3-verusgpt-an-open-source-domain-expert-language-model/20244379)
+
+Pickup - [advos.io](https://advos.io/en/verus-community-launches-open-source-ai-model-llama-3-verusgpt/20244379)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/verus-community-launches-llama-3-verusgpt-a-domain-expert-ai-model-for-verus-protocol)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/verus-community-launches-llama-3-verusgpt-a-domain-expert-ai-model-for-verus-protocol)
+ 
 
 
 

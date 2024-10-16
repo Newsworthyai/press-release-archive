@@ -67,7 +67,9 @@ Consensus is the epicenter of innovation in blockchain and crypto. It's where id
 [Original/Source Press Release](https://blockchainwire.io/press-release/navigating-the-blockchain-universe-a-guide-to-coindesks-consensus-conference)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/consensus-2024-the-epicenter-of-crypto-and-web3-innovation/82c14b304bdf0da35f101d13196d5182) 
+
+ 
 
 
 

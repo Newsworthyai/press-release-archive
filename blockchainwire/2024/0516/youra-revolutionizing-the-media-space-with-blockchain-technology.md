@@ -43,7 +43,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/youra-revolutionizing-the-media-space-with-blockchain-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/youra-token-project-revolutionizing-the-creative-industry/2cdb08d9084cb3d7fe5546790eeee8a0) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/youra-token-project-revolutionizing-the-creative-industry)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/youra-token-project-revolutionizing-the-creative-industry)
+ 
 
 
 

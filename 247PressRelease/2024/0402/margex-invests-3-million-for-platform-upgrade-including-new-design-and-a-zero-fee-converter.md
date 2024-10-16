@@ -7,7 +7,11 @@ VICTORIA, SEYCHELLES, April 02, 2024 /24-7PressRelease/ -- Margex, a cryptocurre
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509726/margex-invests-3-million-for-platform-upgrade-including-new-design-and-a-zero-fee-converter)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/margex-announces-launch-of-margex-2-0-with-dark-mode-zero-fee-converter-and-crypto-wallet/9fc52dbfe425ed181f7e95e8285a2253) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/margex-unveils-upgraded-trading-platform-with-new-features)
+ 
 
 
 

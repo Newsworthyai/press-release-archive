@@ -48,7 +48,11 @@ X (Twitter) | Telegram | Instagram
 [Original/Source Press Release](https://blockchainwire.io/press-release/based-monkey-puppet-goes-live-on-base-chain-with-vision-to-reward-content-creators-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/based-monkey-puppet-launches-new-token-on-base-network-with-visionary-roadmap/015b59936eea3e35538f29a7d862bcd0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/based-monkey-puppet-launches-on-base-chain-to-empower-content-creators)
+ 
 
 
 

@@ -7,7 +7,9 @@ WELLINGTON, FL, April 30, 2024 /24-7PressRelease/ -- Noelia Mercedes' debut nove
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510492/los-asesinos-silenciosos-a-symphony-of-silent-struggles)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/noelia-mercedes-debut-novel-los-asesinos-silenciosos-uncovers-the-depths-of-silence-and-resilience/90b87bda115a904897a061f87b9df1be) 
+
+ 
 
 
 

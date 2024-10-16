@@ -7,7 +7,9 @@ LOS ANGELES, CA, April 29, 2024 /24-7PressRelease/ -- Kay A. Oliver's gripping n
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510463/disturbed-tombs-by-kay-a-oliver-clinches-finalist-position-in-the-prestigious-2024-american-legacy-book-awards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kay-a-oliver-s-disturbed-tombs-named-finalist-in-2024-american-legacy-book-awards/3f3dd651c067d9868145875c4f1d6bc3) 
+
+ 
 
 
 

@@ -7,7 +7,9 @@ LOS ANGELES, CA, October 08, 2024 /24-7PressRelease/ -- The series, produced by 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514182/first-look-at-prince-harrys-polo-docu-series-polo-premiering-this-december-on-netflix)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prince-harry-and-meghan-markle-to-produce-new-documentary-series-polo-for-netflix/8934e6483ab13c59e358d317f8b7178a) 
+
+ 
 
 
 

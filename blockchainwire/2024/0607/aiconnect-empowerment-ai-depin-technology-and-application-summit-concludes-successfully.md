@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/aiconnect-empowerment-aidepin-technology-and-application-summit-concludes-successfully)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-depin-technology-summit-aiconnect-and-jucoin-celebrate-successful-integration/2baaa910841275a977b98fca1acfb6d4) 
+
+
+Pickup - [advos.io](https://advos.io/en/aiconnect-empowerment-ai-depin-technology-and-application-summit-concludes-successfully/20243943)
+ 
 
 
 

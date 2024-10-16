@@ -7,7 +7,15 @@ PEMBROKE PINES, FL, July 21, 2024 /24-7PressRelease/ -- Renowned historian and a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512722/why-do-empires-fall-the-fall-of-the-roman-american-emoire)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-historian-hector-felix-byrd-releases-new-book-why-do-empires-fall/5f4f805e90827d11e8ca297f6b5642fa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/21/new-book-draws-striking-parallels-between-ancient-rome-and-modern-america)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hector-felix-byrd-releases-insightful-new-book-on-the-rise-and-fall-of-empires/20245132)
+
+Pickup - [advos.io](https://advos.io/en/hector-felix-byrd-explores-the-parallels-between-ancient-rome-and-modern-america-in-new-book/20245132)
+ 
 
 
 

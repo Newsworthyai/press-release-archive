@@ -7,7 +7,9 @@ OTTAWA, ON, September 26, 2024 /24-7PressRelease/ -- The International Organizat
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514656/iosco-announced-that-the-international-stock-returns-competition-is-about-to-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iosco-launches-international-stock-returns-competition-with-100-million-prize-pool/d01fcb29c3c32224cab2ff06421bdd05) 
+
+ 
 
 
 

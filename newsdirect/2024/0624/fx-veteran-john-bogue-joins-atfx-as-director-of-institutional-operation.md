@@ -33,7 +33,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/fx-veteran-jo
 [Original/Source Press Release](https://newsdirect.com/news/fx-veteran-john-bogue-joins-atfx-as-director-of-institutional-operation-893768884)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fx-veteran-john-bogue-joins-atfx-as-director-of-institutional-operation/0f6f8abb06a3b66110a5f20284d1d22c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/fx-expert-john-bogue-joins-atfx-as-director-of-institutional-operation/20244413)
+
+Pickup - [advos.io](https://advos.io/en/fx-veteran-john-bogue-joins-atfx-as-director-of-institutional-operation/20244413)
+ 
 
 
 

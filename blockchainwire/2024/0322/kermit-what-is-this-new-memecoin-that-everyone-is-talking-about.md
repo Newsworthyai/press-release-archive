@@ -9,7 +9,11 @@ With the right concept at the right time, an experienced team, a community of en
 [Original/Source Press Release](https://blockchainwire.io/press-release/kermit-what-is-this-new-memecoin-that-everyone-is-talking-about)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unbelievable-price-growth-for-kermit-memecoin-on-solana-blockchain/cf72fcafd0ed993ec0d64e6d1c4470d7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/kermit-memecoin-soars-on-solana-blockchain)
+ 
 
 
 

@@ -59,7 +59,13 @@ https://bluestonemining.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-btc-reaches-a-high-of-67k-how-bluestonemining-analysts-avoid-risks-and-profits)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investing-in-new-energy-cloud-mining-the-key-to-maximizing-profits/930ac989e7e38959ea3c963260e69d20) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/investing-in-new-energy-cloud-mining-the-key-to-maximizing-profits)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/investing-in-new-energy-cloud-mining-the-key-to-maximizing-profits)
+ 
 
 
 

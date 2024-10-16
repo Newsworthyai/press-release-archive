@@ -25,7 +25,11 @@ For more information, log onto bek.tv and bek.news.
 [Original/Source Press Release](https://newsworthy.ai/news/202403251125/bek-tv-announces-second-season-of-ndra-rodeo-bringing-thrilling-rodeo-action-to-viewers-statewide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bek-tv-announces-exclusive-coverage-of-2024-ndra-rodeo-season/be2df3a75db1f85d873ac502bf55934d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/bek-tv-brings-rodeo-thrills-to-north-dakota-viewers)
+ 
 
 
 

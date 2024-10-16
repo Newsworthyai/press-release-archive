@@ -57,7 +57,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/li-ft-power-c
 [Original/Source Press Release](https://newsdirect.com/news/li-ft-power-cements-position-in-north-americas-expanding-lithium-market-with-strategic-canadian-projects-569965746)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/li-ft-power-leading-the-charge-in-north-america-s-booming-lithium-market/fad58ce388f486d07cef732bab5bf9dd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/li-ft-power-expands-footprint-in-north-american-lithium-market-with-strategic-canadian-projects)
+
+Pickup - [fishervista.com](https://fishervista.com/en/li-ft-power-strengthens-position-in-north-america-s-growing-lithium-market-with-key-canadian-projects/20245320)
+
+Pickup - [advos.io](https://advos.io/en/li-ft-power-solidifies-role-in-north-american-lithium-market-with-key-canadian-projects/20245320)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/li-ft-power-strengthens-foothold-in-north-american-lithium-market-with-canadian-projects)
+ 
 
 
 

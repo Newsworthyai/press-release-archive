@@ -31,7 +31,9 @@ IR@icoreconnect.com
 [Original/Source Press Release](https://www.newmediawire.com/news/icoreconnect-inc-announces-strategic-acquisition-of-healthcare-circle-of-excellence-assets-7076150)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/icoreconnect-inc-acquires-healthcare-circle-of-excellence-assets-to-empower-local-healthcare-community-partners-and-practices/67a1382853a5a99a57e94b9fb5936f7b) 
+
+ 
 
 
 

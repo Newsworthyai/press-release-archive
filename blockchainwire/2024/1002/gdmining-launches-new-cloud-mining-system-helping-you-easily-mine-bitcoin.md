@@ -28,7 +28,9 @@ For more information or to get started with GDMining, visit www.gdmining.com.
 [Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-launches-new-cloud-mining-system-helping-you-easily-mine-bitcoin)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gdmining-unveils-enhanced-cloud-mining-system-for-bitcoin-mining/0f46171b49716d310b73de7c7e3acb81) 
+
+ 
 
 
 

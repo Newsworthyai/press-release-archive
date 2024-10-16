@@ -27,7 +27,19 @@ Collaborations between blockchains and centralized exchanges have long focused o
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-and-solana-expand-partnerships-to-empower-founders-villa)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-announces-exclusive-partnership-with-solana-s-superteam-founders-villa/76dfc064c68adf4cc47ce524103cc7fa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/coinw-partners-with-solana-s-superteam-founders-villa-to-foster-blockchain-innovation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/coinw-and-solana-strengthen-partnership-to-empower-blockchain-innovation/20244927)
+
+Pickup - [advos.io](https://advos.io/en/coinw-and-solana-partner-to-empower-innovation-at-founders-villa/20244927)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-announces-exclusive-partnership-with-solana-s-superteam-founders-villa)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-announces-exclusive-partnership-with-solana-s-superteam-founders-villa)
+ 
 
 
 

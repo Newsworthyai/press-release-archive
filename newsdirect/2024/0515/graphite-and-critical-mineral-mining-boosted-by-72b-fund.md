@@ -85,7 +85,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/graphite-and-
 [Original/Source Press Release](https://newsdirect.com/news/graphite-and-critical-mineral-mining-boosted-by-72b-fund-400817092)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/biden-administration-supports-critical-mineral-mining-with-72b-fund/2c31a99e02a74ae148cbe4ab11614a90) 
+
+ 
 
 
 

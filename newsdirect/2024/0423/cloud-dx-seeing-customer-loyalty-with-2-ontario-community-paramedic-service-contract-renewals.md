@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/cloud-dx-seei
 [Original/Source Press Release](https://newsdirect.com/news/cloud-dx-seeing-customer-loyalty-with-2-ontario-community-paramedic-service-contract-renewals-328277570)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloud-dx-renews-agreements-with-ontario-paramedic-services-signifying-growth-potential/b59ef1466bb70edbf053664c7275de96) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/cloud-dx-seeing-customer-loyalty-with-2-ontario-community-paramedic-service-contract-renewals)
+ 
 
 
 

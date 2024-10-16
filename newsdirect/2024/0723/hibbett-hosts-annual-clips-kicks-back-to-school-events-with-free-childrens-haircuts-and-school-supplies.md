@@ -46,7 +46,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/hibbett-hosts
 [Original/Source Press Release](https://newsdirect.com/news/hibbett-hosts-annual-clips-and-kicks-back-to-school-events-with-free-childrens-haircuts-and-school-supplies-164886351)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hibbett-hosts-annual-clips-and-kicks-back-to-school-events-with-free-children-s-haircuts-and-school-supplies/55151f079cce380086b8f7e1aa0d7304) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/hibbett-launches-annual-clips-and-kicks-back-to-school-campaign-with-free-haircuts-and-supplies)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hibbett-hosts-annual-clips-kicks-back-to-school-events-with-free-haircuts-and-supplies/20245193)
+
+Pickup - [advos.io](https://advos.io/en/hibbett-hosts-annual-clips-kicks-back-to-school-events-with-free-haircuts-and-supplies/20245193)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hibbett-launches-annual-clips-and-kicks-back-to-school-campaign)
+ 
 
 
 

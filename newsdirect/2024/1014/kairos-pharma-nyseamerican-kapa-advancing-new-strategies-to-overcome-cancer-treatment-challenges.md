@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/kairos-pharma
 [Original/Source Press Release](https://newsdirect.com/news/kairos-pharma-nyseamerican-kapa-advancing-new-strategies-to-overcome-cancer-treatment-challenges-558015559)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kairos-pharma-nyse-american-kapa-advancing-new-strategies-to-overcome-cancer-treatment-challenges/f0b192f6f536b56dec500950ecdb6e66) 
+
+ 
 
 
 

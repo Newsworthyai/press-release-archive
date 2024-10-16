@@ -38,7 +38,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/william-hill-
 [Original/Source Press Release](https://newsdirect.com/news/william-hill-vegas-partners-with-leading-game-developers-to-expand-its-casino-offering-539635420)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/william-hill-vegas-partners-with-light-wonder-inc-to-introduce-cash-link-express-hold-win/767b9f90c6cfdbe4ce3a3de9c88ef991) 
+
+ 
 
 
 

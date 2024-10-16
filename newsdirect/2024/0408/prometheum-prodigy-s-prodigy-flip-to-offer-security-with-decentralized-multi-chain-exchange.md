@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/prometheum-pr
 [Original/Source Press Release](https://newsdirect.com/news/prometheum-prodigys-prodigy-flip-to-offer-security-with-decentralized-multi-chain-exchange-411381465)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prodigy-flip-ai-mobile-crypto-trading-app-launching-this-summer/1227bf96375fc11aa1766225d4d05906) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/prometheum-prodigy-s-prodigy-flip-revolutionizing-crypto-trading-with-ai-and-security)
+ 
 
 
 

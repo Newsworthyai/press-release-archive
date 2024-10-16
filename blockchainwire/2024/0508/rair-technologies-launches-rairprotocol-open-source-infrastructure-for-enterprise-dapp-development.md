@@ -26,7 +26,9 @@ ABOUT RAIR TECH[RAIR Technologies](https://www.rair.info/) enables enterprises t
 [Original/Source Press Release](https://blockchainwire.io/press-release/rair-technologies-launches-rairprotocol---open-source-infrastructure-for-enterprise-dapp-development)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rair-technologies-launches-open-source-rairprotocol-for-scalable-dapps/88e1109ce24c7cafa3c7c53648891373) 
+
+ 
 
 
 

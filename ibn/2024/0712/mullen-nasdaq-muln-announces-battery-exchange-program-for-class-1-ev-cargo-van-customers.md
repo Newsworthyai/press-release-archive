@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-announces-battery-exchange-program-for-class-1-ev-cargo-van-customers/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-announces-power-boost-battery-exchange-program-for-class-1-ev-cargo-vans/22ea1009744388935ddbf116f660166d) 
+
+ 
 
 
 

@@ -7,7 +7,11 @@ LOS ANGELES, CA, June 08, 2024 /24-7PressRelease/ -- The grandeur of the Ebell T
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511512/los-angeles-prepare-for-an-evening-of-musical-elegance-as-aleksei-chebeliuk-the-virtuoso-accordionist-brings-his-extraordinary-talent-to-the-iconic-wilshire-ebell-theatre-on-november-23-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mesmerizing-classical-music-concert-at-ebell-theater-in-los-angeles/47bc9e49d3605f2240ea6e8850aab219) 
+
+
+Pickup - [advos.io](https://advos.io/en/celebrated-accordionist-aleksei-chebeliuk-to-showcase-musical-brilliance-at-wilshire-ebell-theatre/20243952)
+ 
 
 
 

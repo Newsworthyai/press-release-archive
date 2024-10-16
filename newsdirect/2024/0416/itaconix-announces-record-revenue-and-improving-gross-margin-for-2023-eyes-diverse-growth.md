@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/itaconix-anno
 [Original/Source Press Release](https://newsdirect.com/news/itaconix-announces-record-revenue-and-improving-gross-margin-for-2023-eyes-diverse-growth-391050628)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/itaconix-achieves-record-revenue-and-eyes-diverse-growth-in-2023/fd08f0552bd5d84fb5fed5fa59d1f862) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/itaconix-reports-record-revenue-and-improving-gross-margin-for-2023-aims-for-diverse-growth)
+ 
 
 
 

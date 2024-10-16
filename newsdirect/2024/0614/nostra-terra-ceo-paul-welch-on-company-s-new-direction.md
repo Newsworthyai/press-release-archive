@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/nostra-terra-
 [Original/Source Press Release](https://newsdirect.com/news/nostra-terra-ceo-paul-welch-on-companys-new-direction-356420196)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nostra-terra-ceo-paul-welch-discusses-company-s-new-direction/33e48f6e9d09dfcac8f982c0a5cf7d41) 
+
+
+Pickup - [advos.io](https://advos.io/en/nostra-terra-charts-new-course-with-focus-on-east-texas-operations/20244160)
+ 
 
 
 

@@ -15,7 +15,11 @@ Dedicated to providing exceptional care, The Holistic Mental Health Clinic requi
 [Original/Source Press Release](https://newsworthy.ai/news/202401211009/holistic-mental-health-clinic-introduces-effective-emdr-therapy-for-psychological-healing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/holistic-mental-health-clinic-introduces-emdr-therapy-for-trauma-and-anxiety/1c81a66539a3ff2a54b9d89fdeb05062) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/21/holistic-mental-health-clinic-introduces-emdr-therapy-for-psychological-healing)
+ 
 
 
 

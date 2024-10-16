@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/torr-metals-a
 [Original/Source Press Release](https://newsdirect.com/news/torr-metals-announces-preliminary-results-showing-kilometre-scale-geophysical-anomalies-924887407)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/torr-metals-unveils-major-geophysical-anomalies-in-kolos-copper-gold-project/0bff8e282a606fcb6ca2db9fa7c48c1e) 
+
+ 
 
 
 

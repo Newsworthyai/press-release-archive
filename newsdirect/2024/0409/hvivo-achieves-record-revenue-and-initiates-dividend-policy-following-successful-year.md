@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/hvivo-achieve
 [Original/Source Press Release](https://newsdirect.com/news/hvivo-achieves-record-revenue-and-initiates-dividend-policy-following-successful-year-771903914)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hvivo-achieves-record-revenue-and-initiates-dividend-policy-following-successful-year/8314e31f6280cdd537c37ecb8c3daad5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/hvivo-soars-with-record-breaking-revenue-and-dividend-policy)
+ 
 
 
 

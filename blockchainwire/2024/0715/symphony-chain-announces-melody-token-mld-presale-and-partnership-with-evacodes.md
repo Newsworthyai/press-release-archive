@@ -73,7 +73,15 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/symphony-chain-announces-melody-token-mld-presale-and-partnership-with-evacodes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/symphony-chain-announces-mld-token-presale-and-strategic-partnership-with-evacodes/57fec611f62869c9b17ab03e1c7b22e1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/symphony-chain-launches-melody-token-presale-and-partners-with-evacodes)
+
+Pickup - [fishervista.com](https://fishervista.com/en/symphony-chain-announces-melody-token-presale-and-strategic-partnership-with-evacodes/20245074)
+
+Pickup - [advos.io](https://advos.io/en/symphony-chain-announces-melody-token-presale-and-strategic-partnership-with-evacodes/20245074)
+ 
 
 
 

@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/boardwalktech
 [Original/Source Press Release](https://newsdirect.com/news/boardwalktech-software-corp-expands-commercial-agreements-with-fortune-500-clients-311685834)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boardwalktech-software-corp-ceo-announces-expanded-commercial-agreements-with-fortune-500-clients/dd181d4db3343a6e793eb6086c30e69e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/boardwalktech-expands-fortune-500-partnerships-realigns-for-profitability)
+ 
 
 
 

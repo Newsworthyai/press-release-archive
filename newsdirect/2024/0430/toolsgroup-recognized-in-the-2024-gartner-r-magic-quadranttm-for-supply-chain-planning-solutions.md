@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/toolsgroup-re
 [Original/Source Press Release](https://newsdirect.com/news/toolsgroup-recognized-in-the-2024-gartner-r-magic-quadrant-for-supply-chain-planning-solutions-777283039)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/toolsgroup-recognized-in-2024-gartner-magic-quadrant-for-supply-chain-planning-solutions/140759f9d62121695f65b7e9d1680368) 
+
+ 
 
 
 

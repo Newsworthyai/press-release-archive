@@ -7,7 +7,11 @@ WILMINGTON, NC, March 28, 2024 /24-7PressRelease/ -- Whether you believe angels 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509579/guidance-from-the-angels-is-the-focus-of-angel-inspirations-new-article-and-video-series-from-bestselling-author-jody-sharpe)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-jody-sharpe-announces-new-angel-inspirations-initiative/8ce0629fb08028dc4e92e18f2ca3228b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/jody-sharpe-s-angel-inspirations-spreads-message-of-love-and-resilience)
+ 
 
 
 

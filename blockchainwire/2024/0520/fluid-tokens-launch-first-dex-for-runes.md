@@ -35,7 +35,13 @@ Cassiopeia
 [Original/Source Press Release](https://blockchainwire.io/press-release/fluid-tokens-launch-first-dex-for-runes-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fluidtokens-launches-first-decentralized-exchange-for-runes/1c47f1fdb270c64fa9f203bc730da97c) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/fluidtokens-launches-first-decentralized-exchange-for-runes)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/fluidtokens-launches-first-decentralized-exchange-for-runes)
+ 
 
 
 

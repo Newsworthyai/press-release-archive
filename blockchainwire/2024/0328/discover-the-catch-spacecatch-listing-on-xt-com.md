@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-catch-spacecatch-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-catch-spacecatch-on-its-platform-revolutionizing-gaming-experience/39da0c38450ce7e7ae1b2aaa9c98b0b4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/spacecatch-s-catch-token-launches-on-xt-com-exchange)
+ 
 
 
 

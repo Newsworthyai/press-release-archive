@@ -79,7 +79,19 @@ About GDMiningHeadquartered in St Asaph, United Kingdom, GDMining is a pioneerin
 [Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-simplifies-cryptocurrency-mining-and-offers-lucrative-partner-program)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gdmining-announces-simplified-cryptocurrency-mining-and-lucrative-partner-program/2d4262a6e24200a9ae21f1338d0e6992) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/11/gdmining-revolutionizes-cryptocurrency-mining-with-user-friendly-platform-and-innovative-partner-program)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gdmining-introduces-simplified-cryptocurrency-mining-and-lucrative-partner-program/20244893)
+
+Pickup - [advos.io](https://advos.io/en/gdmining-streamlines-cryptocurrency-mining-with-new-approach-and-partner-program/20244893)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gdmining-announces-simplified-cryptocurrency-mining-and-lucrative-partner-program)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gdmining-announces-simplified-cryptocurrency-mining-and-lucrative-partner-program)
+ 
 
 
 

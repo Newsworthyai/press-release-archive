@@ -41,7 +41,21 @@ About L3
 [Original/Source Press Release](https://blockchainwire.io/press-release/l3-a-web3-infrastructure-will-be-listed-on-coinw-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-list-layer3-on-web-3-0-zone-with-5000-usdt-reward-pool/1b3bc7d57cf0f72778c731da7f7274fc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/layer3-l3-to-launch-on-coinw-exchange-bringing-omnichain-infrastructure-to-web3)
+
+Pickup - [fishervista.com](https://fishervista.com/en/coinw-to-list-layer3-l3-web3-infrastructure-token/20245348)
+
+Pickup - [advos.io](https://advos.io/en/coinw-to-list-layer3-l3-token-pioneering-web3-infrastructure/20245348)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-to-list-layer3-on-web-3-0-zone-with-5000-usdt-reward-pool)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-to-list-layer3-on-web-3-0-zone-with-5000-usdt-reward-pool)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/layer3-l3-set-to-launch-on-coinw-exchange-bringing-web3-infrastructure-to-wider-audience)
+ 
 
 
 

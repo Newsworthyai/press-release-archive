@@ -77,7 +77,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/mainz-biomed-
 [Original/Source Press Release](https://newsdirect.com/news/mainz-biomed-seeks-fda-approval-for-colorectal-cancer-test-it-says-is-nearly-twice-as-sensitive-as-others-a-look-at-pipeline-and-milestones-769794932)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mainz-biomed-develops-breakthrough-colorectal-cancer-test/3f7d1e6591c9edd2e3d480b91a2487ea) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/mainz-biomed-advances-groundbreaking-colorectal-cancer-screening-test)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mainz-biomed-seeks-fda-approval-for-advanced-colorectal-cancer-test/20246487)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/mainz-biomed-advances-colorectal-cancer-detection-with-innovative-mrna-test/20246487)
+
+Pickup - [advos.io](https://advos.io/en/mainz-biomed-seeks-fda-approval-for-advanced-colorectal-cancer-test/20246487)
+ 
 
 
 

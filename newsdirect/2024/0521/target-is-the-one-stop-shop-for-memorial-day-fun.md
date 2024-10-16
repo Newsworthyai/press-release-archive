@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/target-is-the
 [Original/Source Press Release](https://newsdirect.com/news/target-is-the-one-stop-shop-for-memorial-day-fun-950109838)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/affordable-summer-fun-tips-from-meaghan-b-murphy-and-target/6da385fa046d630be29d38cfad16dd0a) 
+
+ 
 
 
 

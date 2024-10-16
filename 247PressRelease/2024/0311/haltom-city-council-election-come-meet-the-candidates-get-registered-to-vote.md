@@ -7,7 +7,11 @@ HALTOM CITY, TX, March 11, 2024 /24-7PressRelease/ -- Are you registered to vote
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509164/haltom-city-council-election-come-meet-the-candidates-get-registered-to-vote)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/register-to-vote-and-meet-city-council-candidates-in-haltom-city/4d27432c051d5b75039ff09bafb1f2b4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/haltom-city-residents-urged-to-get-registered-and-meet-council-candidates)
+ 
 
 
 

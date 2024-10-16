@@ -121,7 +121,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/leading-9-11-
 [Original/Source Press Release](https://newsdirect.com/news/leading-9-11-nonprofit-calls-on-presidential-candidates-to-suspend-campaign-rhetoric-and-activities-in-observance-of-the-23rd-anniversary-of-the-september-11-2001-terrorist-attacks-888539857)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/9-11-day-calls-on-presidential-candidates-to-suspend-campaign-activities-on-september-11/232add60e4e6f60aa4ad36da8cd2674e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/9-11-nonprofit-urges-presidential-candidates-to-suspend-campaigns-on-23rd-anniversary-of-attacks/20246496)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/9-11-day-nonprofit-urges-presidential-candidates-to-pause-campaigns-on-september-11)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/9-11-day-organization-urges-presidential-candidates-to-pause-campaigns-on-september-11/20246496)
+
+Pickup - [advos.io](https://advos.io/en/9-11-nonprofit-urges-presidential-candidates-to-halt-campaigns-on-23rd-anniversary/20246496)
+ 
 
 
 

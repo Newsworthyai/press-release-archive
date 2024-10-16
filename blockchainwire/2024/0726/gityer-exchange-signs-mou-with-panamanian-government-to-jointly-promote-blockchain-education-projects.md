@@ -45,7 +45,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/gityer-exchange-signs-mou-with-panamanian-government-to-jointly-promote-blockchain-education-projects)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gityer-exchange-signs-mou-with-panamanian-government-to-promote-blockchain-education/5745e868135cf6bd114e44049ec3abfa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/gityer-exchange-partners-with-panama-to-boost-blockchain-education)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gityer-exchange-partners-with-panamanian-government-to-boost-blockchain-education/20245296)
+
+Pickup - [advos.io](https://advos.io/en/gityer-exchange-partners-with-panamanian-government-to-promote-blockchain-education/20245296)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gityer-exchange-signs-mou-with-panamanian-government-to-promote-blockchain-education)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gityer-exchange-signs-mou-with-panamanian-government-to-promote-blockchain-education)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gityer-exchange-partners-with-panama-to-advance-blockchain-education)
+ 
 
 
 

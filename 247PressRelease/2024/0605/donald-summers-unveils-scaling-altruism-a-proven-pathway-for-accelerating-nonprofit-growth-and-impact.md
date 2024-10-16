@@ -7,7 +7,9 @@ SEATTLE, WA, June 05, 2024 /24-7PressRelease/ -- Veteran social impact advisor a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511433/donald-summers-unveils-scaling-altruism-a-proven-pathway-for-accelerating-nonprofit-growth-and-impact)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-release-scaling-altruism-by-donald-summers-provides-proven-pathway-for-nonprofit-growth-and-impact/8e1a6f1fb5d9de62de8d81c87fa3a7ed) 
+
+ 
 
 
 

@@ -25,7 +25,9 @@ Webiste: https://memag.io/Disclaimer: The information provided in this press rel
 [Original/Source Press Release](https://blockchainwire.io/press-release/meta-masters-guild-games-leading-the-charge-in-play-to-earn-crypto-gaming---may-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meta-kart-racers-revolutionizing-web3-gaming-with-memagx/1244b270cc8d88e2e577bfa6cb84117f) 
+
+ 
 
 
 

@@ -47,7 +47,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/forte-mineral
 [Original/Source Press Release](https://newsdirect.com/news/forte-minerals-corp-announces-shares-for-debt-agreement-426918332)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/forte-minerals-corp-announces-shares-for-debt-agreement/066132f9dbe52c7686987836c0ccd72c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/forte-minerals-corp-announces-shares-for-debt-agreement/20244672)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/forte-minerals-corp-to-settle-56600-debt-through-share-issuance)
+
+Pickup - [advos.io](https://advos.io/en/forte-minerals-corp-announces-debt-settlement-through-share-issuance/20244672)
+ 
 
 
 

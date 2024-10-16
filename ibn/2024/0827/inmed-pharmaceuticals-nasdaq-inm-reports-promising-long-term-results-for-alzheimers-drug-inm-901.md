@@ -7,7 +7,17 @@ InMed Pharmaceuticals (NASDAQ: INM), a biopharmaceutical company focused on deve
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/inmed-pharmaceuticals-nasdaq-inm-reports-promising-long-term-results-for-alzheimers-drug-inm-901/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/inmed-pharmaceuticals-announces-promising-results-for-alzheimer-s-drug-candidate/b3e049e61f3c5005a568237b3acc2e7b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/inmed-pharmaceuticals-reports-promising-long-term-results-for-alzheimer-s-drug-candidate-inm-901)
+
+Pickup - [fishervista.com](https://fishervista.com/en/inmed-pharmaceuticals-reports-promising-long-term-results-for-alzheimers-drug-inm-901/20246191)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/inmed-pharmaceuticals-alzheimer-s-drug-candidate-shows-promising-long-term-results/20246191)
+
+Pickup - [advos.io](https://advos.io/en/inmed-pharmaceuticals-reports-promising-long-term-results-for-alzheimers-drug-inm-901/20246191)
+ 
 
 
 

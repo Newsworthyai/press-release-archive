@@ -7,7 +7,17 @@ EVERGREEN, CO, September 05, 2024 /24-7PressRelease/ -- Blue Spruce Habitat for 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514047/blue-spruce-habitat-for-humanity-to-host-hard-hats-high-heels-fundraiser-at-evergreen-lake-house)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annual-fundraiser-to-support-affordable-housing-in-colorado-mountain-communities/69ced9f6bb2e1257b1afec588ea7d329) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/blue-spruce-habitat-for-humanity-announces-hard-hats-high-heels-fundraiser-to-combat-colorado-s-housing-crisis)
+
+Pickup - [fishervista.com](https://fishervista.com/en/blue-spruce-habitat-for-humanity-announces-hard-hats-high-heels-fundraiser-to-support-affordable-housing/20246547)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/blue-spruce-habitat-for-humanity-announces-hard-hats-high-heels-fundraiser-to-address-colorado-s-housing-crisis/20246547)
+
+Pickup - [advos.io](https://advos.io/en/blue-spruce-habitat-for-humanity-to-host-fundraiser-at-evergreen-lake-house/20246547)
+ 
 
 
 

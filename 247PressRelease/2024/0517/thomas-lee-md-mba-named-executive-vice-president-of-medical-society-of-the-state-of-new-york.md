@@ -7,7 +7,9 @@ WESTBURY, NY, May 17, 2024 /24-7PressRelease/ -- The Medical Society of the Stat
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510966/thomas-lee-md-mba-named-executive-vice-president-of-medical-society-of-the-state-of-new-york)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/medical-society-of-the-state-of-new-york-appoints-thomas-lee-md-mba-as-executive-vice-president/29f8a241ae2895106f949131a324f658) 
+
+ 
 
 
 

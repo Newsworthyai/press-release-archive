@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/medicus-pharm
 [Original/Source Press Release](https://newsdirect.com/news/medicus-pharma-plans-private-placement-for-clinical-development-acceleration-439755291)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/medicus-pharma-ceo-discusses-private-placement-for-clinical-development-acceleration/8cc90fc0b2b657fc021503076be67d5a) 
+
+ 
 
 
 

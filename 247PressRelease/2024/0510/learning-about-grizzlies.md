@@ -7,7 +7,9 @@ IDAHO FALLS, ID, May 10, 2024 /24-7PressRelease/ -- Green Kids Club is thrilled 
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510784/learning-about-grizzlies)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-learning-about-grizzlies-released-by-green-kids-club/ebc5bbbcd5fa8583a08f17fec29b542f) 
+
+ 
 
 
 

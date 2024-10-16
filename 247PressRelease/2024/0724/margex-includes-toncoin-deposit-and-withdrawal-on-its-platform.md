@@ -7,7 +7,21 @@ VICTORIA, SEYCHELLES, July 24, 2024 /24-7PressRelease/ -- Margex, a cryptocurren
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512800/margex-includes-toncoin-deposit-and-withdrawal-on-its-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/margex-integrates-toncoin-ton-for-deposits-and-withdrawals-extends-hamster-kombat-hmstr-airdrop-campaign/33225d35950db335f1420ec14e1d2928) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/margex-integrates-toncoin-ton-for-deposits-and-withdrawals-extends-hamster-kombat-hmstr-airdrop-campaign)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/margex-integrates-toncoin-ton-for-deposits-and-withdrawals-extends-hamster-kombat-hmstr-airdrop-campaign)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/margex-enhances-cryptocurrency-trading-platform-with-toncoin-integration-and-extended-airdrop-campaign)
+
+Pickup - [fishervista.com](https://fishervista.com/en/margex-adds-toncoin-transactions-and-extends-hamster-kombat-airdrop/20245202)
+
+Pickup - [advos.io](https://advos.io/en/margex-expands-cryptocurrency-trading-options-with-toncoin/20245202)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/margex-expands-cryptocurrency-options-with-toncoin-integration-and-extended-airdrop-campaign)
+ 
 
 
 

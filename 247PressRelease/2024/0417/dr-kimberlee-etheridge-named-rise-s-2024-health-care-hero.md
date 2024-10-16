@@ -7,7 +7,9 @@ NEW ORLEANS, LA, April 17, 2024 /24-7PressRelease/ -- RISE is pleased to announc
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510111/dr-kimberlee-etheridge-named-rises-2024-health-care-hero)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-kimberlee-etheridge-receives-rise-health-care-hero-award/371eb9e4f5802f3a84bd2aa2bd04d20f) 
+
+ 
 
 
 

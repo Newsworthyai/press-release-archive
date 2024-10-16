@@ -7,7 +7,13 @@ BOYNTON BEACH, FL, June 28, 2024 /24-7PressRelease/ -- Pickleball pros from GL H
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512097/itchko-ezrattis-gl-homes-sponsors-event-to-benefit-legal-aid-society-in-palm-beach)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gl-homes-and-legal-aid-society-partner-for-special-pickleball-event/2b8fc5e01e335b5fed16b85ffeea6191) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/gl-homes-sponsors-event-to-benefit-legal-aid-society-in-palm-beach/20244567)
+
+Pickup - [advos.io](https://advos.io/en/gl-homes-sponsors-event-for-legal-aid-society-s-developmentally-disabled-clients/20244567)
+ 
 
 
 

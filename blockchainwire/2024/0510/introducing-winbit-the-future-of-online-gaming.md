@@ -25,7 +25,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-winbit-the-future-of-online-gaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/winbit-the-future-of-online-gaming/f4ef87e3f12426d4e7348cc62935c591) 
+
+ 
 
 
 

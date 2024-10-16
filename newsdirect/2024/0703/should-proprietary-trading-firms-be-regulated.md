@@ -67,7 +67,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/should-propri
 [Original/Source Press Release](https://newsdirect.com/news/should-proprietary-trading-firms-be-regulated-696531275)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/regulators-eye-proprietary-trading-as-pipfarm-offers-traders-a-more-secure-way-to-trade/3397896bd799d48616b5943ed83b87a0) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/regulators-eye-tighter-oversight-of-proprietary-trading-firms/20244692)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/regulators-eye-proprietary-trading-firms-amid-industry-growth)
+
+Pickup - [advos.io](https://advos.io/en/should-proprietary-trading-firms-be-regulated-a-comprehensive-look-at-the-emerging-debate/20244692)
+ 
 
 
 

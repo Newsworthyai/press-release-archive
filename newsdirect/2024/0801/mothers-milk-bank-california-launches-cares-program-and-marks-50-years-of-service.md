@@ -42,7 +42,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/mothers-milk-
 [Original/Source Press Release](https://newsdirect.com/news/mothers-milk-bank-california-launches-cares-program-and-marks-50-years-of-service-959591928)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mothers-milk-bank-california-marks-50-years-of-service-and-launches-cares-program/f82799d4629fdcdad94dabed3f4bc401) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/mothers-milk-bank-california-celebrates-50-years-of-service-launches-new-cares-program)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mothers-milk-bank-california-celebrates-50-years-with-launch-of-mmb-california-cares-program/20245440)
+
+Pickup - [advos.io](https://advos.io/en/mothers-milk-bank-california-celebrates-50th-anniversary-and-launches-cares-program/20245440)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mothers-milk-bank-california-celebrates-50-years-of-service-with-new-initiatives)
+ 
 
 
 

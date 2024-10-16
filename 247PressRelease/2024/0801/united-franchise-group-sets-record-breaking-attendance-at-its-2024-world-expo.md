@@ -7,7 +7,11 @@ WEST PALM BEACH, FL, August 01, 2024 /24-7PressRelease/ -- United Franchise Grou
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512976/united-franchise-group-sets-record-breaking-attendance-at-its-2024-world-expo)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/united-franchise-group-hosts-record-breaking-world-expo-in-nashville/fb51a758e8f375e350e1f9949afac80d) 
+
+
+Pickup - [advos.io](https://advos.io/en/united-franchise-group-hosts-record-breaking-2024-world-expo-in-nashville/20245416)
+ 
 
 
 

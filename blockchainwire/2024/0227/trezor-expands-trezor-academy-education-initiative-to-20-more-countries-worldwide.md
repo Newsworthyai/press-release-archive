@@ -27,7 +27,11 @@ Trezor has expanded to offer a whole ecosystem of easy-to-use both hardware and 
 [Original/Source Press Release](https://blockchainwire.io/press-release/trezor-expands-trezor-academy-education-initiative-to-20-more-countries-worldwide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trezor-expands-bitcoin-education-program-to-20-more-countries/3dc98d08b7dec0e50ba466f782d7a7a5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/27/trezor-expands-bitcoin-education-initiative-globally)
+ 
 
 
 

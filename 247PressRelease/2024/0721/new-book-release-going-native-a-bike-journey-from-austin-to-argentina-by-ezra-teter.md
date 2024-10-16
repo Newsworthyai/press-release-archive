@@ -7,7 +7,15 @@ AUSTIN, TX, July 21, 2024 /24-7PressRelease/ -- We are thrilled to announce the 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512720/new-book-release-going-native-a-bike-journey-from-austin-to-argentina-by-ezra-teter)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-release-going-native-a-captivating-bike-journey-memoir/5655df51663d30f90fd553c926674554) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/21/adventurer-ezra-teter-s-epic-bike-journey-chronicled-in-new-book)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-book-release-going-native-a-bike-journey-from-austin-to-argentina-by-ezra-teter/20245136)
+
+Pickup - [advos.io](https://advos.io/en/new-book-release-going-native-a-bike-journey-from-austin-to-argentina-by-ezra-teter/20245136)
+ 
 
 
 

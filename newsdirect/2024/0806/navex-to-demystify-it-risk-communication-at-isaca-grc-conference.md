@@ -32,7 +32,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/navex-to-demy
 [Original/Source Press Release](https://newsdirect.com/news/navex-to-demystify-it-risk-communication-at-isaca-grc-conference-235561488)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/navex-to-present-key-session-at-isaca-grc-conference-2024/3dc306bfa6239eefdc84499ad6ff1a23) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/navex-to-address-it-risk-communication-challenges-at-isaca-grc-conference/20245516)
+
+Pickup - [advos.io](https://advos.io/en/navex-to-address-it-risk-communication-at-isaca-grc-conference/20245516)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/navex-to-address-critical-it-risk-communication-at-isaca-grc-conference)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/navex-to-address-critical-it-risk-communication-at-isaca-conference)
+ 
 
 
 

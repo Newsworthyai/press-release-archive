@@ -71,7 +71,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/frog-themed-a
 [Original/Source Press Release](https://newsdirect.com/news/frog-themed-apu-apustaja-apu-token-wins-over-crypto-market-community-with-positive-blockchain-mission-815893515)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/apu-apustaja-the-rising-star-of-meme-coins/ae5228e4e7b77c55e67f0b3146988ca7) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/apu-apustaja-the-rising-star-of-meme-coins)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/apu-apustaja-the-rising-star-of-meme-coins)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/apu-apustaja-token-emerges-as-prominent-meme-coin-with-200-million-market-cap)
+
+Pickup - [fishervista.com](https://fishervista.com/en/apu-apustaja-token-gains-traction-as-a-positive-force-in-the-crypto-market/20245217)
+
+Pickup - [advos.io](https://advos.io/en/apu-apustaja-token-gains-traction-in-crypto-market-with-unique-mission/20245217)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/apu-apustaja-meme-coin-gains-traction-in-crypto-market)
+ 
 
 
 

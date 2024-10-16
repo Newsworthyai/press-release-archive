@@ -71,7 +71,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/use-volatilit
 [Original/Source Press Release](https://newsdirect.com/news/use-volatility-in-your-favor-with-robinhood-options-trading-in-april-volatility-index-vix-hit-highest-mark-337548674)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/robinhood-makes-options-trading-easier-for-active-traders/849484ec0ed1792acd519710c0f53517) 
+
+
+Pickup - [advos.io](https://advos.io/en/using-volatility-to-your-advantage-robinhood-options-trading-explained/20243632)
+ 
 
 
 

@@ -59,7 +59,21 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/whale-wallet-signals-brainlet-billions---the-next-memecoin-sensation-on-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brainlet-the-latest-solana-based-memecoin-making-waves/27f87b3508d48db38d5e85688cccaa35) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/brainlet-the-latest-solana-based-memecoin-making-waves)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/brainlet-the-latest-solana-based-memecoin-making-waves)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/whale-wallet-s-cryptic-message-fuels-excitement-for-brainlet-memecoin-on-solana)
+
+Pickup - [fishervista.com](https://fishervista.com/en/whale-wallet-sparks-excitement-over-brainlet-the-new-memecoin-on-solana/20245657)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/whale-wallet-endorsement-propels-brainlet-memecoin-to-potential-billion-dollar-status-on-solana/20245657)
+
+Pickup - [advos.io](https://advos.io/en/brainlet-the-new-memecoin-making-waves-on-the-solana-blockchain/20245657)
+ 
 
 
 

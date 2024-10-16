@@ -17,7 +17,11 @@ Website: https://koddpa.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/koddpa-a-leader-in-the-ai-powered-trading-field)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/koddpa-redefines-intelligent-trading-with-advanced-ai-technology-and-exceptional-performance/e64654046151ba42d2543240f53436f9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/19/koddpa-pioneering-ai-powered-trading-solutions)
+ 
 
 
 

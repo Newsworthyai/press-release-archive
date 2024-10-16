@@ -33,7 +33,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/envo-takes-the-global-stage-dazzling-debut-on-nasdaq-screen)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/envo-makes-groundbreaking-nasdaq-debut-in-times-square/b8b3259f7bac587a2f579111559fe410) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/envo-makes-groundbreaking-nasdaq-debut-in-times-square)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/envo-makes-groundbreaking-nasdaq-debut-in-times-square)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/envo-makes-spectacular-debut-on-nasdaq-screen-signaling-global-web3-social-platform-expansion)
+
+Pickup - [fishervista.com](https://fishervista.com/en/envo-makes-a-grand-entry-on-nasdaq-screen-signaling-web3-social-platform-s-global-ambitions/20246195)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/web3-social-platform-envo-makes-splash-with-nasdaq-times-square-debut/20246195)
+
+Pickup - [advos.io](https://advos.io/en/envo-unveils-on-nasdaq-screen-signaling-major-step-in-web3-social-platform-s-global-expansion/20246195)
+ 
 
 
 

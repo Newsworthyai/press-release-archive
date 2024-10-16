@@ -7,7 +7,17 @@ WILMINGTON, NC, September 15, 2024 /24-7PressRelease/ -- Bestselling author Rich
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514333/aarons-war-bestselling-historical-fiction-ebook-detailing-a-jewish-soldiers-moral-dilemma-and-struggles-with-ptsd-during-wwii-available-at-no-charge-september-17-through-september-19-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-richard-mcmaster-offers-free-ebook-of-aaron-s-war-on-amazon/9fcb84c245a300622a1b3f040e24e216) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/15/bestselling-wwii-novel-aaron-s-war-free-on-amazon-for-limited-time)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bestselling-wwii-novel-aaron-s-war-free-on-amazon-for-limited-time/20246838)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bestselling-wwii-novel-aaron-s-war-explores-timeless-themes-of-identity-and-moral-conflict/20246838)
+
+Pickup - [advos.io](https://advos.io/en/bestselling-wwii-novel-aaron-s-war-free-on-amazon-for-limited-time/20246838)
+ 
 
 
 

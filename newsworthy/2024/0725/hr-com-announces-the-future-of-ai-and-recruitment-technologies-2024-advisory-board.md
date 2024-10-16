@@ -47,7 +47,19 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202407251217/hr-com-announces-the-future-of-ai-and-recruitment-technologies-2024-advisory-board)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-forms-future-of-ai-and-recruitment-technologies-2024-advisory-board/90b059e546558c7d274b152d6f9d1298) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-com-establishes-advisory-board-for-future-of-ai-and-recruitment-technologies-2024/20245271)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/hr-com-forms-advisory-board-to-shape-future-of-ai-and-recruitment-technologies)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hr-com-unveils-future-of-ai-and-recruitment-technologies-2024-advisory-board/20245271)
+
+Pickup - [advos.io](https://advos.io/en/hr-com-announces-future-of-ai-and-recruitment-technologies-2024-advisory-board/20245271)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hr-com-forms-advisory-board-to-guide-future-of-ai-and-recruitment-technologies)
+ 
 
 
 

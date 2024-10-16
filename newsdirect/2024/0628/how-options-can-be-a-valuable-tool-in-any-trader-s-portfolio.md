@@ -43,7 +43,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-options-c
 [Original/Source Press Release](https://newsdirect.com/news/how-options-can-be-a-valuable-tool-in-any-traders-portfolio-621728833)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/options-valuable-tools-for-every-trader/f1f1277b81275140531cec672c5bf9d1) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/options-trading-a-valuable-tool-for-all-investors/20244576)
+
+Pickup - [advos.io](https://advos.io/en/understanding-the-value-of-options-in-modern-trading/20244576)
+ 
 
 
 

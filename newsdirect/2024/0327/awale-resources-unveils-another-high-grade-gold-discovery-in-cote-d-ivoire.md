@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/awale-resourc
 [Original/Source Press Release](https://newsdirect.com/news/awale-resources-unveils-another-high-grade-gold-discovery-in-cote-divoire-519304947)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/awale-resources-unveils-high-grade-gold-discovery-in-cote-d-ivoire/3d7f598807c824f9c20e43609d5854f3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/awale-resources-strikes-gold-with-spectacular-high-grade-discovery-in-cote-d-ivoire)
+ 
 
 
 

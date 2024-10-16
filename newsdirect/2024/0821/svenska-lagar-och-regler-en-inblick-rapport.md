@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/svenska-lagar
 [Original/Source Press Release](https://newsdirect.com/news/svenska-lagar-och-regler-en-inblick-and-rapport-851134224)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-swedish-gambling-law-impacts-foreign-casinos-and-players/3f3dbce00710ccdb5bf308b6947f6a61) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/sweden-s-gambling-legislation-overhaul-stricter-regulations-for-foreign-casinos)
+
+Pickup - [fishervista.com](https://fishervista.com/en/stricter-swedish-gambling-laws-aim-to-protect-consumers-and-regulate-market/20245858)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/sweden-s-gambling-legislation-overhaul-impacts-on-foreign-casinos-and-player-protection/20245858)
+
+Pickup - [advos.io](https://advos.io/en/stricter-swedish-gambling-legislation-enhances-consumer-protection/20245858)
+ 
 
 
 

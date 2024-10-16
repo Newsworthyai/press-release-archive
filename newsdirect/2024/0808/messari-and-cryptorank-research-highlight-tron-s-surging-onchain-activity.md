@@ -63,7 +63,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/messari-and-c
 [Original/Source Press Release](https://newsdirect.com/news/messari-and-cryptorank-research-highlight-trons-surging-onchain-activity-911586718)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/messari-and-cryptorank-research-reports-highlight-tron-s-surging-onchain-activity/3d018c856b27684a6e4f7f8f3c7ec065) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/messari-and-cryptorank-research-reports-highlight-tron-s-surging-onchain-activity)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/messari-and-cryptorank-research-reports-highlight-tron-s-surging-onchain-activity)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tron-network-shows-remarkable-growth-in-onchain-activity-reports-reveal/20245563)
+
+Pickup - [advos.io](https://advos.io/en/research-reports-highlight-tron-s-remarkable-onchain-activity-growth-and-technical-prowess/20245563)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/tron-network-shows-significant-growth-in-onchain-activity-according-to-new-research/20245563)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/tron-network-experiences-significant-growth-in-onchain-activity-reports-show)
+ 
 
 
 

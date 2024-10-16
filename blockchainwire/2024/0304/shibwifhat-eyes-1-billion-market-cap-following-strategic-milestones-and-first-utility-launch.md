@@ -45,7 +45,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/shibwifhat-eyes-1-billion-market-cap-following-strategic-milestones-and-first-utility-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shibwifhat-the-next-rising-star-on-solana-blockchain/9c4a2290a388bbad0a0e7c091f0c8d59) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/04/shibwifhat-aims-for-1-billion-market-cap-with-strategic-milestones-and-utility-launch)
+ 
 
 
 

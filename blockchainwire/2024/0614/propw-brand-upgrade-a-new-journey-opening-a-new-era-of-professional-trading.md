@@ -13,7 +13,11 @@ The brand upgrade of PropW marks our new beginning. In the future, PropW will co
 [Original/Source Press Release](https://blockchainwire.io/press-release/propw-brand-upgrade-a-new-journey-opening-a-new-era-of-professional-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/propw-announces-brand-upgrade-and-new-logo-design/d3c8d03e9caabafcb68feaa0c49ed2f5) 
+
+
+Pickup - [advos.io](https://advos.io/en/propw-unveils-brand-upgrade-and-new-logo-ushering-in-a-new-era-of-professional-trading/20244154)
+ 
 
 
 

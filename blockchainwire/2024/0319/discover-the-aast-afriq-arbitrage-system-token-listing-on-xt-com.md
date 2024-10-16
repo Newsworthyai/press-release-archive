@@ -61,7 +61,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-aast-afriq-arbitrage-system-token-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-aast-token-revolutionizing-digital-currency-trading/7a37c0d4b5dc5ff49664f4532a6001cb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/xt-com-embraces-financial-inclusion-with-aast-token-listing)
+ 
 
 
 

@@ -57,7 +57,9 @@ Corporate Website: www.pharmagreen.ca
 [Original/Source Press Release](https://www.newmediawire.com/news/pharmagreen-biotech-inc-phbi-announces-exciting-revenue-potential-for-its-project-7076187)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pharmagreen-biotech-inc-unveils-promising-revenue-projections-for-live-rosin-development-project/af2c3732a6ced104c4c13535d94b9f3d) 
+
+ 
 
 
 

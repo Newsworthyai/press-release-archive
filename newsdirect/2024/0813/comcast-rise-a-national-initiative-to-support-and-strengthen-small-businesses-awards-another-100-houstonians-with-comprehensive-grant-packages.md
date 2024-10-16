@@ -47,7 +47,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/comcast-rise-
 [Original/Source Press Release](https://newsdirect.com/news/comcast-rise-a-national-initiative-to-support-and-strengthen-small-businesses-awards-another-100-houstonians-with-comprehensive-grant-packages-462308894)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-rise-program-awards-100-houston-small-businesses-with-grant-packages/4e0da7b3f4710c269b733fe8654885af) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/comcast-rise-awards-100-houston-small-businesses-with-comprehensive-grant-packages)
+
+Pickup - [fishervista.com](https://fishervista.com/en/comcast-rise-awards-comprehensive-grants-to-100-small-businesses-in-houston/20245702)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/comcast-rise-awards-100-houston-small-businesses-with-comprehensive-grant-packages/20245702)
+
+Pickup - [advos.io](https://advos.io/en/comcast-rise-awards-100-houston-businesses-with-comprehensive-grant-packages/20245702)
+ 
 
 
 

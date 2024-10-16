@@ -7,7 +7,11 @@ CAPE GIRARDEAU, MO, March 14, 2024 /24-7PressRelease/ -- The most challenging as
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509214/prominent-bankruptcy-lawyer-helps-individuals-and-businesses-achieve-financial-fresh-start)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/birk-law-firm-offers-expert-legal-and-financial-guidance-for-bankruptcy-recovery/3267b81a41cc354ae84cd2a833bfb356) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/bankruptcy-attorney-kelvin-birk-guides-clients-towards-financial-fresh-start)
+ 
 
 
 

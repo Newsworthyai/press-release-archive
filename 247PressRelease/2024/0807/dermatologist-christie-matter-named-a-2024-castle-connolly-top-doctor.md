@@ -7,7 +7,17 @@ PROSPER, TX, August 07, 2024 /24-7PressRelease/ -- Christie E. Matter, MD, has b
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513099/dermatologist-christie-matter-named-a-2024-castle-connolly-top-doctor)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dermatologist-dr-christie-matter-recognized-as-2024-castle-connolly-top-doctor/0c45c4752c98daa3d843367a9a2c82c1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/dr-christie-matter-recognized-as-2024-castle-connolly-top-doctor-in-dermatology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dermatologist-christie-matter-honored-as-2024-castle-connolly-top-doctor/20245544)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dr-christie-matter-recognized-as-2024-castle-connolly-top-doctor-in-dermatology)
+
+Pickup - [advos.io](https://advos.io/en/dermatologist-christie-matter-named-a-2024-castle-connolly-top-doctor/20245544)
+ 
 
 
 

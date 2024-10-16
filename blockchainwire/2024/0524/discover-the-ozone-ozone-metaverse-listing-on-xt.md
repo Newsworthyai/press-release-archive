@@ -67,7 +67,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-ozone-ozone-metaverse-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-announces-listing-of-ozone-metaverse-token-and-launch-of-ozone-usdt-trading-pair/940067ed25c2810d04aa7f2aca1eb5c6) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/xt-announces-listing-of-ozone-metaverse-token-and-launch-of-ozone-usdt-trading-pair)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/xt-announces-listing-of-ozone-metaverse-token-and-launch-of-ozone-usdt-trading-pair)
+ 
 
 
 

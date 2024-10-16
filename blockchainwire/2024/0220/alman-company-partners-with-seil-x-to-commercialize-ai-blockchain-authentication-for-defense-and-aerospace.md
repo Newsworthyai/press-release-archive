@@ -17,7 +17,11 @@ Both companies expressed their commitment to technology and knowledge sharing, f
 [Original/Source Press Release](https://blockchainwire.io/press-release/alman-company-partners-with-seil-x-to-commercialize-ai-blockchain-authentication-for-defense-and-aerospace-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alman-company-partners-with-seil-x-to-apply-ai-blockchain-and-nft-technology-to-defense-and-satellite-sectors/d4246d45d5f10e6deaa961f0f6671f8e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/20/alman-and-seil-x-join-forces-to-secure-defense-and-aerospace-with-ai-blockchain-authentication)
+ 
 
 
 

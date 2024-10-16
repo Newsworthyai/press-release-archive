@@ -35,7 +35,19 @@ Contact: info@hr.com HR.com Newsroom
 [Original/Source Press Release](https://newsworthy.ai/news/202408131234/hr-research-institute-unveils-the-power-of-strategy-in-high-volume-recruitment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-research-reveals-the-key-to-effective-high-volume-hiring-strategies/fa98df7b50fee7e0fc57e3b09c72f68a) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/strategic-approach-key-to-success-in-high-volume-recruitment-hr-research-institute-finds/20245690)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/strategic-approach-to-high-volume-recruitment-yields-significant-advantages-new-study-reveals)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hr-research-institute-reveals-strategic-importance-in-high-volume-recruitment/20245690)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/strategic-approach-crucial-for-effective-high-volume-recruitment-hr-research-institute-finds/20245690)
+
+Pickup - [advos.io](https://advos.io/en/hr-research-institute-reveals-key-strategies-for-effective-high-volume-recruitment/20245690)
+ 
 
 
 

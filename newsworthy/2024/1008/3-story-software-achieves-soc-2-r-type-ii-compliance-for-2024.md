@@ -17,7 +17,9 @@ For more information visit 3StorySoftware.com
 [Original/Source Press Release](https://newsworthy.ai/news/202410081304/3-story-software-achieves-soc-2-r-type-ii-compliance-for-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/3-story-software-completes-soc-2-r-type-ii-audit-ensuring-security-and-compliance/fe1afe664a7492dc9f791ab7c17bf6ca) 
+
+ 
 
 
 

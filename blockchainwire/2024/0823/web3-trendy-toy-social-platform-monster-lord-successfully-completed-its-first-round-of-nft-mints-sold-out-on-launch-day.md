@@ -35,7 +35,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/web3-trendy-toy-social-platform-monster-lord-successfully-completed-its-first-round-of-nft-mints-sold-out-on-launch-day)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/monster-lord-releases-meta-monster-card-nft-first-round-sold-out/7fa79c924a33a0eef8b31ad6de78ce6f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/23/monster-lord-s-meta-monster-card-nfts-sell-out-on-launch-day)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/monster-lord-s-meta-monster-card-nfts-sell-out-on-launch-day/20245923)
+
+Pickup - [advos.io](https://advos.io/en/monster-lord-s-nft-launch-sells-out-on-first-day-signaling-strong-market-interest/20245923)
+
+Pickup - [fishervista.com](https://fishervista.com/en/monster-lords-nft-collection-sells-out-on-launch-day-signaling-robust-interest-in-web3-gaming/20245923)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/monster-lord-releases-meta-monster-card-nft-first-round-sold-out)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/monster-lord-releases-meta-monster-card-nft-first-round-sold-out)
+ 
 
 
 

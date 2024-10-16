@@ -23,7 +23,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/rocketfuel-pa
 [Original/Source Press Release](https://newsdirect.com/news/rocketfuel-payment-solutions-ceo-discusses-innovations-in-digital-payments-and-blockchain-technology-102011809)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rocketfuel-ceo-discusses-innovations-in-digital-payments-and-blockchain-technology/270e9d6c7402a6d7e7204d8bb609633a) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/rocketfuel-ceo-discusses-innovations-in-digital-payments-and-blockchain-technology)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/rocketfuel-ceo-discusses-innovations-in-digital-payments-and-blockchain-technology)
+ 
 
 
 

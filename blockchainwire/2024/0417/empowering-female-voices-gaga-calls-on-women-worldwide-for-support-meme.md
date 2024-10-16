@@ -25,7 +25,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/empowering-female-voices-gaga-calls-on-women-worldwide-for-support-meme)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gaga-launches-campaign-to-empower-women-in-the-meme-community/4e388eb0cffaac768220f660b608879b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/gaga-calls-on-women-worldwide-to-uplift-female-meme-voices)
+ 
 
 
 

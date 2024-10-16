@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/uno-pizzeria-
 [Original/Source Press Release](https://newsdirect.com/news/uno-pizzeria-and-grill-celebrates-national-deep-dish-pizza-day-with-bogo-pizza-offer-847359237)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/celebrate-national-deep-dish-pizza-day-with-uno-pizzeria-grill-s-bogo-pizza-offer/ec0e6204d797a16cd1123d1ef6e9fa82) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/uno-pizzeria-grill-celebrates-deep-dish-pizza-s-80th-anniversary-with-bogo-offer)
+ 
 
 
 

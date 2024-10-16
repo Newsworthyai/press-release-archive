@@ -7,7 +7,9 @@ NASHVILLE, TN. October 12, 2024 /24-7PressRelease/ -- Mrs. Italy World, Celia, h
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515199/mrs-italy-world-celia-empowers-readers-worldwide-with-the-release-of-her-best-selling-book)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mrs-italy-world-celia-inspires-with-new-book-and-keynote-speech/bcf3907725307b5d05a46de317243e2c) 
+
+ 
 
 
 

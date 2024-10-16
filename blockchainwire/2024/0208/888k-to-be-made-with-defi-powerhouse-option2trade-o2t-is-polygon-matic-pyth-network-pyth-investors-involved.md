@@ -51,7 +51,11 @@ https://twitter.com/Option2Trade
 [Original/Source Press Release](https://blockchainwire.io/press-release/888k-to-be-made-with-defi-powerhouse-option2trade-o2t-is-polygon-matic--pyth-network-pyth-investors-involved)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/option2trade-o2t-launches-888k-giveaway-attracts-investors-from-leading-defi-projects/7ab095d6f0cbf298acf274ed4daa470e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/08/option2trade-s-groundbreaking-888k-giveaway-lures-investors-from-polygon-and-pyth-network)
+ 
 
 
 

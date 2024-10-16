@@ -7,7 +7,9 @@ NEW YORK, NY, May 29, 2024 /24-7PressRelease/ -- Reservation Resources is deligh
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511202/new-furnished-room-available-near-sterling-st-station)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-furnished-room-near-sterling-st-station-offers-extraordinary-stay-experience-for-travelers/3b0837a648e9d0c499abf27c4e660d7a) 
+
+ 
 
 
 

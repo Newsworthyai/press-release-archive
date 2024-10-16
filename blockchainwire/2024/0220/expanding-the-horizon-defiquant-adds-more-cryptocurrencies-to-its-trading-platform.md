@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/expanding-the-horizon-defiquant-adds-more-cryptocurrencies-to-its-trading-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-expands-cryptocurrency-offerings-and-introduces-automated-trading-bots/ca1e946156be544ecaf9d9257be2721b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/20/defiquant-expands-cryptocurrency-offerings-and-integrates-advanced-trading-bots)
+ 
 
 
 

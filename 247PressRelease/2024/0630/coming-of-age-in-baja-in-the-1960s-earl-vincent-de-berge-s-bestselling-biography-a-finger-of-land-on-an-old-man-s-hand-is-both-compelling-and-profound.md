@@ -7,7 +7,15 @@ WILMINGTON, NC, June 30, 2024 /24-7PressRelease/ -- Coming-of-age stories provid
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512141/coming-of-age-in-baja-in-the-1960s-earl-vincent-de-berges-bestselling-biography-a-finger-of-land-on-an-old-mans-hand-is-both-compelling-and-profound)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/transformative-memoir-of-1960s-baja-california-exploration/501bcb5ad349507bf397746bf17151fc) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/earl-vincent-de-berge-s-memoir-a-finger-of-land-on-an-old-man-s-hand-chronicles-transformative-baja-adventures-in-the-1960s/20244665)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/06/30/earl-vincent-de-berge-s-memoir-a-finger-of-land-on-an-old-man-s-hand-captivates-readers-with-1960s-baja-adventure)
+
+Pickup - [advos.io](https://advos.io/en/earl-vincent-de-berge-s-memoir-captivates-with-baja-adventures-in-the-1960s/20244665)
+ 
 
 
 

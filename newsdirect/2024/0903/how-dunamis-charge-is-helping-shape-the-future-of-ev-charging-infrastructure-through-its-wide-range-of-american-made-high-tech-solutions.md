@@ -53,7 +53,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-dunamis-c
 [Original/Source Press Release](https://newsdirect.com/news/how-dunamis-charge-is-helping-shape-the-future-of-ev-charging-infrastructure-through-its-wide-range-of-american-made-high-tech-solutions-350761784)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dunamis-charge-leading-the-revolution-in-ev-charging-infrastructure/a1ee06d8ff5dbcb5be5bb30e9fd2958c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/dunamis-charge-leads-innovation-in-ev-charging-infrastructure-with-american-made-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dunamis-charge-pioneers-the-future-of-ev-charging-infrastructure-with-high-tech-american-made-solutions/20246485)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/dunamis-charge-leads-innovation-in-ev-charging-infrastructure-with-american-made-solutions/20246485)
+
+Pickup - [advos.io](https://advos.io/en/dunamis-charge-leading-the-future-of-ev-charging-infrastructure/20246485)
+ 
 
 
 

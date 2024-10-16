@@ -33,7 +33,9 @@ The Internet Computer Protocol (ICP) is a blockchain network, forging the next g
 [Original/Source Press Release](https://blockchainwire.io/press-release/icp-hub-portugal-launches-innovative-ideathon-bringing-new-web3-ideas-to-life)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/icp-hub-lisbon-announces-ideathon-for-aspiring-developers-in-portugal-spain-and-france/2113883c655585f25c37e19be86a761d) 
+
+ 
 
 
 

@@ -7,7 +7,17 @@ DENVER, CO, August 01, 2024 /24-7PressRelease/ -- Two leading Colorado personal 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513023/manning-law-and-herington-law-merge-to-form-manning-herington-accident-injury-attorneys)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leading-colorado-personal-injury-law-firms-merge-to-form-manning-herington-accident-injury-attorneys/f0a8c3427f8be29e61f847da017756ad) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/colorado-legal-landscape-shifts-as-manning-law-and-herington-law-unite)
+
+Pickup - [fishervista.com](https://fishervista.com/en/manning-law-and-herington-law-merge-to-form-manning-herington-accident-injury-attorneys/20245417)
+
+Pickup - [advos.io](https://advos.io/en/manning-law-and-herington-law-merge-to-form-premier-personal-injury-firm/20245417)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/colorado-legal-landscape-shifts-as-manning-law-and-herington-law-merge)
+ 
 
 
 

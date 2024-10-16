@@ -17,7 +17,9 @@ Wemade is at the forefront of the next wave of Web3 game developers that are inn
 [Original/Source Press Release](https://blockchainwire.io/press-release/wemade-and-wemix-win-best-web3-gaming-at-mena-games-industry-awards-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemade-and-wemix-win-best-web3-gaming-award-at-mena-games-industry-awards-2024/e10a6c446cda031caad8d7420c3c2803) 
+
+ 
 
 
 

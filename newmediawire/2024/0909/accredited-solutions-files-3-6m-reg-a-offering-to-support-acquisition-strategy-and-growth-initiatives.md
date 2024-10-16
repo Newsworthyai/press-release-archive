@@ -21,7 +21,17 @@ Source: Accredited Solutions, Inc. https://www.diamondcreekwater.com
 [Original/Source Press Release](https://www.newmediawire.com/news/accredited-solutions-files-3-6m-reg-a-offering-to-support-acquisition-strategy-and-growth-initiatives-7076021)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/accredited-solutions-inc-files-regulation-a-registration-statement-for-3-6-million-offering/da73f96bc67a3bacd178513b11e86c5c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/accredited-solutions-announces-3-6m-regulation-a-offering-to-fund-acquisition-strategy)
+
+Pickup - [fishervista.com](https://fishervista.com/en/accredited-solutions-files-3-6m-reg-a-offering-to-bolster-acquisition-strategy-and-growth/20246616)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/accredited-solutions-announces-3-6m-regulation-a-offering-to-fund-acquisition-strategy/20246616)
+
+Pickup - [advos.io](https://advos.io/en/accredited-solutions-files-3-6m-reg-a-offering-to-propel-growth-and-acquisitions/20246616)
+ 
 
 
 

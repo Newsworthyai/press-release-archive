@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/hawex-officia
 [Original/Source Press Release](https://newsdirect.com/news/hawex-officially-launches-crypto-services-in-europe-946207630)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hawex-launches-crypto-services-in-europe-revolutionizing-the-market/5accf239fe67d5d0aacacf645e91925a) 
+
+ 
 
 
 

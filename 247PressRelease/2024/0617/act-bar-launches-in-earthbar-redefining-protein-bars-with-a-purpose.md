@@ -7,7 +7,11 @@ SANTA MONICA, CA, June 17, 2024 /24-7PressRelease/ -- Act Bar, an emerging bette
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511754/act-bar-launches-in-earthbar-redefining-protein-bars-with-a-purpose)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/act-bar-partners-with-earthbar-to-expand-availability-of-sustainable-protein-bars/0897052dae8dcc3ef473a1873c193a38) 
+
+
+Pickup - [advos.io](https://advos.io/en/act-bar-launches-in-earthbar-redefining-protein-bars-with-a-purpose/20244191)
+ 
 
 
 

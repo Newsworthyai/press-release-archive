@@ -52,7 +52,17 @@ Testimonials
 [Original/Source Press Release](https://newsworthy.ai/news/202409111258/finally-a-solution-to-the-work-life-balance-problem-the-happy-hustle-version-2-0-new-book-is-here-to-help)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-happy-hustle-announces-release-of-the-happy-hustle-book-version-2-0/d3e07aefc8e69c269db8533559d300f0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/new-book-the-happy-hustle-2-0-offers-solution-to-work-life-balance-dilemma)
+
+Pickup - [fishervista.com](https://fishervista.com/en/the-happy-hustle-book-2-0-a-new-blueprint-for-work-life-balance/20246675)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-book-the-happy-hustle-version-2-0-offers-solution-to-work-life-balance-dilemma/20246675)
+
+Pickup - [advos.io](https://advos.io/en/the-happy-hustle-book-version-2-0-aims-to-solve-work-life-balance-challenges/20246675)
+ 
 
 
 

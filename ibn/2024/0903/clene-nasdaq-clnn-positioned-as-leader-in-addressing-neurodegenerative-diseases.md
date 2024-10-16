@@ -23,7 +23,17 @@ Clene (NASDAQ: CLNN), a biopharmaceutical company, is at the forefront of transf
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/clene-nasdaq-clnn-positioned-as-leader-in-addressing-neurodegenerative-diseases/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clene-nasdaq-clnn-leads-the-charge-in-treating-neurodegenerative-diseases/7d9101318ab66784a6e176258e1a416e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/clene-advances-innovative-treatment-for-neurodegenerative-diseases)
+
+Pickup - [fishervista.com](https://fishervista.com/en/clene-inc-leads-the-charge-in-neurodegenerative-disease-treatment/20246490)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/clene-s-cnm-au8-shows-promise-in-treating-neurodegenerative-diseases/20246490)
+
+Pickup - [advos.io](https://advos.io/en/clene-inc-emerges-as-a-leader-in-neurodegenerative-disease-treatments/20246490)
+ 
 
 
 

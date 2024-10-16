@@ -67,7 +67,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/summer-web3fe
 [Original/Source Press Release](https://newsdirect.com/news/summer-web3fest-2024-a-resounding-success-and-a-glimpse-into-the-future-213435185)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/swiss-web3fest-2024-a-glimpse-into-the-future-of-blockchain-and-web3-innovation/4189f59bc0958947abb9e40b535136f1) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/swiss-web3fest-2024-major-success-and-future-prospects-in-blockchain-innovation/20244346)
+
+Pickup - [advos.io](https://advos.io/en/swiss-web3fest-2024-sets-new-benchmarks-in-blockchain-innovation/20244346)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/swiss-web3fest-2024-a-glimpse-into-the-future-of-blockchain-and-web3-innovation)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/swiss-web3fest-2024-a-glimpse-into-the-future-of-blockchain-and-web3-innovation)
+ 
 
 
 

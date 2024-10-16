@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/sunstone-meta
 [Original/Source Press Release](https://newsdirect.com/news/sunstone-metals-one-step-closer-to-el-palmar-resource-amid-strong-trenching-results-917967647)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sunstone-metals-makes-significant-progress-in-ecuador-exploration/f4910a31dc3d2ff10791944e7520b0fd) 
+
+ 
 
 
 

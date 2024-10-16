@@ -7,7 +7,17 @@ ARLINGTON, TX, September 05, 2024 /24-7PressRelease/ -- The owners of a new pack
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513806/patriot-postal-open-now-at-5100-w-sublett-rd-arlington-tx)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-pack-ship-store-patriot-postal-offers-10-off-to-military-and-first-responders/702c2a7ee39e031cb2a73d400dcda87f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/new-patriot-postal-store-opens-in-arlington-tx-offering-discounts-for-military-and-first-responders)
+
+Pickup - [fishervista.com](https://fishervista.com/en/patriot-postal-opens-new-pack-ship-store-in-arlington-tx/20246537)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/new-patriot-postal-store-opens-in-arlington-tx-offering-discounts-for-military-and-first-responders/20246537)
+
+Pickup - [advos.io](https://advos.io/en/patriot-postal-opens-in-arlington-offering-discounts-to-military-and-first-responders/20246537)
+ 
 
 
 

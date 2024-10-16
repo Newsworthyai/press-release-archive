@@ -41,7 +41,11 @@ Twitter: [SHIBA BUDZ "$BUDZ" (@ShibaBudz) / X](https://twitter.com/ShibaBudz)Dis
 [Original/Source Press Release](https://blockchainwire.io/press-release/new-cryptocurrency-rivals-pepecoin-pepe-with-390-surge-pepe-investors-find-new-100x-gem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiba-budz-budz-emerges-as-a-major-challenger-to-pepecoin-pepe/d8259fe339679c4e869d6a6864c6b32e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/shiba-budz-budz-emerges-as-pepecoin-pepe-rival-with-390-surge)
+ 
 
 
 

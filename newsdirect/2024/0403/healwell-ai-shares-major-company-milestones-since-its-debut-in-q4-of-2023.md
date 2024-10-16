@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/healwell-ai-s
 [Original/Source Press Release](https://newsdirect.com/news/healwell-ai-shares-major-company-milestones-since-its-debut-in-q4-of-2023-517228872)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/healwell-ai-achieves-major-milestones-in-healthcare-ai-market/6fdd8e2d6651f29aa71f1b898f96128e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/healwell-ai-achieves-remarkable-growth-and-milestones-in-inaugural-year)
+ 
 
 
 

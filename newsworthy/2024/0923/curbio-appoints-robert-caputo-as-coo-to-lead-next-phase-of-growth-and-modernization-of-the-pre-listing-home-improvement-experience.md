@@ -23,7 +23,9 @@ Media ContactJennifer Marchettipress@curbio.com
 [Original/Source Press Release](https://newsworthy.ai/news/202409231276/curbio-appoints-robert-caputo-as-coo-to-lead-next-phase-of-growth-and-modernization-of-the-pre-listing-home-improvement-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/curbio-appoints-robert-caputo-as-chief-operating-officer-coo/5265a53ef5023893750ef0310fd98cc0) 
+
+ 
 
 
 

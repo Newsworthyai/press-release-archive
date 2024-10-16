@@ -25,7 +25,9 @@ Lado Okhotnikov is a CEO and founder of Meta Force, an expert in IT, blockchain 
 [Original/Source Press Release](https://blockchainwire.io/press-release/meta-force-from-lado-okhotnikov-launches-trading-p2p-service-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meta-force-launches-p2p-service-for-forcecoin-sales/bceec922dd1694d70c05ce691a4b3f55) 
+
+ 
 
 
 

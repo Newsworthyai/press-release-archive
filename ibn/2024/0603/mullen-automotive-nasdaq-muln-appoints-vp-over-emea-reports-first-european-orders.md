@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, h
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-appoints-vp-over-emea-reports-first-european-orders/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-appoints-new-vp-for-europe-reports-first-european-orders/b28ec4c5d0f713369445eb1ee447d216) 
+
+ 
 
 
 

@@ -70,7 +70,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/hpra-announce
 [Original/Source Press Release](https://newsdirect.com/news/hpra-announces-2024-bravo-award-finalists-707280746)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hpra-announces-finalists-for-2024-bravo-awards/4f5d5819b3d7a8111fa601236f31b255) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/hispanic-public-relations-association-unveils-finalists-for-2024-bravo-awards)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hpra-announces-finalists-for-2024-bravo-awards-celebrates-a-decade-of-excellence/20245700)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hispanic-public-relations-association-unveils-finalists-for-2024-bravo-awards/20245700)
+
+Pickup - [advos.io](https://advos.io/en/hpra-unveils-finalists-for-2024-bravo-awards-marking-tenth-anniversary/20245700)
+ 
 
 
 

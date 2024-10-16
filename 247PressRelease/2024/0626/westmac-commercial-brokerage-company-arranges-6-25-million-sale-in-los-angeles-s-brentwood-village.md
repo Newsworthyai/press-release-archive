@@ -7,7 +7,13 @@ LOS ANGELES, CA, June 26, 2024 /24-7PressRelease/ -- WESTMAC Commercial Brokerag
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512016/westmac-commercial-brokerage-company-arranges-625-million-sale-in-los-angeless-brentwood-village)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/westmac-commercial-brokerage-arranges-sale-of-iconic-brentwood-property/368c238ce853cf3684619920b91055cb) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/westmac-commercial-brokerage-facilitates-6-25-million-sale-in-brentwood-village/20244475)
+
+Pickup - [advos.io](https://advos.io/en/westmac-commercial-brokerage-facilitates-6-25-million-sale-in-brentwood-village/20244475)
+ 
 
 
 

@@ -7,7 +7,9 @@ NEWPORT BEACH, CA, May 16, 2024 /24-7PressRelease/ -- Zespri's animated brand ch
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510943/zespri-introduces-kiwibrothers-with-exciting-creative-and-event-activations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zespri-s-kiwibrothers-bring-taste-the-obsession-campaign-to-u-s/3f151d404ec311e6b3f56ef5df491593) 
+
+ 
 
 
 

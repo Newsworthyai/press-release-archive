@@ -46,7 +46,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/amid-volatile
 [Original/Source Press Release](https://newsdirect.com/news/amid-volatile-bitcoin-price-landscape-bitdeer-announces-pricing-of-150-million-convertible-notes-offering-to-fund-continued-growth-and-innovation-113636058)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitdeer-announces-pricing-of-150-million-convertible-notes-offering/d980ac39ca219a34d51f12a7bf139bb0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/bitdeer-secures-150-million-in-convertible-notes-amid-bitcoin-market-volatility)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitdeer-secures-150-million-in-convertible-notes-amidst-bitcoin-volatility/20246898)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bitdeer-secures-150-million-in-convertible-notes-amid-bitcoin-market-volatility/20246898)
+
+Pickup - [advos.io](https://advos.io/en/bitdeer-secures-150-million-in-convertible-notes-amid-bitcoin-volatility/20246898)
+ 
 
 
 

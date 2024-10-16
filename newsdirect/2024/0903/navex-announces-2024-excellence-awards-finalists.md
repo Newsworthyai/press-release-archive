@@ -93,7 +93,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/navex-announc
 [Original/Source Press Release](https://newsdirect.com/news/navex-announces-2024-excellence-awards-finalists-667139679)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/navex-announces-2024-excellence-awards-finalists/0879e1a3190b1a83d5789be6caa48466) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/navex-unveils-finalists-for-2024-excellence-awards-in-corporate-governance-and-ethics)
+
+Pickup - [fishervista.com](https://fishervista.com/en/navex-announces-2024-excellence-awards-finalists-showcasing-leaders-in-corporate-governance-and-risk-management/20246489)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/navex-unveils-finalists-for-2024-excellence-awards-in-corporate-governance/20246489)
+
+Pickup - [advos.io](https://advos.io/en/navex-announces-2024-excellence-awards-finalists/20246489)
+ 
 
 
 

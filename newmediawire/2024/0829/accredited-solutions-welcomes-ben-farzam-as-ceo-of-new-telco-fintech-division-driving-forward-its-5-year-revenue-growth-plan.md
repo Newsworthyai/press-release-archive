@@ -27,7 +27,13 @@ Source: Accredited Solutions, Inc. https://www.diamondcreekwater.com
 [Original/Source Press Release](https://www.newmediawire.com/news/accredited-solutions-welcomes-ben-farzam-as-ceo-of-new-telco-fintech-division-driving-forward-its-5-year-revenue-growth-plan-7075977)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/accredited-solutions-inc-appoints-ben-farzam-as-ceo-of-telco-fintech-division/ce5451e55cdae7c443479e8d58f053b1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/accredited-solutions-appoints-ben-farzam-as-ceo-of-new-telco-fintech-division)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/accredited-solutions-appoints-ben-farzam-to-lead-new-telco-fintech-division/20246448)
+ 
 
 
 

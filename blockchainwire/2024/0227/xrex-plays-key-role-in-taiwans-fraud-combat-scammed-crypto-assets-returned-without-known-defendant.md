@@ -55,7 +55,11 @@ Sharing the social responsibility of financial inclusion, XREX leverages blockch
 [Original/Source Press Release](https://blockchainwire.io/press-release/xrex-plays-key-role-in-taiwans-fraud-combat-scammed-crypto-assets-returned-without-known-defendant-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/taiwan-s-criminal-investigation-bureau-cib-judicial-reform-foundation-and-xrex-crack-cryptocurrency-fraud-case/b9d73e6dc45e52c46554588a10746339) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/27/xrex-plays-pivotal-role-in-cracking-cryptocurrency-fraud-case)
+ 
 
 
 

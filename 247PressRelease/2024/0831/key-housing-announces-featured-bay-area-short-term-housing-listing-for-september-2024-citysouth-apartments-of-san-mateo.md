@@ -7,7 +7,17 @@ SAN FRANCISCO, CA, August 31, 2024 /24-7PressRelease/ -- Key Housing, a top prov
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513873/key-housing-announces-featured-bay-area-short-term-housing-listing-for-september-2024-citysouth-apartments-of-san-mateo)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/key-housing-announces-citysouth-apartments-as-featured-bay-area-listing-for-september-2024/ed906e14559c1ec5a0f9eb645b6cce5e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/31/citysouth-apartments-in-san-mateo-named-key-housing-s-featured-bay-area-listing-for-september-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/key-housing-announces-citysouth-apartments-in-san-mateo-as-featured-bay-area-short-term-housing-for-september-2024/20246412)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/citysouth-apartments-named-top-bay-area-short-term-housing-option-for-september-2024/20246412)
+
+Pickup - [advos.io](https://advos.io/en/key-housing-features-citysouth-apartments-in-san-mateo-for-september-short-term-housing/20246412)
+ 
 
 
 

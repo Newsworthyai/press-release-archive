@@ -21,7 +21,11 @@ Website: [https://www.coinsdo.com](https://www.coinsdo.com/)Twitter: [https://tw
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinsdo-to-unveil-proprietary-solution-disrupting-usd1-billion-crypto-asset-management-market-at-paris-blockchain-week-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinsdo-to-showcase-revolutionary-solutions-at-paris-blockchain-week-and-token-2049/2f1dd96abb81fce4d84282ac2074e772) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/coinsdo-unveils-proprietary-crypto-asset-management-solution-at-paris-blockchain-week)
+ 
 
 
 

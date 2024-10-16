@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/mimic-joins-t
 [Original/Source Press Release](https://newsdirect.com/news/mimic-joins-the-race-to-develop-the-first-ai-driven-collaborative-robot-as-it-raises-2-5m-787040548)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/swiss-startup-mimic-challenges-us-dominance-in-race-to-develop-humanoid-robot/09005ab68b8784f41b1e1b6ba1f84803) 
+
+ 
 
 
 

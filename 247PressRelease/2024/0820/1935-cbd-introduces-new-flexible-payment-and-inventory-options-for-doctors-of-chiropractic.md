@@ -7,7 +7,9 @@ DEKALB, IL, August 20, 2024 /24-7PressRelease/ -- 1935 CBD, a trusted leader in 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513310/1935-cbd-introduces-new-flexible-payment-and-inventory-options-for-doctors-of-chiropractic)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/1935-cbd-launches-new-flexible-payment-and-inventory-options-for-chiropractors/00688d29a991d91430763abc4af0ea71) 
+
+ 
 
 
 

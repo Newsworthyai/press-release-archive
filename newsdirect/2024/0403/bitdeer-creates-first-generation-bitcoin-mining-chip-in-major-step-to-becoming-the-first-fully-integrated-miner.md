@@ -51,7 +51,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitdeer-creat
 [Original/Source Press Release](https://newsdirect.com/news/bitdeer-creates-first-generation-bitcoin-mining-chip-in-major-step-to-becoming-the-first-fully-integrated-miner-686776405)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitdeer-unveils-seal01-chip-sets-stage-for-full-vertical-integration/074a66fd07cc3081173aee6787ad488f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/bitdeer-unveils-groundbreaking-bitcoin-mining-chip-paving-way-for-vertical-integration)
+ 
 
 
 

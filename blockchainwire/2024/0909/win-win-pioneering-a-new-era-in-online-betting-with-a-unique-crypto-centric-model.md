@@ -41,7 +41,17 @@ For Media Inquiries:Mohammed Mehar - Founderinfo@win-win.email Website
 [Original/Source Press Release](https://blockchainwire.io/press-release/win-win-pioneering-a-new-era-in-online-betting-with-a-unique-crypto-centric-model)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/win-win-redefining-online-gambling-with-innovative-crypto-casino/231b31f772cbb53dedad6f2dcd1b26fa) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/win-win-introduces-crypto-centric-online-casino-aiming-to-revolutionize-the-gambling-industry/20246696)
+
+Pickup - [advos.io](https://advos.io/en/win-win-launches-crypto-centric-online-casino-aiming-to-revolutionize-online-gambling/20246696)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/win-win-launches-innovative-crypto-casino-platform-aims-to-revolutionize-online-gambling/20246696)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/win-win-launches-innovative-crypto-casino-platform-aiming-to-revolutionize-online-gambling)
+ 
 
 
 

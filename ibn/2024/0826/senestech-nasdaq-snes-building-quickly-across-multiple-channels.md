@@ -31,7 +31,17 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestech-nasdaq-snes-building-quickly-across-multiple-channels/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/senestech-reports-50-revenue-growth-in-q2-2024/e72c482dd75fb6c22727b54bf705a027) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/senestech-reports-strong-q2-growth-and-announces-strategic-pivot-to-distributors/20246087)
+
+Pickup - [advos.io](https://advos.io/en/senestech-reports-robust-q2-2024-growth-and-expansion-plans/20246087)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/senestech-reports-strong-q2-growth-and-expands-distribution-channels-for-rodent-contraceptive-products)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/senestech-reports-strong-growth-and-expansion-across-multiple-channels/20246087)
+ 
 
 
 

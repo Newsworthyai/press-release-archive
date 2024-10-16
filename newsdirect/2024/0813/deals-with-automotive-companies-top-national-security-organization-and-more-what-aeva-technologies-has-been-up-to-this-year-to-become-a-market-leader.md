@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/deals-with-au
 [Original/Source Press Release](https://newsdirect.com/news/deals-with-automotive-companies-top-national-security-organization-and-more-what-aeva-technologies-has-been-up-to-this-year-to-become-a-market-leader-645275338)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aeva-technologies-inc-leading-the-charge-in-autonomous-vehicle-revolution/807a39e5744e365897e4566ffa8e6442) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/aeva-technologies-advances-in-autonomous-vehicle-sensor-market-with-key-partnerships)
+
+Pickup - [fishervista.com](https://fishervista.com/en/aeva-technologies-solidifies-leadership-in-lidar-technology-with-major-industry-partnerships/20245686)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/aeva-technologies-expands-reach-in-autonomous-vehicle-and-security-markets/20245686)
+
+Pickup - [advos.io](https://advos.io/en/aeva-technologies-expands-market-leadership-with-key-deals-in-automotive-and-security-sectors/20245686)
+ 
 
 
 

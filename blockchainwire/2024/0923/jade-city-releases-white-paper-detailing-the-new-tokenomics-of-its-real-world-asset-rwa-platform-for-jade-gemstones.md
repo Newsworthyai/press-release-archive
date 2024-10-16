@@ -35,7 +35,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/jade-city-releases-white-paper-detailing-the-new-tokenomics-of-its-real-world-asset-rwa-platform-for-jade-gemstones)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jade-city-announces-white-paper-release-detailing-plan-to-democratize-50-billion-jade-market/034a87a84cab1192bfd0f7d1fec52169) 
+
+ 
 
 
 

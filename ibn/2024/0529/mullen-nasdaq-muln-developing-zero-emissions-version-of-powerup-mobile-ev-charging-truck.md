@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, i
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-developing-zero-emissions-version-of-powerup-mobile-ev-charging-truck/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-developing-zero-emissions-powerup-for-class-3-ev-truck/bbddaa33340a47578a9a2ec90e8dc099) 
+
+ 
 
 
 

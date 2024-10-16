@@ -41,7 +41,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-roundup-bitcoin-stays-steady-ethereum-jumps-23-and-furrever-tokens-15x-returns-capture-attention)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-surges-23-amid-record-etf-trading-volumes/81a7b84f8b4adfd30731ea983e962c51) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ethereum-surges-23-amid-record-etf-trading-volumes)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ethereum-surges-23-amid-record-etf-trading-volumes)
+ 
 
 
 

@@ -63,7 +63,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/teccrypto-reveals-policy-update-to-boost-passive-earnings-in-cloud--bitcoin-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teccrypto-announces-policy-change-to-boost-income-for-cryptocurrency-investors/28de01978c4f455f0a24d1f43c17d6ad) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/16/teccrypto-unlocks-daily-passive-income-for-cloud-and-bitcoin-mining)
+ 
 
 
 

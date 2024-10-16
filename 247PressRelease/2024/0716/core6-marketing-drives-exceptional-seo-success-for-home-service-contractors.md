@@ -7,7 +7,15 @@ MONTEREY, CA, July 16, 2024 /24-7PressRelease/ -- Core6 Marketing, a leading dig
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512561/core6-marketing-drives-exceptional-seo-success-for-home-service-contractors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/core6-marketing-drives-impressive-results-with-local-seo-campaigns-for-home-service-contractors/e16ccbfec4dc4dc8b87ccb8c161c0ea4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/core6-marketing-achieves-remarkable-seo-results-for-home-service-contractors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/core6-marketing-delivers-exceptional-seo-success-for-home-service-contractors/20244979)
+
+Pickup - [advos.io](https://advos.io/en/core6-marketing-achieves-remarkable-seo-results-for-home-service-contractors/20244979)
+ 
 
 
 

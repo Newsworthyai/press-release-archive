@@ -43,7 +43,11 @@ https://www.linkedin.com/in/marciadaszko/
 [Original/Source Press Release](https://newsworthy.ai/news/20240111976/pivot-disrupt-transform-how-leaders-let-go-of-management-fads-and-embrace-future-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-author-marcia-daszko-releases-groundbreaking-book-on-leadership-transformation/9c03639bbfdc545727e90774fa11c4ba) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/11/pivot-disrupt-transform-marcia-daszko-s-guide-to-innovative-leadership)
+ 
 
 
 

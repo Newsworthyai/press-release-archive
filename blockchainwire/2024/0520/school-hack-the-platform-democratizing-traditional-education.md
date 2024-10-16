@@ -49,7 +49,13 @@ Coinstore Social MediaTwitter | Discord | Facebook | Instagram | Youtube | Teleg
 [Original/Source Press Release](https://blockchainwire.io/press-release/school-hack---the-platform-democratizing-traditional-education)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionizing-education-with-school-hack-coin/5ba46c49b44af4f9e5ea39f4ebea6ba2) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/revolutionizing-education-with-school-hack-coin)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/revolutionizing-education-with-school-hack-coin)
+ 
 
 
 

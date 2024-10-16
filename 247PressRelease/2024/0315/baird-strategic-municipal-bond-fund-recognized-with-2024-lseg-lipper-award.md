@@ -7,7 +7,11 @@ MILWAUKEE, WI, March 15, 2024 /24-7PressRelease/ -- Employee-owned Baird announc
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509258/baird-strategic-municipal-bond-fund-recognized-with-2024-lseg-lipper-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/baird-strategic-municipal-bond-fund-wins-2024-lseg-lipper-fund-award/47cb41b8f2d7d4e6f75a359b030923b4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/baird-strategic-municipal-bond-fund-earns-top-lipper-award)
+ 
 
 
 

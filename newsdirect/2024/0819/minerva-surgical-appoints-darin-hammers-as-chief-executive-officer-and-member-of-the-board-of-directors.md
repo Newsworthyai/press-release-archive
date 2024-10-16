@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/minerva-surgi
 [Original/Source Press Release](https://newsdirect.com/news/minerva-surgical-appoints-darin-hammers-as-chief-executive-officer-and-member-of-the-board-of-directors-971119553)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/darin-hammers-appointed-as-president-and-ceo-of-minerva-surgical/c52d845c6efc63eec864b83ddcfd827b) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/minerva-surgical-names-industry-veteran-darin-hammers-as-new-ceo/20245843)
+
+Pickup - [advos.io](https://advos.io/en/minerva-surgical-names-darin-hammers-as-new-ceo/20245843)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/19/minerva-surgical-names-industry-veteran-darin-hammers-as-new-ceo)
+
+Pickup - [fishervista.com](https://fishervista.com/en/minerva-surgical-appoints-darin-hammers-as-ceo-and-board-member/20245843)
+ 
 
 
 

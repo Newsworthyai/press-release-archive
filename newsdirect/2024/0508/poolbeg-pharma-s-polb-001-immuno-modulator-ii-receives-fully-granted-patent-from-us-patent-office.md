@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/poolbeg-pharm
 [Original/Source Press Release](https://newsdirect.com/news/poolbeg-pharmas-polb-001-immuno-modulator-ii-receives-fully-granted-patent-from-us-patent-office-684462050)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/poolbeg-pharma-s-polb-001-receives-patent-for-immuno-modulator-ii/8fcbff74817f30b67f08cd6b03378703) 
+
+ 
 
 
 

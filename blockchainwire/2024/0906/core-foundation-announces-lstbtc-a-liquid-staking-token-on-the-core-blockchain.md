@@ -35,7 +35,17 @@ Disclaimer: This press release is for informational purposes only and does not c
 [Original/Source Press Release](https://blockchainwire.io/press-release/core-foundation-announces-lstbtc-a-liquid-staking-token-on-the-core-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/core-foundation-announces-lstbtc-a-game-changer-for-bitcoin-holders/6da032915e8d539eddbb223530531825) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/core-foundation-introduces-lstbtc-revolutionizing-bitcoin-staking-and-liquidity)
+
+Pickup - [advos.io](https://advos.io/en/core-foundation-introduces-lstbtc-a-liquid-staking-solution-for-bitcoin-holders/20246705)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/core-foundation-introduces-lstbtc-revolutionizing-bitcoin-staking-and-liquidity/20246705)
+
+Pickup - [fishervista.com](https://fishervista.com/en/core-foundation-launches-lstbtc-a-revolutionary-liquid-staking-token-for-bitcoin-holders/20246705)
+ 
 
 
 

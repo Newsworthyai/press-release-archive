@@ -7,7 +7,11 @@ NEW YORK, NY, March 27, 2024 /24-7PressRelease/ -- At the forefront of pioneerin
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509560/germs-kill-with-germs-tony-wangs-anti-inflammatory-protein-breakthrough)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tony-wang-science-institute-revolutionizing-healthcare-with-anti-inflammatory-proteins/1ed949feb44129fe62a8cdb69c10f7f4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/tony-wang-s-anti-inflammatory-protein-breakthrough-offers-natural-solutions)
+ 
 
 
 

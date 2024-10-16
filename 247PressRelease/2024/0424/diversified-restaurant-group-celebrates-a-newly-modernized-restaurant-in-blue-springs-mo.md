@@ -7,7 +7,9 @@ BLUE SPRINGS, MO, April 24, 2024 /24-7PressRelease/ -- Diversified Restaurant Gr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510307/diversified-restaurant-group-celebrates-a-newly-modernized-restaurant-in-blue-springs-mo)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/taco-bell-franchisee-celebrates-grand-re-opening-with-digital-enhancements-and-exclusive-swag/37bdcf399a6a5544ab1dd2f29bba449d) 
+
+ 
 
 
 

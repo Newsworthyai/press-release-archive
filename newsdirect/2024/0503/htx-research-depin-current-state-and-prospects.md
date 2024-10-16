@@ -381,7 +381,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-research-
 [Original/Source Press Release](https://newsdirect.com/news/htx-research-depin-current-state-and-prospects-325153621)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/decentralized-physical-infrastructure-networks-depin-reshaping-blockchain-landscape/07e823846816d551c07797c94038d803) 
+
+ 
 
 
 

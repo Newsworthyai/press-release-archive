@@ -31,7 +31,9 @@ About Wendt Partners:
 [Original/Source Press Release](https://www.newmediawire.com/news/wendt-partners-announces-major-q3-client-wins-promotions-and-global-expansion-activities-7076135)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wendt-partners-announces-major-q3-client-wins-promotions-and-global-expansion-activities/575fd6d9c1258332bb168d89c1703593) 
+
+ 
 
 
 

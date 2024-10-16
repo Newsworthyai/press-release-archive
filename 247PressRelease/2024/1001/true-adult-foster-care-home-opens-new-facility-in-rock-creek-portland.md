@@ -7,7 +7,9 @@ PORTLAND, OR, October 01, 2024 /24-7PressRelease/ -- True Adult Foster Care home
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514840/true-adult-foster-care-home-opens-new-facility-in-rock-creek-portland)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/true-adult-foster-care-home-opens-new-facility-in-rock-creek-portland/6c25201ca6c3b4c2966864a0a8e7b7dc) 
+
+ 
 
 
 

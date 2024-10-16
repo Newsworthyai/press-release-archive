@@ -7,7 +7,11 @@ LOS ANGELES, CA, April 08, 2024 /24-7PressRelease/ -- Blue Faery: The Adrienne W
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509696/blue-faery-awards-liver-cancer-research-grant)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blue-faery-award-for-excellence-in-liver-cancer-research/c4ada3f3a5c81d62f6e58f7f43bdce30) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/blue-faery-honors-liver-cancer-researcher-with-annual-award)
+ 
 
 
 

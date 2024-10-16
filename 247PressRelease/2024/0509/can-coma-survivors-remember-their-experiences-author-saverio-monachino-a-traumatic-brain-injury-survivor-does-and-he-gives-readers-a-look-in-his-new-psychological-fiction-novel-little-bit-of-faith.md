@@ -7,7 +7,9 @@ WILMINGTON, NC, May 09, 2024 /24-7PressRelease/ -- Saverio Monachino's traumatic
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510704/can-coma-survivors-remember-their-experiences-author-saverio-monachino-a-traumatic-brain-injury-survivor-does-and-he-gives-readers-a-look-in-his-new-psychological-fiction-novel-little-bit-of-faith)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tbi-survivor-saverio-monachino-releases-captivating-fiction-novels/2fc06368f0348c3b065d8b67ad4f526e) 
+
+ 
 
 
 

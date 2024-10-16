@@ -17,7 +17,11 @@ The "Chat with chickens" app by Perutnina Ptuj is more than just a clever piece 
 [Original/Source Press Release](https://blockchainwire.io/press-release/trace-labs-and-perutnina-ptuj-release-an-innovative-crypto-and-ai-based-app-to-drive-consumer-interaction)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/perutnina-ptuj-introduces-chat-with-chickens-ai-application/a1c0da2957e9d32a3b73d2bd20d55e24) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/perutnina-ptuj-embraces-ai-for-transparent-consumer-engagement)
+ 
 
 
 

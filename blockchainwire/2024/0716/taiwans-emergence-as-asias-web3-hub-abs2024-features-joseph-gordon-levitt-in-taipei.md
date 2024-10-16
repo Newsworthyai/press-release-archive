@@ -64,7 +64,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/taiwans-emergence-as-asias-web3-hub--abs2024-features-joseph-gordon-levitt-in-taipei)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/abs2024-summit-in-taipei-blockchain-ai-and-the-future-of-governance/8fbb7e917b521d682b5839a6e6b5a560) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/taiwan-emerges-as-asia-s-web3-hub-abs2024-summit-to-showcase-technological-innovation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/taiwan-emerges-as-asia-s-web3-hub-with-abs2024-summit-highlighting-blockchain-ai-and-governance/20245068)
+
+Pickup - [advos.io](https://advos.io/en/taiwan-set-to-host-abs2024-featuring-joseph-gordon-levitt-and-global-tech-leaders/20245068)
+ 
 
 
 

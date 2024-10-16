@@ -29,7 +29,17 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/scannit-to-launch-financial-management-app-at-token2049-rewarding-users-with-tokens-for-data-ownership)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scannit-announces-open-beta-launch-of-financial-management-app-at-token-2049-event-in-singapore/6de428c6a73c36268f9dfbba82c8ca6c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/scannit-to-unveil-revolutionary-financial-management-app-at-token2049)
+
+Pickup - [advos.io](https://advos.io/en/scannit-to-launch-financial-management-app-with-token-rewards-at-token2049/20246708)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/scannit-unveils-innovative-financial-management-app-at-token2049-rewarding-users-for-data-ownership/20246708)
+
+Pickup - [fishervista.com](https://fishervista.com/en/scannit-unveils-innovative-financial-management-app-with-token-rewards-at-token2049/20246708)
+ 
 
 
 

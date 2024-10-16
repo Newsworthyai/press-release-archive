@@ -33,7 +33,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/dork-lord-launches-on-solana-bringing-humor-and-innovation-to-crypto)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dork-lord-revolutionizing-decentralized-humor-on-solana-blockchain/9f36632a13ec737cdf1797a3f5b64e33) 
+
+ 
 
 
 

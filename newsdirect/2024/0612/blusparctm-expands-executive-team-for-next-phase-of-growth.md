@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/blusparc-expa
 [Original/Source Press Release](https://newsdirect.com/news/blusparc-expands-executive-team-for-next-phase-of-growth-477902556)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blusparc-expands-executive-team-for-next-phase-of-growth/cf5a8c2bb34c2de06ec1e1ebbebef227) 
+
+
+Pickup - [advos.io](https://advos.io/en/blusparctm-expands-executive-team-with-new-chief-growth-officer-and-chief-operating-officer/20244081)
+ 
 
 
 

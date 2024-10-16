@@ -75,7 +75,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/what-is-margi
 [Original/Source Press Release](https://newsdirect.com/news/what-is-margin-trading-and-should-you-try-it-697298518)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/margin-trading-a-game-changer-for-retail-investors/f27b0dca25acd6ed12ea6f0b9df3a5aa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/margin-trading-a-powerful-tool-for-investors-seeking-higher-returns)
+
+Pickup - [fishervista.com](https://fishervista.com/en/the-evolution-and-risks-of-margin-trading-for-retail-investors/20244992)
+
+Pickup - [advos.io](https://advos.io/en/understanding-margin-trading-opportunities-and-risks-for-investors/20244992)
+ 
 
 
 

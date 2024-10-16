@@ -7,7 +7,9 @@ TAMPA, FL, May 08, 2024 /24-7PressRelease/ -- College HUNKS Hauling Junk and Mov
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510760/college-hunks-hauling-junk-and-moving-promotes-matt-knapp-to-vice-president)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/college-hunks-promotes-matt-knapp-to-vice-president-of-technical-product-and-client-experience/95599d2af5b3cbe0d36160570b763b65) 
+
+ 
 
 
 

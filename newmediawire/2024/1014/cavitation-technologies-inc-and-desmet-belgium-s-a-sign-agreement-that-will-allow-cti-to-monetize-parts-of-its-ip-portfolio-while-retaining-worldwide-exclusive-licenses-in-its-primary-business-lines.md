@@ -35,7 +35,9 @@ Cavitation Technologies, Inc.818-718-0905info@ctinanotech.com
 [Original/Source Press Release](https://www.newmediawire.com/news/cavitation-technologies-inc-and-desmet-belgium-s-a-sign-agreement-that-will-allow-cti-to-monetize-parts-of-its-ip-portfolio-while-retaining-worldwide-exclusive-licenses-in-its-primary-business-lines-7076214)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cavitation-technologies-inc-enters-agreement-with-desmet-belgium-s-a/2571d1d09379e4f6c6deb9af867ee6d6) 
+
+ 
 
 
 

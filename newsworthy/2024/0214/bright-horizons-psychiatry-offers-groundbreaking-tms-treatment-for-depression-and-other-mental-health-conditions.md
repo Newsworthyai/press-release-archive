@@ -17,7 +17,11 @@ Bright Horizons Psychiatry is thrilled to offer TMS as part of its comprehensive
 [Original/Source Press Release](https://newsworthy.ai/news/202402141027/bright-horizons-psychiatry-offers-groundbreaking-tms-treatment-for-depression-and-other-mental-health-conditions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bright-horizons-psychiatry-offers-innovative-tms-treatment-for-mental-health-conditions/00da4c6c52827f9384828837a3c8f9d8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/14/bright-horizons-psychiatry-pioneers-innovative-tms-therapy-for-mental-health)
+ 
 
 
 

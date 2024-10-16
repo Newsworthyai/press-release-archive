@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-
 [Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-upgrades-platform-with-new-offering-of-3d-model-ai-photo-rendering-services-491104320)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nextech3d-ai-unveils-new-digital-photography-and-dynamic-product-visuals/ed2b8138d283ab19926ccea85d5ea37a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/nextech3d-ai-upgrades-platform-with-new-offering-of-3d-model-ai-photo-rendering-services)
+ 
 
 
 

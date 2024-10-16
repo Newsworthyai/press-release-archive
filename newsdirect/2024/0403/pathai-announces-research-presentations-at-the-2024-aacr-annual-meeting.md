@@ -117,7 +117,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/pathai-announ
 [Original/Source Press Release](https://newsdirect.com/news/pathai-announces-research-presentations-at-the-2024-aacr-annual-meeting-566770794)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pathai-to-present-ai-powered-precision-pathology-research-at-aacr-annual-meeting-2024/ae496bf55e94decf1177455b30f10618) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/pathai-showcases-ai-powered-precision-pathology-at-aacr-annual-meeting)
+ 
 
 
 

@@ -43,7 +43,17 @@ Animoca Brands: [press@animocabrands.com](mailto:press@animocabrands.com)
 [Original/Source Press Release](https://blockchainwire.io/press-release/futureverse-and-animoca-brands-form-strategic-partnership-with-mutual-investment-to-fuel-technology-stack-and-token-ecosystem-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/futureverse-and-animoca-brands-enter-strategic-partnership-for-metaverse-technology-enhancement/62483ecdf2c9375ae3e3d96e42329513) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/futureverse-and-animoca-brands-forge-strategic-partnership-to-advance-metaverse-technologies/20244573)
+
+Pickup - [advos.io](https://advos.io/en/futureverse-and-animoca-brands-join-forces-to-propel-metaverse-and-ai-technologies/20244573)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/futureverse-and-animoca-brands-enter-strategic-partnership-for-metaverse-technology-enhancement)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/futureverse-and-animoca-brands-enter-strategic-partnership-for-metaverse-technology-enhancement)
+ 
 
 
 

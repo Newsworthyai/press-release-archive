@@ -74,7 +74,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/searching-for
 [Original/Source Press Release](https://newsdirect.com/news/searching-for-the-best-options-trading-platforms-zero-equity-options-contract-fees-free-tools-and-more-with-moomoo-878433739)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/moomoo-financial-inc-introduces-zero-contract-fees-for-equity-options-trading/3649ff5db692b2488fb98692fc7522f4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/moomoo-offers-zero-equity-options-contract-fees-and-powerful-trading-tools)
+ 
 
 
 

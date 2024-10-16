@@ -7,7 +7,11 @@ CHESTERFIELD, MO, April 22, 2024 /24-7PressRelease/ -- Dr. Vidal Sheen, renowned
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510239/dr-vidal-sheen-introduces-grant-for-healthcare-students-pioneering-excellence-in-medical-education-and-compassionate-care)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-vascular-surgeon-dr-vidal-sheen-announces-healthcare-grant/b1946483d5ee90e46f16f2fca9bb0450) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/dr-vidal-sheen-introduces-grant-for-healthcare-students-pioneering-excellence-in-medical-education-and-compassionate-care)
+ 
 
 
 

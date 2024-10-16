@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/therma-bright
 [Original/Source Press Release](https://newsdirect.com/news/therma-brights-investment-case-just-got-stronger-as-approval-on-permanent-insurance-codes-gets-closer-290186438)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/therma-bright-s-venowave-set-for-major-growth-with-new-hcpcs-code-approval/99c2f12810fdaff04ca3de573e670a8b) 
+
+
+Pickup - [advos.io](https://advos.io/en/therma-bright-nears-approval-for-permanent-insurance-codes-paving-way-for-major-growth/20244067)
+ 
 
 
 

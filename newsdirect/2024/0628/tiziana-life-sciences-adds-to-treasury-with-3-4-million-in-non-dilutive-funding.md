@@ -29,7 +29,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/tiziana-life-
 [Original/Source Press Release](https://newsdirect.com/news/tiziana-life-sciences-adds-to-treasury-with-3-4-million-in-non-dilutive-funding-823880375)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tiziana-life-sciences-ceo-discusses-advancements-in-neurodegenerative-disease-treatments/e703f253b4f903e1bc1755fc82d666ff) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/tiziana-life-sciences-secures-3-4-million-in-non-dilutive-funding-amid-significant-advances/20244574)
+
+Pickup - [advos.io](https://advos.io/en/tiziana-life-sciences-secures-3-4-million-for-neurodegenerative-disease-research/20244574)
+ 
 
 
 

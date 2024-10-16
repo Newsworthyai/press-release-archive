@@ -77,7 +77,19 @@ Website | Twitter
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitfi-a-leading-cedefi-platform-surpasses-400m-tvl-since-early-access-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitfi-secures-over-400m-tvl-maximizing-btc-yield-with-cedefi-platform/74570d0cf333836c9089171eec4949fb) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitfi-surpasses-400m-tvl-setting-new-benchmark-in-cedefi/20244616)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/01/bitfi-cedefi-platform-achieves-400m-total-value-locked-since-early-access-launch)
+
+Pickup - [advos.io](https://advos.io/en/bitfi-surpasses-400m-tvl-solidifying-its-position-as-a-leading-cedefi-platform/20244616)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitfi-secures-over-400m-tvl-maximizing-btc-yield-with-cedefi-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitfi-secures-over-400m-tvl-maximizing-btc-yield-with-cedefi-platform)
+ 
 
 
 

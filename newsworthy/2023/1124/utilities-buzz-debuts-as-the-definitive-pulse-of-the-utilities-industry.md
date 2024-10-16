@@ -23,7 +23,11 @@ Plug into the future of the utilities industry with www.Utilities.buzz.
 [Original/Source Press Release](https://newsworthy.ai/news/20231124883/utilities-buzz-debuts-as-the-definitive-pulse-of-the-utilities-industry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-digital-platform-utilities-buzz-revolutionizes-the-utilities-industry/c55b6538dd8e1e24e7f1839b4859793d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/24/utilities-buzz-emerges-as-definitive-pulse-of-utilities-industry)
+ 
 
 
 

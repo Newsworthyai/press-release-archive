@@ -47,7 +47,11 @@ As we wish our BitMartians a prosperous and happy new year, we reaffirm our comm
 [Original/Source Press Release](https://blockchainwire.io/press-release/elevating-trust-expanding-horizons-bitmarts-stellar-2023-journey)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmart-a-pillar-of-stability-in-the-crypto-market/2e2d1b0eccca2db38911acc80306e836) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/16/bitmart-s-stellar-2023-journey-elevating-trust-expanding-horizons)
+ 
 
 
 

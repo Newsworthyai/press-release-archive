@@ -9,7 +9,9 @@ What is the Crash Game?Imagine a game where the thrill never stops, where player
 [Original/Source Press Release](https://blockchainwire.io/press-release/jelly-crash-announcing-the-launch-of-its-first-casino-on-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jelly-crash-launches-solana-s-first-casino-get-ready-for-an-unforgettable-gaming-experience/3d641f8ac5f1864a5a10dcbd83bf7e48) 
+
+ 
 
 
 

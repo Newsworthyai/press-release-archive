@@ -23,7 +23,9 @@ Pratesi x Reverse Orientalism Images: [View Here](https://sferra.app.box.com/s/2
 [Original/Source Press Release](https://newsworthy.ai/news/202405301184/timeless-craft-meets-futuristic-artistry-pratesi-unveils-ai-driven-summer-2024-campaign)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pratesi-collaborates-with-ai-visionary-hajar-ali-to-redefine-luxury-living-with-casa-pratesi/90ad637d13cc4377c8953c113bab02d9) 
+
+ 
 
 
 

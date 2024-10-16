@@ -25,7 +25,17 @@ HackIndia brings together over 9,000 students from across India competing for $1
 [Original/Source Press Release](https://blockchainwire.io/press-release/rair-technologies-empowers-developers-to-build-web3-applications-through-indias-largest-hackathon)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rair-technologies-partners-with-hackindia-to-democratize-web3-access/9013fbb994fa89c8bf28009281d597ea) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/rair-technologies-partners-with-hackindia-to-propel-web3-development/20244571)
+
+Pickup - [advos.io](https://advos.io/en/rair-technologies-partners-with-hackindia-to-empower-web3-developers/20244571)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/rair-technologies-partners-with-hackindia-to-democratize-web3-access)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/rair-technologies-partners-with-hackindia-to-democratize-web3-access)
+ 
 
 
 

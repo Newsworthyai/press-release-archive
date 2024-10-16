@@ -81,7 +81,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/gold-prices-s
 [Original/Source Press Release](https://newsdirect.com/news/gold-prices-soar-to-record-high-on-solid-central-bank-demand-236667428)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-prices-soar-to-record-high-on-solid-central-bank-demand/3399d89280d4a9457c9c488c46d2f74d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/gold-prices-soar-to-record-high-on-solid-central-bank-demand)
+ 
 
 
 

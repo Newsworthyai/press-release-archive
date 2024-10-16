@@ -33,7 +33,11 @@ About CV PadCV Pad is a Launchpad+, aiming to take projects through their TGE wi
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-cv-pad-the-launchpad-by-industry-titans-cv-vc-cv-labs-and-duckdao)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cv-pad-reshaping-web3-investing-with-expert-vetted-opportunities/49ab7347c4212f99dd7724c18dd5a569) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/cv-pad-democratizing-web3-investment-opportunities)
+ 
 
 
 

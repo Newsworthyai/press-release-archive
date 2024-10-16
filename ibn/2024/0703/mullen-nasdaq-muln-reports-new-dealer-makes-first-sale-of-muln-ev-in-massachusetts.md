@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, i
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-reports-new-dealer-makes-first-sale-of-muln-ev-in-massachusetts/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-announces-first-commercial-ev-sale-in-massachusetts-through-partner-eco-auto/ffac00e72a0f76934e4a6354c2da31d6) 
+
+ 
 
 
 

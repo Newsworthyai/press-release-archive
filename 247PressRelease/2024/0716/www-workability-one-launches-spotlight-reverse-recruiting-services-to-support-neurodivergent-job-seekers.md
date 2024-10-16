@@ -7,7 +7,17 @@ BEND, OR, July 16, 2024 /24-7PressRelease/ -- workability LLC, a disability incl
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512521/wwwworkabilityone-launches-spotlight-reverse-recruiting-services-to-support-neurodivergent-job-seekers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/workability-llc-launches-new-reverse-recruiting-service-for-neurodivergent-job-seekers/9ab01692b1069f472986b5d54a0be983) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/workability-llc-launches-innovative-reverse-recruiting-service-for-neurodivergent-job-seekers/20244971)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/workability-llc-launches-innovative-reverse-recruiting-service-for-neurodivergent-job-seekers)
+
+Pickup - [fishervista.com](https://fishervista.com/en/workability-llc-introduces-spotlight-reverse-recruiting-services-for-neurodivergent-job-seekers/20244971)
+
+Pickup - [advos.io](https://advos.io/en/workability-llc-launches-reverse-recruiting-service-for-neurodivergent-job-seekers/20244971)
+ 
 
 
 

@@ -42,7 +42,19 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/valuezone-broadens-trading-scope-with-new-cryptocurrency-listings)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/valuezone-expands-trading-platform-with-new-cryptocurrencies/5fba02d3f521e2c25fd8e075177f91fc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/14/valuezone-expands-cryptocurrency-offerings-introduces-new-investment-plans)
+
+Pickup - [fishervista.com](https://fishervista.com/en/valuezone-expands-trading-options-with-new-cryptocurrency-listings/20244942)
+
+Pickup - [advos.io](https://advos.io/en/valuezone-expands-cryptocurrency-listings-enhances-trading-platform/20244942)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/valuezone-expands-trading-platform-with-new-cryptocurrencies)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/valuezone-expands-trading-platform-with-new-cryptocurrencies)
+ 
 
 
 

@@ -39,7 +39,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/metis-introdu
 [Original/Source Press Release](https://newsdirect.com/news/metis-introduces-governance-proposal-for-liquid-staking-tokens-lst-773249675)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metis-introduces-governance-proposal-for-liquid-staking-tokens-lst/83b86a65ce01803896b0ba637fe13612) 
+
+
+Pickup - [advos.io](https://advos.io/en/metis-paves-the-way-for-liquid-staking-tokens-with-governance-proposal/20244136)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/metis-introduces-governance-proposal-for-liquid-staking-tokens-lst)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/metis-introduces-governance-proposal-for-liquid-staking-tokens-lst)
+ 
 
 
 

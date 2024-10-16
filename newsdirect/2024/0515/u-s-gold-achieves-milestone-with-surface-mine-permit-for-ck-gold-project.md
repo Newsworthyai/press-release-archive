@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/u-s-gold-achi
 [Original/Source Press Release](https://newsdirect.com/news/u-s-gold-achieves-milestone-with-surface-mine-permit-for-ck-gold-project-188757899)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-gold-achieves-milestone-with-surface-mine-permit-for-ck-gold-project/1077e16b4fbcd404f7c7b841ab1c5263) 
+
+ 
 
 
 

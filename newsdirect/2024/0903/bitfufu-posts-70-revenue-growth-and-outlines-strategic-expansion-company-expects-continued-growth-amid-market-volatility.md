@@ -59,7 +59,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitfufu-posts
 [Original/Source Press Release](https://newsdirect.com/news/bitfufu-posts-70-revenue-growth-and-outlines-strategic-expansion-company-expects-continued-growth-amid-market-volatility-825210383)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitfufu-reports-70-revenue-growth-and-outlines-strategic-expansion/4f3bfcae9a2cc0991bd44db9dc5e1dcc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/bitfufu-reports-70-revenue-growth-outlines-strategic-plans-amid-crypto-market-volatility)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitfufu-reports-70-revenue-growth-amidst-market-volatility-outlines-strategic-expansion/20246482)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/bitfufu-reports-strong-revenue-growth-and-outlines-strategic-plans-amid-bitcoin-market-volatility/20246482)
+
+Pickup - [advos.io](https://advos.io/en/bitfufu-reports-70-revenue-growth-and-strategic-expansion-amid-market-volatility/20246482)
+ 
 
 
 

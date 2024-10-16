@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/liechtenstein
 [Original/Source Press Release](https://newsdirect.com/news/liechtenstein-group-invests-in-powerpollen-to-unlock-potential-for-major-food-crops-485467953)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/liechtenstein-group-leads-eur22-5m-funding-in-powerpollen-for-sustainable-agriculture/ebf8d005fa6b84459ffb3b8eafea3a7e) 
+
+ 
 
 
 

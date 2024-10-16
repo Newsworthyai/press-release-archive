@@ -46,7 +46,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/surge-in-okaycoin-staking-volume-coincides-with-bitcoin-breaking-the-70000-barrier)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/okaycoin-reports-unprecedented-staking-volume-amid-bitcoin-s-historic-rise/68efbc724a17eb20b5f301511effcf40) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/okaycoin-reports-unprecedented-staking-volume-amid-bitcoin-s-historic-rise)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/okaycoin-reports-unprecedented-staking-volume-amid-bitcoin-s-historic-rise)
+ 
 
 
 

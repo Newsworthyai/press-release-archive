@@ -65,7 +65,21 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/asc-artificial-intelligence-20-index-now-available-to-all-investors-on-upwealthio)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alpha-sigma-capital-index-products-now-available-on-upwealth-io/2354330beea73de89af99574e218cc34) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/alpha-sigma-capital-index-products-now-available-on-upwealth-io)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/alpha-sigma-capital-index-products-now-available-on-upwealth-io)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/asc-artificial-intelligence-20-index-now-available-for-all-investors-on-upwealth-io-platform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/asc-artificial-intelligence-20-index-now-accessible-to-all-investors-on-upwealth-io/20245292)
+
+Pickup - [advos.io](https://advos.io/en/asc-artificial-intelligence-20-index-now-accessible-to-all-investors-on-upwealth-io/20245292)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/asc-artificial-intelligence-20-index-now-available-to-retail-investors-on-upwealth-platform)
+ 
 
 
 

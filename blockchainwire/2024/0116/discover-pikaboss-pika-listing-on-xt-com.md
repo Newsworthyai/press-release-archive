@@ -28,7 +28,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-pikaboss-pika-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-pika-token-and-usdt-trading-pair-in-the-memes-innovation-zone/5485db59b543c721d60789e649e4387a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/16/pikaboss-pika-token-debuts-on-xt-com-exchange)
+ 
 
 
 

@@ -63,7 +63,11 @@ johnv@otcmarkets.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmine-immersion-technologies-inc-to-present-at-the-blockchain--digital-asset-virtual-investor-conference-april-25th)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmine-ceo-to-present-at-blockchain-digital-asset-virtual-investor-conference/d36aa27b94ccd19ff7ee0d330f8677f1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/bitmine-immersion-technologies-inc-to-present-at-the-blockchain-digital-asset-virtual-investor-conference-april-25th)
+ 
 
 
 

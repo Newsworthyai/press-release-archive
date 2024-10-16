@@ -7,7 +7,11 @@ DELAWARE, USA, March 27, 2024 /24-7PressRelease/ -- SocialPilot, a bootstrapped 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509561/socialpilot-bags-fastest-growing-products-award-by-g2)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/socialpilot-named-fastest-growing-product-2024-by-g2-s-best-software-awards/e81764d7bfbaab21f4c37a198e35b778) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/socialpilot-soars-as-g2-s-fastest-growing-social-media-management-product-in-2024)
+ 
 
 
 

@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/reform-of-afr
 [Original/Source Press Release](https://newsdirect.com/news/reform-of-africas-criminal-justice-systems-741867016)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/reform-of-africa-s-criminal-justice-systems/429d5c8b0850a300c584235da98cdcb4) 
+
+ 
 
 
 

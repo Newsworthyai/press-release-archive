@@ -15,7 +15,11 @@ Experience the transformative power of TMS therapy and explore the comprehensive
 [Original/Source Press Release](https://newsworthy.ai/news/202402201077/vital-tms-therapy-mental-health-services-specializes-in-cutting-edge-treatment-options-for-mental-health-conditions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vital-tms-therapy-mental-health-services-leading-the-way-in-tms-therapy-and-mental-health-care/5ca11dd18c4a124694ca5d3b72a86fdb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/20/vital-tms-therapy-offers-cutting-edge-mental-health-solutions)
+ 
 
 
 

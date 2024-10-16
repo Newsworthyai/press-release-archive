@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/carnavale-res
 [Original/Source Press Release](https://newsdirect.com/news/carnavale-resources-discovers-new-gold-zone-at-kookynie-869785142)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/carnavale-resources-discovers-new-gold-zone-at-kookynie-gold-project/6f7b54253cc828dc6d34a7ffe51592f7) 
+
+ 
 
 
 

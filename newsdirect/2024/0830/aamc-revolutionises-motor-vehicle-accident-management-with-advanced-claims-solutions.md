@@ -47,7 +47,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/aamc-revoluti
 [Original/Source Press Release](https://newsdirect.com/news/aamc-revolutionises-motor-vehicle-accident-management-with-advanced-claims-solutions-903702403)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aamc-sets-new-standard-with-advanced-claims-solutions/5b55b52b0effe90c381d4f81b8bdb2e2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/30/aamc-introduces-groundbreaking-intermediated-motor-team-for-efficient-accident-management)
+
+Pickup - [fishervista.com](https://fishervista.com/en/aamc-introduces-innovative-intermediated-motor-claims-framework/20246402)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/aamc-introduces-groundbreaking-intermediated-motor-team-for-streamlined-accident-claims/20246402)
+
+Pickup - [advos.io](https://advos.io/en/aamc-introduces-innovative-intermediated-motor-team-for-enhanced-accident-claim-management/20246402)
+ 
 
 
 

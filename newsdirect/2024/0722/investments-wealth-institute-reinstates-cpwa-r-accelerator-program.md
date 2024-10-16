@@ -52,7 +52,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/investments-a
 [Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-institute-reinstates-cpwa-r-accelerator-program-808032047)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investments-wealth-institute-reinstates-cpwa-r-accelerator-program-for-2024/10618cc6d1c33e7fa4f727fdbf4ce6c7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/investments-wealth-institute-revives-cpwa-r-accelerator-program-for-financial-advisors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/investments-wealth-institute-reinstates-cpwa-r-accelerator-program/20245146)
+
+Pickup - [advos.io](https://advos.io/en/investments-wealth-institute-reinstates-intensive-cpwa-r-accelerator-program/20245146)
+ 
 
 
 

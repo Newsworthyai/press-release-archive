@@ -7,7 +7,9 @@ NEW YORK, NY, April 20, 2024 /24-7PressRelease/ -- In honor of Education and Sha
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510229/author-menachem-perlmans-debut-childrens-book-offers-a-delightful-perspective-on-welcoming-a-new-sibling)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-children-s-book-timmy-and-the-new-baby-released-by-author-menachem-perlman/150c57e4b114ae6f9c8859b36db41b18) 
+
+ 
 
 
 

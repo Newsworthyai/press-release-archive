@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/classiq-advan
 [Original/Source Press Release](https://newsdirect.com/news/classiq-advances-the-hpc-quantum-computing-stack-by-integrating-classiqs-engine-with-nvidia-cuda-q-245793209)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/classiq-integrates-quantum-computing-software-with-nvidia-cuda-q-platform/8036cd938338dded1dfe6dd5263b1f2f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/classiq-integrates-with-nvidia-cuda-q-for-quantum-computing)
+ 
 
 
 

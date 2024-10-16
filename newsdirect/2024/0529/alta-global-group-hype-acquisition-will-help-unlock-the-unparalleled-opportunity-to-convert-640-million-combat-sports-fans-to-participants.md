@@ -69,7 +69,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/alta-global-g
 [Original/Source Press Release](https://newsdirect.com/news/alta-global-group-hype-acquisition-will-help-unlock-the-unparalleled-opportunity-to-convert-640-million-combat-sports-fans-to-participants-536978165)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alta-global-group-s-strategic-acquisition-to-revolutionize-combat-sports-industry/fe472676d5a848fb65604dc168fcd757) 
+
+ 
 
 
 

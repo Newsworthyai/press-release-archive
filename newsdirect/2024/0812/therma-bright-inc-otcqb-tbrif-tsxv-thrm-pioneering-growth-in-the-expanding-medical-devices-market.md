@@ -61,7 +61,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/therma-bright
 [Original/Source Press Release](https://newsdirect.com/news/therma-bright-inc-otcqb-tbrif-tsxv-thrm-pioneering-growth-in-the-expanding-medical-devices-market-318774428)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/therma-bright-inc-pioneering-growth-in-the-expanding-medical-devices-market/96aa1932fb754754c116da6a4b77c229) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/therma-bright-inc-advances-in-medical-device-market-with-fda-approval-and-strategic-investments)
+
+Pickup - [fishervista.com](https://fishervista.com/en/therma-bright-inc-achieves-milestones-in-expanding-medical-device-market/20245647)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/therma-bright-inc-advances-in-medical-device-market-with-fda-approval-and-strategic-investments/20245647)
+
+Pickup - [advos.io](https://advos.io/en/therma-bright-inc-secures-key-fda-approvals-and-strategic-investments-in-medical-device-market/20245647)
+ 
 
 
 

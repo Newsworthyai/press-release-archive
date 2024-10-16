@@ -7,7 +7,11 @@ ATLANTA, GA, April 17, 2024 /24-7PressRelease/ -- eQuorum has made significant i
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510104/equorum-alleviates-organizational-challenges-in-the-change-management-process-with-a-centralized-product-data-management-solution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/equorum-enhances-engineering-workflow-and-document-management-solutions-with-version-12-1/0b6d84ad8237e87f9447e7769bf5e814) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/equorum-alleviates-organizational-challenges-in-the-change-management-process-with-a-centralized-product-data-management-solution)
+ 
 
 
 

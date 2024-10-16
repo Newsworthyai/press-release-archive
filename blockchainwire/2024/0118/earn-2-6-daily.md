@@ -7,7 +7,11 @@ MONSTRO'S DEGENZ! Aims to Make DeFi Fun AND Profitable Again Through Transparen
 [Original/Source Press Release](https://blockchainwire.io/press-release/earn-2-6-daily)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/monstros-degenz-revolutionizes-defi-with-sustainable-passive-income-and-transparency/f44f3eb3213b0149cb0e52cdbb792b87) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/18/monstro-s-degenz-aims-to-revive-excitement-and-profitability-in-defi)
+ 
 
 
 

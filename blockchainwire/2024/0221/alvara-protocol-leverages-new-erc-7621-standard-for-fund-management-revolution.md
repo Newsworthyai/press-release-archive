@@ -19,7 +19,11 @@ This stands to be a cutting-edge token standard that could upend the space in a 
 [Original/Source Press Release](https://blockchainwire.io/press-release/alvara-protocol-leverages-new-erc-7621-standard-for-fund-management-revolution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-erc-7621-token-standard-transforming-fund-management/90ccd5247faec27932dcf8b3e574c681) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/21/alvara-protocol-unleashes-decentralized-fund-management-revolution-with-erc-7621-standard)
+ 
 
 
 

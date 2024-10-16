@@ -31,7 +31,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/zettablock-integrates-with-stellar-to-simplify-blockchain-development)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zettablock-and-stellar-foundation-collaborate-to-revolutionize-blockchain-development/e6701c948fb7fc4f4f994f6c9d9a8ce9) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/zettablock-and-stellar-development-foundation-partner-to-enhance-blockchain-development/20244292)
+
+Pickup - [advos.io](https://advos.io/en/zettablock-partners-with-stellar-to-enhance-blockchain-development/20244292)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/zettablock-and-stellar-foundation-collaborate-to-revolutionize-blockchain-development)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/zettablock-and-stellar-foundation-collaborate-to-revolutionize-blockchain-development)
+ 
 
 
 

@@ -7,7 +7,11 @@ NEW YORK, NY, March 12, 2024 /24-7PressRelease/ -- Hyro, a leading provider of R
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509168/hyro-and-disruptive-innovations-partner-to-create-a-voice-ai-based-blueprint-for-healthcare-call-centers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/disruptive-innovations-and-hyro-announce-strategic-partnership-for-responsible-ai-powered-healthcare-communications/14ec0d014310f27ec9ea270546ed106d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/hyro-and-disruptive-innovations-forge-partnership-to-transform-healthcare-call-centers-with-voice-ai)
+ 
 
 
 

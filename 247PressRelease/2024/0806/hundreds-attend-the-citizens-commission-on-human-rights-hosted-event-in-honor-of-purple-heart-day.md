@@ -7,7 +7,17 @@ CLEARWATER, FL, August 06, 2024 /24-7PressRelease/ -- The Citizens Commission on
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513138/hundreds-attend-the-citizens-commission-on-human-rights-hosted-event-in-honor-of-purple-heart-day)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cchr-hosts-event-honoring-purple-heart-recipients/cb0fb7cf07cbb214b41bdf98c691ea3e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/citizens-commission-on-human-rights-hosts-purple-heart-day-event-addressing-veteran-mental-health-concerns)
+
+Pickup - [fishervista.com](https://fishervista.com/en/citizens-commission-on-human-rights-hosts-event-to-honor-purple-heart-recipients-and-address-veteran-suicide/20245505)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cchr-hosts-event-honoring-purple-heart-recipients-addresses-veteran-suicide-concerns)
+
+Pickup - [advos.io](https://advos.io/en/hundreds-attend-cchr-event-in-honor-of-purple-heart-day/20245505)
+ 
 
 
 

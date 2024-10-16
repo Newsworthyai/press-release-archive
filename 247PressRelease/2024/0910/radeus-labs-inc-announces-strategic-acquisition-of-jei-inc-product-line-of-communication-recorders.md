@@ -7,7 +7,17 @@ SAN DIEGO, CA, September 10, 2024 /24-7PressRelease/ -- Radeus Labs, Inc., a lea
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514183/radeus-labs-inc-announces-strategic-acquisition-of-jei-inc-product-line-of-communication-recorders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/radeus-labs-inc-acquires-communication-recorder-product-line-from-jei-inc/1429d37f121a870e03c09c44db58a746) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/radeus-labs-expands-communication-solutions-with-acquisition-of-jei-inc-recorder-line)
+
+Pickup - [fishervista.com](https://fishervista.com/en/radeus-labs-inc-bolsters-portfolio-with-acquisition-of-jei-inc-communication-recorders/20246650)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/radeus-labs-expands-communication-solutions-with-acquisition-of-jei-inc-recorder-line/20246650)
+
+Pickup - [advos.io](https://advos.io/en/radeus-labs-acquires-jei-inc-communication-recorder-line-expanding-telecommunications-capabilities/20246650)
+ 
 
 
 

@@ -7,7 +7,9 @@ BLAINE, WA, September 29, 2024 /24-7PressRelease/ -- Power Hero, a leading innov
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514795/power-hero-welcomes-bradley-a-gastwirth-to-advisory-board-gastwirth-joins-a-team-with-a-history-of-10-successful-exits-including-6-ipos)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bradley-a-gastwirth-joins-power-hero-s-advisory-board-to-accelerate-growth-in-ev-market/c8b7f7294d3fbae338a1c33b974ecc20) 
+
+ 
 
 
 

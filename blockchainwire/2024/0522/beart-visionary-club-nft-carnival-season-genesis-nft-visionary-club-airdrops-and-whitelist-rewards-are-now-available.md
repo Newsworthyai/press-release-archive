@@ -107,7 +107,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/beart-visionary-club-nft-carnival-season-genesis-nft--visionary-club-airdrops-and-whitelist-rewards-are-now-available)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-beart-visionary-club-nft-carnival-season/a1c85e308511b91dcc935a6037b9c028) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/introducing-beart-visionary-club-nft-carnival-season)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/introducing-beart-visionary-club-nft-carnival-season)
+ 
 
 
 

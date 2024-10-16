@@ -7,7 +7,11 @@ HARLINGTON, TX, April 22, 2024 /24-7PressRelease/ -- Dr. Ameer Hassan, a disting
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510240/dr-ameer-hassan-introduces-groundbreaking-neurology-scholarship-elevating-medical-minds-in-pursuit-of-excellence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-ameer-hassan-launches-scholarship-for-aspiring-medical-professionals/797c788462752237713346f6c2945c11) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/dr-ameer-hassan-introduces-groundbreaking-neurology-scholarship-elevating-medical-minds-in-pursuit-of-excellence)
+ 
 
 
 

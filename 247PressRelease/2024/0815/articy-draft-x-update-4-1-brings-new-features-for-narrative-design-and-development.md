@@ -7,7 +7,17 @@ BOCHUM, GERMANY, August 15, 2024 /24-7PressRelease/ -- articy:draft, the narrati
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513361/articydraft-x-update-41-brings-new-features-for-narrative-design-and-development)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/game-narrative-design-software-articy-draft-receives-major-update/002dcbe89bddf6764da2916c7459a5dc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/articy-draft-x-4-1-update-enhances-narrative-design-tools-for-game-development)
+
+Pickup - [fishervista.com](https://fishervista.com/en/articy-draft-x-4-1-update-introduces-new-features-for-game-development/20245749)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/articy-draft-x-4-1-update-enhances-narrative-design-tools-for-game-developers/20245749)
+
+Pickup - [advos.io](https://advos.io/en/articy-draft-x-4-1-update-enhances-narrative-design-with-new-features/20245749)
+ 
 
 
 

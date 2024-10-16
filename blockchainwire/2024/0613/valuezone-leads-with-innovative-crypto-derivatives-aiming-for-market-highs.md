@@ -41,7 +41,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/valuezone-leads-with-innovative-crypto-derivatives-aiming-for-market-highs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/valuezone-ceo-foresees-crypto-derivatives-shaping-bitcoin-and-ethereum-s-future/a0fed7dbd013141b31eb4186e111069c) 
+
+
+Pickup - [advos.io](https://advos.io/en/valuezone-introduces-advanced-crypto-derivatives-to-elevate-bitcoin-and-ethereum-markets/20244126)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/valuezone-ceo-foresees-crypto-derivatives-shaping-bitcoin-and-ethereum-s-future)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/valuezone-ceo-foresees-crypto-derivatives-shaping-bitcoin-and-ethereum-s-future)
+ 
 
 
 

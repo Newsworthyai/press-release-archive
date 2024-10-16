@@ -7,7 +7,17 @@ VANCOUVER, BC, August 27, 2024 /24-7PressRelease/ -- SaveRxCanada.to, a trusted 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513753/saverxcanadato-empowers-american-seniors-to-access-affordable-prescription-drugs-bridging-the-healthcare-gap)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/saverxcanada-to-connecting-american-seniors-with-affordable-medications-from-canada/b755eed7ce60ecf73b3e8661d4305aaf) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/saverxcanada-to-offers-lifeline-to-american-seniors-with-affordable-prescription-drugs/20245971)
+
+Pickup - [advos.io](https://advos.io/en/saverxcanada-to-offers-lifeline-for-american-seniors-struggling-with-high-prescription-costs/20245971)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/saverxcanada-to-offers-affordable-prescription-drugs-to-american-seniors)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/saverxcanada-to-offers-american-seniors-affordable-access-to-canadian-prescription-drugs/20245971)
+ 
 
 
 

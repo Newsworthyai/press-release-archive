@@ -39,7 +39,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/gate-ventures-and-the-blockchain-center-in-abu-dhabi-to-launch-falcon-gate-ventures-a-100-million-fund-to-propel-global-blockchain-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gate-ventures-and-blockchain-center-launch-100m-falcon-gate-ventures-fund/94eeeb5b4277b281e0547544792d7c0d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/19/gate-ventures-and-blockchain-center-in-abu-dhabi-launch-100-million-fund-for-global-web3-innovation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/falcon-gate-ventures-a-100-million-fund-to-propel-global-blockchain-innovation/20245812)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gate-ventures-and-blockchain-center-abu-dhabi-launch-100-million-fund-for-global-web3-innovation/20245812)
+
+Pickup - [advos.io](https://advos.io/en/falcon-gate-ventures-announces-100-million-fund-to-drive-global-blockchain-innovation/20245812)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gate-ventures-and-blockchain-center-launch-100m-falcon-gate-ventures-fund)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gate-ventures-and-blockchain-center-launch-100m-falcon-gate-ventures-fund)
+ 
 
 
 

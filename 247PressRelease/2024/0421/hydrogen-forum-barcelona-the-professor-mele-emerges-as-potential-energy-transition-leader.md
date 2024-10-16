@@ -7,7 +7,11 @@ LONDON, ENGLAND, April 21, 2024 /24-7PressRelease/ -- On April 18th an important
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510207/hydrogen-forum-barcelona-the-professor-mele-emerges-as-potential-energy-transition-leader)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/professor-marco-mele-s-speech-highlights-the-future-role-of-hydrogen-in-energy-transition/69d950adf87e8387698efe19a2eb946f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/21/hydrogen-forum-barcelona-the-professor-mele-emerges-as-potential-energy-transition-leader)
+ 
 
 
 

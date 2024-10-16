@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/moxy-io-welco
 [Original/Source Press Release](https://newsdirect.com/news/moxy-io-welcomes-former-ubs-cfo-thomas-gustinis-to-its-executive-team-and-to-the-board-of-the-moxy-foundation-834523903)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-ubs-cfo-thomas-gustinis-joins-moxy-io-executive-team-and-board-of-moxy-foundation/ec5e9f76a272a4aa227c33217f96b9c7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/moxy-io-appoints-former-ubs-cfo-thomas-gustinis-to-executive-team-and-moxy-foundation-board)
+ 
 
 
 

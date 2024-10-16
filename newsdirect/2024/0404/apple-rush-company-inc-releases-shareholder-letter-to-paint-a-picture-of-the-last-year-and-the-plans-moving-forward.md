@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/apple-rush-co
 [Original/Source Press Release](https://newsdirect.com/news/apple-rush-company-inc-releases-shareholder-letter-to-paint-a-picture-of-the-last-year-and-the-plans-moving-forward-687138003)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/apple-rush-company-inc-unveils-ambitious-plans-for-2024/89ea6b66759ef8846c3dc0ee3caa7794) 
+
+ 
 
 
 

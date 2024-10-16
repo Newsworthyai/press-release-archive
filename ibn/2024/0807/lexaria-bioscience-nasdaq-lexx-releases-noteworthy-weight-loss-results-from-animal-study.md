@@ -29,7 +29,9 @@ Lexaria Bioscience (NASDAQ: LEXX, LEXXW), a global innovator in drug-delivery pl
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-bioscience-nasdaq-lexx-releases-noteworthy-weight-loss-results-from-animal-study/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lexaria-bioscience-reports-noteworthy-results-from-weight-a24-1-animal-study/0d2d916539ce458ac27d062453084a31) 
+
+ 
 
 
 

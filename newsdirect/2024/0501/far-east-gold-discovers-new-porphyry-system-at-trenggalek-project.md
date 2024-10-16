@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/far-east-gold
 [Original/Source Press Release](https://newsdirect.com/news/far-east-gold-discovers-new-porphyry-system-at-trenggalek-project-837734078)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/far-east-gold-and-erg-discover-new-porphyry-system-at-trenggalek-project/c28471b18a57640e8bb3783dab22fd53) 
+
+ 
 
 
 

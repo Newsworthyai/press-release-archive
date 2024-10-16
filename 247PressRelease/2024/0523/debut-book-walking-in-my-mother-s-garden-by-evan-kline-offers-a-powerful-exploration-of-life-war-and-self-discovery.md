@@ -7,7 +7,9 @@ TOOELE, UT, May 23, 2024 /24-7PressRelease/ -- This remarkable book is a lyrical
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511133/debut-book-walking-in-my-mothers-garden-by-evan-kline-offers-a-powerful-exploration-of-life-war-and-self-discovery)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-walking-in-my-mother-s-garden-takes-readers-on-a-journey-of-reflection-and-resilience/3672e21a8241275437d19c9700f2a25a) 
+
+ 
 
 
 

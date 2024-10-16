@@ -15,7 +15,9 @@ Furthermore, ketamine treatment has shown considerable potential in reducing sui
 [Original/Source Press Release](https://newsworthy.ai/news/202402231087/ketamine-treatments-in-cottonwood-heights-offering-new-hope-for-treatment-resistant-depression-ptsd-and-anxiety-disorders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leading-mental-health-clinic-offers-groundbreaking-ketamine-treatments/1fb08b650a24973b171c1a900d217662) 
+
+ 
 
 
 

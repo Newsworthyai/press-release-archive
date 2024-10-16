@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/west-hollywoo
 [Original/Source Press Release](https://newsdirect.com/news/west-hollywoods-40th-anniversary-vacation-in-the-high-energy-playground-to-the-stars-full-of-sunshine-style-and-culture-880700234)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/west-hollywood-celebrates-40th-anniversary-with-cultural-milestones-and-lgbtq-inclusivity/26d32b7576b611ea871ab69054ee3988) 
+
+ 
 
 
 

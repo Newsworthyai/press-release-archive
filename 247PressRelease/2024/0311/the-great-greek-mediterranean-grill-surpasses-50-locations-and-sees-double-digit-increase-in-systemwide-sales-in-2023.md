@@ -7,7 +7,11 @@ WEST PALM BEACH, FL, March 11, 2024 /24-7PressRelease/ -- The Great Greek Medite
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509112/the-great-greek-mediterranean-grill-surpasses-50-locations-and-sees-double-digit-increase-in-systemwide-sales-in-2023)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-great-greek-mediterranean-grill-r-achieves-record-growth-in-2023/0d409fcd6d97ea8239e92cdf39cc5aee) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/the-great-greek-mediterranean-grill-achieves-rapid-expansion-in-2023)
+ 
 
 
 

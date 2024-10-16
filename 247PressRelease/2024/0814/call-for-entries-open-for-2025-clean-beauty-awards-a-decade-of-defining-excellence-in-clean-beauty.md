@@ -7,7 +7,17 @@ TORONTO, ON, August 14, 2024 /24-7PressRelease/ -- The Clean Beauty Awards, cele
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513411/call-for-entries-open-for-2025-clean-beauty-awards-a-decade-of-defining-excellence-in-clean-beauty)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/call-for-entries-clean-beauty-awards-2025/52cac8deb49e36a321ecc69d4aeea014) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/clean-beauty-awards-celebrates-a-decade-of-excellence-with-2025-call-for-entries)
+
+Pickup - [fishervista.com](https://fishervista.com/en/entries-open-for-2025-clean-beauty-awards-celebrating-a-decade-of-excellence/20245712)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/clean-beauty-awards-celebrates-10th-anniversary-opens-call-for-2025-entries/20245712)
+
+Pickup - [advos.io](https://advos.io/en/2025-clean-beauty-awards-celebrates-a-decade-of-excellence/20245712)
+ 
 
 
 

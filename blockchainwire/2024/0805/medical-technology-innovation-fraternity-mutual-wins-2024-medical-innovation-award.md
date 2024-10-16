@@ -49,7 +49,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/medical-technology-innovation-fraternity-mutual-wins-2024-medical-innovation-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fraternity-mutual-wins-2024-medical-innovation-award/294cfb01cdaf6a9bdfdb9a1ecb2bb5f1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/fraternity-mutual-clinches-2024-medical-innovation-award-for-groundbreaking-healthcare-technologies)
+
+Pickup - [fishervista.com](https://fishervista.com/en/fraternity-mutual-wins-2024-medical-innovation-award-for-groundbreaking-technologies/20245493)
+
+Pickup - [advos.io](https://advos.io/en/fraternity-mutual-wins-2024-medical-innovation-award-for-groundbreaking-technologies/20245493)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/fraternity-mutual-wins-2024-medical-innovation-award)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/fraternity-mutual-wins-2024-medical-innovation-award)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/fraternity-mutual-clinches-2024-medical-innovation-award-for-cutting-edge-healthcare-technologies)
+ 
 
 
 

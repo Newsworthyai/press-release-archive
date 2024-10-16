@@ -7,7 +7,11 @@ STAMFORD, CT, June 06, 2024 /24-7PressRelease/ -- The Avon Theatre - Deborah & C
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511324/avon-theatre-and-barco-to-bring-laser-powered-cinema-to-moviegoers-at-the-deborah-chuck-royce-cinema-arts-center)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avon-theatre-partners-with-barco-to-bring-state-of-the-art-laser-cinema-technology-to-stamford/07ffca5802a40fd220e0850ad798c46b) 
+
+
+Pickup - [advos.io](https://advos.io/en/avon-theatre-partners-with-barco-to-introduce-cutting-edge-laser-powered-cinema/20243869)
+ 
 
 
 

@@ -57,7 +57,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcx-upc-launches-new-spot-trading-competition-upc-token-rises-against-the-trend)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/upcx-hosts-upc-spot-trading-competition-on-bitget/1865db0eb17c9f1bcd882d73c3821aea) 
+
+ 
 
 
 

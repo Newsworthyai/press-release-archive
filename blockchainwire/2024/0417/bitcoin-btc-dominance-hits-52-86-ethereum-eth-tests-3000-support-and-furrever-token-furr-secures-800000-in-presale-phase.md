@@ -51,7 +51,11 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-btc-dominance-hits-5286-ethereum-eth-tests-3000-support-and-furrever-token-furr-secures-800000-in-presale-phase-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-ethereum-and-furrever-token-navigate-turbulent-crypto-market/d41fe773e958fd66a39ad742ed492eef) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/bitcoin-dominance-rises-ethereum-struggles-and-furrever-token-secures-800000-in-presale)
+ 
 
 
 

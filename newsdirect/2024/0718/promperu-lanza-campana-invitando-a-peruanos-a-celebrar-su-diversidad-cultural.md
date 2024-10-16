@@ -27,7 +27,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/promperu-lanz
 [Original/Source Press Release](https://newsdirect.com/news/promperu-lanza-campana-invitando-a-peruanos-a-celebrar-su-diversidad-cultural-827991837)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/promperu-launches-campaign-celebrating-peru-s-cultural-diversity/a3b93dcbec6528f82f18f97d5f6b94ed) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/promperu-launches-campaign-celebrating-peru-s-cultural-diversity)
+
+Pickup - [fishervista.com](https://fishervista.com/en/promperu-launches-campaign-to-celebrate-peru-s-cultural-diversity/20245098)
+
+Pickup - [advos.io](https://advos.io/en/promperu-launches-campaign-to-celebrate-peru-s-cultural-diversity/20245098)
+ 
 
 
 

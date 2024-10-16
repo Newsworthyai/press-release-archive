@@ -53,7 +53,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/say-goodbye-t
 [Original/Source Press Release](https://newsdirect.com/news/say-goodbye-to-inconvenient-trt-meet-the-game-changing-oral-testosterone-treatment-prime-by-mangorx-108375890)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/game-changing-oral-testosterone-treatment-prime-by-mangorx/b49db62606f3c5cf37e4c01f719c2656) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/mangorx-introduces-revolutionary-oral-testosterone-replacement-therapy)
+
+Pickup - [fishervista.com](https://fishervista.com/en/oral-testosterone-therapy-prime-by-mangorx-offers-men-a-convenient-alternative/20245094)
+
+Pickup - [advos.io](https://advos.io/en/revolutionizing-trt-mangorx-introduces-prime-an-oral-testosterone-treatment/20245094)
+ 
 
 
 

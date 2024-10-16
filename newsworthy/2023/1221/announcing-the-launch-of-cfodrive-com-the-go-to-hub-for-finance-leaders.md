@@ -23,7 +23,11 @@ Unlock Financial Excellence. Dive into insights and more at www.CFODrive.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231221788/announcing-the-launch-of-cfodrive-com-the-go-to-hub-for-finance-leaders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cfodrive-com-launches-as-premier-destination-for-finance-professionals/3d0243a5da45c8628b5e9b8284fbb762) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/21/cfodrive-com-launches-as-premier-hub-for-finance-leaders)
+ 
 
 
 

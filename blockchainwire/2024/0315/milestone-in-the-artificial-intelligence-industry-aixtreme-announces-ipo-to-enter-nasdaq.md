@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/milestone-in-the-artificial-intelligence-industry---aixtreme-announces-ipo-to-enter-nasdaq)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aixtreme-submits-prospectus-to-nasdaq-for-ipo-audit/bea5eafb82ccf132fbda23be2a3b3e32) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/aixtreme-poised-for-nasdaq-ipo-ushering-in-ai-driven-cryptocurrency-trading-revolution)
+ 
 
 
 

@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/financialfox-launches-2024s-first-foxy-nft-collection-limited-edition-bitcoin-ordinals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-financialfox-unveils-exclusive-limited-nft-drop-of-bitcoin-ordinals/a22d282a23f11206fb47e24f2d96b89f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/12/financialfox-unveils-exclusive-bitcoin-ordinals-nft-collection)
+ 
 
 
 

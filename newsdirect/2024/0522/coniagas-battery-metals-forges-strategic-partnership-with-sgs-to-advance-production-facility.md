@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/coniagas-batt
 [Original/Source Press Release](https://newsdirect.com/news/coniagas-battery-metals-forges-strategic-partnership-with-sgs-to-advance-production-facility-902771962)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coniagas-battery-metals-forges-strategic-partnership-with-sgs-to-advance-production-facility/551c2e767d43ff68970a536aaaf7d24c) 
+
+ 
 
 
 

@@ -43,7 +43,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/peng-up-your-profits-gateio-announces-trade-to-earn-event-worth-5000)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exciting-peng-trade-to-earn-event-with-gate-io/327621c54d026b4cdb0761cb8ab58cde) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/peng-and-gate-io-launch-lucrative-trade-to-earn-event)
+ 
 
 
 

@@ -57,7 +57,15 @@ email: crypto.expert@gmail.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-uomi-the-disruptive-l1-powering-autonomous-economic-ai-agents)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uomi-the-revolutionary-blockchain-empowering-autonomous-ai-agents/b8ca47cd24f187c24b6f32c9fb5bc910) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/uomi-revolutionary-layer-1-blockchain-set-to-transform-ai-and-decentralization)
+
+Pickup - [advos.io](https://advos.io/en/uomi-new-layer-1-blockchain-set-to-revolutionize-autonomous-ai-agents/20246711)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/uomi-revolutionary-l1-blockchain-enables-autonomous-ai-agents/20246711)
+ 
 
 
 

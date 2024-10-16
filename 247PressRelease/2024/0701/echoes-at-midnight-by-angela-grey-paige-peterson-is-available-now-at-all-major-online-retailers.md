@@ -7,7 +7,15 @@ MINNEAPOLIS, MN, July 01, 2024 /24-7PressRelease/ -- Twin Cities Southwest Metro
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512164/echoes-at-midnight-by-angela-grey-paige-peterson-is-available-now-at-all-major-online-retailers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-mystery-novel-echoes-at-midnight-takes-readers-on-an-action-packed-journey/1b124e14267bbc9c3d0bdaa15982d282) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/angela-grey-and-paige-peterson-release-gripping-new-mystery-novel-echoes-at-midnight/20244663)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/01/twin-cities-authors-release-gripping-mystery-novel-echoes-at-midnight)
+
+Pickup - [advos.io](https://advos.io/en/echoes-at-midnight-by-angela-grey-paige-peterson-a-new-mystery-novel-hits-the-shelves/20244663)
+ 
 
 
 

@@ -7,7 +7,9 @@ NAIROBI, KENYA, October 15, 2024 /24-7PressRelease/ -- It's a jungle out there, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515187/catchy-tales-relaunches-with-creative-and-imaginative-stories-that-educate-the-whole-person)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/catchy-tales-a-creative-haven-for-kids-and-families/a222a49c00ccd71161c15b33ebe24b94) 
+
+ 
 
 
 

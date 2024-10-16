@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/thinking-cryp
 [Original/Source Press Release](https://newsdirect.com/news/thinking-crypto-podcasts-founder-announces-the-release-of-a-new-book-802133654)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tony-edward-releases-new-book-on-cryptocurrency-investing/e8d9bc26d0832259a004355e0d2d1b5a) 
+
+ 
 
 
 

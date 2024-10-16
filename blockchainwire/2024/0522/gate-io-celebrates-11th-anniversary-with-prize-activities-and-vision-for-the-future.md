@@ -34,7 +34,13 @@ Amid the rapid growth of the global cryptocurrency market, the role and responsi
 [Original/Source Press Release](https://blockchainwire.io/press-release/gateio-celebrates-11th-anniversary-with-prize-activities-and-vision-for-the-future)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gate-io-announces-11th-anniversary-celebrations-and-milestones/07290b4cd4580e8f4c867a38ce79c169) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gate-io-announces-11th-anniversary-celebrations-and-milestones)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gate-io-announces-11th-anniversary-celebrations-and-milestones)
+ 
 
 
 

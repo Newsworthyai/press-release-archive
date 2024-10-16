@@ -27,7 +27,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/atfx-secures-
 [Original/Source Press Release](https://newsdirect.com/news/atfx-secures-the-hong-kong-sfc-license-a-boost-for-global-operations-526036416)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atfx-secures-hong-kong-sfc-license-boosting-global-operations/e98d8a42b83fdce2867555218f1c187c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/atfx-expands-global-reach-with-hong-kong-sfc-license-approval)
+
+Pickup - [fishervista.com](https://fishervista.com/en/atfx-secures-hong-kong-sfc-license-enhancing-global-operations/20245370)
+
+Pickup - [advos.io](https://advos.io/en/atfx-secures-hong-kong-sfc-license-strengthening-global-operations/20245370)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/atfx-expands-global-reach-with-hong-kong-sfc-license)
+ 
 
 
 

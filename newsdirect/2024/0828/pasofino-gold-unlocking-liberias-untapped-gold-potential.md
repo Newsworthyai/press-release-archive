@@ -39,7 +39,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/pasofino-gold
 [Original/Source Press Release](https://newsdirect.com/news/pasofino-gold-unlocking-liberias-untapped-gold-potential-416929991)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pasofino-gold-unlocking-liberia-s-untapped-gold-potential/ec9ca4e9828c93bb02266cdb2ea1a52c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/pasofino-gold-aims-to-tap-into-liberia-s-rich-gold-reserves)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pasofino-gold-exploring-liberias-untapped-gold-potential/20246347)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/pasofino-gold-explores-liberia-s-rich-gold-potential-in-dugbe-project/20246347)
+
+Pickup - [advos.io](https://advos.io/en/pasofino-gold-explores-rich-potential-in-liberia-s-untapped-gold-deposits/20246347)
+ 
 
 
 

@@ -37,7 +37,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcx-opens-applications-for-wallet-and-dex-beta-testing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/upcx-opens-applications-for-closed-beta-testing-of-wallet-and-dex/62393274feb37b87df1d971a7fab3b49) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/15/upcx-invites-users-to-beta-test-wallet-and-dex)
+ 
 
 
 

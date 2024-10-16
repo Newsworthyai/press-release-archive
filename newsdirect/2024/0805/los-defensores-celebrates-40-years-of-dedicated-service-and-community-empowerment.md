@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/los-defensore
 [Original/Source Press Release](https://newsdirect.com/news/los-defensores-celebrates-40-years-of-dedicated-service-and-community-empowerment-509176198)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/los-defensores-marks-40-years-of-empowering-the-latino-community/4cc542d97ee19385bb2b71b1810e63fc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/los-defensores-marks-40-years-of-empowering-latino-communities-with-legal-support)
+
+Pickup - [fishervista.com](https://fishervista.com/en/los-defensores-marks-40-years-of-empowering-latino-communities-with-legal-services/20245496)
+
+Pickup - [advos.io](https://advos.io/en/los-defensores-marks-40-years-of-service-and-community-empowerment/20245496)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/los-defensores-marks-40-years-of-empowering-latino-communities-with-legal-services)
+ 
 
 
 

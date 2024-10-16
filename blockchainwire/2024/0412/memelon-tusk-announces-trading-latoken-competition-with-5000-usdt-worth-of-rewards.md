@@ -42,7 +42,11 @@ X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/memelon-tusk-announces-trading-latoken-competition-with-5000-usdt-worth-of-rewards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/memelon-tusk-launches-trading-competition-on-latoken/d131508970b2a12ca165e2dc1592c129) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/memelon-tusk-announces-trading-latoken-competition-with-5000-usdt-worth-of-rewards)
+ 
 
 
 

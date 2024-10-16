@@ -19,7 +19,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/golden-shield
 [Original/Source Press Release](https://newsdirect.com/news/golden-shield-resources-announces-acquisition-of-tucano-gold-103676876)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-shield-resources-announces-acquisition-of-tucano-gold/aefa24e9d04af172504d5d5f65cd93cb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/golden-shield-resources-set-to-acquire-tucano-gold-expanding-operations-in-south-america)
+
+Pickup - [fishervista.com](https://fishervista.com/en/golden-shield-resources-to-acquire-tucano-gold-enhancing-exploration-and-production-capabilities/20245223)
+
+Pickup - [advos.io](https://advos.io/en/golden-shield-resources-announces-strategic-acquisition-of-tucano-gold/20245223)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/golden-shield-resources-to-acquire-tucano-gold-expanding-its-gold-mining-portfolio)
+ 
 
 
 

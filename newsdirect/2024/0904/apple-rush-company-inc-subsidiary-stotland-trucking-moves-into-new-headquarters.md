@@ -39,7 +39,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/apple-rush-co
 [Original/Source Press Release](https://newsdirect.com/news/apple-rush-company-inc-subsidiary-stotland-trucking-moves-into-new-headquarters-161083848)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stotland-trucking-llc-acquires-new-headquarters-for-statewide-expansion-and-service-throughout-the-midwest/a037430ea21a1a3056c73939cb4e4fea) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/stotland-trucking-expands-with-new-48000-square-foot-headquarters-in-austin)
+
+Pickup - [fishervista.com](https://fishervista.com/en/apple-rush-subsidiary-stotland-trucking-expands-with-new-texas-headquarters/20246522)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/stotland-trucking-expands-with-new-headquarters-in-austin-texas/20246522)
+
+Pickup - [advos.io](https://advos.io/en/apple-rush-subsidiary-stotland-trucking-moves-into-new-headquarters-to-support-midwest-expansion/20246522)
+ 
 
 
 

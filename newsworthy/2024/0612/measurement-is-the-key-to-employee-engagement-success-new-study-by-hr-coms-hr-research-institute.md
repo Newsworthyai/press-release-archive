@@ -33,7 +33,13 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202406121195/measurement-is-the-key-to-employee-engagement-success-new-study-by-hr-coms-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-report-reveals-key-insights-on-employee-engagement-and-productivity/9b69886a11f62ee395bfd5a4944321bc) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/measurement-crucial-for-employee-engagement-success-hr-com-study-reveals/20244071)
+
+Pickup - [advos.io](https://advos.io/en/companies-with-successful-employee-engagement-initiatives-rely-on-robust-metrics-new-hr-com-study-reveals/20244071)
+ 
 
 
 

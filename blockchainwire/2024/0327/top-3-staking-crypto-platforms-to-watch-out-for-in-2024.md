@@ -41,7 +41,11 @@ These advancements have significant implications, suggesting a future where stak
 [Original/Source Press Release](https://blockchainwire.io/press-release/top-3-staking-crypto-platforms-to-watch-out-for-in-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/staking-crypto-platforms-evolving-rapidly-in-2024/885a5638e0a97e1af9bbbb950da7cdfc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/top-staking-crypto-platforms-revolutionizing-digital-finance-in-2024)
+ 
 
 
 

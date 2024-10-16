@@ -63,7 +63,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/gladiator-exp
 [Original/Source Press Release](https://newsdirect.com/news/gladiator-expands-whitehorse-copper-project-stakes-claims-at-jackson-prospect-868605713)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gladiator-metals-corp-expands-whitehorse-copper-project-stakes-claims-at-jackson-prospect/5486e855fddcc8d4379eed889c4f6e34) 
+
+ 
 
 
 

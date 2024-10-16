@@ -7,7 +7,9 @@ PARKER, CO, May 01, 2024 /24-7PressRelease/ -- Matlin Injury Law will reward one
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510560/matlin-injury-law-announces-2024-scholarship-a-second-chance-how-my-accident-changed-my-goals-for-the-future)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/matlin-injury-law-offers-5000-scholarship-for-traumatic-car-accident-survivors/8f7f49213fa2eb4488bc4be5b1675e43) 
+
+ 
 
 
 

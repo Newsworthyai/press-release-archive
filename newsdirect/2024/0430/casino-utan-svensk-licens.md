@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/casino-utan-s
 [Original/Source Press Release](https://newsdirect.com/news/casino-utan-svensk-licens-965721553)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unlicensed-casinos-in-sweden-why-some-operators-avoid-swedish-licenses/24bef0bd6d033c9dde95c7a99f9e9405) 
+
+ 
 
 
 

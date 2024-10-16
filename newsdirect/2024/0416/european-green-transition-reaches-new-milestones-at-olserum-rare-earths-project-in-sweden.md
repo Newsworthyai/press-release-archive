@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/european-gree
 [Original/Source Press Release](https://newsdirect.com/news/european-green-transition-reaches-new-milestones-at-olserum-rare-earths-project-in-sweden-429468772)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/european-green-transition-reaches-new-milestones-at-olserum-rare-earths-project-in-sweden/71a97a882324c1726fa8eeb32325d6a1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/european-green-transition-reaches-new-milestones-at-olserum-rare-earths-project-in-sweden)
+ 
 
 
 

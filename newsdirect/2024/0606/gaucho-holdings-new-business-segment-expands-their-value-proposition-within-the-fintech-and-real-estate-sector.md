@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/gaucho-holdin
 [Original/Source Press Release](https://newsdirect.com/news/gaucho-holdings-new-business-segment-expands-their-value-proposition-within-the-fintech-and-real-estate-sector-434340938)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gaucho-holdings-expanding-the-value-proposition-within-argentinas-real-estate-and-mortgage-lending-sectors/bb1ecb1450a746ad208ee0927f41ed24) 
+
+
+Pickup - [advos.io](https://advos.io/en/gaucho-holdings-diversifies-with-new-mortgage-lending-division-amid-argentina-s-economic-reforms/20243888)
+ 
 
 
 

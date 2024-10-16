@@ -53,7 +53,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/zulu-completes-first-zkp-verify-test-implementation-written-with-bitcoin-script-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zulu-network-achieves-milestone-in-bitcoin-decentralized-bridge-development/0274b734a98e4a5109d397801909d107) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/zulu-network-achieves-milestone-in-bitcoin-decentralized-bridge-development)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/zulu-network-achieves-milestone-in-bitcoin-decentralized-bridge-development)
+ 
 
 
 

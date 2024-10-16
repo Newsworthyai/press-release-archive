@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/open-letter-d
 [Original/Source Press Release](https://newsdirect.com/news/open-letter-demands-newsroom-reset-pushes-for-adoption-of-pro-democracy-election-coverage-guidelines-619946460)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/media-and-democracy-project-urges-major-news-outlets-to-adopt-pro-democracy-election-coverage-guidelines/5b469017fcf562fd82c2000f7e047fd9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/media-and-democracy-project-calls-for-pro-democracy-election-coverage)
+
+Pickup - [fishervista.com](https://fishervista.com/en/media-and-democracy-project-urges-newsrooms-to-adopt-pro-democracy-election-coverage/20245652)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/media-and-democracy-project-calls-for-pro-democracy-election-coverage-guidelines/20245652)
+
+Pickup - [advos.io](https://advos.io/en/media-and-democracy-project-urges-newsrooms-to-adopt-pro-democracy-election-coverage-guidelines/20245652)
+ 
 
 
 

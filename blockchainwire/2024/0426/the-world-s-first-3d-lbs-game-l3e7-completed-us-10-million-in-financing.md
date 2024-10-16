@@ -21,7 +21,9 @@ Email: [info@l3e7.io](mailto:info@l3e7.io) Disclaimer: The information provided 
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-worlds-first-3d-lbs-game-l3e7-completed-us10-millioninfinancing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/l3e7-launches-inaugural-testing-phase-with-cyberpunk-3d-earth-cities/2651bdf70af9f67451cc09382932e0f5) 
+
+ 
 
 
 

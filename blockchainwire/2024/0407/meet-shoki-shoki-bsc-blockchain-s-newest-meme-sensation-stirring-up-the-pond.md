@@ -11,7 +11,11 @@ SHOKI ($SHOKI) isn't just another meme coin, SHOKI is on its way to build up its
 [Original/Source Press Release](https://blockchainwire.io/press-release/meet-shoki-shoki-bsc-blockchains-newest-meme-sensation-stirring-up-the-pond)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-meme-sensation-shoki-shoki-taking-bsc-by-storm/84b3771deef20b522f7d7a39a31330b5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/07/shoki-shoki-the-meme-sensation-stirring-up-the-bsc-blockchain-pond)
+ 
 
 
 

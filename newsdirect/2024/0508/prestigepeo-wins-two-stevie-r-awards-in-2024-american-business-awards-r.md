@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/prestigepeo-w
 [Original/Source Press Release](https://newsdirect.com/news/prestigepeo-wins-two-stevie-r-awards-in-2024-american-business-awards-r-586036359)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prestigepeo-wins-two-bronze-stevie-awards-in-2024-american-business-awards/2c968e31fe38a514619851d2d10d0cab) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/prestigepeo-secures-two-bronze-stevie-r-awards-in-2024-american-business-awards-r/20242728)
+ 
 
 
 

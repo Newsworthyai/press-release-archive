@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/intra-energy-
 [Original/Source Press Release](https://newsdirect.com/news/intra-energy-corp-further-improves-maggie-hay-hills-lithium-prospectivity-348760032)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/intra-energy-corp-makes-strides-in-maggie-hays-hill-lithium-exploration/4ce85aa5cfd0c3b8432ec7824b5d97f7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/intra-energy-corp-expands-lithium-exploration-efforts-in-western-australia)
+ 
 
 
 

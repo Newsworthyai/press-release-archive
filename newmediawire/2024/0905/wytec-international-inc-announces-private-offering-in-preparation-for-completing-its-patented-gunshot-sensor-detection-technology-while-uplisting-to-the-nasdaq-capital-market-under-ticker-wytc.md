@@ -29,7 +29,17 @@ SAN ANTONIO, TX - (NewMediaWire) - September 5, 2024 - Wytec International, Inc
 [Original/Source Press Release](https://www.newmediawire.com/news/wytec-international-inc-announces-private-offering-in-preparation-for-completing-its-patented-gunshot-sensor-detection-technology-while-uplisting-to-the-nasdaq-capital-market-under-ticker-wytc-7076010)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wytec-international-inc-announces-10m-note-offering-for-ai-gunshot-sensor-technology/4f93308e3d08c564c7cd2a723ea7f792) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/wytec-international-announces-key-developments-in-ai-gunshot-sensor-technology-and-nasdaq-uplisting-plans/20246576)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/wytec-international-launches-10-million-offering-to-fund-ai-gunshot-detection-technology-for-schools/20246576)
+
+Pickup - [advos.io](https://advos.io/en/wytec-international-announces-10m-private-offering-to-fund-ai-gunshot-detection-technology-and-nasdaq-uplisting/20246576)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/wytec-international-launches-10-million-offering-to-fund-ai-gunshot-detection-technology-for-schools)
+ 
 
 
 

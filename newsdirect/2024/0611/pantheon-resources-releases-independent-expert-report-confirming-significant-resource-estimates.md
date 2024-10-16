@@ -21,7 +21,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/pantheon-reso
 [Original/Source Press Release](https://newsdirect.com/news/pantheon-resources-releases-independent-expert-report-confirming-significant-resource-estimates-742607337)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pantheon-resources-releases-independent-expert-report-confirming-significant-resource-estimates/f1fd1b2f68d552acad203f2812cc6b53) 
+
+
+Pickup - [advos.io](https://advos.io/en/pantheon-resources-unveils-significant-resource-estimates-in-independent-report/20244041)
+ 
 
 
 

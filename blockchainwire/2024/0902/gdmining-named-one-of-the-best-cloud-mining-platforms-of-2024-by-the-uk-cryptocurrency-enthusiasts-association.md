@@ -27,7 +27,21 @@ GDMining is a premier cloud mining platform that enables users to mine cryptocur
 [Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-named-one-of-the-best-cloud-mining-platforms-of-2024-by-the-uk-cryptocurrency-enthusiasts-association)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gdmining-recognized-as-top-cloud-mining-platform-of-2024/88e5d03799227640ed1e2fb8dd36d980) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/02/gdmining-recognized-as-top-cloud-mining-platform-for-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gdmining-named-top-cloud-mining-platform-by-uk-cryptocurrency-enthusiasts-association/20246434)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/gdmining-recognized-as-top-cloud-mining-platform-for-2024/20246434)
+
+Pickup - [advos.io](https://advos.io/en/gdmining-named-top-cloud-mining-platform-of-2024-by-uk-cryptocurrency-enthusiasts-association/20246434)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gdmining-recognized-as-top-cloud-mining-platform-of-2024)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gdmining-recognized-as-top-cloud-mining-platform-of-2024)
+ 
 
 
 

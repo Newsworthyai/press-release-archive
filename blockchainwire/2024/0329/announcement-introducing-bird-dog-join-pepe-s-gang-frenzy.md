@@ -7,7 +7,11 @@ Dive deep into the vibrant world of Pepe's gang with the latest addition to the 
 [Original/Source Press Release](https://blockchainwire.io/press-release/announcement-introducing-bird-dog---join-pepes-gang-frenzy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/join-the-exciting-world-of-pepe-s-gang-with-bird-dog/b5318e1fcbdb5f0be29f56255fe31fc9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/pepe-s-gang-welcomes-bird-dog-a-nostalgic-addition-to-the-boy-s-club)
+ 
 
 
 

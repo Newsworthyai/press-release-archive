@@ -29,7 +29,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-joins-chicago-quantum-exchange-to-help-advance-quantum-science/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-joins-chicago-quantum-exchange-to-advance-quantum-science-and-commercialization/563dee5aa2b149482136c448819ea70b) 
+
+ 
 
 
 

@@ -75,7 +75,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/huntington-pa
 [Original/Source Press Release](https://newsdirect.com/news/huntington-park-police-renews-knightscope-partnership-for-sixth-year-as-crime-rates-drop-401472163)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/knightscope-renews-contract-with-huntington-park-police-for-6th-year-expands-contracts-with-schools-and-transit-agencies/9030e5f3a6b87131c3113e82a4229d64) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/huntington-park-police-renews-knightscope-partnership-for-sixth-year-as-crime-rates-drop/20245583)
+
+Pickup - [advos.io](https://advos.io/en/huntington-park-police-renews-knightscope-partnership-for-sixth-year-as-crime-rates-drop/20245583)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/huntington-park-police-extends-knightscope-contract-as-crime-rates-plummet/20245583)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/knightscope-s-ai-security-robot-continues-to-reduce-crime-in-huntington-park)
+ 
 
 
 

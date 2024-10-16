@@ -68,7 +68,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/local-entrepr
 [Original/Source Press Release](https://newsdirect.com/news/local-entrepreneurs-bring-activate-games-the-fastest-growing-entertainment-concept-home-to-cambridge-on-159880990)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/activate-games-inc-announces-grand-opening-of-cambridge-location/8e4a48ae13390949dd19b1794e982191) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/activate-games-expands-to-cambridge-on-a-new-frontier-in-active-entertainment)
+
+Pickup - [fishervista.com](https://fishervista.com/en/activate-games-expands-to-cambridge-on-bringing-interactive-gaming-experience-home/20244961)
+
+Pickup - [advos.io](https://advos.io/en/activate-games-expands-to-cambridge-on-marking-5th-ontario-location/20244961)
+ 
 
 
 

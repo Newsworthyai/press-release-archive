@@ -7,7 +7,17 @@ ABDS token has successfully listed on Bitmart, Lbank, and Digifinex, marking a s
 [Original/Source Press Release](https://blockchainwire.io/press-release/abds-token-has-been-successfully-listed-on-three-top-exchanges-bitmart-lbank-and-digifinex)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/abds-token-successfully-listed-on-bitmart-lbank-and-digifinex/25145a8923d0811b9b352da325093e76) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/abds-token-achieves-major-milestone-with-listings-on-bitmart-lbank-and-digifinex)
+
+Pickup - [advos.io](https://advos.io/en/abds-token-expands-reach-with-listings-on-three-major-cryptocurrency-exchanges/20246704)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/abds-token-achieves-major-milestone-with-listings-on-bitmart-lbank-and-digifinex/20246704)
+
+Pickup - [fishervista.com](https://fishervista.com/en/abds-token-achieves-major-milestone-with-listings-on-three-top-cryptocurrency-exchanges/20246704)
+ 
 
 
 

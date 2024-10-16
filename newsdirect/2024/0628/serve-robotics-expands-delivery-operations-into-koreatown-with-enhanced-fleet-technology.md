@@ -19,7 +19,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/serve-robotic
 [Original/Source Press Release](https://newsdirect.com/news/serve-robotics-expands-delivery-operations-into-koreatown-with-enhanced-fleet-technology-844154605)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/serve-robotics-expands-delivery-operations-into-koreatown-with-enhanced-fleet-technology/55f0d6b827516d83f4d0335056747ac8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/serve-robotics-expands-delivery-operations-into-koreatown/20244587)
+
+Pickup - [advos.io](https://advos.io/en/serve-robotics-expands-delivery-operations-into-koreatown-with-advanced-fleet-technology/20244587)
+ 
 
 
 

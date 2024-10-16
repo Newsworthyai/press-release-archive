@@ -77,7 +77,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcx-launches-staking-campaign-with-7000-in-rewards-promotes-global-financial-inclusion)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/upcx-launches-new-staking-campaign-with-7000-rewards/d737afe979fd170f97d2188f85577e38) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/upcx-launches-new-staking-campaign-with-7000-rewards)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/upcx-launches-new-staking-campaign-with-7000-rewards)
+ 
 
 
 

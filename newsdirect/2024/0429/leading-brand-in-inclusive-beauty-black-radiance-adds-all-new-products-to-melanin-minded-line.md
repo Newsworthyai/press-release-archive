@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/leading-brand
 [Original/Source Press Release](https://newsdirect.com/news/leading-brand-in-inclusive-beauty-black-radiance-adds-all-new-products-to-melanin-minded-line-156696643)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/black-radiance-launches-inclusive-beauty-collection-for-women-of-color/a002d2e1f6314498fe6619e62e73fe33) 
+
+ 
 
 
 

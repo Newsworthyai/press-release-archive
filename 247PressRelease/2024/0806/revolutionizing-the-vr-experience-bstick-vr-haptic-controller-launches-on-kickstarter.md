@@ -7,7 +7,17 @@ NEW YORK, NY, August 06, 2024 /24-7PressRelease/ -- Get ready to dive deeper int
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513159/revolutionizing-the-vr-experience-bstick-vr-haptic-controller-launches-on-kickstarter)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bstick-the-vr-haptic-controller-redefining-virtual-reality/8a703daf46f7148557a334d22810586b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/bstick-vr-haptic-controller-set-to-transform-virtual-reality-experience)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bstick-vr-haptic-controller-launches-on-kickstarter-to-revolutionize-virtual-reality/20245508)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bstick-vr-haptic-controller-promises-enhanced-virtual-reality-experience)
+
+Pickup - [advos.io](https://advos.io/en/bstick-vr-haptic-controller-launches-on-kickstarter-promises-to-transform-vr-experience/20245508)
+ 
 
 
 

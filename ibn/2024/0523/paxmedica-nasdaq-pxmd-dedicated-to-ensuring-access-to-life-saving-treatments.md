@@ -23,7 +23,9 @@ PaxMedica (NASDAQ: PXMD), a renowned biopharmaceutical company specializing in t
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/paxmedica-nasdaq-pxmd-dedicated-to-ensuring-access-to-life-saving-treatments/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/paxmedica-commits-to-providing-life-saving-medication-in-response-to-sleeping-sickness-crisis-in-malawi/e85e0dbe5c455f9e75d52f31cacd1f3f) 
+
+ 
 
 
 

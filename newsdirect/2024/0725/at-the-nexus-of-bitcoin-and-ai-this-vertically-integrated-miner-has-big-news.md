@@ -33,7 +33,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/at-the-nexus-
 [Original/Source Press Release](https://newsdirect.com/news/at-the-nexus-of-bitcoin-and-ai-this-vertically-integrated-miner-has-big-news-838649787)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitdeer-s-chief-strategy-officer-reveals-game-changing-chip-for-bitcoin-mining/cea8ee103b37bfb62662220278c05b95) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/bitdeer-announces-breakthrough-in-energy-efficient-bitcoin-mining-technology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitdeer-unveils-game-changing-low-power-bitcoin-mining-chip/20245251)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitdeer-s-chief-strategy-officer-reveals-game-changing-chip-for-bitcoin-mining)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitdeer-s-chief-strategy-officer-reveals-game-changing-chip-for-bitcoin-mining)
+
+Pickup - [advos.io](https://advos.io/en/bitdeer-announces-new-energy-efficient-chip-for-bitcoin-mining/20245251)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bitdeer-develops-groundbreaking-chip-to-revolutionize-bitcoin-mining-efficiency)
+ 
 
 
 

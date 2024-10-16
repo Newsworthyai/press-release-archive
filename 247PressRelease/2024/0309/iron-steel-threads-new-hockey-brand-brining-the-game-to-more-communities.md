@@ -7,7 +7,11 @@ ROCKFORD, IL, March 09, 2024 /24-7PressRelease/ -- Iron+Steel Threads, a rising 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509160/ironsteel-threads-new-hockey-brand-brining-the-game-to-more-communities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rising-star-in-hockey-apparel-supports-youth-hockey-and-community/6f8c86986cb1d85ff16802062af83666) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/09/iron-steel-threads-bringing-hockey-closer-to-communities)
+ 
 
 
 

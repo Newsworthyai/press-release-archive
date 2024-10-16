@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bacula-system
 [Original/Source Press Release](https://newsdirect.com/news/bacula-systems-corp-appoints-aristide-caraccio-as-president-and-ceo-386051512)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bacula-systems-appoints-aristide-caraccio-as-president-ceo/85335a9528a538dd2f874492850203f5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/bacula-systems-appoints-new-president-and-ceo)
+ 
 
 
 

@@ -7,7 +7,9 @@ SALT LAKE CITY, UT, May 23, 2024 /24-7PressRelease/ -- CHOICE Humanitarian's Boa
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511128/choice-humanitarian-appoints-heather-hammond-cruz-as-new-ceo)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/choice-humanitarian-appoints-heather-hammond-cruz-as-new-ceo/405d657508ad1ae421fbf05aa5c164fe) 
+
+ 
 
 
 

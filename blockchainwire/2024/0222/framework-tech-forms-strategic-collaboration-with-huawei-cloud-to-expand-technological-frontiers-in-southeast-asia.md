@@ -35,7 +35,11 @@ Huawei CloudContact: Soh Meng YungEmail: soh.meng.yung2@huawei.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/framework-tech-forms-strategic-collaboration-with-huawei-cloud-to-expand-technological-frontiers-in-southeast-asia)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/framework-tech-announces-strategic-collaboration-with-huawei-cloud/bb34667e0a415618fc59c33c2dfc7d5b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/22/framework-tech-and-huawei-cloud-join-forces-for-technological-advancement-in-southeast-asia)
+ 
 
 
 

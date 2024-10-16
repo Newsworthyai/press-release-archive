@@ -31,7 +31,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/supercom-nasdaq-spcb-delivers-solution-to-growing-domestic-violence-prevention-concerns/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/supercom-ltd-bolsters-public-safety-and-earns-11m-in-new-contracts/91ad6ece23f0ba2c2a0d716663446ec2) 
+
+ 
 
 
 

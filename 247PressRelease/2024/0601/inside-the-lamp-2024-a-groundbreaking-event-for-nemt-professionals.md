@@ -7,7 +7,9 @@ NIAGARA FALLS, NY, June 01, 2024 /24-7PressRelease/ -- RouteGenie is thrilled to
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511357/inside-the-lamp-2024-a-groundbreaking-event-for-nemt-professionals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/routegenie-announces-exclusive-event-for-nemt-industry/b5429e715d6d9c1d8e2c0dccfc36d2dd) 
+
+ 
 
 
 

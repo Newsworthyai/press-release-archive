@@ -57,7 +57,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/with-the-cryp
 [Original/Source Press Release](https://newsdirect.com/news/with-the-cryptocurrency-market-historically-tumultuous-regulated-futures-brokers-like-edgeclear-may-offer-more-security-than-their-spot-counterparts-831087626)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/regulated-futures-brokers-like-edgeclear-offer-security-in-tumultuous-cryptocurrency-market/8a2be5c2001e790e029245df6c90c58f) 
+
+ 
 
 
 

@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/culinary-inst
 [Original/Source Press Release](https://newsdirect.com/news/culinary-institute-of-the-pacific-taps-cia-for-new-workforce-development-program-903200386)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/culinary-institute-of-the-pacific-collaborates-with-cia-for-new-workforce-program/a62684b15592e1806fc953b635690fa7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/culinary-institute-of-the-pacific-taps-cia-for-new-workforce-development-program)
+ 
 
 
 

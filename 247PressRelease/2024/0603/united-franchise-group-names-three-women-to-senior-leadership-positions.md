@@ -7,7 +7,13 @@ WEST PALM BEACH, FL, June 03, 2024 /24-7PressRelease/ -- United Franchise Groupâ
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511235/united-franchise-group-names-three-women-to-senior-leadership-positions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/united-franchise-group-appoints-three-dynamic-women-to-key-positions/2c7ba6c7e049e8721d1cb146a703ced2) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/united-franchise-group-elevates-three-women-to-senior-leadership-roles/20243619)
+
+Pickup - [advos.io](https://advos.io/en/united-franchise-group-appoints-three-women-to-senior-leadership-roles/20243619)
+ 
 
 
 

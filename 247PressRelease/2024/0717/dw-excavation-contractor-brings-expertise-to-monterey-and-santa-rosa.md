@@ -7,7 +7,15 @@ MONTEREY, CA, July 17, 2024 /24-7PressRelease/ -- DW Excavation, a leader in pro
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512549/dw-excavation-contractor-brings-expertise-to-monterey-and-santa-rosa)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dw-excavation-expands-services-to-monterey-and-santa-rosa-california/94886f9004acd2a04a9d9e49ded13430) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/dw-excavation-expands-services-to-monterey-and-santa-rosa-california)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dw-excavation-expands-services-to-monterey-and-santa-rosa/20245012)
+
+Pickup - [advos.io](https://advos.io/en/dw-excavation-expands-services-to-monterey-and-santa-rosa/20245012)
+ 
 
 
 

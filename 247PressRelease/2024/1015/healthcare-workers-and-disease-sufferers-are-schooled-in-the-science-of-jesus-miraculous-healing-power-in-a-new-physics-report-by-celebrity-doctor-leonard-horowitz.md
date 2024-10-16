@@ -7,7 +7,9 @@ LAS VEGAS, NV, October 15, 2024 /24-7PressRelease/ -- Healthcare workers and dis
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515234/healthcare-workers-and-disease-sufferers-are-schooled-in-the-science-of-jesus-miraculous-healing-power-in-a-new-physics-report-by-celebrity-doctor-leonard-horowitz)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-scientist-reveals-the-miraculous-healing-power-of-the-528-frequency/399fa5971f61aaaedafc8330c1a155dd) 
+
+ 
 
 
 

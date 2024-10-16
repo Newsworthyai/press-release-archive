@@ -35,7 +35,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-rising-de
 [Original/Source Press Release](https://newsdirect.com/news/the-rising-demand-for-whiskey-how-investors-can-capitalize-on-the-trend-108585370)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/don-t-miss-out-on-benzinga-s-whiskey-investing-webinar/0fd41110492cc76b44a077ddc7b1ac18) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/benzinga-to-host-webinar-on-rising-whiskey-demand-and-investment-opportunities/20244829)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/benzinga-to-host-webinar-on-whiskey-investment-opportunities-amid-rising-global-demand)
+
+Pickup - [advos.io](https://advos.io/en/benzinga-to-host-webinar-on-whiskey-investing-amidst-rising-global-alcohol-consumption/20244829)
+ 
 
 
 

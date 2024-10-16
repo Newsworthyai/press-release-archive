@@ -58,7 +58,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/kip-protocol-partners-with-open-campus-to-launch-open-campus-u-transforming-education-through-decentralized-ai)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kip-protocol-and-open-campus-launch-open-campus-u-a-decentralized-education-platform/3307a87642b15ac5f662cc7fda3844aa) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/kip-protocol-and-open-campus-partner-to-launch-decentralized-ai-powered-educational-platform/20244384)
+
+Pickup - [advos.io](https://advos.io/en/kip-protocol-and-open-campus-collaborate-to-launch-open-campus-u-revolutionizing-education-with-decentralized-ai/20244384)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/kip-protocol-and-open-campus-launch-open-campus-u-a-decentralized-education-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/kip-protocol-and-open-campus-launch-open-campus-u-a-decentralized-education-platform)
+ 
 
 
 

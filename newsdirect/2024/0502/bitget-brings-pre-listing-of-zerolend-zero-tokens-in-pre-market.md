@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-brings
 [Original/Source Press Release](https://newsdirect.com/news/bitget-brings-pre-listing-of-zerolend-zero-tokens-in-pre-market-534366163)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-enables-pre-listing-trading-of-zerolend-zero-tokens-in-pre-market/b53bd4eeca96519b7fd8a6b7375c144e) 
+
+ 
 
 
 

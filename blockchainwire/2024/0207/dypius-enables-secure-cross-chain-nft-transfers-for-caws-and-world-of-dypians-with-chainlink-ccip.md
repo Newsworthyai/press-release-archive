@@ -45,7 +45,11 @@ You can learn more about Dypius and World of Dypians at these links: DYPIUS Web
 [Original/Source Press Release](https://blockchainwire.io/press-release/dypius-enables-secure-cross-chain-nft-transfers-for-caws-and-world-of-dypians-with-chainlink-ccip)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dypius-integrates-chainlink-ccip-for-seamless-nft-transfers/dccfd52a379187eca3c2126a73cfce83) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/07/dypius-integrates-chainlink-ccip-for-secure-cross-chain-nft-transfers)
+ 
 
 
 

@@ -7,7 +7,9 @@ ARLINGTON, VA, October 15, 2024 /24-7PressRelease/ -- The American Council of th
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515271/acb-sends-representative-to-rideshare-rally-in-san-francisco)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/acb-representative-to-speak-at-rideshare-rally-addressing-discrimination-against-blind-individuals/d79385572c1c4e740dc4bb2e249d995c) 
+
+ 
 
 
 

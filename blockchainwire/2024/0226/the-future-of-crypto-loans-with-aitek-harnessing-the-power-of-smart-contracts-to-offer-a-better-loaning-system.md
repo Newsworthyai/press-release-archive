@@ -70,7 +70,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-future-of-crypto-loans-with-aitek-harnessing-the-power-of-smart-contracts-to-offer-a-better-loaning-system-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-dawn-of-aitek-transforming-digital-assets-into-powerful-tools-for-leverage-and-loans/4728431bcc970160dbe4a0289add3129) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/26/unlocking-crypto-s-potential-aitek-s-revolutionary-lending-protocol)
+ 
 
 
 

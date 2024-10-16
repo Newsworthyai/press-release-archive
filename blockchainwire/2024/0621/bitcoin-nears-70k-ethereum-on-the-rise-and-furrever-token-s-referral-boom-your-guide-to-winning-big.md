@@ -33,7 +33,17 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-nears-70k-ethereum-on-the-rise-and-furrever-tokens-referral-boom--your-guide-to-winning-big)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-ethereum-and-furrever-token-a-guide-to-crypto-opportunities/2e37a08e9e9027d57de6b92f85ef64a2) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitcoin-nears-70k-ethereum-gains-momentum-and-furrever-token-s-referral-success/20244386)
+
+Pickup - [advos.io](https://advos.io/en/bitcoin-nears-70k-ethereum-gains-momentum-and-furrever-token-soars-with-innovative-referral-program/20244386)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-ethereum-and-furrever-token-a-guide-to-crypto-opportunities)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-ethereum-and-furrever-token-a-guide-to-crypto-opportunities)
+ 
 
 
 

@@ -59,7 +59,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-pioneers-green-energy-in-cloud-mining-offering-sustainable-passive-income-opportunities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-introduces-green-energy-solutions-for-sustainable-cloud-mining/ee1af9fd4b81aa06582be3a9267b07b9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/17/defiquant-pioneers-green-cloud-mining-for-sustainable-passive-income)
+ 
 
 
 

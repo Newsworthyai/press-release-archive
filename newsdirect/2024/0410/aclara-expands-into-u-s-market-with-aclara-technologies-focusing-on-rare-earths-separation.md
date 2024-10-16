@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/aclara-expand
 [Original/Source Press Release](https://newsdirect.com/news/aclara-expands-into-u-s-market-with-aclara-technologies-focusing-on-rare-earths-separation-192222792)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aclara-expands-into-u-s-market-with-aclara-technologies-focusing-on-rare-earths-separation/9f2110477ae9ad8d0c4048c957878ca9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/aclara-technologies-expands-into-u-s-market-to-focus-on-rare-earths-separation)
+ 
 
 
 

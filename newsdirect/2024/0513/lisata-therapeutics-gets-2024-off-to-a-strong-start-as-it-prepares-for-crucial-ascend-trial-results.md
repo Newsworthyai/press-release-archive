@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/lisata-therap
 [Original/Source Press Release](https://newsdirect.com/news/lisata-therapeutics-gets-2024-off-to-a-strong-start-as-it-prepares-for-crucial-ascend-trial-results-573775110)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lisata-therapeutics-prepares-for-crucial-ascend-trial-results-in-2024/8012695163d55d56a597412102306c64) 
+
+ 
 
 
 

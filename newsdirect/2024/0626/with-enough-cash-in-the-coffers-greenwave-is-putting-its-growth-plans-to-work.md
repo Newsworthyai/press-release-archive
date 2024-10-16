@@ -49,7 +49,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/with-enough-c
 [Original/Source Press Release](https://newsdirect.com/news/with-enough-cash-in-the-coffers-greenwave-is-putting-its-growth-plans-to-work-130906671)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greenwave-technology-solutions-inc-makes-major-strides-with-recapitalization-and-expansion-of-scrap-app/0477ddd640db966b55df82e837eb5990) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/greenwave-technology-solutions-fortifies-financial-position-and-sets-ambitious-growth-plans/20244496)
+
+Pickup - [advos.io](https://advos.io/en/greenwave-technology-solutions-bolsters-financial-position-and-expands-operations/20244496)
+ 
 
 
 

@@ -43,7 +43,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/tshan-markets-the-revolutionary-online-trading-platform-officially-launched)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tshan-markets-launches-groundbreaking-advancements-in-online-trading/d376f146c79f8b9fb905a08055888b2d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/tshan-markets-launches-advanced-online-cfd-trading-platform-with-innovative-features)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tshan-markets-launches-revolutionary-online-trading-platform/20245624)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/tshan-markets-launches-advanced-online-cfd-trading-platform-with-innovative-features/20245624)
+
+Pickup - [advos.io](https://advos.io/en/tshan-markets-launches-advanced-online-cfd-trading-platform/20245624)
+ 
 
 
 

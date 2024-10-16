@@ -7,7 +7,9 @@ WILLIAMSPORT, PA, April 19, 2024 /24-7PressRelease/ -- A jury in the United Stat
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510202/pennsylvania-jury-returns-205m-verdict-against-american-home-patientlincare)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/verdict-of-20-5m-in-racial-discrimination-case-against-american-home-patient-lincare/805c934d026d44a88427e92cbc82c970) 
+
+ 
 
 
 

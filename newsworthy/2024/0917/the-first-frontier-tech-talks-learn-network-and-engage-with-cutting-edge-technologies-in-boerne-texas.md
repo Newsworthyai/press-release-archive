@@ -31,7 +31,17 @@ Frontier Tech Talks is a recurring monthly event designed to shed light on the l
 [Original/Source Press Release](https://newsworthy.ai/news/202409171268/the-first-frontier-tech-talks-learn-network-and-engage-with-cutting-edge-technologies-in-boerne-texas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/frontier-tech-talks-explore-the-limitless-potential-of-frontier-tech/329d1d209efcb9502cd865b9ba616555) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/inaugural-frontier-tech-talks-event-to-showcase-ai-blockchain-and-web3-innovations-in-boerne-texas)
+
+Pickup - [fishervista.com](https://fishervista.com/en/frontier-tech-talks-to-showcase-ai-blockchain-and-web3-innovations-in-boerne-texas/20246896)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/inaugural-frontier-tech-talks-event-to-spotlight-ai-blockchain-and-web3-technologies-in-boerne-texas/20246896)
+
+Pickup - [advos.io](https://advos.io/en/frontier-tech-talks-new-event-series-spotlights-ai-blockchain-and-web3-in-boerne-texas/20246896)
+ 
 
 
 

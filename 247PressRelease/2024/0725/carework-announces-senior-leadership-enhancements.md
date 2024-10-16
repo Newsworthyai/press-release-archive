@@ -7,7 +7,17 @@ ORLANDO, FL, July 25, 2024 /24-7PressRelease/ -- Bill Flanagan Named CEO   Bill 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512808/carework-announces-senior-leadership-enhancements)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bill-flanagan-named-ceo-of-carework-leadership-changes-announced/bc7bc3822fce9888b0f0930be12cbfcc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/carework-announces-leadership-changes-to-drive-growth-in-senior-living-technology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/carework-announces-key-leadership-appointments-to-drive-future-growth/20245238)
+
+Pickup - [advos.io](https://advos.io/en/carework-announces-key-leadership-changes-to-drive-future-growth/20245238)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/carework-announces-leadership-changes-to-drive-growth-in-senior-care-technology)
+ 
 
 
 

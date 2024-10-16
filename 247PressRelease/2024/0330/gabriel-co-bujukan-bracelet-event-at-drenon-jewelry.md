@@ -7,7 +7,11 @@ INDEPENDENCE, MO, March 30, 2024 /24-7PressRelease/ -- Join Drenon Jewelry on Ap
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509679/gabriel-co-bujukan-bracelet-event-at-drenon-jewelry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/drenon-jewelry-hosts-gabriel-co-trunk-show-featuring-bujukan-bracelet-collection/9f0b8185f79e0a9c4577cb662c6aa6d7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/30/drenon-jewelry-hosts-gabriel-co-bujukan-bracelet-trunk-show)
+ 
 
 
 

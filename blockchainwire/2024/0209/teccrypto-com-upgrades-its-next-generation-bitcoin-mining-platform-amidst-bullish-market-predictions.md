@@ -48,7 +48,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/teccryptocom-upgrades-its-next-generation-bitcoin-mining-platform-amidst-bullish-market-predictions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teccrypto-com-ushers-in-new-era-of-bitcoin-mining-with-platform-upgrade/af7355376bfb5b5bca00701b57d9eb31) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/09/teccrypto-com-unveils-upgraded-bitcoin-mining-platform-amid-bullish-market-forecasts)
+ 
 
 
 

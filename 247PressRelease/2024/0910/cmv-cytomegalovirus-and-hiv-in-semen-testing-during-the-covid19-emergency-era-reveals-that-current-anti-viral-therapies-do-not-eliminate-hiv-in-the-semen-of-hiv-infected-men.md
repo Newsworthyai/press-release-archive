@@ -7,7 +7,17 @@ BOSTON, MA, September 10, 2024 /24-7PressRelease/ -- A summary of assisted repro
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514151/cmv-cytomegalovirus-and-hiv-in-semen-testing-during-the-covid19-emergency-era-reveals-that-current-anti-viral-therapies-do-not-eliminate-hiv-in-the-semen-of-hiv-infected-men)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/covid-lockdown-fertility-testing-and-research-outcomes-revealed/a0d5f2fed81e0f926ac216f6ebb0c276) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/hiv-persists-in-semen-despite-antiviral-therapy-study-reveals)
+
+Pickup - [fishervista.com](https://fishervista.com/en/study-reveals-persistent-hiv-in-semen-despite-antiviral-therapies-during-covid-19-era/20246633)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hiv-persists-in-semen-despite-antiviral-therapy-study-reveals/20246633)
+
+Pickup - [advos.io](https://advos.io/en/study-reveals-ineffectiveness-of-current-anti-viral-therapies-in-eliminating-hiv-in-semen/20246633)
+ 
 
 
 

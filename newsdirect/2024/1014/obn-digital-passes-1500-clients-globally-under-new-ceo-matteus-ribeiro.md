@@ -29,7 +29,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/obn-digital-p
 [Original/Source Press Release](https://newsdirect.com/news/obn-digital-passes-1-500-clients-globally-under-new-ceo-matteus-ribeiro-263934209)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/obn-digital-expands-service-portfolio-under-new-ceo-matteus-ribeiro/62335be4ead8ad4c59ddfa842ae1e21d) 
+
+ 
 
 
 

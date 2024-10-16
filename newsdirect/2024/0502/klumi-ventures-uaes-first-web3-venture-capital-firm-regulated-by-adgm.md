@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/klumi-venture
 [Original/Source Press Release](https://newsdirect.com/news/klumi-ventures-uaes-first-web3-venture-capital-firm-regulated-by-adgm-605103519)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/klumi-ventures-receives-first-web3-venture-capital-firm-license-in-uae/bd36e6eddadaa1350f1989ce9a1e07d3) 
+
+ 
 
 
 

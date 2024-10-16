@@ -33,7 +33,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/sportex-announces-incoming-collaborations-for-its-social-media-marketplace-hybrid-app)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sportex-expanding-collaborations-and-unique-features-for-football-fans/7024d8317b8b4bc7753177eb3c61a49a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/sportex-set-to-expand-football-focused-social-media-marketplace-app-with-new-collaborations)
+
+Pickup - [fishervista.com](https://fishervista.com/en/sportex-announces-new-high-profile-collaborations-for-its-football-focused-app/20245072)
+
+Pickup - [advos.io](https://advos.io/en/sportex-to-expand-football-fan-engagement-with-high-profile-collaborations/20245072)
+ 
 
 
 

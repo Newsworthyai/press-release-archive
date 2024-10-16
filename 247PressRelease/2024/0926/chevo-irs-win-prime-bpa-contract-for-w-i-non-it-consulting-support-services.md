@@ -7,7 +7,9 @@ ROCKVILLE, MD, September 26, 2024 /24-7PressRelease/ -- Chevo is proud to be one
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514628/chevo-irs-win-prime-bpa-contract-for-wi-non-it-consulting-support-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chevo-awarded-irs-blanket-purchase-agreement-for-management-consulting-services/f0c485e3846efe701501a462609e3080) 
+
+ 
 
 
 

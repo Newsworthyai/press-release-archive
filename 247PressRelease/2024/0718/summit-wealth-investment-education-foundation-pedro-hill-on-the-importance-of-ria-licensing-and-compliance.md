@@ -7,7 +7,15 @@ MIAMI, FL, July 18, 2024 /24-7PressRelease/ -- What is an RIA license?  An RIA l
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512613/summit-wealth-investment-education-foundation-pedro-hill-on-the-importance-of-ria-licensing-and-compliance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/understanding-the-ria-license-and-sec-regulatory-requirements/122e026f2b631fd0d81e5ef28c281fc4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/summit-wealth-foundation-emphasizes-importance-of-ria-licensing-for-investment-advisers)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pedro-hill-highlights-critical-role-of-ria-licensing-and-compliance/20245041)
+
+Pickup - [advos.io](https://advos.io/en/pedro-hill-emphasizes-ria-licensing-and-compliance-for-investment-advisers/20245041)
+ 
 
 
 

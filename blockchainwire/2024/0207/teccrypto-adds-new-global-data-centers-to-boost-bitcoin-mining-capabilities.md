@@ -42,7 +42,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/teccrypto-adds-new-global-data-centers-to-boost-bitcoin-mining-capabilities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teccrypto-launches-new-global-data-centres-for-enhanced-bitcoin-mining/2005eaa09fe692c41b255a846d30350f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/07/teccrypto-expands-global-reach-with-new-data-centers-for-enhanced-bitcoin-mining)
+ 
 
 
 

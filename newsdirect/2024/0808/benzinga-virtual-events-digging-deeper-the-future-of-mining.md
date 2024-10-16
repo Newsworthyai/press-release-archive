@@ -44,7 +44,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/benzinga-virt
 [Original/Source Press Release](https://newsdirect.com/news/benzinga-virtual-events-digging-deeper-the-future-of-mining-768912278)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benzinga-hosts-virtual-event-the-future-of-mining-on-august-8th-at-11-am-et/716ec4045d853ce83cb395abd810102f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/benzinga-to-host-the-future-of-mining-virtual-event-on-august-8th/20245588)
+
+Pickup - [advos.io](https://advos.io/en/benzinga-announces-virtual-event-on-future-of-mining/20245588)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/benzinga-to-host-virtual-event-on-the-future-of-mining-exploring-innovation-and-investment-opportunities/20245588)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/benzinga-announces-virtual-event-on-the-future-of-mining-exploring-innovation-and-investment-opportunities)
+ 
 
 
 

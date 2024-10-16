@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/luxury-digita
 [Original/Source Press Release](https://newsdirect.com/news/luxury-digital-concierge-company-the-prelude-to-hit-20m-in-first-year-sales-as-the-super-rich-flock-to-the-startup-for-on-demand-concierge-and-travel-needs-825014891)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/luxury-concierge-company-the-prelude-to-hit-20m-in-first-year-sales-as-uhnwis-flock-to-startup/ec316fcb8f96331fd8ecfa265bdee0c5) 
+
+ 
 
 
 

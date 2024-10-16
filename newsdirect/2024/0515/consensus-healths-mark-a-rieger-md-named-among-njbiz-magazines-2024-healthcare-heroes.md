@@ -38,7 +38,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/consensus-hea
 [Original/Source Press Release](https://newsdirect.com/news/consensus-healths-mark-a-rieger-md-named-among-njbiz-magazines-2024-healthcare-heroes-368590756)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pediatric-orthopedic-physician-named-2024-healthcare-hero/6a3af3e26b794daac88948e0b89f60cc) 
+
+ 
 
 
 

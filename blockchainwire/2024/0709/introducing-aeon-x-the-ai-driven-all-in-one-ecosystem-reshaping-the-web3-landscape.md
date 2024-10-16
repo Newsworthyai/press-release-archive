@@ -100,7 +100,19 @@ Follow the project’s official website and X (Twitter) for the latest developme
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-aeon-x---the-ai-driven-all-in-one-ecosystem-reshaping-the-web3-landscape)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aeon-x-redefining-web3-with-ai-technology/079c71df0442a5f3814b570ffb1c2831) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/aeon-x-unveils-ai-driven-web3-ecosystem-promises-to-revolutionize-crypto-and-social-interactions/20244799)
+
+Pickup - [advos.io](https://advos.io/en/aeon-x-unveils-ai-driven-ecosystem-transforming-web3-landscape/20244799)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/aeon-x-launches-ai-powered-web3-ecosystem-with-innovative-crypto-services)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/aeon-x-redefining-web3-with-ai-technology)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/aeon-x-redefining-web3-with-ai-technology)
+ 
 
 
 

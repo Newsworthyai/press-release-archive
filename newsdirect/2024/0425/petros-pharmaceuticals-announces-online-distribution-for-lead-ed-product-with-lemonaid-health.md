@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/petros-pharma
 [Original/Source Press Release](https://newsdirect.com/news/petros-pharmaceuticals-announces-online-distribution-for-lead-ed-product-with-lemonaid-health-731646501)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/petros-pharmaceuticals-partners-with-lemonaid-health-to-expand-distribution-of-stendra-r/4e71a985b969006eb11ba9b1f4ea0c0b) 
+
+ 
 
 
 

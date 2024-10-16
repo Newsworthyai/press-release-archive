@@ -23,7 +23,11 @@ Embark on a journey of SaaS enlightenment at www.SaaSPerspective.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231207874/saasperspective-com-unveiling-a-resource-for-software-as-a-service-saas-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-saasperspective-com-your-definitive-platform-for-saas-insights-and-networking/69d74a7e36f6da1e4fd8cbff35147aa2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/07/saasperspective-com-launches-as-premier-platform-for-saas-insights)
+ 
 
 
 

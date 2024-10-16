@@ -7,7 +7,9 @@ MILWAUKEE, WI, May 15, 2024 /24-7PressRelease/ -- Johnson Financial Group (JFG) 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510913/johnson-financial-group-included-on-2024-worth-leading-advisors-list)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/johnson-financial-group-named-to-worth-leading-advisors-list/a163e28b101dc9bfe3909dc10a34fde9) 
+
+ 
 
 
 

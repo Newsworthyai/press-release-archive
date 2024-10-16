@@ -85,7 +85,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/exploring-the
 [Original/Source Press Release](https://newsdirect.com/news/exploring-the-high-end-retail-market-with-the-consumer-discretionary-select-sector-spdr-fund-xly-927600897)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/diversify-your-luxury-market-exposure-with-consumer-discretionary-select-sector-spdr-fund-xly/86c12d0f89520a830b850606f2f86fcc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/consumer-discretionary-select-sector-spdr-fund-xly-offers-gateway-to-luxury-market-investments)
+
+Pickup - [fishervista.com](https://fishervista.com/en/consumer-discretionary-select-sector-spdr-fund-xly-offers-diverse-investment-in-luxury-market/20245662)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/consumer-discretionary-select-sector-spdr-fund-xly-offers-investors-exposure-to-luxury-market/20245662)
+
+Pickup - [advos.io](https://advos.io/en/exploring-high-end-retail-investment-with-the-consumer-discretionary-select-sector-spdr-fund-xly/20245662)
+ 
 
 
 

@@ -7,7 +7,9 @@ NOKOMIS, FL, May 23, 2024 /24-7PressRelease/ -- The book was first imagined when
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511131/a-delightful-journey-through-childhood-imagination-and-wonder)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-playing-with-angels-captures-the-magic-of-childhood-and-the-afterlife/7be6ca5998d26521263df8b49e7948c6) 
+
+ 
 
 
 

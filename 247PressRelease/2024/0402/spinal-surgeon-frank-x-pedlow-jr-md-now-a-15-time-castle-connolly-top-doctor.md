@@ -7,7 +7,11 @@ BOSTON, MA, April 02, 2024 /24-7PressRelease/ -- Frank X. Pedlow Jr., MD, has be
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509684/spinal-surgeon-frank-x-pedlow-jr-md-now-a-15-time-castle-connolly-top-doctor)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-frank-x-pedlow-jr-named-2024-castle-connolly-top-doctor/f335255d792614e458d8e8ad20034c5f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/boston-spine-surgeon-dr-frank-x-pedlow-jr-named-castle-connolly-top-doctor-for-15th-year)
+ 
 
 
 

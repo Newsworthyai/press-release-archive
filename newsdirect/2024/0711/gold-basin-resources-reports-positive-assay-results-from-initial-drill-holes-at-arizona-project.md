@@ -19,7 +19,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/gold-basin-re
 [Original/Source Press Release](https://newsdirect.com/news/gold-basin-resources-reports-positive-assay-results-from-initial-drill-holes-at-arizona-project-422581076)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-basin-resources-announces-positive-assay-results-from-arizona-project/332cd11c714b1cee42e994cc03926e55) 
+
+
+Pickup - [advos.io](https://advos.io/en/gold-basin-resources-reports-promising-assay-results-at-arizona-gold-project/20244882)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gold-basin-resources-announces-promising-assay-results-from-initial-drill-holes-at-arizona-project/20244882)
+
+Pickup - [citybuzz.co](https://citybuzz.co/gold-basin-resources-unveils-promising-drill-results-at-arizona-gold-project)
+ 
 
 
 

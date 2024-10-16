@@ -30,7 +30,17 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-ntt-docomo-leverage-quantum-optimization-tech-to-boost-mobile-network-performance/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-and-ntt-docomo-pilot-shows-15-improvement-in-mobile-network-performance/301651badfa8746658a9289df1b378f2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/d-wave-and-ntt-docomo-collaboration-yields-15-improvement-in-mobile-network-performance-using-quantum-computing)
+
+Pickup - [fishervista.com](https://fishervista.com/en/d-wave-and-ntt-docomo-enhance-mobile-network-performance-with-quantum-optimization/20246592)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/d-wave-and-ntt-docomo-collaboration-yields-15-boost-in-mobile-network-performance/20246592)
+
+Pickup - [advos.io](https://advos.io/en/d-wave-and-ntt-docomo-enhance-mobile-networks-with-quantum-computing/20246592)
+ 
 
 
 

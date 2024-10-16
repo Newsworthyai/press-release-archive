@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, a
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-subsidiary-secures-epa-certification-for-class-4-ev-commercial-trucks/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bollinger-motors-receives-epa-certification-for-class-4-b4-chassis-cab/d97c891de79ae2dceb46b4b52f34797d) 
+
+ 
 
 
 

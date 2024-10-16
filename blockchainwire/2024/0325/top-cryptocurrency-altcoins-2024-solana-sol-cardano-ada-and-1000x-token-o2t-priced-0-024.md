@@ -51,7 +51,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/top-cryptocurrency-altcoins-2024-solana-sol-cardano-ada-and-1000x-token-o2t-priced-0024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-market-evolves-solana-cardano-and-emerging-1000x-token/c4c123c6e68dcb51036a711d8d65cae1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/solana-cardano-and-option2trade-navigating-the-crypto-landscape-of-2024)
+ 
 
 
 

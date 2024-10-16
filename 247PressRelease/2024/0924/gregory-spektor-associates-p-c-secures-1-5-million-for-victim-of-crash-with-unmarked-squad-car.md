@@ -7,7 +7,9 @@ NEW YORK, NY, September 24, 2024 /24-7PressRelease/ -- Personal injury lawyers a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514568/gregory-spektor-associates-pc-secures-15-million-for-victim-of-crash-with-unmarked-squad-car)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gregory-spektor-associates-p-c-secures-1-5-million-settlement-for-injured-passenger/b7a8fe9f7aa199f4e85ed7fa137d17ae) 
+
+ 
 
 
 

@@ -44,7 +44,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-fastest-g
 [Original/Source Press Release](https://newsdirect.com/news/the-fastest-growing-entertainment-concept-in-the-world-opens-today-in-roseville-minnesota-490503268)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/activate-opens-world-s-first-active-gaming-facility-in-roseville-mn/8d06d833ad996c4db600f9ca9d270ce9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/activate-opens-innovative-active-gaming-facility-in-roseville-minnesota)
+
+Pickup - [fishervista.com](https://fishervista.com/en/activate-opens-state-of-the-art-gaming-facility-in-roseville-minnesota/20245218)
+
+Pickup - [advos.io](https://advos.io/en/activate-opens-new-interactive-gaming-facility-in-roseville-minnesota/20245218)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/activate-brings-innovative-active-gaming-experience-to-roseville-minnesota)
+ 
 
 
 

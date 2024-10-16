@@ -7,7 +7,13 @@ POWAY, CA, June 27, 2024 /24-7PressRelease/ -- Radeus Labs, Inc., a leading prov
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512013/radeus-labs-inc-juliet-correnti-honored-by-the-san-diego-business-journals-women-of-influence-in-engineering-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/radeus-labs-ceo-juliet-correnti-recognized-for-women-of-influence-in-engineering/a3a75da1d3ba6ac9b2005eff567b90d9) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/juliet-correnti-honored-by-san-diego-business-journal-s-women-of-influence-in-engineering-2024/20244536)
+
+Pickup - [advos.io](https://advos.io/en/juliet-correnti-of-radeus-labs-honored-by-san-diego-business-journal-s-women-of-influence-in-engineering-2024/20244536)
+ 
 
 
 

@@ -52,7 +52,9 @@ By focusing on security, transparency, and user experience, CoinNerds.com is s
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinnerdscom-announces-beta-launch-of-revolutionary-cryptocurrency-platform-no-fees-on-in-person-crypto-sales-at-mississauga-branch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinnerds-com-launches-no-fee-in-person-crypto-sales-in-mississauga/384baaf342ccfead60f0d56bea55f90b) 
+
+ 
 
 
 

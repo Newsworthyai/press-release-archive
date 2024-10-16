@@ -7,7 +7,9 @@ IRON MOUNTAIN, MI, May 01, 2024 /24-7PressRelease/ -- Tourism and Recreation org
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510544/up-travel-organizations-applaud-michigan-houses-50-million-pure-michigan-proposal)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/michigan-house-proposes-significant-increase-in-funding-for-pure-michigan-campaign/6fab489a2970d592f184b034ff1ad34d) 
+
+ 
 
 
 

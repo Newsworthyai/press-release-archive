@@ -7,7 +7,9 @@ COLUMBUS, OH, June 04, 2024 /24-7PressRelease/ -- Andrew T. Dang, MD, and Gital 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511304/allergy-immunology-specialists-dang-and-patel-named-2024-castle-connolly-top-doctors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/premier-allergy-asthma-doctors-recognized-as-2024-castle-connolly-top-doctors/bd50aec2ce3f4b95136e476361f720f2) 
+
+ 
 
 
 

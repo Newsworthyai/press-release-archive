@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/evion-group-b
 [Original/Source Press Release](https://newsdirect.com/news/evion-group-begins-expandable-graphite-production-in-india-485345008)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/evion-group-nl-begins-expandable-graphite-production-in-india/9b721eeb21623c49ada9990cfac9a744) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/evion-group-commences-expandable-graphite-production-in-india)
+ 
 
 
 

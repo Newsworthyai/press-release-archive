@@ -7,7 +7,17 @@ MIAMI, FL, August 26, 2024 /24-7PressRelease/ -- The Alessis, a family of pastor
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513338/a-new-kind-of-seventh-heaven-pastors-family-launches-7th-season-of-their-podcast)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-alessis-set-to-release-7th-season-of-the-family-business-podcast/e4f01f188bf014a3341997a0b8ad1696) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/miami-pastor-family-launches-7th-season-of-the-family-business-podcast)
+
+Pickup - [fishervista.com](https://fishervista.com/en/alessi-family-gears-up-for-7th-season-of-the-family-business-podcast/20245944)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/miami-pastor-family-launches-7th-season-of-the-family-business-podcast/20245944)
+
+Pickup - [advos.io](https://advos.io/en/alessi-family-to-launch-7th-season-of-popular-podcast-the-family-business-with-the-alessis/20245944)
+ 
 
 
 

@@ -7,7 +7,9 @@ RICHMOND, BC, September 23, 2024 /24-7PressRelease/ -- This strategic move will 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514561/connecting-people-powering-success-in-montreal-ecs-opens-new-branch-in-laval-qc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ecs-expands-reach-into-greater-montreal-area-with-new-laval-location/187fb69f5183eb2da05e84b425dee193) 
+
+ 
 
 
 

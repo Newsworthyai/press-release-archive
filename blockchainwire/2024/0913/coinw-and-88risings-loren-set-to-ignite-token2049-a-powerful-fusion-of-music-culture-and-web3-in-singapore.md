@@ -19,7 +19,21 @@ As a prominent player in the Middle East’s Web3 ecosystem, CoinW has establish
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-and-88risings-lren-set-to-ignite-token2049-a-powerful-fusion-of-music-culture-and-web3-in-singapore)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-and-loren-to-deliver-unforgettable-party-experience-at-token2049/17b98771613206f1696d51a8bd1cfb3c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/coinw-partners-with-loren-for-groundbreaking-token2049-event-in-singapore)
+
+Pickup - [fishervista.com](https://fishervista.com/en/coinw-partners-with-loren-for-groundbreaking-token2049-event-in-singapore/20246820)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/coinw-partners-with-loren-for-groundbreaking-token2049-event-in-singapore/20246820)
+
+Pickup - [advos.io](https://advos.io/en/coinw-teams-up-with-loren-for-groundbreaking-token2049-party-in-singapore/20246820)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-and-loren-to-deliver-unforgettable-party-experience-at-token2049)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-and-loren-to-deliver-unforgettable-party-experience-at-token2049)
+ 
 
 
 

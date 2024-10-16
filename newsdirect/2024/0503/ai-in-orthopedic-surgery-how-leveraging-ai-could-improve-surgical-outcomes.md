@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ai-in-orthope
 [Original/Source Press Release](https://newsdirect.com/news/ai-in-orthopedic-surgery-how-leveraging-ai-could-improve-surgical-outcomes-399772598)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-in-orthopedic-surgery-how-leveraging-ai-could-improve-surgical-outcomes/fab163b243f935482b0c3459369d83b6) 
+
+ 
 
 
 

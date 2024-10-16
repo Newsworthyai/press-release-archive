@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/early-cancer-
 [Original/Source Press Release](https://newsdirect.com/news/early-cancer-detection-saves-lives-this-biotech-has-a-promising-new-test-727980663)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mainz-biomed-cfo-talks-saving-lives-through-early-disease-detection/8d4a513067e0f470eb402497896c1cfc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/mainz-biomed-s-cfo-discusses-promising-advances-in-early-cancer-detection)
+
+Pickup - [fishervista.com](https://fishervista.com/en/promising-new-test-from-mainz-biomed-aims-to-revolutionize-early-cancer-detection/20246483)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/mainz-biomed-advances-early-cancer-detection-with-promising-genetic-tests/20246483)
+
+Pickup - [advos.io](https://advos.io/en/mainz-biomed-reveals-promising-data-for-early-cancer-detection/20246483)
+ 
 
 
 

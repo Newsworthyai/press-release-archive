@@ -7,7 +7,15 @@ WILMINGTON, NC, July 02, 2024 /24-7PressRelease/ -- Today the Internet has made 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512167/top-motivational-speaker-and-bestselling-author-rocky-romanella-on-how-to-become-a-world-class-organization)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rocky-romanella-s-guide-to-becoming-a-world-class-organization/98d4b6da8d21fb515b8cb3b611a807c8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/rocky-romanella-outlines-path-to-world-class-organizational-excellence/20244651)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/rocky-romanella-unveils-blueprint-for-building-world-class-organizations)
+
+Pickup - [advos.io](https://advos.io/en/rocky-romanella-shares-insights-on-building-a-world-class-organization/20244651)
+ 
 
 
 

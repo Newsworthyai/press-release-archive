@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/faron-pharmac
 [Original/Source Press Release](https://newsdirect.com/news/faron-pharmaceuticals-new-ceo-dr-juho-jalkanen-sets-bold-vision-for-2024-941503623)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/faron-pharmaceuticals-new-ceo-sets-bold-vision-for-2024/c9405ad5b999021c3e6287ae2fdb5af1) 
+
+ 
 
 
 

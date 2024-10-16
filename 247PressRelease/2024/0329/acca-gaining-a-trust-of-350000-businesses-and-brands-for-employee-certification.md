@@ -7,7 +7,11 @@ DALLAS, TX, March 29, 2024 /24-7PressRelease/ -- American CPR Care Association, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509649/acca-gaining-a-trust-of-350000-businesses-and-brands-for-employee-certification)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-cpr-care-association-achieves-milestone-with-350000-business-trust/563ec9d95662819e7e3a1c6917a08b04) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/acca-reaches-milestone-of-certifying-350000-businesses-worldwide)
+ 
 
 
 

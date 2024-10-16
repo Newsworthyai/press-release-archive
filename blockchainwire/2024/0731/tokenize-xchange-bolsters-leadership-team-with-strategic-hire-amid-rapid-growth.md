@@ -29,7 +29,21 @@ For more information, visit https://tokenize.exchange/
 [Original/Source Press Release](https://blockchainwire.io/press-release/tokenize-xchange-bolsters-leadership-team-with-strategic-hire-amid-rapid-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tokenize-xchange-appoints-carney-mak-as-chief-strategy-officer-to-drive-ambitious-growth-plans/8f059594e07a59b7fb548aa42c7e9984) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/tokenize-xchange-appoints-carney-mak-as-chief-strategy-officer-amid-expansion)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tokenize-xchange-strengthens-leadership-with-key-strategic-appointment-amid-expansion/20245393)
+
+Pickup - [advos.io](https://advos.io/en/tokenize-xchange-appoints-carney-mak-as-chief-strategy-officer-amid-expansion/20245393)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tokenize-xchange-appoints-carney-mak-as-chief-strategy-officer-to-drive-ambitious-growth-plans)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tokenize-xchange-appoints-carney-mak-as-chief-strategy-officer-to-drive-ambitious-growth-plans)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/tokenize-xchange-appoints-carney-mak-as-chief-strategy-officer-amid-expansion)
+ 
 
 
 

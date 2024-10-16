@@ -27,7 +27,11 @@ Website | X | Github | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/pepecash-emerges-as-an-enhanced-pepe-token-experiencing-unprecedented-100x-growth-in-inaugural-trading-day)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pepecash-emerges-as-enhanced-pepe-token-surges-100x-in-inaugural-trading-day/1ee4e155e546f157bfb78f12c79fe65a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/pepecash-redefines-digital-finance-with-meme-culture-integration)
+ 
 
 
 

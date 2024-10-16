@@ -7,7 +7,9 @@ OTTAWA, ON, May 12, 2024 /24-7PressRelease/ -- Aleen Inc. ("Aleen" or the "Compa
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510803/aleen-makes-early-health-pre-screening-available-to-everyone)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aleen-inc-launches-innovative-ai-platform-for-early-health-pre-screening/e2fd20f4a578452bae41d728352b1de8) 
+
+ 
 
 
 

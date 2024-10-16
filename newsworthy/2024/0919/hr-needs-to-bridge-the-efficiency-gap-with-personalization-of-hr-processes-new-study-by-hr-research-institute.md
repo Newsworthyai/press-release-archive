@@ -29,7 +29,9 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202409191270/hr-needs-to-bridge-the-efficiency-gap-with-personalization-of-hr-processes-new-study-by-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-study-reveals-disconnect-in-hr-personalization/79e1286aae70ff233557a1dbc02a3e79) 
+
+ 
 
 
 

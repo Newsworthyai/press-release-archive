@@ -31,7 +31,21 @@ The lady behind "KABOSU" has decided to adopt a new dog named [NEIRO](https://ne
 [Original/Source Press Release](https://blockchainwire.io/press-release/neiro-a-meme-coin-will-be-initially-listed-on-coinw-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-list-neiro-launches-neiro-bounty-program-with-5000-usdt-reward-pool/ac4c5739ac2a243cabdffcf76f0f14a4) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-to-list-neiro-launches-neiro-bounty-program-with-5000-usdt-reward-pool)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-to-list-neiro-launches-neiro-bounty-program-with-5000-usdt-reward-pool)
+
+Pickup - [fishervista.com](https://fishervista.com/en/neiro-meme-coin-to-debut-on-coinw-exchange-with-exciting-bounty-program/20245315)
+
+Pickup - [advos.io](https://advos.io/en/neiro-meme-coin-to-debut-on-coinw-exchange/20245315)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/neiro-meme-coin-to-launch-on-coinw-exchange-riding-wave-of-community-enthusiasm)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/neiro-meme-coin-gains-traction-set-for-coinw-exchange-listing)
+ 
 
 
 

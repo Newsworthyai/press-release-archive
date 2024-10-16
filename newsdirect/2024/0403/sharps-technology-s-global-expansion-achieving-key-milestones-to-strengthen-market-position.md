@@ -57,7 +57,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/sharps-techno
 [Original/Source Press Release](https://newsdirect.com/news/sharps-technologys-global-expansion-achieving-key-milestones-to-strengthen-market-position-713059693)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sharps-technology-and-roncadelle-operations-collaborate-to-transform-drug-delivery-systems-worldwide/09f04019dd8d8783b8815f7d7e0fe686) 
+
+ 
 
 
 

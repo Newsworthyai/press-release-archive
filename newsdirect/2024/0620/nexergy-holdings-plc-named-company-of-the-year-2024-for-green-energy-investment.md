@@ -89,7 +89,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/nexergy-holdi
 [Original/Source Press Release](https://newsdirect.com/news/nexergy-holdings-plc-named-company-of-the-year-2024-for-green-energy-investment-647514092)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nexergy-holdings-plc-named-company-of-the-year-2024-for-green-energy-investment/a4842ccf21f6f62e3a9ac82089fb59dd) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/nexergy-holdings-plc-awarded-company-of-the-year-2024-for-green-energy-investment/20244342)
+
+Pickup - [advos.io](https://advos.io/en/nexergy-holdings-plc-honored-as-company-of-the-year-2024-for-green-energy-investment/20244342)
+ 
 
 
 

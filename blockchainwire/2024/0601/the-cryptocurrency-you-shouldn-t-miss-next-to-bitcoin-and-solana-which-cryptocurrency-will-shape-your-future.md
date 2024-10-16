@@ -45,7 +45,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-cryptocurrency-you-shouldnt-miss-next-to-bitcoin-and-solana-which-cryptocurrency-will-shape-your-future)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solana-on-the-rise-poised-to-break-170-and-target-200/71cfef829c5fb6d1620506f5787b3cdd) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/solana-on-the-rise-poised-to-break-170-and-target-200)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/solana-on-the-rise-poised-to-break-170-and-target-200)
+ 
 
 
 

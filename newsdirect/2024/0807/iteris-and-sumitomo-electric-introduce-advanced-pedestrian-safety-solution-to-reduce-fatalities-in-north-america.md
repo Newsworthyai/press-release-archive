@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/iteris-and-su
 [Original/Source Press Release](https://newsdirect.com/news/iteris-and-sumitomo-electric-introduce-advanced-pedestrian-safety-solution-to-reduce-fatalities-in-north-america-512374998)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iteris-and-sumitomo-electric-introduce-advanced-pedestrian-safety-solution-to-reduce-fatalities/3dcc783bde21d2bcb0cd0ed4200c80b9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/iteris-partners-with-sumitomo-electric-to-enhance-pedestrian-safety-in-north-america)
+
+Pickup - [fishervista.com](https://fishervista.com/en/iteris-and-sumitomo-electric-launch-advanced-pedestrian-safety-solution-to-curb-fatalities-in-north-america/20245550)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/iteris-partners-with-sumitomo-electric-to-enhance-pedestrian-safety-in-the-u-s)
+
+Pickup - [advos.io](https://advos.io/en/iteris-and-sumitomo-electric-launch-advanced-pedestrian-safety-solution-to-reduce-fatalities-in-north-america/20245550)
+ 
 
 
 

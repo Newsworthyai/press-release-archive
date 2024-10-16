@@ -7,7 +7,9 @@ SCHENECTADY, NY, September 27, 2024 /24-7PressRelease/ -- Several incidents have
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514713/another-choice-for-schenectady-students-and-families-urban-collegiate-academy-charter-school)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/schenectady-school-safety-concerns-prompt-new-charter-school-initiative/d518bb314946a4a27f14b3f6a43b1fec) 
+
+ 
 
 
 

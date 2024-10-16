@@ -52,7 +52,9 @@ Visit Our Website
 [Original/Source Press Release](https://newsroom.prkarma.com/hsr/news_release/1577)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zero-waste-construction-certification-sets-new-sustainable-benchmark/ce6bbbac55f5c36eb3b7d499f50bf15d) 
+
+ 
 
 
 

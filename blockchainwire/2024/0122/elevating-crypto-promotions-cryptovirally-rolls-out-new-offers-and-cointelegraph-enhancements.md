@@ -21,7 +21,11 @@ For more information on these transformative services and limited-time offers, v
 [Original/Source Press Release](https://blockchainwire.io/press-release/elevating-crypto-promotions-cryptovirally-rolls-out-new-offers-and-cointelegraph-enhancements)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptovirally-revolutionizes-crypto-marketing-with-new-range-of-services-and-limited-time-offers/885ddf8325270ae7c55fc878cb25336a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/22/cryptovirally-unveils-innovative-crypto-marketing-solutions-and-cointelegraph-enhancements)
+ 
 
 
 

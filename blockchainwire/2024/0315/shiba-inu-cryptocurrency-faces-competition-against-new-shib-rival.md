@@ -47,7 +47,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/shiba-inu-cryptocurrency-faces-competition-against-new-shib-rival)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiba-inu-shib-vs-shiba-budz-budz-the-battle-for-meme-coin-supremacy/9f304a6b7f85345d4c1329a3cc0f708e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/shiba-budz-emerges-as-a-formidable-rival-to-shiba-inu-in-the-meme-coin-arena)
+ 
 
 
 

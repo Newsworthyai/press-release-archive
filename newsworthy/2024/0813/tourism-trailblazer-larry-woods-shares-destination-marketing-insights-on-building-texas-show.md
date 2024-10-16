@@ -32,7 +32,17 @@ YouTube: The Building Texas Show: Texas Tourism with Larry Woods
 [Original/Source Press Release](https://newsworthy.ai/news/202408131232/the-building-texas-show-a-leader-in-the-texas-media-landscape-recently-featured-larry-woods-director-of-visit-boerne-and-chairman-of-the-texas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/larry-woods-shares-insights-on-texas-tourism-future-at-building-texas-show/6475febc5478fff98b422af56d691e72) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/texas-tourism-expert-larry-woods-shares-insights-on-destination-marketing)
+
+Pickup - [fishervista.com](https://fishervista.com/en/larry-woods-shares-expert-insights-on-texas-tourism-marketing/20245688)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/tourism-expert-larry-woods-shares-destination-marketing-strategies-on-building-texas-show/20245688)
+
+Pickup - [advos.io](https://advos.io/en/larry-woods-shares-insights-on-texas-tourism-on-building-texas-show/20245688)
+ 
 
 
 

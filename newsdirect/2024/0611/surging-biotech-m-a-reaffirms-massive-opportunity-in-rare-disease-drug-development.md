@@ -81,7 +81,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/surging-biote
 [Original/Source Press Release](https://newsdirect.com/news/surging-biotech-manda-reaffirms-massive-opportunity-in-rare-disease-drug-development-381093280)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/surging-biotech-m-a-reaffirms-massive-opportunity-in-rare-disease-drug-development/58fb4957acef0622bcefd520f9c22f18) 
+
+
+Pickup - [advos.io](https://advos.io/en/surging-biotech-m-a-highlights-massive-opportunity-in-rare-disease-drug-development/20244022)
+ 
 
 
 

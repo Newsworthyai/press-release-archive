@@ -85,7 +85,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/who-wins-and-
 [Original/Source Press Release](https://newsdirect.com/news/who-wins-and-who-loses-when-the-bank-of-canada-lowers-its-interest-rates-465248539)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bank-of-canada-lowers-interest-rate-winners-and-losers-revealed/8337d18ec22d7a28b1394d9d03c98742) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/implications-of-the-bank-of-canadas-interest-rate-cut/20244553)
+
+Pickup - [advos.io](https://advos.io/en/impact-of-bank-of-canadas-interest-rate-cut-on-canadians/20244553)
+ 
 
 
 

@@ -81,7 +81,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/looking-to-di
 [Original/Source Press Release](https://newsdirect.com/news/looking-to-diversify-and-increase-potential-gains-through-small-cap-investing-this-actively-managed-etf-might-have-what-youre-looking-for-447712245)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/why-investors-should-consider-adding-small-caps-to-their-portfolios/e45ea34f2375b6ff53761a4db953a81c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/alphamark-actively-managed-small-cap-etf-offers-diversification-and-high-returns/20244321)
+
+Pickup - [advos.io](https://advos.io/en/alphamark-actively-managed-small-cap-etf-a-diversification-opportunity/20244321)
+ 
 
 
 

@@ -7,7 +7,11 @@ CORVALLIS, OR, March 27, 2024 /24-7PressRelease/ -- In the recovery journey, eve
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509556/how-clothing-choices-can-boost-self-esteem-in-recovery)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boosting-confidence-through-clothing-choices-in-recovery/86d332750ef1de312c023962770636d0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/clothing-as-a-canvas-for-self-expression-in-recovery)
+ 
 
 
 

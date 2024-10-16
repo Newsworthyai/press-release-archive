@@ -33,7 +33,21 @@ About KabosuMama
 [Original/Source Press Release](https://blockchainwire.io/press-release/fuku-a-meme-coin-will-be-initially-listed-on-coinw-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-list-fuku-token-on-meme-zone-with-5000-usdt-reward-pool/987137a064d5ae3394e438fc68ab9af0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/coinw-exchange-to-list-fuku-meme-token-inspired-by-doge-s-family)
+
+Pickup - [fishervista.com](https://fishervista.com/en/fuku-meme-coin-to-debut-on-coinw-exchange/20245621)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/coinw-exchange-to-list-fuku-meme-coin-inspired-by-doge-s-owner-s-new-puppy/20245621)
+
+Pickup - [advos.io](https://advos.io/en/fuku-meme-coin-to-debut-on-coinw-exchange/20245621)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-to-list-fuku-token-on-meme-zone-with-5000-usdt-reward-pool)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-to-list-fuku-token-on-meme-zone-with-5000-usdt-reward-pool)
+ 
 
 
 

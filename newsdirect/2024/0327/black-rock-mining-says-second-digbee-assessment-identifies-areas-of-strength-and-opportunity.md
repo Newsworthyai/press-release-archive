@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/black-rock-mi
 [Original/Source Press Release](https://newsdirect.com/news/black-rock-mining-says-second-digbee-assessment-identifies-areas-of-strength-and-opportunity-194472982)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/black-rock-mining-s-second-digbee-assessment-reveals-areas-of-strength-and-opportunity/37bdeaa8b7c748a2b24a88e9afb1f4e6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/black-rock-mining-s-sustainability-journey-gains-momentum-with-digbee-assessment)
+ 
 
 
 

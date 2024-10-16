@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/pan-african-r
 [Original/Source Press Release](https://newsdirect.com/news/pan-african-resources-ceo-provides-upbeat-outlook-amid-high-gold-prices-436689973)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pan-african-resources-ceo-optimistic-amid-high-gold-prices/5f16f6d98804d7271587e7a8c27d3ae8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/pan-african-resources-ceo-provides-upbeat-outlook-amid-high-gold-prices)
+ 
 
 
 

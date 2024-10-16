@@ -7,7 +7,13 @@ NEW YORK, NY, June 26, 2024 /24-7PressRelease/ -- In 2022, MOGABI AMT INC succes
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511995/mogabi-v3-electric-guitar-one-man-band-capable-launches-on-kickstarter)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mogabi-amt-inc-to-launch-mogabi-v3-electric-guitar-on-kickstarter/bcc45b8d094b70b4f113b8f6a8b396b3) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/mogabi-v3-electric-guitar-launches-on-kickstarter-promises-enhanced-sound-quality-and-portability/20244473)
+
+Pickup - [advos.io](https://advos.io/en/mogabi-v3-electric-guitar-launches-on-kickstarter-offers-enhanced-features-and-portability/20244473)
+ 
 
 
 

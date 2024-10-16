@@ -58,7 +58,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/medcognetics-
 [Original/Source Press Release](https://newsdirect.com/news/medcognetics-introduces-the-first-embedded-ai-cancer-detection-system-for-mammography-imaging-528352296)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/medcognetics-introduces-the-first-embedded-ai-cancer-detection-system-for-mammography-imaging/5ca9599d92d9fc5db5462a068b6ffa08) 
+
+ 
 
 
 

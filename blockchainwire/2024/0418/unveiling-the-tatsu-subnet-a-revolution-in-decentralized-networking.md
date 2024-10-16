@@ -37,7 +37,9 @@ Website- https://tatsuecosystem.io/
 [Original/Source Press Release](https://blockchainwire.io/press-release/unveiling-the-tasu-subnet-a-revolution-in-decentralized-networking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ta-su-redefines-decentralized-applications-and-artificial-intelligence-with-bittensor-network/d5e716b047ff49767ca76a541edb7e9c) 
+
+ 
 
 
 

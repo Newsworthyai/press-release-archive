@@ -52,7 +52,9 @@
 [Original/Source Press Release](https://www.newmediawire.com/news/target-bp-initiative-helps-more-than-9m-americans-with-hypertension-7076169)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-heart-association-and-american-medical-association-recognize-health-care-organizations-for-hypertension-control-efforts/fed44e70ea20260f4c6c7b33ee3a6ad7) 
+
+ 
 
 
 

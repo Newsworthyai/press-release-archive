@@ -11,7 +11,11 @@ Toobit, a leading global digital trading platform built by former core members o
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-anticipated-to-hit-70000-following-2024-halving-event-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-surges-after-etf-approval-toobit-predicts-70000-value-at-halving/403888fbf985754f3a4a0561a7a29bd1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/27/bitcoin-s-halving-event-could-propel-price-to-70000-in-2024)
+ 
 
 
 

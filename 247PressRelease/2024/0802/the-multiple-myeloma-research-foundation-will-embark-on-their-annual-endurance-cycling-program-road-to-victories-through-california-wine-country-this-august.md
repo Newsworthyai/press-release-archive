@@ -7,7 +7,17 @@ NORWALK, CT, August 02, 2024 /24-7PressRelease/ -- On August 24, the Multiple My
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513051/the-multiple-myeloma-research-foundation-will-embark-on-their-annual-endurance-cycling-program-road-to-victories-through-california-wine-country-this-august)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mmrf-launches-annual-road-to-victories-cycling-program-with-johnson-johnson-support/68c921496bd95517f3487295a9b89348) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/multiple-myeloma-research-foundation-launches-8th-annual-road-to-victories-cycling-event)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mmrf-s-annual-road-to-victories-cycling-program-to-ride-through-california-wine-country/20245453)
+
+Pickup - [advos.io](https://advos.io/en/mmrf-s-road-to-victories-cycling-event-aims-to-accelerate-myeloma-cure/20245453)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/multiple-myeloma-research-foundation-launches-annual-cycling-fundraiser-in-california-wine-country)
+ 
 
 
 

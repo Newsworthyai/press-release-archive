@@ -17,7 +17,9 @@ The Infusionist is a trailblazing destination for transformative healing in Tyle
 [Original/Source Press Release](https://newsworthy.ai/news/20231228946/leading-mental-health-provider-in-texas-offers-innovative-ketamine-therapy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-infusionist-revolutionizes-mental-health-treatment-with-ketamine-therapy-and-iv-therapy/589700e16a6585eaac988062525127d1) 
+
+ 
 
 
 

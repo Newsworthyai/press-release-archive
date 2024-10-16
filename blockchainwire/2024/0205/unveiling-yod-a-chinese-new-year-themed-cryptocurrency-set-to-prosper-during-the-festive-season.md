@@ -43,7 +43,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/unveiling-yod-a-chinese-new-year-themed-cryptocurrency-set-to-prosper-during-the-festive-season)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/year-of-the-dragon-yod-cryptocurrency-meme-token-celebrates-chinese-new-year/f3d2ff3c872c742e0d307d7c1f280765) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/05/year-of-the-dragon-cryptocurrency-ushers-in-prosperity-and-cultural-celebration)
+ 
 
 
 

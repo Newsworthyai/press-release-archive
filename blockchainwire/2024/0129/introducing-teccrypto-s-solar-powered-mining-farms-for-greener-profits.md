@@ -53,7 +53,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-teccryptos-solar-powered-mining-farms-for-greener-profits)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teccrypto-introduces-solar-powered-mining-farms-for-sustainable-and-profitable-cloud-mining/4851e5f2efd66d04106b06cc8bb73099) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/29/teccrypto-pioneers-solar-powered-mining-farms-for-sustainable-profits)
+ 
 
 
 

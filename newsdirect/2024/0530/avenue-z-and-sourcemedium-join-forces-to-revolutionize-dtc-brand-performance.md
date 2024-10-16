@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/avenue-z-and-
 [Original/Source Press Release](https://newsdirect.com/news/avenue-z-and-sourcemedium-join-forces-to-revolutionize-dtc-brand-performance-808586251)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avenue-z-and-sourcemedium-revolutionize-dtc-brand-performance-with-new-convergence-dashboard-and-data-analytics-solution/d3259309961b7ff4d28d916583424094) 
+
+ 
 
 
 

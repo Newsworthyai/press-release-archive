@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/callan-family
 [Original/Source Press Release](https://newsdirect.com/news/callan-family-office-named-a-finalist-in-three-categories-at-the-eleventh-annual-family-wealth-report-awards-2024-378564236)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/callan-family-office-named-finalist-in-three-categories-at-family-wealth-report-awards/c0f6708be8e14627450999866a8c79b4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/callan-family-office-recognized-for-excellence-in-multiple-categories)
+ 
 
 
 

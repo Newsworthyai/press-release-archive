@@ -25,7 +25,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/fintech360-launches-cross-device-trading-solutions-to-meet-growing-mobile-demand-in-fintech-industry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fintech360-launches-new-cross-device-trading-solutions-for-forex-brokers/52dee8f233a51a5faeb4106a1b49c1e9) 
+
+ 
 
 
 

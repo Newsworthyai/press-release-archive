@@ -35,7 +35,11 @@ WEMADE aims to accelerate the mass adoption of blockchain technology, and is bui
 [Original/Source Press Release](https://blockchainwire.io/press-release/una-messenger-the-omnichain-communication-platform-for-a-truly-unbound-universal-blockchain-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemix-foundation-introduces-una-messenger-for-seamless-blockchain-communication-and-asset-swaps/832e114e099ad1242746a482bf424dd3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/16/una-messenger-the-omnichain-communication-hub-for-a-boundless-blockchain-ecosystem)
+ 
 
 
 

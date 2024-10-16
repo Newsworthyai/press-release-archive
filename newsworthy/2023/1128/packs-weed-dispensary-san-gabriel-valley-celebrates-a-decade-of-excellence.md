@@ -25,7 +25,9 @@ For more information about PACKS Weed Dispensary and their diverse product offer
 [Original/Source Press Release](https://newsworthy.ai/news/20231128900/packs-weed-dispensary-san-gabriel-valley-celebrates-a-decade-of-excellence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/packs-weed-dispensary-leading-the-way-in-san-gabriel-valley-s-cannabis-industry/cc7156b07e8161f309c21c9fe11828e1) 
+
+ 
 
 
 

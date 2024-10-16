@@ -7,7 +7,17 @@ LODI, CA, August 07, 2024 /24-7PressRelease/ -- Peirano Estate Winery is thrille
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513142/peirano-estate-winery-celebrates-double-gold-and-93-points-at-orange-county-fair-commercial-wine-competition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peirano-estate-winery-s-2022-winemaker-s-selection-red-blend-wins-double-gold-at-orange-county-fair-commercial-wine-competition/ab05547afde5f39a22cb70df3f51c905) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/peirano-estate-winery-s-2022-red-blend-wins-double-gold-at-orange-county-fair)
+
+Pickup - [fishervista.com](https://fishervista.com/en/peirano-estate-winery-s-2022-red-blend-wins-double-gold-at-orange-county-fair/20245546)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/peirano-estate-winery-s-2022-red-blend-wins-double-gold-at-orange-county-fair)
+
+Pickup - [advos.io](https://advos.io/en/peirano-estate-winery-s-2022-red-blend-wins-double-gold-at-orange-county-fair/20245546)
+ 
 
 
 

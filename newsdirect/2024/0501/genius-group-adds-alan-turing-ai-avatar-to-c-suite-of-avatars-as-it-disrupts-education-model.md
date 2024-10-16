@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/genius-group-
 [Original/Source Press Release](https://newsdirect.com/news/genius-group-adds-alan-turing-ai-avatar-to-c-suite-of-avatars-as-it-disrupts-education-model-397008965)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/genius-group-adds-alan-turing-ai-avatar-to-c-suite-as-it-disrupts-education-model/4be0968b14387962e81c0438bfc37d75) 
+
+ 
 
 
 

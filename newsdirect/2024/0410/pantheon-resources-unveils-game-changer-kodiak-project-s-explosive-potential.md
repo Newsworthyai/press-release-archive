@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/pantheon-reso
 [Original/Source Press Release](https://newsdirect.com/news/pantheon-resources-unveils-game-changer-kodiak-projects-explosive-potential-484518896)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pantheon-resources-unveils-game-changer-kodiak-project-s-explosive-potential/25b2808fb727b4f55fc603984f8b39d1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/pantheon-resources-unveils-major-potential-in-kodiak-project)
+ 
 
 
 

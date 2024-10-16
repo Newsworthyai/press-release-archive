@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/alderan-set-t
 [Original/Source Press Release](https://newsdirect.com/news/alderan-set-to-drill-at-new-years-prospect-after-3d-modelling-results-692442490)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alderan-resources-to-drill-at-new-years-prospect-after-3d-modelling-results/9c4ddcdb540b14259f485d399eab63d8) 
+
+ 
 
 
 

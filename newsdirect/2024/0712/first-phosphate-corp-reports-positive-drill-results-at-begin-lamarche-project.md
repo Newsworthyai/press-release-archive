@@ -19,7 +19,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/first-phospha
 [Original/Source Press Release](https://newsdirect.com/news/first-phosphate-corp-reports-positive-drill-results-at-begin-lamarche-project-964015861)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/first-phosphate-corp-reports-positive-drill-results-at-begin-lamarche-project/cc36212c1e8ea9dc193ea853c3bf80ef) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/first-phosphate-corp-s-begin-lamarche-project-shows-promising-drill-results)
+
+Pickup - [fishervista.com](https://fishervista.com/en/first-phosphate-corp-announces-promising-drill-results-at-begin-lamarche-project/20244925)
+
+Pickup - [advos.io](https://advos.io/en/first-phosphate-corp-announces-promising-drill-results-at-begin-lamarche-project/20244925)
+ 
 
 
 

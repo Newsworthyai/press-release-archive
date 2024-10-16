@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/pathai-and-as
 [Original/Source Press Release](https://newsdirect.com/news/pathai-and-aster-insights-partner-to-deliver-combined-ai-derived-structured-pathology-and-multimodal-real-world-data-solutions-509145431)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pathai-and-aster-insights-partner-to-deliver-combined-ai-derived-structured-pathology-and-multimodal-real-world-data-solutions/51581e107e6820fd877db6292bbf0cd2) 
+
+ 
 
 
 

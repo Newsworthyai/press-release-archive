@@ -31,7 +31,9 @@ Media Contact:Robert Smith[https://furrevertoken.com/](https://furrevertoken.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/furrever-token-furr-shines-with-10000-reward-competition-amid-bitcoin-btc-and-ethereum-eth-recovery-efforts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-and-ethereum-strive-for-recovery-as-furrever-token-offers-10k-rewards/fd531d21b0ccf912c037648b4cf0fd2e) 
+
+ 
 
 
 

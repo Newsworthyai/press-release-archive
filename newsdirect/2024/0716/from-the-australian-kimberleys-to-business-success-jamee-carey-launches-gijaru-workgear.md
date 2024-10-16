@@ -47,7 +47,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/from-the-aust
 [Original/Source Press Release](https://newsdirect.com/news/from-the-australian-kimberleys-to-business-success-jamee-carey-launches-gijaru-workgear-650277202)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/indigenous-entrepreneur-jamee-carey-launches-gijaru-workgear/a62a868bd785f077f6e38c1046f2597e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/indigenous-entrepreneur-launches-gijaru-workgear-bridging-culture-and-industry)
+
+Pickup - [fishervista.com](https://fishervista.com/en/jamee-carey-launches-gijaru-workgear-bridging-indigenous-culture-and-modern-work-environments/20244985)
+
+Pickup - [advos.io](https://advos.io/en/jamee-carey-launches-gijaru-workgear-to-empower-indigenous-workforce/20244985)
+ 
 
 
 

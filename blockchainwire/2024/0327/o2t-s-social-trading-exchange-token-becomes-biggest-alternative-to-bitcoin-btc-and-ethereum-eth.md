@@ -41,7 +41,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/o2ts-social-trading-exchange-token-becomes-biggest-alternative-to-bitcoin-btc-and-ethereum-eth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/option2trade-o2t-the-rising-challenger-to-bitcoin-and-ethereum/d1e2fbe90e534dca5057134d8eaf3bb1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/option2trade-s-social-trading-platform-emerges-as-a-formidable-contender)
+ 
 
 
 

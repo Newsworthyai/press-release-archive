@@ -79,7 +79,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-diverse-h
 [Original/Source Press Release](https://newsdirect.com/news/the-diverse-holdings-of-the-industrial-etf-xli-633234056)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/discover-the-diverse-holdings-of-the-industrial-etf-xli/52b50643a552d157f7e1a3c50e3601c4) 
+
+
+Pickup - [advos.io](https://advos.io/en/diverse-holdings-of-industrial-etf-xli-provide-robust-investment-opportunities/20244066)
+ 
 
 
 

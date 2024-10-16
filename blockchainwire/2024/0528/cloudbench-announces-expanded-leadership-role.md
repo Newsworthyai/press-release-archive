@@ -15,7 +15,9 @@ About CloudbenchCloudbench is at the forefront of value-driven emerging technolo
 [Original/Source Press Release](https://blockchainwire.io/press-release/cloudbench-announces-expanded-leadership-role)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloudbench-appoints-sameh-ibrahim-as-chief-channel-and-revenue-officer/ef1180502026528d9ad680c9ffb06a05) 
+
+ 
 
 
 

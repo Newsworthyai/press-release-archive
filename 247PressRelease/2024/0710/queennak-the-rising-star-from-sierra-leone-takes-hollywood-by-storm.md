@@ -7,7 +7,15 @@ LOS ANGELES, CA, July 10, 2024 /24-7PressRelease/ -- With her multifaceted talen
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512360/queennak-the-rising-star-from-sierra-leone-takes-hollywood-by-storm)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/queennak-a-multifaceted-talent-making-waves-in-entertainment-and-philanthropy/5406761cb53c303e297e7628b3433b1b) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/queennak-a-multifaceted-talent-from-sierra-leone-shaping-hollywood-and-beyond/20244815)
+
+Pickup - [advos.io](https://advos.io/en/queennak-the-rising-star-from-sierra-leone-takes-hollywood-by-storm/20244815)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/sierra-leonean-artist-queennak-makes-waves-in-hollywood-with-multifaceted-career)
+ 
 
 
 

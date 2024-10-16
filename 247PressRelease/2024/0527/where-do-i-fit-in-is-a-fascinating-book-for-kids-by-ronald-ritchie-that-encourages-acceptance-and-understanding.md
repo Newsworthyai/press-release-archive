@@ -7,7 +7,9 @@ KINGWOOD, TX, May 27, 2024 /24-7PressRelease/ -- New children's book author Rona
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511176/where-do-i-fit-in-is-a-fascinating-book-for-kids-by-ronald-ritchie-that-encourages-acceptance-and-understanding)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-children-s-book-where-do-i-fit-in-promotes-acceptance-and-empathy/a0c14859a751e2feb7a675e57c7d83c1) 
+
+ 
 
 
 

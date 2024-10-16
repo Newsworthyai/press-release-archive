@@ -7,7 +7,11 @@ AMSTERDAM and PARIS, March 19, 2024 /24-7PressRelease/ -- Today marks a pivotal 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509340/hiber-acquires-srett-industrie)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hiber-acquires-srett-industrie-expanding-iot-solutions-for-energy-industry/416ee2a8c265ebc5483e98a6cb92cb48) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/hiber-acquires-srett-industrie-expanding-iot-solutions-for-energy-industry)
+ 
 
 
 

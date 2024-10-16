@@ -7,7 +7,17 @@ VANCOUVER, BC, August 19, 2024 /24-7PressRelease/ -- As the cost of prescription
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513590/cut-prescription-costs-how-saverxcanadato-helps-americans-access-affordable-prescription-medications)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/saverxcanada-to-bridging-the-gap-in-healthcare-accessibility/e7e4f1eb709359f8d9e89f956b39e68a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/saverxcanada-to-a-lifeline-for-americans-struggling-with-high-prescription-costs)
+
+Pickup - [fishervista.com](https://fishervista.com/en/saverxcanada-to-provides-affordable-prescription-medications-for-americans/20245848)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/saverxcanada-to-offers-americans-affordable-access-to-prescription-medications/20245848)
+
+Pickup - [advos.io](https://advos.io/en/saverxcanada-to-offers-relief-from-high-u-s-prescription-costs/20245848)
+ 
 
 
 

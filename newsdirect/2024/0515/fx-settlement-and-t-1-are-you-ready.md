@@ -71,7 +71,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/fx-settlement
 [Original/Source Press Release](https://newsdirect.com/news/fx-settlement-and-t-1-are-you-ready-378427920)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fx-settlement-and-t-1-are-you-ready/7e55dea276ac7c9e56ae59ec355eae44) 
+
+ 
 
 
 

@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/sunglass-hut-
 [Original/Source Press Release](https://newsdirect.com/news/sunglass-hut-hosts-shopping-experience-at-georgetown-d-c-store-in-celebration-of-homecoming-season-853658734)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sunglass-hut-hosts-exclusive-shopping-event-in-celebration-of-homecoming-season/1c17625f5370c890e06df497d3b6bc9d) 
+
+ 
 
 
 

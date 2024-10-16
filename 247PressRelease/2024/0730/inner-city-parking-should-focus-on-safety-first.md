@@ -7,7 +7,17 @@ HALTOM CITY, TX, July 30, 2024 /24-7PressRelease/ -- The nonprofit group Strong 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510662/inner-city-parking-should-focus-on-safety-first)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/strong-towns-addresses-impact-of-parking-minimums-on-urban-schools/a24de65c38a5829a1da32db92da7d2ae) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/haltom-city-urged-to-eliminate-parking-mandates-for-urban-revitalization)
+
+Pickup - [fishervista.com](https://fishervista.com/en/advocacy-group-urges-focus-on-safety-and-redevelopment-in-urban-parking-policies/20245333)
+
+Pickup - [advos.io](https://advos.io/en/strong-towns-advocates-for-safety-centric-parking-reforms-in-urban-areas/20245333)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/haltom-city-urged-to-reconsider-parking-mandates-for-urban-revitalization)
+ 
 
 
 

@@ -25,7 +25,9 @@ This strategy effectively addresses the high volatility of the crypto market, de
 [Original/Source Press Release](https://blockchainwire.io/press-release/wbs-conducts-monthly-token-burning-exploring-the-ecosystem-layout-and-potential-of-websea)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/websea-exchange-completes-token-buyback-and-burn-reflecting-increased-trading-volume/903c20d97f48d5404e7ff8aa1d9caace) 
+
+ 
 
 
 

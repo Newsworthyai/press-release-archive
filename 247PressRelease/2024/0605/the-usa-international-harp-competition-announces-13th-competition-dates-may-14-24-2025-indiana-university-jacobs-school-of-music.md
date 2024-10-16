@@ -7,7 +7,11 @@ BLOOMINGTON, IN, June 05, 2024 /24-7PressRelease/ -- The USA International Harp 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511420/the-usa-international-harp-competition-announces-13th-competition-dates-may-14-24-2025-indiana-university-jacobs-school-of-music)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/usa-international-harp-competition-announces-dates-for-13th-competition-in-2025/a1b8db31d3b44b7c505db63936141db0) 
+
+
+Pickup - [advos.io](https://advos.io/en/usa-international-harp-competition-announces-dates-for-13th-edition-in-2025/20243826)
+ 
 
 
 

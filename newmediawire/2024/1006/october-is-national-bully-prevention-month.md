@@ -23,7 +23,9 @@
 [Original/Source Press Release](https://www.newmediawire.com/news/october-is-national-bully-prevention-month-7076163)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kato-karate-and-nickelodeon-s-michael-d-cohen-team-up-to-host-anti-bullying-seminar/d3f6da33e69d150e3a98bbaef36c7e49) 
+
+ 
 
 
 

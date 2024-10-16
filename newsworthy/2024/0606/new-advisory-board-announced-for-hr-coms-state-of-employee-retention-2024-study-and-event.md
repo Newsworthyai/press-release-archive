@@ -39,7 +39,11 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202406061188/new-advisory-board-announced-for-hr-coms-state-of-employee-retention-2024-study-and-event)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-announces-state-of-employee-retention-2024-advisory-board/3e710f09cc707741c10ed92eaa0f17ad) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-com-unveils-advisory-board-for-2024-employee-retention-study/20243907)
+ 
 
 
 

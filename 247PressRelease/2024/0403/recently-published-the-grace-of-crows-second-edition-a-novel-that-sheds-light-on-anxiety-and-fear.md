@@ -7,7 +7,11 @@ LOS ANGELES, CA, April 03, 2024 /24-7PressRelease/ -- "The Grace of Crows is not
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509770/recently-published-the-grace-of-crows-second-edition-a-novel-that-sheds-light-on-anxiety-and-fear)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-grace-of-crows-a-tale-of-healing-and-acceptance/08fdc5a0867d835fe2d552240d394b52) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/the-grace-of-crows-a-poignant-exploration-of-anxiety-and-healing)
+ 
 
 
 

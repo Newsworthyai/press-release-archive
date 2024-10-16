@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/gathering-of-
 [Original/Source Press Release](https://newsdirect.com/news/gathering-of-teams-htx-boosts-liquid-restaking-rewards-with-an-additional-20-000-empowering-team-play-106302932)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-liquid-restaking-boosts-staking-quota-to-100-million-with-team-rewards/bdc8067f7f8dcad9c4182ee943841614) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/htx-exchange-boosts-liquid-restaking-event-with-20000-team-rewards)
+ 
 
 
 

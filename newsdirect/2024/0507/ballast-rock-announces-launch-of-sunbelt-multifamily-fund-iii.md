@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ballast-rock-
 [Original/Source Press Release](https://newsdirect.com/news/ballast-rock-announces-launch-of-sunbelt-multifamily-fund-iii-667665155)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ballast-rock-launches-sunbelt-multifamily-fund-iii-lp/e45156c2aef1a9d34666d271cfaf3a25) 
+
+ 
 
 
 

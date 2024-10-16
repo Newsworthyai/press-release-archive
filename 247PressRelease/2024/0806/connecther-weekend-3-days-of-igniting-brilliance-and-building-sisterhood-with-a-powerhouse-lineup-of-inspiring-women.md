@@ -7,7 +7,17 @@ ATLANTA, GA, August 06, 2024 /24-7PressRelease/ -- ConnectHER Weekend is thrille
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513155/connecther-weekend-3-days-of-igniting-brilliance-and-building-sisterhood-with-a-powerhouse-lineup-of-inspiring-women)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/connecther-weekend-transformative-3-day-retreat-with-influential-speakers-in-atlanta-ga/a9a82c51d0bac0c622476e572bacfcfa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/connecther-weekend-empowering-women-s-retreat-set-for-august-in-atlanta)
+
+Pickup - [fishervista.com](https://fishervista.com/en/connecther-weekend-to-host-transformative-retreat-for-women-in-atlanta/20245509)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/connecther-weekend-empowering-women-s-retreat-set-for-august-16-18-in-atlanta)
+
+Pickup - [advos.io](https://advos.io/en/connecther-weekend-empowering-women-through-a-transformative-retreat/20245509)
+ 
 
 
 

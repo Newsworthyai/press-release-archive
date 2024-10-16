@@ -51,7 +51,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/f2hash-launches-advanced-crypto-mining-platform-transforming-home-based-bitcoin-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/f2hash-innovates-with-renewable-energy-integration-and-enhanced-mining-power-capacity/5fa3644c91570e5c174406226e3a779d) 
+
+
+Pickup - [advos.io](https://advos.io/en/f2hash-unveils-advanced-crypto-mining-platform-for-sustainable-and-profitable-bitcoin-mining/20244198)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/f2hash-innovates-with-renewable-energy-integration-and-enhanced-mining-power-capacity)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/f2hash-innovates-with-renewable-energy-integration-and-enhanced-mining-power-capacity)
+ 
 
 
 

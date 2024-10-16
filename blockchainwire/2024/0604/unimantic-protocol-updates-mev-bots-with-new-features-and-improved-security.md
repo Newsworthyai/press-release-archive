@@ -39,7 +39,13 @@ With the new update, Unimantic Protocol MEV bots become even more powerful tools
 [Original/Source Press Release](https://blockchainwire.io/press-release/unimantic-protocol-updates-mev-bots-with-new-features-and-improved-security)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unimantic-protocol-releases-enhanced-mev-bot-software-for-automated-trading/a6b5079c0d92c69e8d7b8c7a75474f08) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/unimantic-protocol-releases-enhanced-mev-bot-software-for-automated-trading)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/unimantic-protocol-releases-enhanced-mev-bot-software-for-automated-trading)
+ 
 
 
 

@@ -51,7 +51,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/option2trade-becomes-attractive-hong-kong-set-to-approve-first-spot-bitcoin-btc-etfs-alongside-ethereum-etfs-once-approved)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-nears-approval-of-bitcoin-and-ethereum-etfs-signaling-opportunities-for-option2trade-o2t-traders/94fec3dceae21ca580dc7e83914cdd17) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/hong-kong-set-to-approve-first-spot-bitcoin-btc-etf-s-alongside-ethereum-etf-s-once-approved)
+ 
 
 
 

@@ -7,7 +7,15 @@ HONG KONG, July 21, 2024 /24-7PressRelease/ -- OUDER (Hong Kong Wu Luyi Technolo
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512723/ouder-unveils-revolutionary-new-footwear-smile-vampire-leather-smile-phantom-canvas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ouder-launches-new-smile-vampire-leather-and-smile-phantom-canvas-shoes/ef7bf583c67cf93670408f6ae80ee371) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/21/ouder-launches-innovative-smile-vampire-leather-and-smile-phantom-canvas-shoes)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ouder-introduces-innovative-smile-vampire-leather-and-smile-phantom-canvas-footwear/20245130)
+
+Pickup - [advos.io](https://advos.io/en/ouder-launches-innovative-smile-vampire-leather-and-smile-phantom-canvas-footwear/20245130)
+ 
 
 
 

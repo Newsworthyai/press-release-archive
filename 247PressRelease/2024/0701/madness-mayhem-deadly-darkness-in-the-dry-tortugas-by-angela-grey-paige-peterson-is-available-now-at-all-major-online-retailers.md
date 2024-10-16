@@ -7,7 +7,15 @@ MINNEAPOLIS, MN, July 01, 2024 /24-7PressRelease/ -- Southwest Metro authors Ang
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512162/madness-mayhem-deadly-darkness-in-the-dry-tortugas-by-angela-grey-paige-peterson-is-available-now-at-all-major-online-retailers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-mystery-novel-madness-mayhem-deadly-darkness-in-the-dry-tortugas-released-by-angela-grey-and-paige-peterson/2b9ad52b1390921ed03edd3b9162714c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-mystery-novel-madness-mayhem-deadly-darkness-in-the-dry-tortugas-by-angela-grey-and-paige-peterson-released/20244662)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/01/mother-daughter-duo-release-thrilling-mystery-novel-set-in-dry-tortugas)
+
+Pickup - [advos.io](https://advos.io/en/new-mystery-novel-madness-mayhem-deadly-darkness-in-the-dry-tortugas-now-available/20244662)
+ 
 
 
 

@@ -31,7 +31,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-online-ca
 [Original/Source Press Release](https://newsdirect.com/news/new-online-casino-platform-aims-to-revolutionize-player-experience-with-instant-withdrawals-347975162)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-platform-instantcasinos-net-revolutionizes-online-gambling-experience-with-instant-withdrawals/f62ae6f57a194278df2b88a6e5eb8cd0) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-online-casino-platform-promises-instant-withdrawals-for-gamblers/20244756)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/instantcasinos-net-launches-to-address-online-gambling-withdrawal-delays)
+
+Pickup - [advos.io](https://advos.io/en/new-online-casino-platform-launches-with-focus-on-instant-withdrawals/20244756)
+ 
 
 
 

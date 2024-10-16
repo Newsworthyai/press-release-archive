@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/defi-kingdoms
 [Original/Source Press Release](https://newsdirect.com/news/defi-kingdoms-expands-its-empire-with-metis-l2-912840965)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defi-kingdoms-expands-its-empire-with-metis-l2/a3795595f23a97ef40a10c3287f7265d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/defi-kingdoms-expands-gaming-empire-to-metis-layer-2)
+ 
 
 
 

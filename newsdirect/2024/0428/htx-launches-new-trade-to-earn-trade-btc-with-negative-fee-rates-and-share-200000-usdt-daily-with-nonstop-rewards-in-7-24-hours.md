@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-launches-
 [Original/Source Press Release](https://newsdirect.com/news/htx-launches-new-trade-to-earn-trade-btc-with-negative-fee-rates-and-share-200-000-usdt-daily-with-nonstop-rewards-in-7-24-hours-891177631)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-launches-new-trade-to-earn-trade-btc-with-negative-fee-rates-and-share-200000-usdt-daily-with-nonstop-rewards-in-7-24-hours/9d4e288a9307511c2dbb3d1a5938ae4e) 
+
+ 
 
 
 

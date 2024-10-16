@@ -15,7 +15,9 @@ Limitless marked a significant milestone in their tokenization journey with a US
 [Original/Source Press Release](https://blockchainwire.io/press-release/salco-acquires-usd-9-million-of-limitless-gems---leveraging-everests-ecosystem-of-custody-tokenization--infrastructure)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/limitless-and-salco-mark-milestone-with-9m-token-sale-of-rwa-token-to-salco/68b13a7d60c132335dccd7574f08a470) 
+
+ 
 
 
 

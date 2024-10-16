@@ -35,7 +35,19 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/ixbroker-expands-into-asian-mena-and-south-american-markets-with-new-features-and-enhanced-security)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ixbroker-expands-into-asian-mena-and-south-american-markets-with-version-2-of-advanced-trading-platform/57d2f1274d5d4f38e1c2ce296fc9ef7e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/ixbroker-launches-global-expansion-with-enhanced-platform-and-security-features)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ixbroker-expands-into-asian-mena-and-south-american-markets-with-enhanced-trading-platform/20244923)
+
+Pickup - [advos.io](https://advos.io/en/ixbroker-expands-into-asian-mena-and-south-american-markets-with-enhanced-platform/20244923)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ixbroker-expands-into-asian-mena-and-south-american-markets-with-version-2-of-advanced-trading-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ixbroker-expands-into-asian-mena-and-south-american-markets-with-version-2-of-advanced-trading-platform)
+ 
 
 
 

@@ -7,7 +7,19 @@ MIAMI, FL, July 11, 2024 /24-7PressRelease/ -- From the early days of the DB Wea
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512402/db-wealth-institute-lazy-investor-system-by-cillian-miller)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/professor-cillian-miller-introduces-revolutionary-quantitative-trading-platform/d9196827ab95cb76af0a19801fb8d2e3) 
+
+
+Pickup - [advos.io](https://advos.io/en/db-wealth-institute-introduces-lazy-investor-system-by-professor-cillian-miller/20244850)
+
+Pickup - [fishervista.com](https://fishervista.com/en/db-wealth-institute-introduces-the-lazy-investor-system-by-cillian-miller/20244850)
+
+Pickup - [citybuzz.co](https://citybuzz.co/db-wealth-institute-unveils-revolutionary-lazy-investor-system-for-quantitative-trading)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/professor-cillian-miller-introduces-revolutionary-quantitative-trading-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/professor-cillian-miller-introduces-revolutionary-quantitative-trading-platform)
+ 
 
 
 

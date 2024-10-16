@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/xypn-marks-it
 [Original/Source Press Release](https://newsdirect.com/news/xypn-marks-its-10th-anniversary-amid-record-growth-270231178)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xy-planning-network-marks-10th-anniversary-amid-record-growth/5b818daa42afb857dd454264d9fb88d6) 
+
+ 
 
 
 

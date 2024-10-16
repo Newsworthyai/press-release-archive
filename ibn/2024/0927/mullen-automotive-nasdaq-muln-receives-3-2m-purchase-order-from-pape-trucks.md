@@ -25,7 +25,9 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-receives-3-2m-purchase-order-from-pape-trucks/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-secures-3-2m-ev-order-from-pape-trucks/28b0aa970f933a294f90c8873e66fc39) 
+
+ 
 
 
 

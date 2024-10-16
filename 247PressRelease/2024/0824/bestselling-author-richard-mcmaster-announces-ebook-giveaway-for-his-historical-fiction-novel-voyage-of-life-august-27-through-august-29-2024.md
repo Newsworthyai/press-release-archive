@@ -7,7 +7,17 @@ WILMINGTON, NC, August 24, 2024 /24-7PressRelease/ -- Bestselling author Richard
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513715/bestselling-author-richard-mcmaster-announces-ebook-giveaway-for-his-historical-fiction-novel-voyage-of-life-august-27-through-august-29-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-richard-mcmaster-announces-free-ebook-promotion-for-voyage-of-life-and-aaron-s-war/b9a72b4a317b761664053584be5ee0af) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/24/bestselling-author-richard-mcmaster-offers-free-ebook-of-voyage-of-life-for-limited-time)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bestselling-author-richard-mcmaster-announces-free-ebook-offer-for-voyage-of-life/20245958)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bestselling-author-richard-mcmaster-offers-free-ebook-of-voyage-of-life-for-limited-time/20245958)
+
+Pickup - [advos.io](https://advos.io/en/bestselling-author-richard-mcmaster-announces-free-ebook-giveaway-for-voyage-of-life/20245958)
+ 
 
 
 

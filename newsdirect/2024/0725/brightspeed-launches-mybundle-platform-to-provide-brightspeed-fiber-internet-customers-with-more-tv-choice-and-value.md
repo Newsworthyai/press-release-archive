@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/brightspeed-l
 [Original/Source Press Release](https://newsdirect.com/news/brightspeed-launches-mybundle-platform-to-provide-brightspeed-fiber-internet-customers-with-more-tv-choice-and-value-178718746)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mybundle-and-brightspeed-agreement-provides-more-tv-choice-and-value/19b6dc0191d2c2852c849b2a40b02aa6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/brightspeed-partners-with-mybundle-to-enhance-streaming-options-for-fiber-internet-customers)
+
+Pickup - [fishervista.com](https://fishervista.com/en/brightspeed-partners-with-mybundle-to-enhance-streaming-options-for-fiber-internet-customers/20245255)
+
+Pickup - [advos.io](https://advos.io/en/brightspeed-launches-mybundle-platform-to-enhance-streaming-experience-for-fiber-internet-customers/20245255)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/brightspeed-partners-with-mybundle-to-enhance-streaming-options-for-fiber-internet-customers)
+ 
 
 
 

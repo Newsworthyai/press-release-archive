@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/assiduus-acce
 [Original/Source Press Release](https://newsdirect.com/news/assiduus-accelerates-international-growth-expands-into-south-america-910046070)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/assiduus-expands-into-south-america-opening-new-opportunities-for-global-brands/72598d78d64e42acd5697eb56559344f) 
+
+
+Pickup - [advos.io](https://advos.io/en/assiduus-expands-into-south-america-tapping-booming-ecommerce-market/20243895)
+ 
 
 
 

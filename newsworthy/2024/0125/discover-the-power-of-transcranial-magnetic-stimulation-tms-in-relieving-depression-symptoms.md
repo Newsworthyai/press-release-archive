@@ -13,7 +13,11 @@ New Direction Functional Psychiatry in Lancaster offers TMS therapy, where a ded
 [Original/Source Press Release](https://newsworthy.ai/news/202401251032/discover-the-power-of-transcranial-magnetic-stimulation-tms-in-relieving-depression-symptoms)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-tms-therapy-offers-new-ray-of-hope-for-depression-sufferers/7bfd9e85f3680b3852771c1f31977388) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/25/transcranial-magnetic-stimulation-offers-new-hope-for-depression-relief)
+ 
 
 
 

@@ -45,7 +45,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/empower-federal-credit-union-joins-metal-blockchains-banking-innovation-program)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/empower-federal-credit-union-joins-metal-blockchain-s-banking-innovation-program/71c106dc560768bcdf733278444d30b7) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/empower-federal-credit-union-joins-metal-blockchain-s-banking-innovation-program)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/empower-federal-credit-union-joins-metal-blockchain-s-banking-innovation-program)
+ 
 
 
 

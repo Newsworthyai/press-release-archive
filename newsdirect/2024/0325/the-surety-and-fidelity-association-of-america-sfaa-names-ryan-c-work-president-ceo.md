@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-surety-an
 [Original/Source Press Release](https://newsdirect.com/news/the-surety-and-fidelity-association-of-america-sfaa-names-ryan-c-work-president-and-ceo-247429689)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sfaa-appoints-ryan-c-work-as-president-ceo/732b17703fe790f8efa8050d0c9ed18a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/surety-fidelity-association-of-america-appoints-new-president-ceo)
+ 
 
 
 

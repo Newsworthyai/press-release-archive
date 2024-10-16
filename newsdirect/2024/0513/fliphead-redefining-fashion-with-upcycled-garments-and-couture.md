@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/fliphead-rede
 [Original/Source Press Release](https://newsdirect.com/news/fliphead-redefining-fashion-with-upcycled-garments-and-couture-469788143)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fliphead-redefining-fashion-with-upcycled-garments-and-couture/6dfe18009402591d0386c05bc2753892) 
+
+ 
 
 
 

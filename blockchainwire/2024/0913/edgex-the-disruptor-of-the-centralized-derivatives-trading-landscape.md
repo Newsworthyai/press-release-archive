@@ -31,7 +31,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/edgex-the-disruptor-of-the-centralized-derivatives-trading-landscape)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amber-group-s-edgex-launches-decentralized-derivatives-trading-platform/294d87a67901d617074aa0c5d1a10dcc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/amber-group-s-edgex-launches-innovative-decentralized-derivatives-trading-platform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/edgex-launches-innovative-decentralized-derivatives-trading-platform/20246824)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/amber-group-s-edgex-launches-innovative-decentralized-derivatives-trading-platform/20246824)
+
+Pickup - [advos.io](https://advos.io/en/amber-group-launches-edgex-a-revolutionary-decentralized-derivatives-trading-platform/20246824)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/amber-group-s-edgex-launches-decentralized-derivatives-trading-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/amber-group-s-edgex-launches-decentralized-derivatives-trading-platform)
+ 
 
 
 

@@ -37,7 +37,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/ewyy-elevates-crypto-trading-experience-with-user-friendly-platform-and-strong-security----------)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ewyy-cryptocurrency-exchange-secure-diverse-and-accessible/6dacfc4b21ba49b59dc82773f68f6693) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ewyy-cryptocurrency-exchange-secure-diverse-and-accessible)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ewyy-cryptocurrency-exchange-secure-diverse-and-accessible)
+ 
 
 
 

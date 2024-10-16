@@ -43,7 +43,11 @@ Official Website | Telegram | Twitter | Medium | YouTube
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-cloud-binary-server---secure-and-anonymous-cloud-solutions-for-decentralized-and-ai-ml-applications)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloud-binary-server-launches-cost-effective-cloud-infrastructure-service/edd5ffa168fae56e13c92c49ddf98ae4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/26/cloud-binary-server-launches-secure-and-anonymous-cloud-solutions)
+ 
 
 
 

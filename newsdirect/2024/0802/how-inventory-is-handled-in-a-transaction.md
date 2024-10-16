@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-inventory
 [Original/Source Press Release](https://newsdirect.com/news/how-inventory-is-handled-in-a-transaction-535207133)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/critical-considerations-for-handling-inventory-in-m-a-transactions/c9adc61e64979f378208099acd331843) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/inventory-management-a-crucial-component-in-m-a-transactions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/critical-inventory-management-in-m-a-transactions-ensuring-accurate-valuation-and-smooth-integration/20245468)
+
+Pickup - [advos.io](https://advos.io/en/the-critical-role-of-inventory-management-in-m-a-transactions/20245468)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/inventory-management-a-critical-component-in-m-a-transactions)
+ 
 
 
 

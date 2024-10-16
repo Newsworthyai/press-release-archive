@@ -7,7 +7,11 @@ LOS ANGELES, CA, April 02, 2024 /24-7PressRelease/ -- Founded by Mackenzie Krest
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509738/youth-led-nonprofit-donates-2000-books-to-lausd-school)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/code-read-empowers-underserved-youth-with-access-to-literature-in-los-angeles-county/01f48cc2d74ec818466a3b73ddcd5713) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/youth-led-nonprofit-empowers-literacy-through-book-donation)
+ 
 
 
 

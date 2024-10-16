@@ -21,7 +21,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/cvw-cleantech
 [Original/Source Press Release](https://newsdirect.com/news/cvw-cleantech-discusses-groundbreaking-tailings-reprocessing-technology-378515498)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cvw-cleantech-innovates-tailings-reprocessing-technology-for-oil-sands-mining/aab206d5dbca17be3640124233abbc76) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cvw-cleantech-unveils-advanced-tailings-reprocessing-technology-to-reduce-methane-emissions/20244735)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/cvw-cleantech-unveils-revolutionary-tailings-reprocessing-technology-for-oil-sands-industry)
+
+Pickup - [advos.io](https://advos.io/en/cvw-cleantech-unveils-revolutionary-tailings-reprocessing-technology/20244735)
+ 
 
 
 

@@ -37,7 +37,11 @@ Socials : Official website:- [https://www.vircrum.com/](https://www.vircrum.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/vircrum---where-ideas-take-flight-your-all-in-one-ai-solution-for-transforming-text-to-image-voice-and-video)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vircrum-revolutionizes-content-creation-and-launches-fairlaunch-on-pinksale/b819bc18a54cc1283e3e4eb2972beb55) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/vircrum-revolutionizing-content-creation-with-ai-solutions)
+ 
 
 
 

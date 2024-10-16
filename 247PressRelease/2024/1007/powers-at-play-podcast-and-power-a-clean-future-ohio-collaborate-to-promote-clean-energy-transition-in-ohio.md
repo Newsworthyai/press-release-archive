@@ -7,7 +7,9 @@ CLEVELAND, OH, October 07, 2024 /24-7PressRelease/ -- This episode, titled "Buil
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515003/powers-at-play-podcast-and-power-a-clean-future-ohio-collaborate-to-promote-clean-energy-transition-in-ohio)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bipartisan-podcast-episode-on-building-a-sustainable-future-in-ohio/f70fd5e23e26ad7bcf10a939cf630e93) 
+
+ 
 
 
 

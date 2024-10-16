@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/shieke-sharpe
 [Original/Source Press Release](https://newsdirect.com/news/shieke-sharpe-consulting-redefining-small-business-success-through-forensic-accounting-and-tax-savings-222445477)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shieke-sharpe-consulting-redefining-small-business-success/3ee617670f83eb1b521dfcc59b21ce01) 
+
+ 
 
 
 

@@ -37,7 +37,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/full-moon-spo
 [Original/Source Press Release](https://newsdirect.com/news/full-moon-sports-announces-strategic-partnership-with-approvely-to-enhance-fantasy-sports-and-sports-betting-services-128810423)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/full-moon-sports-announces-strategic-partnership-with-approvely/e16994b68f699bb27ae3c6556e3be008) 
+
+
+Pickup - [advos.io](https://advos.io/en/full-moon-sports-partners-with-approvely-to-enhance-fantasy-sports-and-betting-services/20245147)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/full-moon-sports-partners-with-approvely-to-revolutionize-fantasy-sports-and-sports-betting-services)
+
+Pickup - [fishervista.com](https://fishervista.com/en/full-moon-sports-partners-with-approvely-to-enhance-fantasy-sports-and-betting-services/20245147)
+ 
 
 
 

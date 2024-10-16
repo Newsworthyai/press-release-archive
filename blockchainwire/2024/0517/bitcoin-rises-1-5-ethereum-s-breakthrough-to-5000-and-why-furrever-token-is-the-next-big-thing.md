@@ -39,7 +39,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-rises-15-ethereums-breakthrough-to-5000-and-why-furrever-token-is-the-next-big-thing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-and-ethereum-surge-furrever-token-emerges-as-game-changer-in-crypto/b353a0978b9c3112a0bcb930e5a27c43) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-and-ethereum-surge-furrever-token-emerges-as-game-changer-in-crypto)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-and-ethereum-surge-furrever-token-emerges-as-game-changer-in-crypto)
+ 
 
 
 

@@ -7,7 +7,9 @@ CLEVELAND, GA, May 09, 2024 /24-7PressRelease/ -- Oaks Senior Living, LLC is pro
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510750/oaks-senior-living-llc-announces-management-acquisition-of-assisted-living-memory-care-community-in-cleveland-georgia)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/oaks-senior-living-llc-acquires-management-services-for-laurel-lodge-in-cleveland-ga/6f4473e773901fbea7e6704d1d2ba5f6) 
+
+ 
 
 
 

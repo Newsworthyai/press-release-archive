@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/teads-unveils
 [Original/Source Press Release](https://newsdirect.com/news/teads-unveils-next-generation-contextual-and-identity-graph-built-for-the-premium-open-internet-and-ctv-919351655)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teads-unveils-next-generation-contextual-and-identity-graph-for-ctv/9c73291cc42c71a97a4046ce7d479b9e) 
+
+
+Pickup - [advos.io](https://advos.io/en/teads-launches-omnichannel-graph-for-contextual-and-identity-targeting-across-screens/20244159)
+ 
 
 
 

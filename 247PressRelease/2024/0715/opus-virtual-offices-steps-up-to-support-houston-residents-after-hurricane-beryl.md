@@ -7,7 +7,15 @@ BOCA RATON, FL, July 15, 2024 /24-7PressRelease/ -- In the wake of Hurricane Ber
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512500/opus-virtual-offices-steps-up-to-support-houston-residents-after-hurricane-beryl)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/opus-virtual-offices-provides-free-telephony-service-to-houston-businesses-affected-by-hurricane-beryl/c30078fa6879a82c121da9ee878f345f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/opus-virtual-offices-offers-free-telephony-services-to-houston-businesses-affected-by-hurricane-beryl)
+
+Pickup - [fishervista.com](https://fishervista.com/en/opus-virtual-offices-provides-crucial-support-to-houston-businesses-post-hurricane-beryl/20244947)
+
+Pickup - [advos.io](https://advos.io/en/opus-virtual-offices-extends-crucial-support-to-houston-businesses-post-hurricane-beryl/20244947)
+ 
 
 
 

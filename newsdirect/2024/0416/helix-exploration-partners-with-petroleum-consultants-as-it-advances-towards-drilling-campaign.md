@@ -21,7 +21,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/helix-explora
 [Original/Source Press Release](https://newsdirect.com/news/helix-exploration-partners-with-petroleum-consultants-as-it-advances-towards-drilling-campaign-751630798)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/helix-exploration-plc-forms-strategic-partnership-with-petroleum-consultants/58927b5655f6817dc06d4ebda5782b6f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/helix-exploration-partners-with-petroleum-consultants-as-it-advances-towards-drilling-campaign)
+ 
 
 
 

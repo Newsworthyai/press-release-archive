@@ -25,7 +25,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/clene-nasdaq-clnn-announces-plan-to-submit-briefing-book-to-fda-preceding-type-c-interaction/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clene-inc-submits-briefing-book-to-fda-for-cnm-au8-als-treatment-approval-process/268a8ec08a7c20bac767c1a6459792b2) 
+
+ 
 
 
 

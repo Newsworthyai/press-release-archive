@@ -31,7 +31,21 @@ For more information, please visit https://x10.exchange/
 [Original/Source Press Release](https://blockchainwire.io/press-release/x10-mainnet-launches-outlining-telegram-mini-app-for-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/x10-launches-on-mainnet-with-ambitious-goals/9efc60f84cd0898bd918bc1eb89b4afe) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/x10-launches-mainnet-unveils-plans-for-telegram-trading-mini-app)
+
+Pickup - [fishervista.com](https://fishervista.com/en/x10-mainnet-launches-introduces-telegram-mini-app-for-crypto-trading/20245489)
+
+Pickup - [advos.io](https://advos.io/en/x10-mainnet-launches-introduces-telegram-trading-app/20245489)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/x10-launches-on-mainnet-with-ambitious-goals)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/x10-launches-on-mainnet-with-ambitious-goals)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/x10-launches-mainnet-plans-telegram-mini-app-for-crypto-trading)
+ 
 
 
 

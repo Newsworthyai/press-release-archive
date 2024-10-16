@@ -7,7 +7,19 @@ LIMASSOL, CYPRUS, July 05, 2024 /24-7PressRelease/ -- LetKnow Pay Clinches "Best
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512289/letknow-pay-clinches-best-crypto-payment-gateway-at-uf-awards-global-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/letknow-pay-wins-best-crypto-payment-gateway-at-uf-awards-global-2024/beae485d42be733ac1c60efd433c0104) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/letknow-pay-wins-best-crypto-payment-gateway-at-uf-awards-global-2024/20244720)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/letknow-pay-recognized-as-best-crypto-payment-gateway-at-uf-awards-global-2024)
+
+Pickup - [advos.io](https://advos.io/en/letknow-pay-wins-best-crypto-payment-gateway-at-uf-awards-global-2024/20244720)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/letknow-pay-wins-best-crypto-payment-gateway-at-uf-awards-global-2024)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/letknow-pay-wins-best-crypto-payment-gateway-at-uf-awards-global-2024)
+ 
 
 
 

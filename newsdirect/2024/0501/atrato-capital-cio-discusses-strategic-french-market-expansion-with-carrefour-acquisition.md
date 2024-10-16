@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/atrato-capita
 [Original/Source Press Release](https://newsdirect.com/news/atrato-capital-cio-discusses-strategic-french-market-expansion-with-carrefour-acquisition-549911940)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/supermarket-income-reit-plc-acquires-17-omnichannel-supermarkets-in-france-from-carrefour-in-eur75-million-deal/ae956f90f5119ef9b00548523fc37c0c) 
+
+ 
 
 
 

@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/amerilife-nam
 [Original/Source Press Release](https://newsdirect.com/news/amerilife-names-juan-carlos-moreno-national-sales-director-for-aca-981772715)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amerilife-names-juan-carlos-moreno-national-sales-director-for-aca/65d77c5ed1bce77360a9b041ed5916f1) 
+
+ 
 
 
 

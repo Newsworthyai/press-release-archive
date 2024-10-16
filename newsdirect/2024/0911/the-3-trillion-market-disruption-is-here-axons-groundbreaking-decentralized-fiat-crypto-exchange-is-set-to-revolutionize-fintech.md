@@ -27,7 +27,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-3-trillio
 [Original/Source Press Release](https://newsdirect.com/news/the-3-trillion-market-disruption-is-here-axons-groundbreaking-decentralized-fiat-crypto-exchange-is-set-to-revolutionize-fintech-528170325)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/axon-launches-world-s-first-decentralised-fiat-crypto-exchange-mobile-platform/83fb5af95cba8f6507381411089662cf) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/axon-launches-revolutionary-decentralized-fiat-crypto-exchange/20246752)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/axon-launches-pioneering-decentralized-fiat-crypto-exchange-platform/20246752)
+
+Pickup - [advos.io](https://advos.io/en/axon-launches-revolutionary-decentralized-fiat-crypto-exchange-targeting-3-trillion-market/20246752)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/axon-launches-world-s-first-decentralized-fiat-crypto-exchange-poised-to-disrupt-3-trillion-market)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/axon-launches-world-s-first-decentralised-fiat-crypto-exchange-mobile-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/axon-launches-world-s-first-decentralised-fiat-crypto-exchange-mobile-platform)
+ 
 
 
 

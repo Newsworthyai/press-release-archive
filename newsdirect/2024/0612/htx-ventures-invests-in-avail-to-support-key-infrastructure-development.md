@@ -51,7 +51,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-
 [Original/Source Press Release](https://newsdirect.com/news/htx-ventures-invests-in-avail-to-support-key-infrastructure-development-484683544)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-ventures-invests-in-avail-to-support-key-infrastructure-development/81bac06ad846fb2d28966e6bf78e5048) 
+
+
+Pickup - [advos.io](https://advos.io/en/htx-ventures-invests-in-avail-for-key-web3-infrastructure-development/20244082)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-ventures-invests-in-avail-to-support-key-infrastructure-development)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-ventures-invests-in-avail-to-support-key-infrastructure-development)
+ 
 
 
 

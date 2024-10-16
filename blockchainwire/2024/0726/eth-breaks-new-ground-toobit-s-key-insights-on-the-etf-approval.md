@@ -23,7 +23,21 @@ Join the revolution with Toobit – Your Trusted Partner in Digital Trading.For 
 [Original/Source Press Release](https://blockchainwire.io/press-release/eth-breaks-new-ground-toobits-key-insights-on-the-etf-approval-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-makes-history-with-first-etf-approval-toobit-provides-insight/a0a589cc9aa91490d0f9f5b52de57ec5) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ethereum-makes-history-with-first-etf-approval-toobit-provides-insight)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ethereum-makes-history-with-first-etf-approval-toobit-provides-insight)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/ethereum-etf-approval-marks-new-era-for-cryptocurrency-investment)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ethereum-achieves-milestone-with-first-etf-approval-toobit-analyzes-the-implications/20245284)
+
+Pickup - [advos.io](https://advos.io/en/ethereum-etf-approval-marks-a-landmark-moment-for-digital-assets/20245284)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ethereum-etf-approval-marks-new-era-for-cryptocurrency-market)
+ 
 
 
 

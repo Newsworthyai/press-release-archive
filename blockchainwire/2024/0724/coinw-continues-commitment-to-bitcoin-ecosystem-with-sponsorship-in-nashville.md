@@ -17,7 +17,21 @@ CoinW's growth across the MENA region and Asia begins to look toward Europe and 
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-continues-commitment-to-bitcoin-ecosystem-with-sponsorship-in-nashville)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-sponsors-bitcoin-nashville-2024-president-sonia-shaw-to-attend/c3a2c4eec71d67d8d32fdac9060151f1) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-sponsors-bitcoin-nashville-2024-president-sonia-shaw-to-attend)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-sponsors-bitcoin-nashville-2024-president-sonia-shaw-to-attend)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/coinw-sponsors-bitcoin-nashville-2024-reinforcing-commitment-to-bitcoin-ecosystem)
+
+Pickup - [fishervista.com](https://fishervista.com/en/coinw-strengthens-bitcoin-ecosystem-with-nashville-sponsorship/20245210)
+
+Pickup - [advos.io](https://advos.io/en/coinw-strengthens-bitcoin-ecosystem-through-sponsorship-at-bitcoin-nashville-2024/20245210)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/coinw-expands-bitcoin-ecosystem-support-with-bitcoin-nashville-2024-sponsorship)
+ 
 
 
 

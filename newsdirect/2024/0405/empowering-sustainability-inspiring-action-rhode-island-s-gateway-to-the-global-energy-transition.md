@@ -81,7 +81,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/empowering-su
 [Original/Source Press Release](https://newsdirect.com/news/empowering-sustainability-inspiring-action-rhode-islands-gateway-to-the-global-energy-transition-118137375)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/2024-climate-stocktake-event-empowering-sustainability-and-inspiring-action-in-rhode-island/4aa728eb4442942fe249e19da5c96aec) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/rhode-island-s-pioneering-role-in-climate-action-takes-center-stage)
+ 
 
 
 

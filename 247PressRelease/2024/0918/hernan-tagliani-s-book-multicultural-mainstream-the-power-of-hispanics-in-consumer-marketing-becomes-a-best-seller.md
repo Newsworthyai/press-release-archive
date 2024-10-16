@@ -7,7 +7,9 @@ ORLANDO, FL, September 18, 2024 /24-7PressRelease/ -- On August 18, 2024 - Herna
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514406/hernan-taglianis-book-multicultural-mainstream-the-power-of-hispanics-in-consumer-marketing-becomes-a-best-seller)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-best-selling-book-multicultural-mainstream-the-power-of-hispanics-in-consumer-marketing/8cf154c5a7610bccadcf50505e8018c0) 
+
+ 
 
 
 

@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/flash-wins-ca
 [Original/Source Press Release](https://newsdirect.com/news/flash-wins-california-energy-commission-5-8m-grant-for-ev-charger-innovation-lab-in-oakland-740609510)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/flash-wins-5-8m-grant-for-ev-charger-innovation-lab/4287e81c490c732ebe5336984230ce98) 
+
+ 
 
 
 

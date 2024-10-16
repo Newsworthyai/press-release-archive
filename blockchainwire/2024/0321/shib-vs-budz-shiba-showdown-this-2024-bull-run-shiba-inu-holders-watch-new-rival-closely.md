@@ -45,7 +45,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/shib-vs-budz-shiba-showdown-this-2024-bull-run-shiba-inu-holders-watch-new-rival-closely)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-battle-of-the-shibas/7fede47c6c754a574e1e306b9ef2bd62) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/shiba-showdown-meme-coin-titans-clash-in-2024-bull-run)
+ 
 
 
 

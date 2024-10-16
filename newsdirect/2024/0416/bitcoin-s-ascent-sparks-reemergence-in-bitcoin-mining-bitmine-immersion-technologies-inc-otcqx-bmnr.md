@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitcoins-asce
 [Original/Source Press Release](https://newsdirect.com/news/bitcoins-ascent-sparks-reemergence-in-bitcoin-mining-bitmine-immersion-technologies-inc-otcqx-bmnr-134579419)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmine-immersion-technologies-inc-otcqx-bmnr-a-potential-investment-in-bitcoin-mining/df39657e60425bf5f5cca20dceb665d3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/bitmine-immersion-technologies-capitalizes-on-bitcoin-mining-resurgence)
+ 
 
 
 

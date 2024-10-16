@@ -7,7 +7,17 @@ DETROIT, MI, August 20, 2024 /24-7PressRelease/ -- Think, Talk and Tackle: Conte
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513557/why-would-an-officer-shoot-dead-a-woman-turning-off-a-pot-of-hot-water)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-publication-analyzes-contemporary-diversity-issues-in-criminal-justice/67e629908fac2cebab2f09584c04304e) 
+
+
+Pickup - [advos.io](https://advos.io/en/new-book-sheds-light-on-diversity-issues-in-criminal-justice/20245826)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-book-by-dr-june-werdlow-rogers-tackles-diversity-issues-in-criminal-justice/20245826)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-book-examines-diversity-issues-in-criminal-justice-system/20245826)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/new-book-examines-diversity-issues-in-criminal-justice-system)
+ 
 
 
 

@@ -54,7 +54,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/activate-brin
 [Original/Source Press Release](https://newsdirect.com/news/activate-brings-high-tech-physical-gaming-to-charlotte-695861516)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/activate-brings-high-tech-physical-gaming-to-charlotte/87778ce96c0516a9d6d402fefc03d7ba) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/activate-to-open-high-tech-physical-gaming-venue-in-charlotte)
+ 
 
 
 

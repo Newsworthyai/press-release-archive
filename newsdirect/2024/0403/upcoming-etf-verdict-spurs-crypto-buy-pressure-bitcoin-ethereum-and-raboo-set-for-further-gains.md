@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/upcoming-etf-
 [Original/Source Press Release](https://newsdirect.com/news/upcoming-etf-verdict-spurs-crypto-buy-pressure-bitcoin-ethereum-and-raboo-set-for-further-gains-392090004)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/upcoming-etf-verdict-spurs-crypto-buy-pressure-bitcoin-ethereum-and-raboo-set-for-further-gains/03fc8ffa56a987def7a653ffcac0eb82) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/crypto-market-braces-for-explosive-growth-as-etf-verdict-looms)
+ 
 
 
 

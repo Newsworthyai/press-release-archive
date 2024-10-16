@@ -51,7 +51,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kartoon-studi
 [Original/Source Press Release](https://newsdirect.com/news/kartoon-studios-amex-toon-releases-2023-financial-report-with-44-1-million-in-revenue-557104844)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kartoon-studios-announces-44-1-million-in-revenue-for-2023-shows-growth-in-key-areas/acbcc82715747285c0d3602cdedac91a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/kartoon-studios-reports-44-1-million-in-revenue-in-2023-financial-report)
+ 
 
 
 

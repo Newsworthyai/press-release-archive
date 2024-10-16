@@ -7,7 +7,11 @@ REDMOND, WA, March 14, 2024 /24-7PressRelease/ -- Public records reveal that the
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509243/calling-it-an-inside-job-community-demanding-transparency-and-public-input-on-the-redmond-plymouth-project)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/community-demands-transparency-and-a-say-on-controversial-homeless-project/d4e841b52f43d29165f62e8eafdaa32c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/redmond-community-demands-transparency-on-downtown-homeless-project)
+ 
 
 
 

@@ -27,7 +27,11 @@ Note: The last date to send in your application is Friday, the 8th of March - so
 [Original/Source Press Release](https://blockchainwire.io/press-release/portugals-first-ever-icp-hackathon-unleashes-decentralized-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/portugal-s-first-icp-hackathon-join-the-decentralized-future/1242ce14a7df5e9248d6fb472a7d33c8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/07/portugal-hosts-inaugural-icp-hackathon-unleashing-decentralized-innovation)
+ 
 
 
 

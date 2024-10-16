@@ -44,7 +44,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-spyro-the-legendary-meme-dragon-of-crypto)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/spyro-the-memeable-meme-dragon-soaring-into-the-crypto-landscape/672d1f08fbbf74e6a426e76fb2468120) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/11/spyro-the-meme-dragon-igniting-the-crypto-realm)
+ 
 
 
 

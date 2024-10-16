@@ -23,7 +23,11 @@ To discover more about veterinary advancements and insights, visit www.Veterinar
 [Original/Source Press Release](https://newsworthy.ai/news/20231219885/veterinarianexperts-com-debuts-connecting-veterinary-insights-and-information)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/veterinarianexperts-com-redefines-veterinary-content-with-expert-insights-and-community-engagement/179afeb50b605da862b9f763a602eafc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/19/veterinarianexperts-com-a-new-hub-for-veterinary-insights-and-advancements)
+ 
 
 
 

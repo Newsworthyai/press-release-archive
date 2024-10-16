@@ -7,7 +7,11 @@ RALEIGH, NC, June 11, 2024 /24-7PressRelease/ -- Annually, CAHEC recognizes indi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511580/recognizing-those-making-an-impact-in-the-affordable-housing-and-community-development-industries)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/2024-cahec-awards-recognize-outstanding-contributions-to-affordable-housing-and-community-development/8401e6f44d7a0d00011f6596147908dd) 
+
+
+Pickup - [advos.io](https://advos.io/en/cahec-celebrates-contributions-to-affordable-housing-and-community-development-at-annual-awards-luncheon/20244009)
+ 
 
 
 

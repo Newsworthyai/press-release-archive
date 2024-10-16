@@ -23,7 +23,11 @@ Dive deep into the world of data science with www.DSSpotlight.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231215810/introducing-dsspotlight-com-the-pinnacle-platform-for-data-science-enthusiasts-and-professionals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dsspotlight-com-launches-as-the-go-to-hub-for-data-science-insights/48556eede8e4d6d109fa0deaede0a010) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/15/dsspotlight-com-illuminating-the-world-of-data-science)
+ 
 
 
 

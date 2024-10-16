@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/crossword-cyb
 [Original/Source Press Release](https://newsdirect.com/news/crossword-cybersecurity-reports-strong-performance-of-cybersecurity-monitoring-service-in-caribbean-808226786)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crossword-cybersecurity-s-nightingale-service-thrives-in-caribbean-after-local-partnership/bbb4a8b94d93c5c63d1d2dfff3aa57a8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/crossword-cybersecurity-reports-strong-performance-of-cybersecurity-monitoring-service-in-caribbean)
+ 
 
 
 

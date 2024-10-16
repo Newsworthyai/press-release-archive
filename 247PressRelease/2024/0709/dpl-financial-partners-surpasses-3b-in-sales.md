@@ -7,7 +7,15 @@ LOUISVILLE, KY, July 09, 2024 /24-7PressRelease/ -- DPL Financial Partners, the 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512357/dpl-financial-partners-surpasses-3b-in-sales)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dpl-financial-partners-surpasses-3-billion-in-sales-for-commission-free-annuities/0869a1e61f26737d1f5ebbeaae69bee7) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dpl-financial-partners-surpasses-3-billion-in-sales-accelerating-adoption-of-commission-free-annuities/20244790)
+
+Pickup - [advos.io](https://advos.io/en/dpl-financial-partners-achieves-3-billion-in-sales-marking-significant-growth-in-commission-free-annuities/20244790)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/dpl-financial-partners-achieves-3-billion-milestone-in-commission-free-annuity-sales)
+ 
 
 
 

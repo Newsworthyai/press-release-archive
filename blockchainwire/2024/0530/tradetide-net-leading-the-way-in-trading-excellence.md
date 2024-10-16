@@ -19,7 +19,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/tradetidenet--leading-the-way-in-trading-excellence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tradetide-net-leading-the-future-of-forex-and-cryptocurrency-trading/7f6a5729be67245d52a02ce3c2acb309) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tradetide-net-leading-the-future-of-forex-and-cryptocurrency-trading)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tradetide-net-leading-the-future-of-forex-and-cryptocurrency-trading)
+ 
 
 
 

@@ -7,7 +7,15 @@ INDIANAPOLIS, IN, July 03, 2024 /24-7PressRelease/ -- With attorney Sidney Lewel
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512233/craig-kelley-faultless-attorney-now-licensed-to-practice-law-in-iowa)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/craig-kelley-faultless-llc-expands-reach-with-attorney-sidney-lewellen-s-admission-to-iowa-bar/f67138f7f3dfd728cf08fbf41f4fdaa1) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/craig-kelley-faultless-attorney-expands-legal-services-to-iowa/20244681)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/craig-kelley-faultless-expands-legal-reach-to-iowa-with-attorney-sidney-lewellen-s-bar-admission)
+
+Pickup - [advos.io](https://advos.io/en/craig-kelley-faultless-expands-legal-practice-to-iowa-with-attorney-sidney-lewellen/20244681)
+ 
 
 
 

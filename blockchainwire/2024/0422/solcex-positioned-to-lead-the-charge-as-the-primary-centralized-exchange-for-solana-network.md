@@ -33,7 +33,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/solcex-positioned-to-lead-the-charge-as-the-primary-centralized-exchange-for-solana-network)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solcex-the-next-generation-exchange-for-solana-enthusiasts/bec76ad79af0805c6d174ce5d79af136) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/solcex-positioned-to-lead-the-charge-as-the-primary-centralized-exchange-for-solana-network)
+ 
 
 
 

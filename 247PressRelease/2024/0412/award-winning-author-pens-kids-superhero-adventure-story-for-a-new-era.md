@@ -7,7 +7,9 @@ PORTLAND, OR, April 12, 2024 /24-7PressRelease/ -- Eleven-year-old Nick Townley 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510011/award-winning-author-pens-kids-superhero-adventure-story-for-a-new-era)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/award-winning-author-sandy-grubb-releases-new-middle-grade-adventure-story-just-like-click/324b8636fb1787c87a90fc8502a07184) 
+
+ 
 
 
 

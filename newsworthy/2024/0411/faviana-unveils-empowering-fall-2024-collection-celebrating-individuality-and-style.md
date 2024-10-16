@@ -25,7 +25,11 @@ Press Contact:Name: Amy Moradi Nazar | Community Manager Business DevelopmentEma
 [Original/Source Press Release](https://newsworthy.ai/news/202404111144/faviana-unveils-empowering-fall-2024-collection-celebrating-individuality-and-style)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/faviana-unveils-fall-2024-collection-celebrating-individuality-and-style/4a61094e62a97a6c2c5ece7b4c324646) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/faviana-unveils-empowering-fall-2024-collection-celebrating-individuality-and-style)
+ 
 
 
 

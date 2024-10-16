@@ -29,7 +29,9 @@ nyc@clearthink.capital
 [Original/Source Press Release](https://www.newmediawire.com/news/paltalk-holdings-announces-judge-enters-final-judgment-in-connection-with-cisco-jury-verdict-7076189)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/paltalk-inc-wins-final-judgment-in-patent-infringement-lawsuit-against-cisco-systems-inc/7f0b13343bd1082ec1f7983b69f4aba6) 
+
+ 
 
 
 

@@ -17,7 +17,9 @@ View original content to download multimedia: https://newsdirect.com/news/dads-a
 [Original/Source Press Release](https://newsdirect.com/news/dads-and-grads-gift-ideas-219667652)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dads-and-grads-gift-ideas-top-picks-for-father-s-day-and-graduation-season/d7b0a157cf643ae3212d3520820ffcf8) 
+
+ 
 
 
 

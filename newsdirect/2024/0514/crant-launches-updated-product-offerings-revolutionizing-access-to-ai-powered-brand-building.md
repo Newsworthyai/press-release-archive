@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/crant-launche
 [Original/Source Press Release](https://newsdirect.com/news/crant-launches-updated-product-offerings-revolutionizing-access-to-ai-powered-brand-building-262577395)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crant-launches-ink-lantern-lite-revolutionizing-brand-building-with-ai/f2c0b45bc48f4d217a1507170d053c21) 
+
+ 
 
 
 

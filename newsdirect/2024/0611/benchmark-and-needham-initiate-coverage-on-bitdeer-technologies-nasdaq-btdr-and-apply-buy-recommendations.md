@@ -39,7 +39,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-and
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-and-needham-initiate-coverage-on-bitdeer-technologies-nasdaq-btdr-and-apply-buy-recommendations-789575905)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leading-investment-banks-initiate-bullish-coverage-on-bitdeer-technologies-nasdaq-btdr/d8bb1996351ce3fe9b7de6eefcb292bc) 
+
+
+Pickup - [advos.io](https://advos.io/en/benchmark-and-needham-issue-buy-ratings-for-bitdeer-technologies-amid-bitcoin-halving-challenges/20244029)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/leading-investment-banks-initiate-bullish-coverage-on-bitdeer-technologies-nasdaq-btdr)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/leading-investment-banks-initiate-bullish-coverage-on-bitdeer-technologies-nasdaq-btdr)
+ 
 
 
 

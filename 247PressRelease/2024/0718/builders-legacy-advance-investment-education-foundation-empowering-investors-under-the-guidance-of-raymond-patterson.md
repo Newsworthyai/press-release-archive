@@ -7,7 +7,15 @@ SALT LAKE CITY, UT, July 18, 2024 /24-7PressRelease/ -- Philip A. Fisher, the fa
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512610/builders-legacy-advance-investment-education-foundation-empowering-investors-under-the-guidance-of-raymond-patterson)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/warren-buffett-credits-philip-a-fisher-for-15-of-his-investment-philosophy/e092966965093c7ed2a9cc9bc127560c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/philip-fisher-s-investment-philosophy-inspires-builders-legacy-foundation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/builders-legacy-advance-investment-education-foundation-enhancing-financial-literacy-and-investment-skills/20245038)
+
+Pickup - [advos.io](https://advos.io/en/builders-legacy-foundation-enhances-investor-education-under-raymond-patterson-s-leadership/20245038)
+ 
 
 
 

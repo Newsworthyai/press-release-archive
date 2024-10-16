@@ -7,7 +7,17 @@ WILMINGTON, NC, September 16, 2024 /24-7PressRelease/ -- Bijou Entertainment has
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514336/bestselling-authors-ginger-marin-and-j-bartell-of-bijou-entertainment-announce-historical-fiction-novel-coyote-junction-available-at-no-charge-in-ebook-format-september-18-through-september-20-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bijou-entertainment-announces-free-ebook-release-of-coyote-junction-on-amazon/d2c6540186d13c7ee21b0089c39a08bb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/bestselling-authors-offer-free-historical-fiction-novel-coyote-junction-for-limited-time)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bestselling-authors-offer-free-historical-fiction-ebook-coyote-junction-for-limited-time/20246844)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bestselling-authors-offer-free-ebook-coyote-junction-blends-historical-fiction-with-coming-of-age-tale/20246844)
+
+Pickup - [advos.io](https://advos.io/en/bestselling-authors-offer-free-historical-fiction-novel-coyote-junction-for-limited-time/20246844)
+ 
 
 
 

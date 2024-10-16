@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bellami-launc
 [Original/Source Press Release](https://newsdirect.com/news/bellami-launches-the-ponytail-in-collaboration-with-celebrity-stylist-andrew-fitzsimons-833896501)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bellami-launches-the-ponytail-in-collaboration-with-celebrity-stylist-andrew-fitzsimons/9a234b06ea38451068d6cccb9cded61a) 
+
+
+Pickup - [advos.io](https://advos.io/en/bellami-unveils-the-ponytail-in-collaboration-with-celebrity-stylist-andrew-fitzsimons/20244030)
+ 
 
 
 

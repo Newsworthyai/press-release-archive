@@ -7,7 +7,9 @@ BROOMFIELD, CO, April 08, 2024 /24-7PressRelease/ -- Introducing Receptra's Revo
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509814/receptra-clinical-strength-2000mg-cbd-roll-on-menthol-is-designed-to-provide-quick-pain-relief-for-aching-muscles-and-joints-transdermal-delivery-of-the-platinum-blend-of-full-spectrum-cbd-extract)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/receptra-launches-revolutionary-2000-mg-cbd-roll-on-for-unparalleled-pain-relief/95f641435b72478eadae758d53e7d391) 
+
+ 
 
 
 

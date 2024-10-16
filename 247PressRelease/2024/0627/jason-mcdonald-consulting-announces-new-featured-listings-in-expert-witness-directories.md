@@ -7,7 +7,13 @@ SAN FRANCISCO, CA, June 27, 2024 /24-7PressRelease/ -- Jason McDonald Consulting
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512074/jason-mcdonald-consulting-announces-new-featured-listings-in-expert-witness-directories)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jason-mcdonald-consulting-featured-in-prominent-expert-witness-directories/e20389e5ba715c64b23c291ff6090a26) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/jason-mcdonald-consulting-featured-in-top-expert-witness-directories/20244532)
+
+Pickup - [advos.io](https://advos.io/en/jason-mcdonald-consulting-gains-recognition-in-leading-expert-witness-directories/20244532)
+ 
 
 
 

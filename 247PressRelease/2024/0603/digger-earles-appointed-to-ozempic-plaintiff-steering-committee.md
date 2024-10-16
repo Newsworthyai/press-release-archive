@@ -7,7 +7,9 @@ LAFAYETTE, LA, June 03, 2024 /24-7PressRelease/ -- In a significant development 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511303/digger-earles-appointed-to-ozempic-plaintiff-steering-committee)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/digger-earles-named-to-plaintiff-steering-committee-in-ozempic-litigation/183c91ed9a21cf7313f54dbb785e14c9) 
+
+ 
 
 
 

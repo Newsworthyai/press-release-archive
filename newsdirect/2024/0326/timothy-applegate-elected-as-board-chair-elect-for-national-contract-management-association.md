@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/timothy-apple
 [Original/Source Press Release](https://newsdirect.com/news/timothy-applegate-elected-as-board-chair-elect-for-national-contract-management-association-625233065)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/timothy-applegate-appointed-as-ncma-board-chair-elect-for-program-year-2026/83f3773210ae392e7bcb89e05a5c7174) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/timothy-applegate-to-lead-national-contract-management-association)
+ 
 
 
 

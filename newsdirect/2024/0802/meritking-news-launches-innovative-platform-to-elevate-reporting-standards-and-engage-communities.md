@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/meritking-new
 [Original/Source Press Release](https://newsdirect.com/news/meritking-news-launches-innovative-platform-to-elevate-reporting-standards-and-engage-communities-376925259)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-online-news-platform-meritking-news-launches-to-revolutionize-reporting-and-engagement/152f0aee6fad62cec27006247a5ab308) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/meritking-news-debuts-innovative-platform-to-enhance-journalism-and-community-engagement)
+
+Pickup - [fishervista.com](https://fishervista.com/en/meritking-news-unveils-platform-to-enhance-reporting-and-community-engagement/20245462)
+
+Pickup - [advos.io](https://advos.io/en/meritking-news-launches-to-elevate-reporting-standards-and-enhance-community-engagement/20245462)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/meritking-news-debuts-innovative-platform-to-enhance-journalism-and-community-engagement)
+ 
 
 
 

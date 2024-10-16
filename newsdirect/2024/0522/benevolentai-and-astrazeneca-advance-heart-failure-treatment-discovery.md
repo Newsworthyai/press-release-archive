@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/benevolentai-
 [Original/Source Press Release](https://newsdirect.com/news/benevolentai-and-astrazeneca-advance-heart-failure-treatment-discovery-857197925)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benevolentai-and-astrazeneca-collaborate-to-advance-heart-failure-treatment-discovery/1bc5b3d075cd4526837e95b59c1a9ff4) 
+
+ 
 
 
 

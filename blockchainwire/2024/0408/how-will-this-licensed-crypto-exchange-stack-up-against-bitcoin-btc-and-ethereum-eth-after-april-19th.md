@@ -47,7 +47,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/how-will-this-licensed-crypto-exchange-stack-up-against-bitcoin-btc-and-ethereum-eth-after-april-19th)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/option2trade-o2t-emerges-as-a-challenger-to-bitcoin-btc-and-ethereum-eth/02c3faa09a3499220aada1f65ad26fe0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/option2trade-challenges-bitcoin-and-ethereum-dominance-with-licensed-crypto-exchange)
+ 
 
 
 

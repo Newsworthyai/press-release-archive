@@ -31,7 +31,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/peru-sede-de-
 [Original/Source Press Release](https://newsdirect.com/news/peru-sede-de-apec-2024-construyendo-liderazgo-en-la-region-asia-pacifico-337488177)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peru-sera-sede-del-foro-apec-2024/b542c9a68055027a074932e54e7ec417) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/peru-to-host-apec-2024-strengthening-leadership-in-asia-pacific-region)
+
+Pickup - [fishervista.com](https://fishervista.com/en/peru-to-host-apec-2024-strengthening-leadership-in-asia-pacific-region/20245097)
+
+Pickup - [advos.io](https://advos.io/en/peru-to-host-apec-2024-strengthening-leadership-in-asia-pacific-region/20245097)
+ 
 
 
 

@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/navigating-th
 [Original/Source Press Release](https://newsdirect.com/news/navigating-the-future-iteris-expertise-in-intelligent-transportation-systems-its-architecture-and-design-180474921)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iteris-leads-the-charge-in-intelligent-transportation-systems-innovation/9cfe3d93e5246f680e2774b2c9ad5d4f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/iteris-paving-the-way-for-smarter-transportation-networks)
+ 
 
 
 

@@ -33,7 +33,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/homesphere-an
 [Original/Source Press Release](https://newsdirect.com/news/homesphere-and-rm-interiors-partner-on-flooring-savings-for-homebuilders-146124843)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/homesphere-partners-with-rm-interiors-to-offer-flooring-savings-for-homebuilders/a9be1bbaa2f79105135ef9a3ed5b8ed3) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/homesphere-and-rm-interiors-join-forces-to-provide-flooring-savings-for-homebuilders/20244800)
+
+Pickup - [advos.io](https://advos.io/en/homesphere-and-rm-interiors-partner-to-deliver-flooring-savings-for-homebuilders/20244800)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/homesphere-and-rm-interiors-join-forces-to-offer-comprehensive-flooring-solutions-to-homebuilders)
+ 
 
 
 

@@ -34,7 +34,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/paxmedica-nasdaq-pxmd-developing-treatments-for-underserved-neurological-disorders/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/paxmedica-prepares-nda-submission-for-suramin-and-pivotal-fda-meeting-for-pax-101/0570d7d7eee8d3cda83016a7c9155079) 
+
+ 
 
 
 

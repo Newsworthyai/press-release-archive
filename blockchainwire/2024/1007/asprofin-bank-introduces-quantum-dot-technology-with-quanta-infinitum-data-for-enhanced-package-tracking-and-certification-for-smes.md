@@ -65,7 +65,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/asprofin-bank-introduces-quantum-dot-technology-with-quanta-infinitum-data-for-enhanced-package-tracking-and-certification-for-smes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-partnership-quanta-infinitum-data-and-asprofin-bank-implement-quantum-dot-technology-for-supply-chain-optimization/da624aaf14f933f46eb81f0d8f80160c) 
+
+ 
 
 
 

@@ -49,7 +49,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-shc-school-hack-coin-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-announces-listing-of-shc-on-its-socially-infused-trading-platform/5a9fe0a4643a0b5f4ae39d14357c1da7) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/xt-announces-listing-of-shc-on-its-socially-infused-trading-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/xt-announces-listing-of-shc-on-its-socially-infused-trading-platform)
+ 
 
 
 

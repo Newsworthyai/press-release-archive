@@ -7,7 +7,11 @@ BEAVERCREEK, OH, April 04, 2024 /24-7PressRelease/ -- Beavercreek, Ohio, USA –
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509798/leadership-expert-jos%C3%A9-bolton-sr-releases-groundbreaking-book)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/esteemed-leadership-consultant-jose-bolton-sr-releases-new-book-finding-your-path-to-inclusion/6f3e5727687bad7945e1f9887e4f158a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/leadership-expert-jose-bolton-sr-unveils-finding-your-path-to-inclusion)
+ 
 
 
 

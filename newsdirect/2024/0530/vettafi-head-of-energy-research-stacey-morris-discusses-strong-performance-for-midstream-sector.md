@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/vettafi-head-
 [Original/Source Press Release](https://newsdirect.com/news/vettafi-head-of-energy-research-stacey-morris-discusses-strong-performance-for-midstream-sector-341250489)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vettafi-head-of-energy-research-stacey-morris-discusses-strong-performance-for-midstream-sector/aad354be3678b7ab098811ebfb4fc70c) 
+
+ 
 
 
 

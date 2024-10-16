@@ -21,7 +21,17 @@ Press Inquiries:Tom RicherCEOinvestorrelations@intelagen.ai
 [Original/Source Press Release](https://blockchainwire.io/press-release/cloudbench-announces-rebranding-with-name-change-to-intelagen)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloudbench-rebrands-to-intelagen-emphasizing-focus-on-vertical-ai-solutions/10414283ec4a41d7c6a24006a07c5ea8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/cloudbench-rebrands-as-intelagen-to-reflect-focus-on-vertical-ai-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cloudbench-rebrands-as-intelagen-to-emphasize-ai-expertise-and-innovation/20245211)
+
+Pickup - [advos.io](https://advos.io/en/cloudbench-rebrands-as-intelagen-to-emphasize-ai-expertise-and-innovation/20245211)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cloudbench-rebrands-as-intelagen-to-reflect-focus-on-vertical-ai-solutions)
+ 
 
 
 

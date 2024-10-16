@@ -7,7 +7,9 @@ SAN FRANCISCO, CA, September 19, 2024 /24-7PressRelease/ -- Web3Firewall, an AI-
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514457/web3firewall-achieves-iso-certification)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/web3firewall-obtains-iso-9001-2015-certification-for-web3-risk-management-and-compliance/467c0ebf2d537339dc93b5305cecdc9c) 
+
+ 
 
 
 

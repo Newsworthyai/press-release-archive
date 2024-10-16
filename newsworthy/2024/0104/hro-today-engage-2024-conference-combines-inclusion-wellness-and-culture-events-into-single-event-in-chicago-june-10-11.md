@@ -21,7 +21,13 @@ HRO Today is the go-to resource for top-level HR executives and leaders across i
 [Original/Source Press Release](https://newsworthy.ai/news/20240104972/hro-today-engage-2024-conference-combines-inclusion-wellness-and-culture-events-into-single-event-in-chicago-june-10-11)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/engage-2024-transforming-workplace-culture-and-engagement/c60d384ef7a9833a8fa98d668825b82e) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hro-today-unveils-engage-2024-a-comprehensive-hr-conference-in-chicago/2024278)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/04/hro-today-unveils-engage-2024-a-groundbreaking-hr-conference)
+ 
 
 
 

@@ -9,7 +9,11 @@ Event Overview:[Traders Fair Singapore](https://tradersfair.com/singapore/) is s
 [Original/Source Press Release](https://blockchainwire.io/press-release/traders-fair-singapore-returns-for-an-unforgettable-financial-event)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/traders-fair-singapore-returns-industry-experts-networking-and-live-competitions/509d65dc84830223a2b6e34a07dbc370) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/23/traders-fair-singapore-gateway-to-financial-excellence)
+ 
 
 
 

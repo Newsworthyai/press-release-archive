@@ -44,7 +44,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/texas-leading
 [Original/Source Press Release](https://newsdirect.com/news/texas-leading-hormone-provider-expands-cutting-edge-preventative-screening-tool-to-all-clinics-899288747)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hormones-by-design-acquires-diti-imaging-to-expand-preventative-healthcare-offerings/6fe8ebf10defbc967138d16be1687f4e) 
+
+ 
 
 
 

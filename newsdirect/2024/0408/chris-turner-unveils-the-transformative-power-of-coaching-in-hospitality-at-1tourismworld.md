@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/chris-turner-
 [Original/Source Press Release](https://newsdirect.com/news/chris-turner-unveils-the-transformative-power-of-coaching-in-hospitality-at-1tourismworld-101136074)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-hospitality-business-coach-unveils-transformative-power-of-coaching-at-1tourismworld/d25da672386daa05007781a8d260ce8a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/coaching-the-key-to-unlocking-hospitality-excellence)
+ 
 
 
 

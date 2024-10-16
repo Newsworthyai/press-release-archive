@@ -7,7 +7,11 @@ TALLAHASSEE, FL, April 04, 2024 /24-7PressRelease/ -- College HUNKS Hauling Junk
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509818/college-hunks-hauling-junk-and-moving-expands-in-tallahassee-florida)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/college-hunks-expands-to-tallahassee-offering-stress-free-junk-removal-and-moving-services/9d3ebfcab585b0acbe327f84ce926eef) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/college-hunks-hauling-junk-and-moving-expands-services-to-tallahassee)
+ 
 
 
 

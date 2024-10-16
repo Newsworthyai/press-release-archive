@@ -39,7 +39,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/dogwifhat-hyp
 [Original/Source Press Release](https://newsdirect.com/news/dogwifhat-hype-cools-down-holders-jump-ship-to-floki-and-viral-ai-meme-coin-raboo-191890667)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meme-coin-market-update-dogwifhat-hype-cools-down-holders-jump-ship-to-floki-and-viral-ai-meme-coin-raboo/5641e247bc37a7b7304d28668cca74e0) 
+
+
+Pickup - [advos.io](https://advos.io/en/crypto-investors-shift-from-dogwifhat-to-floki-and-raboo-meme-coins/20243966)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/meme-coin-market-update-dogwifhat-hype-cools-down-holders-jump-ship-to-floki-and-viral-ai-meme-coin-raboo)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/meme-coin-market-update-dogwifhat-hype-cools-down-holders-jump-ship-to-floki-and-viral-ai-meme-coin-raboo)
+ 
 
 
 

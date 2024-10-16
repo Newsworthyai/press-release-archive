@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/fenix-group-c
 [Original/Source Press Release](https://newsdirect.com/news/fenix-group-consulting-and-skbm-smart-technology-announce-strategic-partnership-to-revolutionize-smart-community-technology-in-multifamily-industry-311625694)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fenix-group-consulting-and-skbm-smart-technology-announce-strategic-partnership-to-revolutionize-smart-community-technology-in-multifamily-industry/f28acc2f4bab667ba96d303a64cad8dc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/fenix-group-consulting-and-skbm-smart-technology-announce-strategic-partnership-to-revolutionize-smart-community-technology-in-multifamily-industry)
+ 
 
 
 

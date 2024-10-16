@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/euro-manganes
 [Original/Source Press Release](https://newsdirect.com/news/euro-manganese-achieves-key-milestone-with-environmental-permit-for-chvaletice-manganese-project-266918458)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/euro-manganese-achieves-key-milestone-with-environmental-permit-for-chvaletice-manganese-project/2ccc883ab5b4bedb1e497636d2b2577d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/euro-manganese-secures-environmental-permit-for-chvaletice-manganese-project)
+ 
 
 
 

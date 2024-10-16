@@ -69,7 +69,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/hkd-24-billion-aum-highlights-strong-market-entry-for-newly-launched-spot-crypto-etfs-in-hong-kong)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-etfs-exceed-projections/ae061adbb13abeaf8fe0584a7d13856f) 
+
+ 
 
 
 

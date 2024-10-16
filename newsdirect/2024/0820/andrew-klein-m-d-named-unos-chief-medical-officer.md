@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/andrew-klein-
 [Original/Source Press Release](https://newsdirect.com/news/andrew-klein-m-d-named-unos-chief-medical-officer-786874397)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-andrew-s-klein-named-unos-chief-medical-officer/407f276c47c46fc297d390ddc887071c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/unos-appoints-renowned-transplant-surgeon-dr-andrew-klein-as-chief-medical-officer)
+
+Pickup - [fishervista.com](https://fishervista.com/en/andrew-klein-m-d-appointed-as-unos-chief-medical-officer/20245854)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/unos-appoints-renowned-transplant-surgeon-dr-andrew-klein-as-chief-medical-officer/20245854)
+
+Pickup - [advos.io](https://advos.io/en/andrew-klein-m-d-appointed-as-unos-chief-medical-officer/20245854)
+ 
 
 
 

@@ -31,7 +31,11 @@ Due to the dollar liquidity cycle, as well as profound transformations in intern
 [Original/Source Press Release](https://blockchainwire.io/press-release/embarking-on-a-historic-crypto-surge-with-l7-global-spearheading-revolutionary-infrastructure-innovations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/l7-global-prepares-for-bitcoin-s-fourth-halving-with-strategic-innovations-in-derivatives-trading/29ebfca6ee651a718c1b9842ee19d55c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/04/l7-global-pioneers-innovative-crypto-infrastructure-ahead-of-historic-bitcoin-halving)
+ 
 
 
 

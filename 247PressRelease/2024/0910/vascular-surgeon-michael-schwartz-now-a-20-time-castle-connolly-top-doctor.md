@@ -7,7 +7,17 @@ POMONA, NY, September 10, 2024 /24-7PressRelease/ -- Michael L. Schwartz, MD, ha
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514105/vascular-surgeon-michael-schwartz-now-a-20-time-castle-connolly-top-doctor)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-vascular-surgeon-dr-michael-l-schwartz-named-2024-castle-connolly-top-doctor/40b019b3fcc3efcb501321bcc27addb4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/vascular-surgeon-michael-schwartz-recognized-as-castle-connolly-top-doctor-for-20th-year)
+
+Pickup - [fishervista.com](https://fishervista.com/en/michael-schwartz-achieves-20th-year-as-castle-connolly-top-doctor/20246651)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dr-michael-schwartz-recognized-as-castle-connolly-top-doctor-for-20th-year/20246651)
+
+Pickup - [advos.io](https://advos.io/en/vascular-surgeon-michael-schwartz-earns-20th-castle-connolly-top-doctor-honor/20246651)
+ 
 
 
 

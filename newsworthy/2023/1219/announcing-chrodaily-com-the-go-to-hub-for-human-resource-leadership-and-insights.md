@@ -23,7 +23,13 @@ Stay ahead in the HR leadership curve. Explore more at www.CHRODaily.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231219790/announcing-chrodaily-com-the-go-to-hub-for-human-resource-leadership-and-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chrodaily-com-the-premier-digital-destination-for-hr-leaders-globally/2f80bcd8e34f83a9b76b7f0bc9ecb7e8) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/chrodaily-com-launches-as-premier-resource-hub-for-hr-leadership/2023331)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/19/chrodaily-com-the-premier-digital-destination-for-hr-leadership-and-insights)
+ 
 
 
 

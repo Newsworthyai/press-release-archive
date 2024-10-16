@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/kartoon-studi
 [Original/Source Press Release](https://newsdirect.com/news/kartoon-studios-reports-38-sequential-revenue-growth-for-q2-310150200)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kartoon-studios-ceo-andy-heyward-discusses-revenue-growth-and-cost-reduction-on-benzinga-s-all-access/0c82cbbe283927cf01a8aea8ecb04f1e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/kartoon-studios-announces-38-revenue-growth-in-q2-showcasing-strong-performance-in-children-s-entertainment)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kartoon-studios-reports-38-sequential-revenue-growth-for-q2/20246201)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/kartoon-studios-achieves-38-revenue-growth-in-q2-ceo-discusses-success-on-benzinga/20246201)
+
+Pickup - [advos.io](https://advos.io/en/kartoon-studios-reports-38-sequential-revenue-growth-for-q2/20246201)
+ 
 
 
 

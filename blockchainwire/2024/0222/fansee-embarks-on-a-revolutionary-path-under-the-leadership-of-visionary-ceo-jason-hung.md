@@ -29,7 +29,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/fansee-embarks-on-a-revolutionary-path-under-the-leadership-of-visionary-ceo-jason-hung)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fansee-integrates-blockchain-technology-to-redefine-social-networking/f55940804c9090d907d652c2c072be1d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/22/fansee-revolutionizes-social-networking-with-blockchain-integration)
+ 
 
 
 

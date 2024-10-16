@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/standard-uran
 [Original/Source Press Release](https://newsdirect.com/news/standard-uranium-announces-wraps-up-inaugural-drill-program-at-atlantic-project-829371569)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/standard-uranium-unveils-promising-results-from-inaugural-drill-program-at-atlantic-project/b8492c97dc83458eabfb81d56e8ac0c7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/standard-uranium-completes-inaugural-drill-program-at-atlantic-project)
+ 
 
 
 

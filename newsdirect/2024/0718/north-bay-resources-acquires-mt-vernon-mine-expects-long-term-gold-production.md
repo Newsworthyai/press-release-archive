@@ -23,7 +23,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/north-bay-res
 [Original/Source Press Release](https://newsdirect.com/news/north-bay-resources-acquires-mt-vernon-mine-expects-long-term-gold-production-780212061)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/north-bay-resources-acquires-mt-vernon-mine-expects-long-term-gold-production/8ae0285024ef18fba793ccf617d79ef1) 
+
+
+Pickup - [advos.io](https://advos.io/en/north-bay-resources-acquires-mt-vernon-mine-eyes-long-term-gold-production/20245077)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/north-bay-resources-secures-mt-vernon-mine-anticipates-decades-of-gold-production)
+
+Pickup - [fishervista.com](https://fishervista.com/en/north-bay-resources-acquires-mt-vernon-mine-anticipates-long-term-gold-production/20245077)
+ 
 
 
 

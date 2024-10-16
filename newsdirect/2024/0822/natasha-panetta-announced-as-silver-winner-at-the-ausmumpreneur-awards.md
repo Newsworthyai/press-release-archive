@@ -43,7 +43,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/natasha-panet
 [Original/Source Press Release](https://newsdirect.com/news/natasha-panetta-announced-as-silver-winner-at-the-ausmumpreneur-awards-797932125)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/natasha-panetta-wins-silver-at-ausmumpreneur-awards/5e8ea959fb29eac6df4edf75b8351479) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/natasha-panetta-wins-silver-at-ausmumpreneur-awards-for-marketing-excellence)
+
+Pickup - [fishervista.com](https://fishervista.com/en/natasha-panetta-secures-silver-at-2024-ausmumpreneur-awards/20245898)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/natasha-panetta-of-busy-goddess-marketing-co-wins-silver-at-ausmumpreneur-awards/20245898)
+
+Pickup - [advos.io](https://advos.io/en/natasha-panetta-wins-silver-at-2024-ausmumpreneur-awards/20245898)
+ 
 
 
 

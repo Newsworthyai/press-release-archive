@@ -33,7 +33,9 @@ Founded in 2017, [CoinW](https://www.coinw.com/) is a globally recognized [cr
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-makes-a-lasting-impression-at-token2049-with-major-collaborations-and-a-legendary-after-party)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-takes-center-stage-at-token2049-as-platinum-sponsor/fa7dc73554c659a224c569ef4c1f05ee) 
+
+ 
 
 
 

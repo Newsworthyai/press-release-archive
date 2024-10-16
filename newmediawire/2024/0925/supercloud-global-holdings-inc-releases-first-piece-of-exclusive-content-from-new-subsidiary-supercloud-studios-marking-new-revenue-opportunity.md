@@ -39,7 +39,9 @@ This press release contains forward-looking statements that are subject to risks
 [Original/Source Press Release](http://www.newmediawire.com/news/supercloud-global-holdings-inc-releases-first-piece-of-exclusive-content-from-new-subsidiary-supercloud-studios-marking-new-revenue-opportunity-7076090)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newly-formed-full-scale-entertainment-production-company-celebrates-pivotal-milestone/e9a9f49dff3eb10d44eeb7a37919e7b6) 
+
+ 
 
 
 

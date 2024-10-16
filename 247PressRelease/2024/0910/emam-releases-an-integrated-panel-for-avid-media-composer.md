@@ -7,7 +7,17 @@ NEW YORK, NY, September 10, 2024 /24-7PressRelease/ -- EMAM is releasing an inte
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514126/emam-releases-an-integrated-panel-for-avid-media-composer)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/emam-releases-integrated-panel-for-avid-media-composer-at-ibc-2024/38186e2ba14623301b740ad8011576d0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/emam-unveils-integrated-panel-for-avid-media-composer-at-ibc-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/emam-introduces-integrated-panel-for-avid-media-composer-at-ibc-2024/20246637)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/emam-unveils-integrated-panel-for-avid-media-composer-at-ibc-2024/20246637)
+
+Pickup - [advos.io](https://advos.io/en/emam-introduces-integrated-panel-for-avid-media-composer-at-ibc-2024/20246637)
+ 
 
 
 

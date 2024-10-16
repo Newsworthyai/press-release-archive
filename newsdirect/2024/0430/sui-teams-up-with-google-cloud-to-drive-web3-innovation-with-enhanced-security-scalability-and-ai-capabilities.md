@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/sui-teams-up-
 [Original/Source Press Release](https://newsdirect.com/news/sui-teams-up-with-google-cloud-to-drive-web3-innovation-with-enhanced-security-scalability-and-ai-capabilities-864049963)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sui-teams-up-with-google-cloud-to-drive-web3-innovation/4ebdbca80e91e00376162f8f0a0f9d70) 
+
+ 
 
 
 

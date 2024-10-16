@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/europa-oil-an
 [Original/Source Press Release](https://newsdirect.com/news/europa-oil-and-gas-says-updated-emissions-study-reinforces-the-case-for-inishkea-west-project-454274727)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/europa-oil-gas-ceo-discusses-updated-emissions-study-for-irish-offshore-gas-project/749763f4e00add016ee06431deea7909) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/europa-oil-gas-says-updated-emissions-study-reinforces-the-case-for-inishkea-west-project)
+ 
 
 
 

@@ -53,7 +53,9 @@ info@cassiopeia-ltd.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/q-blockchain-and-hyperlane-pioneer-cross-chain-governance-solutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/q-development-ag-deploys-hyperlane-on-q-enabling-cross-chain-governance/121117d0b864892e0bb445047cd724a3) 
+
+ 
 
 
 

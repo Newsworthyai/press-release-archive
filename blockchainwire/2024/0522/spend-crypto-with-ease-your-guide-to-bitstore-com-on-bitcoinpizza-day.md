@@ -17,7 +17,13 @@ BitStore.com is your gateway to seamless cryptocurrency integration in the real 
 [Original/Source Press Release](https://blockchainwire.io/press-release/spend-crypto-with-ease-your-guide-to-bitstorecom-on-bitcoinpizza-day)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoinpizza-day-celebrated-with-revolutionary-crypto-spending-integration/09e2f4b6f2f0ff7e984fb7e8177c13c3) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoinpizza-day-celebrated-with-revolutionary-crypto-spending-integration)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoinpizza-day-celebrated-with-revolutionary-crypto-spending-integration)
+ 
 
 
 

@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/revenue-manag
 [Original/Source Press Release](https://newsdirect.com/news/revenue-management-solutions-named-best-use-of-research-and-surveys-in-pr-dailys-2024-social-media-digital-and-content-marketing-awards-794492059)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rms-wins-2024-social-media-digital-content-marketing-award/6bbeb16a41874d6d7f500345e89cd2ea) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/revenue-management-solutions-wins-prestigious-award-for-restaurant-trend-reports)
+
+Pickup - [fishervista.com](https://fishervista.com/en/revenue-management-solutions-wins-top-honor-for-research-at-pr-dailys-2024-awards/20245651)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/revenue-management-solutions-wins-pr-daily-award-for-restaurant-trend-reports/20245651)
+
+Pickup - [advos.io](https://advos.io/en/revenue-management-solutions-wins-best-use-of-research-and-surveys-at-pr-dailys-2024-awards/20245651)
+ 
 
 
 

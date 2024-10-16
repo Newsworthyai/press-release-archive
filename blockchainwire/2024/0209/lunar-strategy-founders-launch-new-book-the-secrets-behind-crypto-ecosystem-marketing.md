@@ -25,7 +25,11 @@ Tim Haldorsson's background, including his tenure at Google and leadership at Lu
 [Original/Source Press Release](https://blockchainwire.io/press-release/lunar-strategy-founders-launch-new-book---the-secrets-behind-crypto-ecosystem-marketing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marketing-beyond-the-reply-guy/ea97a17f6c29820883782dec4925559f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/09/crypto-marketing-secrets-unveiled-by-lunar-strategy-founders)
+ 
 
 
 

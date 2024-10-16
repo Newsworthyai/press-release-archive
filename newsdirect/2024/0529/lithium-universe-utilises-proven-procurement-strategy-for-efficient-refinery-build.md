@@ -17,7 +17,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/lithium-unive
 [Original/Source Press Release](https://newsdirect.com/news/lithium-universe-utilises-proven-procurement-strategy-for-efficient-refinery-build-365668629)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lithium-universe-implements-proven-procurement-strategy-for-efficient-refinery-build/55e0d149c2c4bbaf43fcf2c804a0c017) 
+
+ 
 
 
 

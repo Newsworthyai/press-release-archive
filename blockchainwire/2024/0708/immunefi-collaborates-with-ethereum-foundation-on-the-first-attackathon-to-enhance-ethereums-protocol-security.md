@@ -41,7 +41,19 @@ EF is a non-profit and part of a community of organizations and people working t
 [Original/Source Press Release](https://blockchainwire.io/press-release/immunefi-collaborates-with-ethereum-foundation-on-the-first-attackathon-to-enhance-ethereums-protocol-security)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/immunefi-and-ethereum-foundation-partner-for-first-attackathon-to-enhance-ethereum-protocol-security/c2aae7b5bc29f9aa323fe108845f878c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/immunefi-and-ethereum-foundation-launch-pioneering-attackathon-to-bolster-ethereum-security/20244758)
+
+Pickup - [advos.io](https://advos.io/en/immunefi-partners-with-ethereum-foundation-for-first-ever-attackathon-to-bolster-protocol-security/20244758)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/immunefi-and-ethereum-foundation-launch-groundbreaking-attackathon-to-enhance-protocol-security)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/immunefi-and-ethereum-foundation-partner-for-first-attackathon-to-enhance-ethereum-protocol-security)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/immunefi-and-ethereum-foundation-partner-for-first-attackathon-to-enhance-ethereum-protocol-security)
+ 
 
 
 

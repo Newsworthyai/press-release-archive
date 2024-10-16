@@ -31,7 +31,13 @@ Media Contact:Team Retik[bd@retik.com](mailto:bd@retik.com)[https://retik.com/](
 [Original/Source Press Release](https://blockchainwire.io/press-release/retik-finance-retik-launch-on-may-21-will-be-bigger-than-notcoin-not-heres-why-everyone-is-talking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/retik-finance-retik-launch-generates-unparalleled-enthusiasm-in-cryptocurrency-world/07e26fe1f2c1bbf918e0899b0808f270) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/retik-finance-retik-launch-generates-unparalleled-enthusiasm-in-cryptocurrency-world)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/retik-finance-retik-launch-generates-unparalleled-enthusiasm-in-cryptocurrency-world)
+ 
 
 
 

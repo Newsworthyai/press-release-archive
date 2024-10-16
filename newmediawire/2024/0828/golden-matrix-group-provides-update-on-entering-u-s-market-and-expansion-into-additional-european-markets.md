@@ -57,7 +57,13 @@ LAS VEGAS, NV - (NewMediaWire) - August 28, 2024 - Golden Matrix Group (NASDAQ:
 [Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-provides-update-on-entering-u-s-market-and-expansion-into-additional-european-markets-7075972)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-matrix-group-nasdaq-gmgi-expanding-market-presence-and-anticipating-entry-into-the-u-s-igaming-market/284a5ac42039fe7c07989d278420d4ea) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/golden-matrix-group-advances-u-s-market-entry-and-european-expansion)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/golden-matrix-group-advances-expansion-plans-in-u-s-and-european-igaming-markets/20246452)
+ 
 
 
 

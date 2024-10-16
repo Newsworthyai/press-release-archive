@@ -17,7 +17,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/lightning-min
 [Original/Source Press Release](https://newsdirect.com/news/lightning-minerals-completes-due-diligence-for-bengal-mining-acquisition-955462822)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lightning-minerals-completes-due-diligence-for-bengal-mining-acquisition/37184a6b6d711ee1f1738e2eed7bf02e) 
+
+ 
 
 
 

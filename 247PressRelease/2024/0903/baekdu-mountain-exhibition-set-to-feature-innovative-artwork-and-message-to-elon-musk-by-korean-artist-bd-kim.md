@@ -7,7 +7,17 @@ NEW YORK, NY, September 03, 2024 /24-7PressRelease/ -- Emerging Korean artist BD
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513966/baekdu-mountain-exhibition-set-to-feature-innovative-artwork-and-message-to-elon-musk-by-korean-artist-bd-kim)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/korean-artist-bd-kim-proposes-sending-artwork-to-space-in-video-message-to-elon-musk/5b4005840fb34f4d2e3bd34f6ea1f9a0) 
+
+
+Pickup - [advos.io](https://advos.io/en/korean-artist-bd-kim-s-message-to-elon-musk-highlights-intersection-of-art-and-technology/20246470)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/korean-artist-bd-kim-s-innovative-artwork-to-debut-at-baekdu-mountain-invites-elon-musk-to-launch-art-into-space)
+
+Pickup - [fishervista.com](https://fishervista.com/en/korean-artist-bd-kim-proposes-space-bound-artwork-to-elon-musk/20246470)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/korean-artist-bd-kim-to-unveil-groundbreaking-artwork-at-baekdu-mountain-invites-elon-musk-to-collaborate/20246470)
+ 
 
 
 

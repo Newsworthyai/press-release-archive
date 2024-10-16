@@ -7,7 +7,15 @@ LOS ANGELES, CA, July 09, 2024 /24-7PressRelease/ -- The allure of "Horizon: An 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512354/costner-fans-cannot-get-enough-of-his-latest-release-horizon)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kevin-costner-s-horizon-an-american-saga-part-1-captivates-audiences-with-stunning-portrayal-of-the-american-frontier/2fd76a9756f180265f81b63a25325a7e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/kevin-costner-s-horizon-an-american-saga-part-1-captivates-audiences-with-majestic-portrayal-of-the-american-frontier/20244784)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/kevin-costner-s-horizon-an-american-saga-part-1-captivates-audiences-with-epic-western-storytelling)
+
+Pickup - [advos.io](https://advos.io/en/kevin-costner-s-horizon-an-american-saga-part-1-captivates-audiences-with-its-epic-portrayal-of-the-american-frontier/20244784)
+ 
 
 
 

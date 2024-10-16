@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/elevate-urani
 [Original/Source Press Release](https://newsdirect.com/news/elevate-uranium-ceo-murrey-hill-discusses-companys-strategic-expansion-and-market-outlook-106812640)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elevate-uranium-ceo-discusses-strategic-expansion-and-market-outlook/ce29afbf2e8290b33d1c6891052bf487) 
+
+ 
 
 
 

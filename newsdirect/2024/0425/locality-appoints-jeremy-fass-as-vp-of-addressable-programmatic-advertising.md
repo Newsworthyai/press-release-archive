@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/locality-appo
 [Original/Source Press Release](https://newsdirect.com/news/locality-appoints-jeremy-fass-as-vp-of-addressable-and-programmatic-advertising-282290025)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/locality-appoints-jeremy-fass-as-vp-of-addressable-programmatic-advertising/d56622d10ff88e32d0a8c7527a0ddb7a) 
+
+ 
 
 
 

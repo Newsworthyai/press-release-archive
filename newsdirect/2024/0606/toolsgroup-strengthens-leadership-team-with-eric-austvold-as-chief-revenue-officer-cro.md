@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/toolsgroup-st
 [Original/Source Press Release](https://newsdirect.com/news/toolsgroup-strengthens-leadership-team-with-eric-austvold-as-chief-revenue-officer-cro-322427903)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/toolsgroup-appoints-eric-austvold-as-chief-revenue-officer-to-drive-global-growth/3022f4710787ceff63fb126c2c505fb6) 
+
+
+Pickup - [advos.io](https://advos.io/en/toolsgroup-appoints-eric-austvold-as-chief-revenue-officer-to-drive-global-growth/20243894)
+ 
 
 
 

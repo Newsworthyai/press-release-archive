@@ -51,7 +51,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/city-holder-launch-of-the-seasons-most-anticipated-game-on-telegram)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-city-holder-mini-game-launched-on-telegram-attracts-4-2-million-players/4a0e98be435b511ebcccac7b6503172b) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/new-city-holder-mini-game-launched-on-telegram-attracts-4-2-million-players)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/new-city-holder-mini-game-launched-on-telegram-attracts-4-2-million-players)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/city-holder-new-build-to-earn-telegram-game-attracts-millions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/city-holder-game-launches-on-telegram-with-promising-earning-potential/20245446)
+
+Pickup - [advos.io](https://advos.io/en/city-holder-a-new-era-of-build-to-earn-gaming-on-telegram/20245446)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/city-holder-new-telegram-mini-game-blends-urban-planning-with-crypto-earning-potential)
+ 
 
 
 

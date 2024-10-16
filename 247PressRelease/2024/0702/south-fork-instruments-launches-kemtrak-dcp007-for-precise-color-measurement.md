@@ -7,7 +7,15 @@ AUBURN, CA, July 02, 2024 /24-7PressRelease/ -- South Fork Instruments, a leader
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512219/south-fork-instruments-launches-kemtrak-dcp007-for-precise-color-measurement)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/south-fork-instruments-unveils-kemtrak-dcp007-for-enhanced-industrial-color-measurement/0f41c9a16fc48602e0cc7801dbe9153a) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/south-fork-instruments-introduces-kemtrak-dcp007-for-enhanced-industrial-color-measurement/20244649)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/south-fork-instruments-unveils-kemtrak-dcp007-a-breakthrough-in-industrial-color-measurement)
+
+Pickup - [advos.io](https://advos.io/en/south-fork-instruments-unveils-kemtrak-dcp007-for-enhanced-industrial-color-measurement/20244649)
+ 
 
 
 

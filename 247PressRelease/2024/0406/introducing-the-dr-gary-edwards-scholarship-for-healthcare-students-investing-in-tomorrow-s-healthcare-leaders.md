@@ -7,7 +7,11 @@ BIRMINGHAM, AL, April 06, 2024 /24-7PressRelease/ -- Dr. Gary Edwards, a disting
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509860/introducing-the-dr-gary-edwards-scholarship-for-healthcare-students-investing-in-tomorrows-healthcare-leaders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-gary-edwards-launches-scholarship-for-healthcare-students/89161e165883a9e8577550b7e94fa1fa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/06/dr-gary-edwards-launches-scholarship-to-empower-future-healthcare-leaders)
+ 
 
 
 

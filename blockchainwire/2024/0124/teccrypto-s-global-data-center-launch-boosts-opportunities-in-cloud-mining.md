@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/teccryptos-global-data-center-launch-boosts-opportunities-in-cloud-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teccrypto-expands-global-data-centers-for-enhanced-bitcoin-mining/40ee5a16f7b59360b7f4bb5b90e8d6f7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/24/teccrypto-expands-global-footprint-enhancing-cloud-mining-opportunities)
+ 
 
 
 

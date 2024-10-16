@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/xlink-announc
 [Original/Source Press Release](https://newsdirect.com/news/xlink-announces-new-strategic-partnerships-with-fireblocks-and-ancilia-694271568)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xlink-announces-new-strategic-partnerships-with-fireblocks-and-ancilia/f75b8017084de58898ca9eff7994434e) 
+
+
+Pickup - [advos.io](https://advos.io/en/xlink-bolsters-security-with-strategic-partnerships/20244212)
+ 
 
 
 

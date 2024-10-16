@@ -7,7 +7,11 @@ BELLINGHAM, WA, March 15, 2024 /24-7PressRelease/ -- The Parent Coaching Institu
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509282/parent-coaching-institute-launches-latest-initiative-why-i-pci)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/parent-coaching-institute-launches-why-i-pci-initiative-to-inform-parents-about-coach-services/ffa9c9baf203d787648bea94f52507d5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/parent-coaching-institute-unveils-why-i-pci-initiative)
+ 
 
 
 

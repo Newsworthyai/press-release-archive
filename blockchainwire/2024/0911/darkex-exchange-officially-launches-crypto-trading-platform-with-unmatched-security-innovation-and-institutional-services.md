@@ -45,7 +45,21 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/darkex-exchange-officially-launches-crypto-trading-platform-with-unmatched-security-innovation-and-institutional-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/darkex-cryptocurrency-exchange-launches-with-cutting-edge-technology-and-unparalleled-security-measures/7e43340da4e470a3de19b6a28648bf4c) 
+
+
+Pickup - [advos.io](https://advos.io/en/darkex-launches-new-cryptocurrency-exchange-platform-with-advanced-security-and-institutional-services/20246747)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/darkex-cryptocurrency-exchange-launches-with-cutting-edge-technology-and-unparalleled-security-measures)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/darkex-cryptocurrency-exchange-launches-with-cutting-edge-technology-and-unparalleled-security-measures)
+
+Pickup - [fishervista.com](https://fishervista.com/en/darkex-exchange-launches-with-advanced-security-and-comprehensive-services/20246747)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/darkex-launches-advanced-cryptocurrency-exchange-platform/20246747)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/darkex-launches-new-cryptocurrency-exchange-platform-with-advanced-security-and-institutional-services)
+ 
 
 
 

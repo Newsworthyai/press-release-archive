@@ -25,7 +25,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-breaks-70k-what-does-this-mean-for-solana-and-furrever-tokens-roi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-surpasses-70000-impacts-solana-and-furrever-token/05d4fb96e9263fd54e3a0fadda67175f) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-surpasses-70000-impacts-solana-and-furrever-token)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-surpasses-70000-impacts-solana-and-furrever-token)
+ 
 
 
 

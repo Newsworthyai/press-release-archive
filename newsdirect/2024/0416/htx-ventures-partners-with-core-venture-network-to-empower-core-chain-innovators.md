@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-
 [Original/Source Press Release](https://newsdirect.com/news/htx-ventures-partners-with-core-venture-network-to-empower-core-chain-innovators-250993582)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-ventures-partners-with-core-venture-network-to-empower-core-chain-innovators/c68dca01629a5f1eb4c80eeee7990c7d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/htx-ventures-partners-with-core-venture-network-to-empower-core-chain-innovators)
+ 
 
 
 

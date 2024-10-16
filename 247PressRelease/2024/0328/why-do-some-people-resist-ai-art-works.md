@@ -7,7 +7,11 @@ VANCOUVER, BC, March 28, 2024 /24-7PressRelease/ -- In a Facebook discussion gro
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509586/why-do-some-people-resist-ai-art-works)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/debate-sparks-over-ai-s-role-in-art-creation/7044a7eff773cb285ebbba1ae8d22e83) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/embracing-ai-art-a-new-era-of-creativity)
+ 
 
 
 

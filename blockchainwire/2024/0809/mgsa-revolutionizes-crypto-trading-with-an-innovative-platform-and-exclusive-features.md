@@ -39,7 +39,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/mgsa-revolutionizes-crypto-trading-with-an-innovative-platform-and-exclusive-features-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/mgsa-launches-desktop-focused-cryptocurrency-trading-platform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mgsa-introduces-advanced-desktop-focused-crypto-trading-platform/20245625)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mgsa-launches-desktop-focused-crypto-trading-platform-for-serious-traders/20245625)
+
+Pickup - [advos.io](https://advos.io/en/mgsa-revolutionizes-crypto-trading-with-desktop-focused-platform/20245625)
+ 
 
  
 

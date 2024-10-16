@@ -85,7 +85,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-host
 [Original/Source Press Release](https://newsdirect.com/news/tron-dao-hosted-the-tron-builder-tour-at-columbia-university-with-blockchain-at-columbia-and-boston-university-blockchain-337428181)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tron-dao-hosts-successful-builder-tour-at-columbia-university/46140dda95988cb3f226b47ebc08d6ab) 
+
+ 
 
 
 

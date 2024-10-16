@@ -35,7 +35,21 @@ Its comprehensive security suite includes real-time proactive monitoring, detect
 [Original/Source Press Release](https://blockchainwire.io/press-release/inverted-investments-partners-with-cyvers-to-revolutionize-web3-security)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/inverted-investments-partners-with-cyvers-to-enhance-crypto-security/7cbd698d8cd21bf8fc3514c2e1f6ba77) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/inverted-investments-and-cyvers-join-forces-to-enhance-web3-security)
+
+Pickup - [fishervista.com](https://fishervista.com/en/inverted-investments-partners-with-cyvers-to-enhance-web3-security/20245349)
+
+Pickup - [advos.io](https://advos.io/en/inverted-investments-partners-with-cyvers-to-enhance-web3-security/20245349)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/inverted-investments-partners-with-cyvers-to-enhance-crypto-security)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/inverted-investments-partners-with-cyvers-to-enhance-crypto-security)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/inverted-investments-and-cyvers-join-forces-to-enhance-web3-security)
+ 
 
 
 

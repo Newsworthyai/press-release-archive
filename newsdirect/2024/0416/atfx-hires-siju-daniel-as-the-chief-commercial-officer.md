@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/atfx-hires-si
 [Original/Source Press Release](https://newsdirect.com/news/atfx-hires-siju-daniel-as-the-chief-commercial-officer-961986089)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atfx-appoints-siju-daniel-as-chief-commercial-officer/105c94b92a8974f497e7093d55ac9391) 
+
+ 
 
 
 

@@ -89,7 +89,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/alzamend-neur
 [Original/Source Press Release](https://newsdirect.com/news/alzamend-neuro-partners-with-massachusetts-general-hospital-for-phase-ii-trial-of-al001-involving-patients-with-bipolar-disorder-and-alzheimers-disease-589457201)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alzamend-neuro-partners-with-mgh-for-phase-ii-trial-of-next-generation-lithium-therapeutic-drug-candidate-for-bipolar-disorder/9a4087723b4bb87a1a450e9961a6ac95) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/alzamend-neuro-partners-with-massachusetts-general-hospital-for-groundbreaking-phase-ii-trials)
+
+Pickup - [fishervista.com](https://fishervista.com/en/alzamend-neuro-collaborates-with-massachusetts-general-hospital-for-critical-phase-ii-trials-of-al001/20245532)
+
+Pickup - [advos.io](https://advos.io/en/alzamend-neuro-partners-with-massachusetts-general-hospital-for-phase-ii-trial-of-al001/20245532)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/alzamend-neuro-partners-with-massachusetts-general-hospital-for-phase-ii-trials-of-al001)
+ 
 
 
 

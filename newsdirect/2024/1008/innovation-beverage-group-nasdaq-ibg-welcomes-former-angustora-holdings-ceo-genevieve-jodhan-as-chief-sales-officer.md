@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/innovation-be
 [Original/Source Press Release](https://newsdirect.com/news/innovation-beverage-group-nasdaq-ibg-welcomes-former-angustora-holdings-ceo-genevieve-jodhan-as-chief-sales-officer-630573085)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ibg-appoints-former-angostura-holdings-ceo-as-chief-sales-officer/39feaf14f12348553d461554cc1d01f7) 
+
+ 
 
 
 

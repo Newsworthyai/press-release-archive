@@ -27,7 +27,19 @@ Website: https://cosmickittens.online/*Disclaimer: The information provided in t
 [Original/Source Press Release](https://blockchainwire.io/press-release/cosmic-kittens-ckit-unveils-revolutionary-blockchain-gaming-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cosmic-kittens-ckit-pioneering-a-new-era-in-crypto-gaming/708220dacc463534804abc4c83b28430) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cosmic-kittens-ckit-unveils-revolutionary-blockchain-gaming-experience/20244695)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/cosmic-kittens-ckit-launches-innovative-space-themed-nft-gaming-platform)
+
+Pickup - [advos.io](https://advos.io/en/cosmic-kittens-ckit-unveils-revolutionary-blockchain-gaming-experience/20244695)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cosmic-kittens-ckit-pioneering-a-new-era-in-crypto-gaming)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cosmic-kittens-ckit-pioneering-a-new-era-in-crypto-gaming)
+ 
 
 
 

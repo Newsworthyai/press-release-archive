@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/copper-proper
 [Original/Source Press Release](https://newsdirect.com/news/copper-property-ctl-pass-through-trust-schedules-live-call-to-discuss-recent-financial-and-operating-results-988359058)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/copper-property-ctl-trust-to-host-live-call-on-recent-financial-results/6709b0dc8f44886a8cfc1793ff57d3b2) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/copper-property-ctl-pass-through-trust-announces-conference-call-to-discuss-financial-and-operating-results/20245536)
+
+Pickup - [advos.io](https://advos.io/en/copper-property-ctl-pass-through-trust-announces-conference-call-on-financial-and-operating-results/20245536)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/copper-property-ctl-pass-through-trust-announces-conference-call-to-review-financial-results)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/copper-property-ctl-pass-through-trust-announces-conference-call-to-discuss-financial-results)
+ 
 
 
 

@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/med-x-poised-
 [Original/Source Press Release](https://newsdirect.com/news/med-x-poised-for-global-expansion-and-nasdaq-listing-amidst-200-revenue-growth-298134364)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/med-x-prepares-for-nasdaq-listing-and-offers-private-investment-opportunity/17ffd81ffb8dc570c157424ce1442554) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/med-x-eyes-nasdaq-listing-as-natural-product-portfolio-drives-200-revenue-growth)
+
+Pickup - [fishervista.com](https://fishervista.com/en/med-x-eyes-global-expansion-and-nasdaq-listing-following-200-revenue-surge/20245494)
+
+Pickup - [advos.io](https://advos.io/en/med-x-announces-global-expansion-and-upcoming-nasdaq-listing-after-200-revenue-growth/20245494)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/med-x-eyes-nasdaq-listing-following-substantial-revenue-growth-and-global-expansion)
+ 
 
 
 

@@ -7,7 +7,17 @@ RALEIGH, NC, August 28, 2024 /24-7PressRelease/ -- Hardison & Cochran Attorneys 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513831/hardison-cochran-offers-free-magnets-with-important-reminder-look-for-motorcycles)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hardison-cochran-promotes-motorcycle-safety-with-free-magnets/bd2ab8edbb0bf9e28324efdae4443cce) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/north-carolina-law-firm-launches-motorcycle-safety-campaign-with-free-magnet-giveaway)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hardison-cochran-promotes-motorcycle-safety-with-free-magnets/20246320)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/north-carolina-law-firm-launches-motorcycle-safety-campaign-with-free-magnets/20246320)
+
+Pickup - [advos.io](https://advos.io/en/hardison-cochran-promotes-motorcycle-safety-with-free-magnets/20246320)
+ 
 
 
 

@@ -7,7 +7,11 @@ MAGNOLIA, TX, April 02, 2024 /24-7PressRelease/ -- If Jacob Dwyer is being hones
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509702/author-jacob-dwyer-introduces-the-release-of-his-new-childrens-book-a-gift-from-god)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/author-jacob-dwyer-shares-heartfelt-story-of-loss-and-healing-in-a-gift-from-god/93c54cfe18b77ce7464fb5f3eb4a7871) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/jacob-dwyer-shares-heartfelt-children-s-book-a-gift-from-god-in-memory-of-late-daughter)
+ 
 
 
 

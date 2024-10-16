@@ -7,7 +7,17 @@ BOSTON, MA, August 28, 2024 /24-7PressRelease/ --   About The Book:  "I'll See Y
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513846/franklin-publishers-celebrates-the-release-of-ill-see-you-tomorrow-a-collection-of-poems-about-growing-up-and-growing-out-by-cecelia-allentuck)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-collection-of-poems-celebrates-the-journey-from-adolescence-to-adulthood/ea1562b43cb3836f35723a8008c9d2ac) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/young-poet-cecelia-allentuck-releases-debut-collection-exploring-coming-of-age-journey)
+
+Pickup - [fishervista.com](https://fishervista.com/en/franklin-publishers-celebrates-the-release-of-cecelia-allentuck-s-new-poetry-collection/20246324)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/teen-author-cecelia-allentuck-releases-debut-poetry-collection-exploring-coming-of-age/20246324)
+
+Pickup - [advos.io](https://advos.io/en/franklin-publishers-releases-cecelia-allentuck-s-poignant-poetry-collection/20246324)
+ 
 
 
 

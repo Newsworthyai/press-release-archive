@@ -33,7 +33,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/fx1-becomes-the-new-king-of-crypto-entertainment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-startup-fx1-emerges-victorious-on-killer-whales-tv-show/170fb0240b51ef1c505c98b089774e2e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/fx1-crowned-king-of-crypto-entertainment-on-killer-whales-tv-show)
+ 
 
 
 

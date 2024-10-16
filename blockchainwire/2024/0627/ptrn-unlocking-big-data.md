@@ -63,7 +63,17 @@ Coinstore Social MediaTwitter | Discord | Facebook | Instagram | Youtube | Teleg
 [Original/Source Press Release](https://blockchainwire.io/press-release/ptrn---unlocking-big-data)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ptrn-the-future-currency-of-location-data/e6294c1582b7b334c32405fed39bc12e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/ptrn-revolutionizing-data-collection-with-ai-and-blockchain/20244555)
+
+Pickup - [advos.io](https://advos.io/en/ptrn-revolutionizes-data-accessibility-with-blockchain-and-ai-integration/20244555)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ptrn-the-future-currency-of-location-data)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ptrn-the-future-currency-of-location-data)
+ 
 
 
 

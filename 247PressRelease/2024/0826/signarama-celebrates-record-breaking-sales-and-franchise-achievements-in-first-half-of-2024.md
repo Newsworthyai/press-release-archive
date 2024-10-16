@@ -7,7 +7,17 @@ WEST PALM BEACH, FL, August 26, 2024 /24-7PressRelease/ -- Signarama®, the worl
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513724/signarama-celebrates-record-breaking-sales-and-franchise-achievements-in-first-half-of-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/signarama-r-franchisees-achieve-record-breaking-sales-in-first-half-of-2024/c60555d1d2c665c74ef8df72147b5014) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/signarama-franchisees-achieve-record-breaking-sales-in-first-half-of-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/signarama-reports-record-breaking-franchise-sales-in-early-2024/20245950)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/signarama-franchisees-achieve-record-breaking-sales-in-first-half-of-2024/20245950)
+
+Pickup - [advos.io](https://advos.io/en/signarama-reports-record-breaking-sales-and-franchise-achievements-in-early-2024/20245950)
+ 
 
 
 

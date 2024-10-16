@@ -41,7 +41,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/raja-randhir-
 [Original/Source Press Release](https://newsdirect.com/news/raja-randhir-singh-sole-candidate-for-oca-presidency-116449466)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/oca-election-committee-confirms-raja-randhir-singh-as-sole-candidate-for-presidency/30ebfd572654a5fc42407ea187c8cfe3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/raja-randhir-singh-emerges-as-sole-candidate-for-olympic-council-of-asia-presidency)
+
+Pickup - [fishervista.com](https://fishervista.com/en/raja-randhir-singh-sole-candidate-for-olympic-council-of-asia-presidency/20245176)
+
+Pickup - [advos.io](https://advos.io/en/raja-randhir-singh-sole-candidate-for-oca-presidency/20245176)
+ 
 
 
 

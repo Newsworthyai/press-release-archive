@@ -37,7 +37,19 @@ Make your recruitment process future-ready with RChilli’s AI-powered solutions
 [Original/Source Press Release](https://newsworthy.ai/news/202409161266/rchilli-to-transform-hiring-strategies-with-ai-powered-solutions-at-hr-tech-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-to-showcase-ai-powered-recruitment-solutions-at-hr-tech-conference-2024/2d1006e1206287f48d4984e5bc1a7d06) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/rchilli-to-showcase-ai-powered-recruitment-solutions-at-hr-tech-conference-2024)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-to-showcase-ai-powered-recruitment-solutions-at-hr-tech-2024/20246866)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rchilli-to-showcase-ai-powered-recruitment-solutions-at-hr-tech-2024/20246866)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/rchilli-to-showcase-ai-powered-recruitment-solutions-at-hr-tech-2024/20246866)
+
+Pickup - [advos.io](https://advos.io/en/rchilli-to-showcase-ai-powered-recruitment-solutions-at-hr-tech-2024/20246866)
+ 
 
 
 

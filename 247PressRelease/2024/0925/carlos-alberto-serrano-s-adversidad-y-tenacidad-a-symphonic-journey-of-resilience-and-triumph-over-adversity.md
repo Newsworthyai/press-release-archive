@@ -7,7 +7,9 @@ STOWE, VT, September 25, 2024 /24-7PressRelease/ -- Carlos Alberto Serrano – A
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514627/carlos-alberto-serranos-adversidad-y-tenacidad-a-symphonic-journey-of-resilience-and-triumph-over-adversity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/award-winning-composer-releases-new-symphonic-work-adversidad-y-tenacidad/e57219ca08813c3ef82ce11f9fa471fb) 
+
+ 
 
 
 

@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/lava-cake-is-
 [Original/Source Press Release](https://newsdirect.com/news/lava-cake-is-the-top-cannabis-strain-on-the-market-new-poll-finds-493786780)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-poll-reveals-lava-cake-as-top-cannabis-strain-for-consumers/59df81891ee27a568967d488a423f76a) 
+
+ 
 
 
 

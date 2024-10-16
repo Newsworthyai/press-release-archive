@@ -27,7 +27,9 @@ For more information, please visit Somnia.Network
 [Original/Source Press Release](https://blockchainwire.io/press-release/yuga-labs-partners-with-somnia-to-increase-metaverse-interoperability-and-incentives)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/somnia-partners-with-yuga-labs-to-enhance-nft-ecosystem/69e6d436631c27857bc163395b444a6e) 
+
+ 
 
 
 

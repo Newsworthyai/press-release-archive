@@ -71,7 +71,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-foundatio
 [Original/Source Press Release](https://newsdirect.com/news/the-foundation-of-the-ai-revolution-isnt-what-you-think-650221895)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-role-of-critical-minerals-in-the-ai-revolution/7bda6b731aa5e4b95c33139ff0838b5f) 
+
+ 
 
 
 

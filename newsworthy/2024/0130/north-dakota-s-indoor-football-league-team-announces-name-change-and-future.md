@@ -23,7 +23,11 @@ The IFL is entering its 16th season of play, making it the longest-running indoo
 [Original/Source Press Release](https://newsworthy.ai/news/202401301046/north-dakota-s-indoor-football-league-team-announces-name-change-and-future)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bismarck-bucks-rebranded-as-dakota-bucks-embracing-fans-statewide/bbf854984edfc8ec18b64d2f6cea6395) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/30/dakota-bucks-north-dakota-s-indoor-football-team-embraces-statewide-identity)
+ 
 
 
 

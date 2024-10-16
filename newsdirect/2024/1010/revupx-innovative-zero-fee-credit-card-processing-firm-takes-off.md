@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/revupx-innova
 [Original/Source Press Release](https://newsdirect.com/news/revupx-innovative-zero-fee-credit-card-processing-firm-takes-off-443796643)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revupx-innovative-zero-fee-credit-card-processing-firm-takes-off/018a3ba4503de35352ec1214f425a72c) 
+
+ 
 
 
 

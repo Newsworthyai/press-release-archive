@@ -49,7 +49,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/revolutionizing-finance-sybbex-leads-fintech-innovation-from-ireland-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sybbex-launches-groundbreaking-fintech-solutions-to-revolutionize-global-financial-markets/5b71fa8aeffc1234ceb815901c90b309) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/26/sybbex-pioneers-fintech-revolution-from-ireland-s-innovation-hub)
+ 
 
 
 

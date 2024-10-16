@@ -7,7 +7,9 @@ INDIANAPOLIS, IN, April 16, 2024 /24-7PressRelease/ -- Firefighter Air Coalition
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510051/the-firefighter-air-coalition-presents-latest-technologies-for-high-rise-and-big-box-structures)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/firefighter-air-coalition-to-unveil-revolutionary-air-management-technology-at-fdic/c5fb5ff4786771a17c42f00c3707a537) 
+
+ 
 
 
 

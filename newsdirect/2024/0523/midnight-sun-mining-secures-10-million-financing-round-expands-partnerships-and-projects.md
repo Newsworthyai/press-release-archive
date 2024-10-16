@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/midnight-sun-
 [Original/Source Press Release](https://newsdirect.com/news/midnight-sun-mining-secures-10-million-financing-round-expands-partnerships-and-projects-357762352)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/midnight-sun-mining-secures-10m-financing-expands-partnerships-and-projects/7db9dff2fc46aa7da110a455036082e7) 
+
+ 
 
 
 

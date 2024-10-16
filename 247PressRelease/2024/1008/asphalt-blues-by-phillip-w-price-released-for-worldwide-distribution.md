@@ -7,7 +7,9 @@ ATLANTA, GA, October 08, 2024 /24-7PressRelease/ -- Asphalt Blues (ISBN 13: 978-
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515009/asphalt-blues-by-phillip-w-price-released-for-worldwide-distribution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-release-asphalt-blues-by-phillip-w-price-a-thrilling-addition-to-the-daniel-byrd-series/b35bcdb1719df44bee56bb1fed808222) 
+
+ 
 
 
 

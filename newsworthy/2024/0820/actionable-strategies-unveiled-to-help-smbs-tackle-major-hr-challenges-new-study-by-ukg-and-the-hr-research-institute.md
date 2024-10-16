@@ -31,7 +31,19 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202408201241/actionable-strategies-unveiled-to-help-smbs-tackle-major-hr-challenges-new-study-by-ukg-and-the-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/challenges-and-solutions-for-hr-in-small-to-mid-sized-businesses/de4a181c556cde33c773544edc894a05) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/new-study-reveals-key-strategies-for-smbs-to-overcome-hr-challenges)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/new-study-reveals-key-hr-challenges-and-solutions-for-small-and-mid-sized-businesses/20245831)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-study-reveals-hr-challenges-and-solutions-for-small-and-mid-sized-businesses/20245831)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-study-reveals-key-strategies-for-smbs-to-overcome-major-hr-challenges/20245831)
+
+Pickup - [advos.io](https://advos.io/en/new-study-reveals-key-hr-challenges-and-solutions-for-smbs/20245831)
+ 
 
 
 

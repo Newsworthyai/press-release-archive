@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/spilleloven-i
 [Original/Source Press Release](https://newsdirect.com/news/spilleloven-i-danmark-hvad-du-skal-vide-191995773)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/understanding-the-complexities-of-the-danish-gambling-act/80921b25c8ab413f50568a5911211f6d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/spilleloven-i-danmark-hvad-du-skal-vide)
+ 
 
 
 

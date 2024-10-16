@@ -43,7 +43,9 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/acossi-coin-aci-upgrades-its-token-with-discounts-and-perks-for-its-community)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/enhancing-aci-with-new-technology-and-benefits-for-users/fe512ce8ad6dd323d9c43b89dbcf4877) 
+
+ 
 
 
 

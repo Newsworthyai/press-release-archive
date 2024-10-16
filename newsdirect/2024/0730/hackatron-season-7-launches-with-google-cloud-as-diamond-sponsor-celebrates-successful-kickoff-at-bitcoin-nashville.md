@@ -97,7 +97,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/hackatron-sea
 [Original/Source Press Release](https://newsdirect.com/news/hackatron-season-7-launches-with-google-cloud-as-diamond-sponsor-celebrates-successful-kickoff-at-bitcoin-nashville-335028768)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hackatron-season-7-launches-with-google-cloud-as-diamond-sponsor/f7b55168cd554690755149409002dc69) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/hackatron-season-7-launches-with-650000-prize-pool-and-google-cloud-sponsorship)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hackatron-season-7-launches-with-google-cloud-as-diamond-sponsor-kicks-off-at-bitcoin-nashville/20245371)
+
+Pickup - [advos.io](https://advos.io/en/hackatron-season-7-launched-with-google-cloud-as-diamond-sponsor/20245371)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/hackatron-season-7-launches-with-google-cloud-as-diamond-sponsor)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/hackatron-season-7-launches-with-google-cloud-as-diamond-sponsor)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hackatron-season-7-unveils-650000-prize-pool-google-cloud-partnership)
+ 
 
 
 

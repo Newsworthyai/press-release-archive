@@ -29,7 +29,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/boom-defi-and-financial-times-agree-on-strategic-partnership-bridging-traditional-and-decentralised-finance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boom-defi-ecosystem-partners-with-financial-times-to-highlight-unbanked-entrepreneurs/1272f568d92cb57c5844b1de31b1ec9e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/boom-defi-and-financial-times-partner-to-spotlight-unbanked-entrepreneurs)
+
+Pickup - [fishervista.com](https://fishervista.com/en/boom-defi-and-financial-times-forge-partnership-to-address-financial-inclusion/20245683)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/boom-defi-and-financial-times-partner-to-highlight-unbanked-entrepreneurs/20245683)
+
+Pickup - [advos.io](https://advos.io/en/boom-defi-and-financial-times-partner-to-highlight-financial-inclusion/20245683)
+ 
 
 
 

@@ -25,7 +25,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/4e-exchange-signs-global-sponsorship-contract-with-argentina-national-football-team-to-write-a-new-chapter-of-sports-and-finance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/4e-exchange-signs-global-sponsorship-deal-with-argentina-national-football-team/2bba8bd4cbf2c7cbd400d7ff1736a562) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/4e-exchange-inks-global-sponsorship-deal-with-argentina-national-football-team)
+ 
 
 
 

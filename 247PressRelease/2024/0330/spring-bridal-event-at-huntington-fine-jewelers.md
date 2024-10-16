@@ -7,7 +7,11 @@ OKLAHOMA CITY, OK, March 30, 2024 /24-7PressRelease/ -- Enjoy incredible savings
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509681/spring-bridal-event-at-huntington-fine-jewelers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/save-big-on-bridal-rings-at-huntington-fine-jewelers/d7053795fbb231d4b810aa2a4692dac8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/30/huntington-fine-jewelers-offers-incredible-savings-on-bridal-rings)
+ 
 
 
 

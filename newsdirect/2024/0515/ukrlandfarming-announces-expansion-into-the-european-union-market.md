@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ukrlandfarmin
 [Original/Source Press Release](https://newsdirect.com/news/ukrlandfarming-announces-expansion-into-the-european-union-market-749003701)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ukrlandfarming-announces-expansion-into-the-european-union-market/8fe28adc5a007abe100864d1b9e800f0) 
+
+ 
 
 
 

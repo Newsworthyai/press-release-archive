@@ -49,7 +49,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/interested-in
 [Original/Source Press Release](https://newsdirect.com/news/interested-in-investing-in-private-companies-like-openai-but-dont-have-the-capital-check-out-linqto-924047151)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/linqto-revolutionizes-private-market-investing-for-retail-investors/314dd0018e2db463eb3cd625bf2aa112) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/linqto-democratizes-private-market-investing-for-individual-investors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/linqto-eases-access-to-private-market-investments-for-capital-constrained-individuals/20245213)
+
+Pickup - [advos.io](https://advos.io/en/linqto-revolutionizes-access-to-private-market-investments-for-retail-investors/20245213)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/linqto-democratizes-private-market-investing-for-individual-investors)
+ 
 
 
 

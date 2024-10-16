@@ -7,7 +7,17 @@ LOS ANGELES, CA, September 10, 2024 /24-7PressRelease/ -- The Guardians of Earth
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514127/the-guardians-of-earth-oona-and-the-luminous-beings-now-available-for-pre-order-on-amazon)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-fantasy-novel-celebrates-the-beauty-of-nature-and-calls-for-environmental-action/a19090dbaf2b026dc9a44494fad321d9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/new-fantasy-novel-the-guardians-of-earth-aims-to-inspire-environmental-awareness-in-young-readers)
+
+Pickup - [fishervista.com](https://fishervista.com/en/the-guardians-of-earth-oona-and-the-luminous-beings-now-available-for-pre-order-on-amazon/20246642)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-fantasy-novel-aims-to-inspire-environmental-awareness-in-young-readers/20246642)
+
+Pickup - [advos.io](https://advos.io/en/the-guardians-of-earth-oona-and-the-luminous-beings-now-available-for-pre-order/20246642)
+ 
 
 
 

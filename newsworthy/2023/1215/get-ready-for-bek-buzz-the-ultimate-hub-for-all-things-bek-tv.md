@@ -37,7 +37,11 @@ Visit us now at BEK Buzz and get ready to be dazzled. This is just the beginning
 [Original/Source Press Release](https://newsworthy.ai/news/20231215911/get-ready-for-bek-buzz-the-ultimate-hub-for-all-things-bek-tv)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bek-tv-launches-revolutionary-new-website-bek-buzz-to-transform-user-experience/1a5aca5974bcc12a71bbc7115e77e5e6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/15/bek-tv-launches-bek-buzz-the-ultimate-digital-destination)
+ 
 
 
 

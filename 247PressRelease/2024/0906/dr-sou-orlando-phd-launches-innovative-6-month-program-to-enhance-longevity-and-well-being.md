@@ -7,7 +7,17 @@ MIAMI BEACH, FL, September 06, 2024 /24-7PressRelease/ -- Dr. Sou Orlando, PhD, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514084/dr-sou-orlando-phd-launches-innovative-6-month-program-to-enhance-longevity-and-well-being)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aion-life-launches-groundbreaking-longevity-transformative-program/6c46e9e9545f2c4ab63d27107a7c14f6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/dr-sou-orlando-unveils-revolutionary-6-month-longevity-program)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-sou-orlando-launches-science-driven-longevity-program/20246579)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dr-sou-orlando-unveils-groundbreaking-6-month-longevity-program/20246579)
+
+Pickup - [advos.io](https://advos.io/en/dr-sou-orlando-launches-6-month-program-to-enhance-longevity-and-well-being/20246579)
+ 
 
 
 

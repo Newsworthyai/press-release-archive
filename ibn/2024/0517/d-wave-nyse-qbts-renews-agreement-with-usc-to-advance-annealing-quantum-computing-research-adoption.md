@@ -33,7 +33,9 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-renews-agreement-with-usc-to-advance-annealing-quantum-computing-research-adoption/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-inc-nyse-qbts-reports-strong-q1-financial-results-and-renews-partnership-with-usc/c8a3d12cd86f122beb7fc9c9651ae5d1) 
+
+ 
 
 
 

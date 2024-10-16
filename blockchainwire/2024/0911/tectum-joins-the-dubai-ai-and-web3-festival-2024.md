@@ -51,7 +51,21 @@ Media Details:
 [Original/Source Press Release](https://blockchainwire.io/press-release/tectum-joins-the-dubai-ai-and-web3-festival-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dubai-ai-and-web3-festival-2024-tectum-to-showcase-fastest-blockchain/d29550db6170d06d59eff9347d006195) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/tectum-to-showcase-fastest-blockchain-at-dubai-ai-and-web3-festival-2024/20246750)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/tectum-to-showcase-blockchain-innovations-at-dubai-ai-and-web3-festival-2024/20246750)
+
+Pickup - [advos.io](https://advos.io/en/tectum-to-showcase-blockchain-innovations-at-dubai-ai-and-web3-festival-2024/20246750)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/tectum-to-showcase-blockchain-innovation-at-dubai-ai-and-web3-festival-2024)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/dubai-ai-and-web3-festival-2024-tectum-to-showcase-fastest-blockchain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/dubai-ai-and-web3-festival-2024-tectum-to-showcase-fastest-blockchain)
+ 
 
 
 

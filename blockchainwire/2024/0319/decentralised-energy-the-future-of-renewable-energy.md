@@ -45,7 +45,11 @@ Rowan Energy's blockchain, running on a Proof of Generation consensus mechanism,
 [Original/Source Press Release](https://blockchainwire.io/press-release/decentralised-energy-the-future-of-renewable-energy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/decentralised-energy-and-smart-grid-technology-shaping-the-future-of-renewable-energy/7a9c619c7f209140fcc7800a3a1d2687) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/rowan-energy-paves-the-way-for-decentralized-energy-future)
+ 
 
 
 

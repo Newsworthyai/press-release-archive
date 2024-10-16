@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-poolx-
 [Original/Source Press Release](https://newsdirect.com/news/bitget-poolx-announces-listing-of-mode-mode-326892781)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-poolx-announces-listing-of-mode-mode-on-stake-to-mine-platform/82a87a494261a77b36f79601f307fe28) 
+
+ 
 
 
 

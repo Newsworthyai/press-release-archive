@@ -7,7 +7,15 @@ GILFORD, NH, July 16, 2024 /24-7PressRelease/ -- Rogue Space Systems Corporation
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512473/rogue-space-systems-and-ip-copilot-partnership-to-enhance-intellectual-property-management-for-start-up-businesses)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rogue-space-systems-and-ip-copilot-partner-to-bring-ai-ip-platform-to-small-business-engine/caf75dbf51b9f09751d9bf77e481d7ca) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/rogue-space-systems-partners-with-ip-copilot-to-enhance-intellectual-property-management)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rogue-space-systems-partners-with-ip-copilot-to-enhance-ip-management/20244981)
+
+Pickup - [advos.io](https://advos.io/en/rogue-space-systems-and-ip-copilot-join-forces-to-revolutionize-ip-management-for-start-ups/20244981)
+ 
 
  
 

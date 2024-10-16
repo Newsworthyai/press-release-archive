@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/automated-tra
 [Original/Source Press Release](https://newsdirect.com/news/automated-trading-on-the-rise-as-companies-push-workers-back-to-the-office-469612589)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/automated-trading-rises-as-companies-push-workers-back-to-office/e9933cc45d49a4b4e87c5e1f3d6d1584) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/automated-trading-emerges-as-solution-for-traders-returning-to-office)
+ 
 
 
 

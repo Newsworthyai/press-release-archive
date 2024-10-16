@@ -25,7 +25,17 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-subsidiary-expands-national-dealer-network-westward/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-expands-bollinger-motors-commercial-ev-dealer-network-with-tec-equipment-inc-addition/ed488c3249725fc5da60a80c05dd8801) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/30/mullen-automotive-s-subsidiary-bollinger-motors-expands-dealer-network-across-western-united-states)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mullen-subsidiary-bollinger-motors-expands-dealer-network-in-western-u-s/20246403)
+
+Pickup - [advos.io](https://advos.io/en/mullen-s-bollinger-motors-expands-dealer-network-to-western-u-s/20246403)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/mullen-s-subsidiary-bollinger-motors-expands-dealer-network-with-tec-equipment-partnership/20246403)
+ 
 
 
 

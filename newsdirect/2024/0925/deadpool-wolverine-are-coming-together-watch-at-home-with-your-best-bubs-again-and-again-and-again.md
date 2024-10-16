@@ -149,7 +149,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/deadpool-and-
 [Original/Source Press Release](https://newsdirect.com/news/deadpool-and-wolverine-are-coming-together-watch-at-home-with-your-best-bubs-again-and-again-and-again-207748265)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/deadpool-wolverine-hits-digital-retailers-and-home-entertainment-releases/06ad5fb3f88920464357417494ef7a80) 
+
+ 
 
 
 

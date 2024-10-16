@@ -7,7 +7,9 @@ ASHEVILLE, NC, May 07, 2024 /24-7PressRelease/ -- Prince Manufacturing Corporati
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510667/prince-manufacturing-a-contract-manufacturing-company-with-immex-options-announces-jonathan-moore-as-new-chief-financial-officer)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prince-manufacturing-corporation-appoints-jonathan-moore-as-new-cfo/cda4df7ffe3cc661a6cb350bc4718e57) 
+
+ 
 
 
 

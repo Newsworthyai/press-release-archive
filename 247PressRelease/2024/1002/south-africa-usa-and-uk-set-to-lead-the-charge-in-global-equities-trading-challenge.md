@@ -7,7 +7,9 @@ PRETORIA, SOUTH AFRICA, October 02, 2024 /24-7PressRelease/ -- As the countdown 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514866/south-africa-usa-and-uk-set-to-lead-the-charge-in-global-equities-trading-challenge)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-equities-trading-challenge-meet-the-top-competitors/1fc2ff93b30a26c47ff871a7abb2e381) 
+
+ 
 
 
 

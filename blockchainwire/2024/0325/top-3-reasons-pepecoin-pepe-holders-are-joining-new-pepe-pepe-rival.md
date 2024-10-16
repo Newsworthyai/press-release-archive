@@ -39,7 +39,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/top-3-reasons-pepecoin-pepe-holders-are-joining-new-pepe-pepe-rival)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pepe-holders-shift-to-shiba-budz-a-new-rival-emerges-in-meme-coin-landscape/bc6bd952cfcdc255d900d821f2809e19) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/shiba-budz-budz-emerges-as-a-formidable-rival-to-pepe-pepe)
+ 
 
 
 

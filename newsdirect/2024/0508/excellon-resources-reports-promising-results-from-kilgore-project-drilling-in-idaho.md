@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/excellon-reso
 [Original/Source Press Release](https://newsdirect.com/news/excellon-resources-reports-promising-results-from-kilgore-project-drilling-in-idaho-526369297)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/excellon-resources-reports-promising-results-from-kilgore-project-drilling-in-idaho/59f4bb6a4a21e1666a73aaeaf94f5d48) 
+
+ 
 
 
 

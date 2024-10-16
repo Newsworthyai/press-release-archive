@@ -33,7 +33,11 @@ SpotSource Inc. (formerly Agency Spotter Inc.) is a cloud-based service supplier
 [Original/Source Press Release](https://newsworthy.ai/news/202406121193/agencyspotter-com-acquired-by-private-investors-parent-company-rebrands-to-spotsource-inc-to-focus-on-enterprise-saas-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/agencyspotter-com-acquired-by-private-investment-group-rebrands-to-spotsource-inc/14e595dc84e5b03efd32312dda5292de) 
+
+
+Pickup - [advos.io](https://advos.io/en/agencyspotter-com-acquired-by-private-investors-parent-company-rebrands-to-spotsource-inc/20244070)
+ 
 
 
 

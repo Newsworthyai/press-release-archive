@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/novidea-appoi
 [Original/Source Press Release](https://newsdirect.com/news/novidea-appoints-jeff-heine-as-chief-revenue-officer-386593965)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/novidea-appoints-jeff-heine-as-chief-revenue-officer-to-drive-global-revenue-and-alignment-of-sales-and-marketing-functions/9bc0c19513d2011a2417dca79b1c2b55) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/novidea-bolsters-leadership-team-with-appointment-of-jeff-heine-as-chief-revenue-officer)
+ 
 
 
 

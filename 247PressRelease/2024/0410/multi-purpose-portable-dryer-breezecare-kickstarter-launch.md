@@ -7,7 +7,11 @@ NEWPORT BEACH, CA, April 10, 2024 /24-7PressRelease/ -- Kyung In America Inc, a 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509903/multi-purpose-portable-dryer-breezecare-kickstarter-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kyung-in-america-inc-launches-breezecare-portable-dryer-on-kickstarter/2c6fd289a8c3fdcbcc07969985cfdf9c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/kyung-in-america-inc-launches-breezecare-the-multi-purpose-portable-dryer-on-kickstarter)
+ 
 
 
 

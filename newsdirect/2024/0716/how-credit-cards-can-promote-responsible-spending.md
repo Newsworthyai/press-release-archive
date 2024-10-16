@@ -69,7 +69,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-credit-ca
 [Original/Source Press Release](https://newsdirect.com/news/how-credit-cards-can-promote-responsible-spending-269174812)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tips-for-responsible-credit-card-use/1f1980aec234ce1f92f87fe8a6fd9d9b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/credit-cards-as-tools-for-responsible-spending-and-financial-health)
+
+Pickup - [fishervista.com](https://fishervista.com/en/strategies-for-responsible-credit-card-use-and-financial-health/20244986)
+
+Pickup - [advos.io](https://advos.io/en/strategies-for-responsible-credit-card-use-to-enhance-financial-health/20244986)
+ 
 
 
 

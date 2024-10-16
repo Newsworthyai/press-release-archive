@@ -17,7 +17,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/accelerate-re
 [Original/Source Press Release](https://newsdirect.com/news/accelerate-resources-begins-maiden-drilling-at-prinsep-lithium-project-657418405)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/accelerate-resources-commences-maiden-drilling-at-prinsep-lithium-project/07d63b9c43da78ec2ff5f195099205d0) 
+
+ 
 
 
 

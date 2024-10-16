@@ -38,7 +38,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/ast-mining-unveils-free-cloud-mining-paving-the-way-for-seamless-crypto-investment-in-2024-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ast-mining-free-cloud-mining-for-better-returns/05fa122e77a1bee5c5045a2a35f76cf5) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ast-mining-free-cloud-mining-for-better-returns)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ast-mining-free-cloud-mining-for-better-returns)
+ 
 
 
 

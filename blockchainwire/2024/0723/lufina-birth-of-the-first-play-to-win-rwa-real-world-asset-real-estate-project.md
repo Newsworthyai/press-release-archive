@@ -77,7 +77,21 @@ Twitter | Instagram | Youtube | Medium | LinkedinTelegram Discussion | Telegram 
 [Original/Source Press Release](https://blockchainwire.io/press-release/lufina----birth-of-the-first-play-to-win-rwa-real-world-asset-real-estate-project)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lufina-revolutionizes-real-estate-with-clickcity-game-and-fina-prize-pool/a7ee9b97a7eba7fcb87822f2f0e5a60a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/lufina-launches-innovative-real-estate-tokenization-platform-with-play-to-win-game)
+
+Pickup - [fishervista.com](https://fishervista.com/en/lufina-launches-revolutionary-real-estate-investment-platform-with-1-million-prize-pool/20245196)
+
+Pickup - [advos.io](https://advos.io/en/lufina-launches-innovative-real-estate-game-with-1-million-prize-pool/20245196)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/lufina-revolutionizes-real-estate-with-clickcity-game-and-fina-prize-pool)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/lufina-revolutionizes-real-estate-with-clickcity-game-and-fina-prize-pool)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/lufina-launches-revolutionary-rwa-real-estate-game-with-1-million-prize-pool)
+ 
 
 
 

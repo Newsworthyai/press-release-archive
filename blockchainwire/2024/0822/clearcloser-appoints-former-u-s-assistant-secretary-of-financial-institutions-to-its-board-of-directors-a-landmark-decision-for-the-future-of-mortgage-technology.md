@@ -33,7 +33,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/clearcloser-appoints-former-us-assistant-secretary-of-financial-institutions-to-its-board-of-directors-a-landmark-decision-for-the-future-of-mortgage-technology-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clearcloser-appoints-christopher-e-campbell-to-board-of-directors/200391422ab7dd46ac89402a4569fa79) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/former-u-s-treasury-official-christopher-e-campbell-joins-clearcloser-s-board-signaling-major-shift-in-mortgage-technology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/clearcloser-appoints-former-u-s-financial-institutions-secretary-to-board-paving-way-for-enhanced-mortgage-technology/20245903)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/former-u-s-treasury-official-christopher-e-campbell-joins-clearcloser-s-board-of-directors/20245903)
+
+Pickup - [advos.io](https://advos.io/en/clearcloser-appoints-former-u-s-assistant-secretary-of-financial-institutions-to-board-amidst-mortgage-tech-expansion/20245903)
+ 
 
 
 

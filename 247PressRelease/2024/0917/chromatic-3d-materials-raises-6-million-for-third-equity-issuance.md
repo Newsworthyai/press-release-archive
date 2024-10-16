@@ -7,7 +7,17 @@ MINNEAPOLIS, MN, September 17, 2024 /24-7PressRelease/ -- Chromatic 3D Materials
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514358/chromatic-3d-materials-raises-6-million-for-third-equity-issuance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chromatic-3d-materials-secures-6-million-financing-for-technology-advancement/46998c31f90eb71b8340444aaf84acdd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/chromatic-3d-materials-secures-6-million-in-third-equity-issuance-for-additive-manufacturing-expansion)
+
+Pickup - [fishervista.com](https://fishervista.com/en/chromatic-3d-materials-secures-6-million-in-funding-to-advance-additive-manufacturing-technology/20246892)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/chromatic-3d-materials-secures-6-million-in-funding-to-advance-additive-manufacturing-technology/20246892)
+
+Pickup - [advos.io](https://advos.io/en/chromatic-3d-materials-secures-6-million-in-funding-to-advance-additive-manufacturing-technology/20246892)
+ 
 
 
 

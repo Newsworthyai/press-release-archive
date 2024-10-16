@@ -17,7 +17,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/maximus-resou
 [Original/Source Press Release](https://newsdirect.com/news/maximus-resources-and-komir-partner-to-advance-lefroy-lithium-project-722196177)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/maximus-resources-and-komir-partner-to-advance-lefroy-lithium-project/2ed2e5acebe6959cc88fd444457df66e) 
+
+ 
 
 
 

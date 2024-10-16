@@ -7,7 +7,11 @@ HALTOM CITY, TX, April 23, 2024 /24-7PressRelease/ -- Salon & Spa Galleria Oakmo
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510260/herr-rflektionz-beauty-bar-continues-to-grow-loyal-following-at-salon-and-spa-galleria-fort-worth-on-oakmont-blvd)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mrs-octavias-gatson-brings-unparalleled-expertise-to-salon-spa-galleria-oakmont-blvd/291e4eaf89d56c7b4f1ccb5826c6a759) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/herr-r-flektionz-beauty-bar-continues-to-grow-loyal-following-at-salon-and-spa-galleria-fort-worth-on-oakmont-blvd)
+ 
 
 
 

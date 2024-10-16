@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/meta-studio-e
 [Original/Source Press Release](https://newsdirect.com/news/meta-studio-empowers-content-creators-with-privacy-and-ownership-in-a-decentralized-environment-856721889)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meta-studio-empowers-content-creators-with-privacy-and-ownership-in-a-decentralized-environment/8d3fd6e1664f73e3430f8f4b1e998896) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/meta-studio-empowers-content-creators-with-privacy-and-ownership-in-a-decentralized-environment)
+ 
 
 
 

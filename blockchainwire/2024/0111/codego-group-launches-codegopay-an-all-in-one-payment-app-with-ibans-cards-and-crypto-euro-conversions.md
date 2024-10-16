@@ -31,7 +31,11 @@ You can learn more about Codego at these links: Website | Twitter | Instagr
 [Original/Source Press Release](https://blockchainwire.io/press-release/codego-group-launches-codegopay---an-all-in-one-payment-app-with-ibans-cards-and-crypto-euro-conversions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/codego-group-launches-innovative-payment-solution-codegopay-for-crypto-friendly-banking-services/e41c86f09067bb8520c68fca1df3878a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/11/codego-group-unveils-codegopay-a-comprehensive-payment-app-with-ibans-cards-and-crypto-euro-conversions)
+ 
 
 
 

@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/tkc-kitchens-
 [Original/Source Press Release](https://newsdirect.com/news/tkc-kitchens-announces-launch-of-ai-enhanced-custom-kitchen-design-services-765663893)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tkc-kitchens-revolutionizes-kitchen-design-with-ai-enhanced-services/db121f54104095bfbc2c4ac37dd0160c) 
+
+
+Pickup - [advos.io](https://advos.io/en/tkc-kitchens-unveils-ai-enhanced-custom-kitchen-design-services/20244093)
+ 
 
 
 

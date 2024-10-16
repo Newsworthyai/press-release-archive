@@ -29,7 +29,11 @@ Contact: [dev@toobit.com](mailto:dev@toobit.com)Disclaimer: The information prov
 [Original/Source Press Release](https://blockchainwire.io/press-release/riding-the-btc-wave-how-toobit-is-shaping-the-future-as-bitcoin-achieves-new-milestones-in-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-shatters-expectations-surpasses-73000-in-historic-milestone/0f87a5d07cc2e2613b13797afddc20d4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/bitcoin-soars-past-73000-toobit-leads-the-charge-in-crypto-trading)
+ 
 
 
 

@@ -25,7 +25,11 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-continues-to-expand-presence-in-higher-education-sector/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-sells-class-3-ev-box-truck-uplift-to-princeton-university/cbd285c509466aad41b5f38f4498028c) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mullen-automotive-expands-into-higher-education-with-princeton-university-ev-sale/20246212)
+ 
 
 
 

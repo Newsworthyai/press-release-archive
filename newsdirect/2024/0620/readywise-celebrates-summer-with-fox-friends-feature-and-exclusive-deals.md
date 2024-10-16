@@ -45,7 +45,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/readywise-cel
 [Original/Source Press Release](https://newsdirect.com/news/readywise-celebrates-summer-with-fox-and-friends-feature-and-exclusive-deals-431125872)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/readywise-celebrates-summer-with-exclusive-deals-and-fox-friends-feature/42964b85af55a1fa11a45c61f65c7d30) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/readywise-showcases-summer-essentials-on-fox-friends-offers-exclusive-deals/20244341)
+
+Pickup - [advos.io](https://advos.io/en/readywise-unveils-summer-deals-and-showcases-on-fox-friends/20244341)
+ 
 
 
 

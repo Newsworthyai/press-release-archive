@@ -39,7 +39,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-vision-bp-llc-and-us-lbm-holdings-llc-460639534)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/us-lbm-holdings-expands-through-acquisition-of-vision-bp-llc/db4bf2068b562455067e6d33ac3dda5a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/us-lbm-holdings-acquires-vision-bp-expanding-presence-in-dallas-fort-worth-area)
+
+Pickup - [fishervista.com](https://fishervista.com/en/us-lbm-holdings-expands-through-acquisition-of-vision-bp-llc/20246523)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/us-lbm-holdings-acquires-vision-bp-expanding-presence-in-dallas-fort-worth-area/20246523)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-major-acquisition-between-vision-bp-llc-and-us-lbm-holdings-llc/20246523)
+ 
 
 
 

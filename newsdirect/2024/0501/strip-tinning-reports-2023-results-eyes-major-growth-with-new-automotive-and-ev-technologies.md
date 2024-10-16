@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/strip-tinning
 [Original/Source Press Release](https://newsdirect.com/news/strip-tinning-reports-2023-results-eyes-major-growth-with-new-automotive-and-ev-technologies-934248362)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/strip-tinning-reports-2023-results-eyes-major-growth-with-new-automotive-and-ev-technologies/87cbd4724f6246be70e31e9350fc1c55) 
+
+ 
 
 
 

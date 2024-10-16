@@ -47,7 +47,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/will-digital-gold-like-bitcoin-and-blockdag-network-have-a-role-in-replacing-fiat-currency-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-s-price-surges-to-70000-amid-global-fiat-currency-instability/382baf34845c2c8e3145f6659327fe81) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-s-price-surges-to-70000-amid-global-fiat-currency-instability)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-s-price-surges-to-70000-amid-global-fiat-currency-instability)
+ 
 
 
 

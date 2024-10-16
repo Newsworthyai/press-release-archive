@@ -7,7 +7,17 @@ LONDON, ENGLAND, August 01, 2024 /24-7PressRelease/ -- The BRIC currency concept
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512974/dr-merinson-on-the-perspectives-of-bric-currency)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bric-nations-consider-unified-currency-implications-and-challenges/1e139b21dfc4ffcc15a243122d849ac7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/dr-merinson-analyzes-potential-impact-of-bric-currency-on-global-economy)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-merinson-explores-the-potential-and-challenges-of-a-unified-bric-currency/20245420)
+
+Pickup - [advos.io](https://advos.io/en/dr-merinson-explores-the-viability-and-impact-of-a-unified-bric-currency/20245420)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dr-merinson-analyzes-potential-impact-of-bric-currency-on-global-economy)
+ 
 
 
 

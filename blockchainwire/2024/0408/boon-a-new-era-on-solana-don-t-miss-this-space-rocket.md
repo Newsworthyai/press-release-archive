@@ -7,7 +7,11 @@ Introducing $BOON: The Next Meme Legend of CryptovilleIn the bustling world of c
 [Original/Source Press Release](https://blockchainwire.io/press-release/boon--a-new-era-on-solana-dont-miss-this-space-rocket)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meet-boon-the-next-meme-legend-of-cryptoville/7762bf2a894d7c94e3233cfe6c1a4f15) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/introducing-boon-the-meme-worthy-baboon-cryptocurrency-on-solana)
+ 
 
 
 

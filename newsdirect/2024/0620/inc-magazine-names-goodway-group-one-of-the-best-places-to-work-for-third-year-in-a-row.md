@@ -52,7 +52,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/inc-magazine-
 [Original/Source Press Release](https://newsdirect.com/news/inc-magazine-names-goodway-group-one-of-the-best-places-to-work-for-third-year-in-a-row-642975810)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/goodway-group-named-one-of-inc-magazine-s-best-workplaces-for-third-year-in-a-row/97b69d5a47baa743ceb16ef85356c183) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/goodway-group-recognized-as-one-of-inc-magazine-s-best-workplaces-for-third-consecutive-year/20244347)
+
+Pickup - [advos.io](https://advos.io/en/goodway-group-named-one-of-inc-magazine-s-best-workplaces-for-third-consecutive-year/20244347)
+ 
 
 
 

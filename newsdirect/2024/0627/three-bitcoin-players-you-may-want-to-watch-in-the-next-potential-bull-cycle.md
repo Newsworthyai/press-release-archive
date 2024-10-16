@@ -43,7 +43,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/three-bitcoin
 [Original/Source Press Release](https://newsdirect.com/news/three-bitcoin-players-you-may-want-to-watch-in-the-next-potential-bull-cycle-107716565)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/potential-bitcoin-mining-leaders-marathon-riot-platforms-bitdeer/d3e00284a8e50e35323e49e1e399e056) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/key-bitcoin-miners-poised-for-growth-amid-post-halving-bull-cycle/20244544)
+
+Pickup - [advos.io](https://advos.io/en/three-bitcoin-mining-giants-to-watch-as-bull-cycle-looms/20244544)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/potential-bitcoin-mining-leaders-marathon-riot-platforms-bitdeer)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/potential-bitcoin-mining-leaders-marathon-riot-platforms-bitdeer)
+ 
 
 
 

@@ -7,7 +7,9 @@ LOS ANGELES, CA, May 13, 2024 /24-7PressRelease/ -- The National Association Boo
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510756/nabe-recognizes-kay-a-olivers-road-to-elysium-with-pinnacle-book-achievement-award-for-best-urban-fiction-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kay-a-oliver-receives-pinnacle-book-achievement-award-for-best-urban-fiction-2024/53e444813c7abf821b0d5f61c7c08d7b) 
+
+ 
 
 
 

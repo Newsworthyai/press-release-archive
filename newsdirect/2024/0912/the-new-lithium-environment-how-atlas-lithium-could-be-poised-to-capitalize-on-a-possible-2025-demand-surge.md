@@ -53,7 +53,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-new-lithi
 [Original/Source Press Release](https://newsdirect.com/news/the-new-lithium-environment-how-atlas-lithium-could-be-poised-to-capitalize-on-a-possible-2025-demand-surge-630413033)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lithiums-sharp-price-decline-a-potential-opportunity/f11727e93fbab0eda15e2f886d5d72c0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/lithium-market-poised-for-potential-rebound-atlas-lithium-prepares-for-anticipated-2025-demand-surge)
+
+Pickup - [fishervista.com](https://fishervista.com/en/lithium-market-poised-for-potential-rebound-by-2025-atlas-lithium-prepares-to-capitalize/20246781)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/lithium-market-poised-for-potential-rebound-in-2025-atlas-lithium-positioned-to-capitalize/20246781)
+
+Pickup - [advos.io](https://advos.io/en/lithium-market-poised-for-potential-resurgence-by-2025-atlas-lithium-prepares-to-capitalize/20246781)
+ 
 
 
 

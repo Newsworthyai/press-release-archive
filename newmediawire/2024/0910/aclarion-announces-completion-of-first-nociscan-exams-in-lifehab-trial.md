@@ -55,7 +55,17 @@ jodi@sprigconsulting.com
 [Original/Source Press Release](https://www.newmediawire.com/news/aclarion-announces-completion-of-first-nociscan-exams-in-lifehab-trial-7076029)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aclarion-completes-nociscan-exams-for-initial-lifehab-enrolled-patients-in-norway-trial/9862a0e412f083d23737deeded7b141e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/aclarion-s-nociscan-technology-advances-in-lifehab-trial-for-chronic-low-back-pain)
+
+Pickup - [fishervista.com](https://fishervista.com/en/aclarion-completes-first-nociscan-exams-in-norwegian-lifehab-trial/20246656)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/aclarion-s-nociscan-technology-begins-evaluation-in-lifehab-trial-for-chronic-low-back-pain/20246656)
+
+Pickup - [advos.io](https://advos.io/en/aclarion-completes-first-nociscan-exams-in-norwegian-lifehab-trial/20246656)
+ 
 
 
 

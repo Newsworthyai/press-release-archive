@@ -7,7 +7,9 @@ ST. LOUIS, MO, April 25, 2024 /24-7PressRelease/ -- The Law Offices of Brian J. 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510308/st-louis-criminal-defense-attorney-with-a-decade-of-legal-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/experienced-criminal-defense-firm-in-st-louis-protects-clients-rights/a307d70abe970115051caba4f96850d1) 
+
+ 
 
 
 

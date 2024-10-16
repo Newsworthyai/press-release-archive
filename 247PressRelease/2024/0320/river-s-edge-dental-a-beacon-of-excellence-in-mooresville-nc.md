@@ -7,7 +7,11 @@ MOORESVILLE, NC, March 20, 2024 /24-7PressRelease/ -- River's Edge Dental is a d
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509345/rivers-edge-dental-a-beacon-of-excellence-in-mooresville-nc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/river-s-edge-dental-unmatched-dental-care-in-mooresville/660587572b1c2f599be69dfb3074f7c9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/river-s-edge-dental-a-beacon-of-excellence-in-mooresville)
+ 
 
 
 

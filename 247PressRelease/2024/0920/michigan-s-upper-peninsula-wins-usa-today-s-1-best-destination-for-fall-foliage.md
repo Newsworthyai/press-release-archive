@@ -7,7 +7,9 @@ IRON MOUNTAIN, MI, September 20, 2024 /24-7PressRelease/ -- It's official! USA T
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514503/michigans-upper-peninsula-wins-usa-todays-1-best-destination-for-fall-foliage)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/michigan-s-upper-peninsula-voted-1-fall-foliage-destination/7480fafe25f3d73f398cda1bb3ffb7ee) 
+
+ 
 
 
 

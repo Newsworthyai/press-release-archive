@@ -59,7 +59,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/now-four-year
 [Original/Source Press Release](https://newsdirect.com/news/now-four-years-in-heres-how-news-direct-leapfrogged-the-legacy-newswire-industry-676742291)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/news-direct-revolutionizes-newswire-industry-with-next-gen-platform/edbc9fb9cd4f0508ad4d69da7b1e1269) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/news-direct-revolutionizes-newswire-industry-with-innovative-technology-and-user-centric-approach)
+
+Pickup - [fishervista.com](https://fishervista.com/en/news-direct-revolutionizes-newswire-industry-with-cutting-edge-technology-and-user-centric-features/20246741)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/news-direct-revolutionizes-newswire-industry-with-innovative-technology-and-user-centric-approach/20246741)
+
+Pickup - [advos.io](https://advos.io/en/news-direct-revolutionizes-newswire-industry-with-advanced-technology/20246741)
+ 
 
 
 

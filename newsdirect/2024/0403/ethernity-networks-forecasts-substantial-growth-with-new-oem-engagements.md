@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ethernity-net
 [Original/Source Press Release](https://newsdirect.com/news/ethernity-networks-forecasts-substantial-growth-with-new-oem-engagements-621883541)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethernity-networks-forecasts-substantial-growth-with-new-oem-engagements/7f2e90cf24db6472694e65acc59c6f58) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/ethernity-networks-poised-for-remarkable-growth-with-promising-oem-partnerships)
+ 
 
 
 

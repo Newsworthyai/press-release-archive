@@ -35,7 +35,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-computer-systems-integrators-inc-and-acture-solutions-131056635)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-facilitates-successful-transaction-between-computer-systems-integrators-inc-and-acture-solutions/c885ac7a7610ab26fe817306c9cdd275) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/benchmark-international-brokers-merger-of-it-service-providers-csi-and-acture-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-key-it-sector-transaction-between-csi-and-acture-solutions/20244984)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-acquisition-of-computer-systems-integrators-by-acture-solutions/20244984)
+ 
 
 
 

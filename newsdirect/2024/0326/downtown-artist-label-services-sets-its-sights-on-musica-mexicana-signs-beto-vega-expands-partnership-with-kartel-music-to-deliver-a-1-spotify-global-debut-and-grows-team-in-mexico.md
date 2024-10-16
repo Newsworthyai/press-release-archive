@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/downtown-arti
 [Original/Source Press Release](https://newsdirect.com/news/downtown-artist-and-label-services-sets-its-sights-on-musica-mexicana-signs-beto-vega-expands-partnership-with-kartel-music-to-deliver-a-1-spotify-global-debut-and-grows-team-in-mexico-702023402)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/downtown-artist-label-services-rapidly-expands-in-musica-mexicana-market/5d802d2c18a8ffc263699393adc02529) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/downtown-artist-label-services-doubles-down-on-musica-mexicana)
+ 
 
 
 

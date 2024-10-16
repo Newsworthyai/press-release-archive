@@ -64,7 +64,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-areon-network-area-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-announces-listing-of-areon-network-and-area-usdt-trading-pair/9ff1edfbe39a3238dba3290f99b453bf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/30/areon-network-s-area-token-lists-on-xt-com-exchange)
+ 
 
 
 

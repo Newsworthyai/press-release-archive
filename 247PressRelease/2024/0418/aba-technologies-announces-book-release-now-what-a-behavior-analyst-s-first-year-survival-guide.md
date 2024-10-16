@@ -7,7 +7,9 @@ MELBOURNE, FL, April 18, 2024 /24-7PressRelease/ -- KeyPress Publishing, a divis
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510160/aba-technologies-announces-book-release-now-what-a-behavior-analysts-first-year-survival-guide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-release-now-what-a-behavior-analyst-s-first-year-survival-guide-by-mariah-avery-ma-bcba/bcb1c985df2954c756f7019ed86fcf4b) 
+
+ 
 
 
 

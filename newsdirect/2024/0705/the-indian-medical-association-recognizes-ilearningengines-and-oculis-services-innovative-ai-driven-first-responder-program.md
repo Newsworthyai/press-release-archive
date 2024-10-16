@@ -37,7 +37,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-indian-me
 [Original/Source Press Release](https://newsdirect.com/news/the-indian-medical-association-recognizes-ilearningengines-and-oculis-services-innovative-ai-driven-first-responder-program-231915243)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/indian-medical-association-acknowledges-ilearningengines-and-oculis-services-for-first-responder-program/78bfba5e4acf459aec648d9ad6c62f98) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/indian-medical-association-recognizes-ai-driven-first-responder-program-for-teens/20244732)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/indian-medical-association-endorses-ai-driven-first-responder-program-for-teens)
+
+Pickup - [advos.io](https://advos.io/en/indian-medical-association-recognizes-ai-driven-first-responder-program-for-teens/20244732)
+ 
 
 
 

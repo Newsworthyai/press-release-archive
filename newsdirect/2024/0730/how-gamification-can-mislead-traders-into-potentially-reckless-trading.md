@@ -53,7 +53,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-gamificat
 [Original/Source Press Release](https://newsdirect.com/news/how-gamification-can-mislead-traders-into-potentially-reckless-trading-438135119)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-impact-of-gamification-on-investor-behavior-and-the-rise-of-self-directed-trading/d027ab300582b68ee332388597d4e3b9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/the-dark-side-of-gamified-trading-how-platforms-potentially-encourage-reckless-investing)
+
+Pickup - [fishervista.com](https://fishervista.com/en/the-risks-of-gamification-in-self-directed-trading/20245362)
+
+Pickup - [advos.io](https://advos.io/en/gamification-in-trading-a-double-edged-sword-for-investors/20245362)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gamification-in-trading-a-double-edged-sword-for-retail-investors)
+ 
 
 
 

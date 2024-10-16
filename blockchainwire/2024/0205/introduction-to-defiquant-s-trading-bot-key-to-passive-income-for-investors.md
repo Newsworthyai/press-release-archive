@@ -51,7 +51,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/introduction-to-defiquants-trading-bot-key-to-passive-income-for-investors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-revolutionizes-cryptocurrency-trading-with-ai-driven-solutions/a078290dcf4b4b6b13f1d617d8232ca0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/05/defiquant-unveils-ai-driven-trading-bots-for-passive-crypto-income)
+ 
 
 
 

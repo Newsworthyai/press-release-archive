@@ -53,7 +53,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-ram-sena-ramsena-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-announces-listing-of-ramsena-token-promoting-unity-and-understanding/d20a38ee0dcd08b3d45495c9c6a4cedd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/25/xt-com-lists-ram-sena-ramsena-cryptocurrency-promoting-unity-and-hindutva-ideology)
+ 
 
 
 

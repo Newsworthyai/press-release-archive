@@ -33,7 +33,9 @@ About Gate.ioGate.io, established in 2013, is a leading global cryptocurrency ex
 [Original/Source Press Release](https://blockchainwire.io/press-release/ctomorrow-platform-ctp-to-be-officially-listed-on-gateio)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ctomorrow-platform-ctp-listing-on-gate-io-propels-skincare-innovation/51667ffd3d2dbf07229aed3fef7f998f) 
+
+ 
 
 
 

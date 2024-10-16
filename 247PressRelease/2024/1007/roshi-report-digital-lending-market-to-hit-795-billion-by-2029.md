@@ -7,7 +7,9 @@ SINGAPORE, October 07, 2024 /24-7PressRelease/ -- The report reveals significant
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515005/roshi-report-digital-lending-market-to-hit-795-billion-by-2029)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/staggering-growth-projected-in-digital-lending-sector/560417baa6af67ce0a9ad5913c6f7197) 
+
+ 
 
 
 

@@ -73,7 +73,13 @@ Company Email: [pr@betfury.com](mailto:pr@betfury.com)Links on social media: [Tw
 [Original/Source Press Release](https://blockchainwire.io/press-release/betfury-presents-new-deflationary-mechanism--100-projects-revenue-for-bfg-support)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/betfury-renews-bfg-tokenomics-deflationary-mechanism/41060d19ae7ed689d2eb24f102c1165d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/betfury-renews-bfg-tokenomics-deflationary-mechanism)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/betfury-renews-bfg-tokenomics-deflationary-mechanism)
+ 
 
 
 

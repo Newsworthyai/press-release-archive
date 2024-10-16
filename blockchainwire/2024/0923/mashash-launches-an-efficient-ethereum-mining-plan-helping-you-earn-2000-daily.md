@@ -29,7 +29,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/mashash-launches-an-efficient-ethereum-mining-plan-helping-you-earn-2000-daily)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mashash-announces-enhanced-support-for-ethereum-mining-offering-users-the-opportunity-to-earn-2000-daily/fbd33677c87490490723d414159bef28) 
+
+ 
 
 
 

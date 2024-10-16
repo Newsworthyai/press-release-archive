@@ -45,7 +45,17 @@
 [Original/Source Press Release](https://www.newmediawire.com/news/physical-activity-boosting-resources-support-classroom-performance-7075998)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-heart-association-and-nfl-join-forces-to-promote-student-physical-activity/8db3a8670d5680f667af01c59f294d86) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/american-heart-association-and-nfl-team-up-to-boost-physical-activity-in-schools)
+
+Pickup - [fishervista.com](https://fishervista.com/en/american-heart-association-and-nfl-collaborate-to-boost-student-health-through-physical-activity/20246512)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/american-heart-association-and-nfl-team-up-to-boost-student-health-and-performance/20246512)
+
+Pickup - [advos.io](https://advos.io/en/american-heart-association-and-nfl-promote-youth-physical-activity/20246512)
+ 
 
 
 

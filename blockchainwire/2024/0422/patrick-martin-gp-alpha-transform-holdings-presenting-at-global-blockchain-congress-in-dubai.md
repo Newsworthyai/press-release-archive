@@ -25,7 +25,11 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/patrick-martin-gp-alpha-transform-holdings-presenting-at-global-blockchain-congress-in-dubai)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alpha-transform-holdings-to-present-at-global-blockchain-congress-in-dubai/bddd5a64b43d3f6aeb9dddd2f7cf2886) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/patrick-martin-gp-alpha-transform-holdings-presenting-at-global-blockchain-congress-in-dubai)
+ 
 
 
 

@@ -45,7 +45,17 @@ X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/y-to-launch-mvp-with-high-quality-data-oracles-for-crypto-investors-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/yoracle-platform-to-launch-ai-driven-market-prediction-solutions/2460b1883179161238abc402555e0ad2) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/y-to-launch-mvp-with-high-quality-data-oracles-for-crypto-investors/20244417)
+
+Pickup - [advos.io](https://advos.io/en/y-to-launch-mvp-with-high-quality-data-oracles-for-crypto-investors/20244417)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/yoracle-platform-to-launch-ai-driven-market-prediction-solutions)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/yoracle-platform-to-launch-ai-driven-market-prediction-solutions)
+ 
 
 
 

@@ -7,7 +7,11 @@ PORTLAND, OR, June 05, 2024 /24-7PressRelease/ -- Today, Plaintiff Jamie Whittem
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511438/class-lawsuit-alleges-cigna-discriminates-by-excluding-obesity-drugs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lawsuit-alleges-discrimination-by-cigna-for-excluding-obesity-medication-coverage/440972a86fad715d068ae8f6c003f46d) 
+
+
+Pickup - [advos.io](https://advos.io/en/class-action-lawsuit-accuses-cigna-of-discriminatory-practices-by-excluding-obesity-drugs/20243825)
+ 
 
 
 

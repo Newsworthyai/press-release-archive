@@ -35,7 +35,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-z-consulting-llc-and-the-bridge-609983075)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-facilitates-transaction-between-z-consulting-llc-and-the-bridge/21461f643c721b55f490e3343a40018f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-strategic-merger-between-z-consulting-llc-and-the-bridge/20244673)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/z-consulting-llc-acquired-by-the-bridge-in-strategic-merger)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-strategic-merger-between-z-consulting-and-the-bridge/20244673)
+ 
 
 
 

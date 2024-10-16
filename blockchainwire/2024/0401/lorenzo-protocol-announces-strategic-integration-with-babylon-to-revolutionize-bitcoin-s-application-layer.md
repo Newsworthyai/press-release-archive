@@ -52,7 +52,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/lorenzo-protocol-announces-strategic-integration-with-babylon-to-revolutionize-bitcoins-application-layer)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lorenzo-protocol-and-babylon-integration-to-reshape-bitcoin-infrastructure/566dc3fa26422315d70ad0b01e111ad4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/lorenzo-protocol-integrates-with-babylon-to-revolutionize-bitcoin-s-application-layer)
+ 
 
 
 

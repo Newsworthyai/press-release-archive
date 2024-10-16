@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-announces-custom-algorithm-development-for-personalized-trading-strategies)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-launches-custom-algorithm-development-feature/86d1faeda0a6ec47638592fc8d9ef82c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/17/defiquant-unleashes-personalized-trading-with-custom-algorithm-development)
+ 
 
 
 

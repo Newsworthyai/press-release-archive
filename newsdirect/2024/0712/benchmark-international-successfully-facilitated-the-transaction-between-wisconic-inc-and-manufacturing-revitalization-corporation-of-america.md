@@ -35,7 +35,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-wisconic-inc-and-manufacturing-revitalization-corporation-of-america-243384248)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/manufacturing-revitalization-corporation-of-america-acquires-wisconic-inc-in-partnership-with-benchmark-international/454121d1295d1fa554b08a0510f12c39) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/wisconic-inc-acquired-by-manufacturing-revitalization-corporation-of-america-in-strategic-move)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-acquisition-of-wisconic-inc-by-mrca/20244916)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-acquisition-of-wisconic-inc-by-manufacturing-revitalization-corporation-of-america/20244916)
+ 
 
 
 

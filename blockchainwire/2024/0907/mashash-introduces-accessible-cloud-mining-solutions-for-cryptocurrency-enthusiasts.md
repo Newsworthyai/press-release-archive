@@ -93,7 +93,17 @@ For more information about MasHash, please visit their website at: [MasHash Offi
 [Original/Source Press Release](https://blockchainwire.io/press-release/mashash-introduces-accessible-cloud-mining-solutions-for-cryptocurrency-enthusiasts-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/explore-cloud-mining-with-mashash-beginner-friendly-and-profitable/ad4d08f0031e320b3f38e14d30173d8f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/mashash-unveils-free-cloud-mining-solutions-for-cryptocurrency-enthusiasts/20246700)
+
+Pickup - [advos.io](https://advos.io/en/mashash-launches-free-cloud-mining-program-for-cryptocurrency-enthusiasts/20246700)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mashash-unveils-accessible-cloud-mining-solutions-for-cryptocurrency-enthusiasts/20246700)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/07/mashash-launches-free-cloud-mining-program-lowering-barriers-to-cryptocurrency-mining)
+ 
 
 
 

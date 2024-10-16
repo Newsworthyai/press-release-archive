@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/amerilife-wel
 [Original/Source Press Release](https://newsdirect.com/news/amerilife-welcomes-elite-insurance-group-to-its-rapidly-expanding-health-distribution-network-560029614)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amerilife-announces-partnership-with-elite-insurance-group/1cf3337c1de42c98be950fdb3d01ca02) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/amerilife-expands-health-distribution-network-with-elite-insurance-group-partnership)
+
+Pickup - [fishervista.com](https://fishervista.com/en/amerilife-partners-with-elite-insurance-group-to-strengthen-health-distribution-network/20245430)
+
+Pickup - [advos.io](https://advos.io/en/amerilife-expands-health-distribution-network-with-elite-insurance-group-partnership/20245430)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/amerilife-expands-health-distribution-network-with-elite-insurance-group-partnership)
+ 
 
 
 

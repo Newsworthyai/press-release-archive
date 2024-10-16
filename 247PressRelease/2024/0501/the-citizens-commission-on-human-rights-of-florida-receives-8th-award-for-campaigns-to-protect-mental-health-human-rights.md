@@ -7,7 +7,9 @@ CLEARWATER, FL, May 01, 2024 /24-7PressRelease/ -- Recognized for their work to 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510538/the-citizens-commission-on-human-rights-of-florida-receives-8th-award-for-campaigns-to-protect-mental-health-human-rights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cchr-florida-wins-2024-prnews-digital-awards-for-cause-related-campaign/7e8e0ad7fcc92909cba6d923e80651d2) 
+
+ 
 
 
 

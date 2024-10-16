@@ -31,7 +31,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/befe--the-ultimate-meme-king)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/befe-top-meme-coin-of-2024/c7011b26de6815ebb6d770d4cdd46b7a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/befe-the-meme-worthy-crypto-sensation-capturing-investors-attention)
+ 
 
 
 

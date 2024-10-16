@@ -7,7 +7,9 @@ DULUTH, GA, May 13, 2024 /24-7PressRelease/ -- This year, Barrios Virgüez promi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510799/aranza-sanchez-wins-the-2023-barrios-virg%C3%BCez-young-hispanic-leader-scholarship)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/barrios-virguez-awards-2500-scholarship-to-hispanic-student-aranza-sanchez/6449ecb1e92568f3fab5165db1fde26b) 
+
+ 
 
 
 

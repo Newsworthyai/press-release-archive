@@ -32,7 +32,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/supercoms-nasdaq-spcb-latest-2-9m-government-em-contract-shows-appeal-of-its-tech/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/supercom-ltd-secures-third-european-government-contract-for-em-solutions/6a4881653f367723b9b17019564fe444) 
+
+ 
 
 
 

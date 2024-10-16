@@ -35,7 +35,17 @@ EcS+ is a women-owned advisory firm specializing in cost savings and efficiency 
 [Original/Source Press Release](https://newsworthy.ai/news/202408131235/quintet-partners-completes-reorganization-and-rebrands-as-ecs-a-women-owned-expense-reduction-services-firm)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ecs-completes-restructuring-and-rebranding-angela-briante-appointed-as-sole-owner-and-managing-principal/27d4ee1990c3d4b48763378215a776a6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/ecs-emerges-as-women-owned-expense-reduction-firm-following-quintet-partners-reorganization)
+
+Pickup - [fishervista.com](https://fishervista.com/en/quintet-partners-rebrands-as-ecs-to-enhance-expense-reduction-services/20245703)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ecs-emerges-as-women-owned-expense-reduction-powerhouse-after-quintet-partners-restructuring/20245703)
+
+Pickup - [advos.io](https://advos.io/en/quintet-partners-rebrands-as-ecs-aiming-to-revolutionize-expense-reduction/20245703)
+ 
 
 
 

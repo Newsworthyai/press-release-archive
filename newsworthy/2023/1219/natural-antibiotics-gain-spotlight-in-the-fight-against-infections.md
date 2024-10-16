@@ -27,7 +27,11 @@ Jampha’s three antibiotic and immune-boosting Tibetan Infusions are Turquoise 
 [Original/Source Press Release](https://newsworthy.ai/news/20231219912/natural-antibiotics-gain-spotlight-in-the-fight-against-infections)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jampha-tibetan-wellness-ceo-discusses-rising-trend-of-natural-antibiotics-as-viable-alternative-to-pharmaceuticals/9904523a7a7c43327c866ad227e972a7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/19/natural-antibiotics-emerge-as-powerful-allies-in-the-fight-against-infections)
+ 
 
 
 

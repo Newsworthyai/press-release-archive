@@ -47,7 +47,9 @@ Media Contacts:Contact Person: John F, Co-founderCompany Email: [Info@Gemie.io](
 [Original/Source Press Release](https://blockchainwire.io/press-release/launch-of-metaverses-got-talent-finals-unveiling-the-next-metaverse-superstar)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/voting-launched-for-metaverse-s-got-talent-choose-the-next-metaverse-superstar/72919e2f1db7b57da6f0c38995173c66) 
+
+ 
 
 
 

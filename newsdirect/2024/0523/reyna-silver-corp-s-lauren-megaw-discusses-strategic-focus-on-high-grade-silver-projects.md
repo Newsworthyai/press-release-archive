@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/reyna-silver-
 [Original/Source Press Release](https://newsdirect.com/news/reyna-silver-corps-lauren-megaw-discusses-strategic-focus-on-high-grade-silver-projects-376106951)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/reyna-silver-corp-s-lauren-megaw-discusses-strategic-focus-on-high-grade-silver-projects/37691879d6992b40512452a62ba38581) 
+
+ 
 
 
 

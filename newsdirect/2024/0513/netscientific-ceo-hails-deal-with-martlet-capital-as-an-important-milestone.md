@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/netscientific
 [Original/Source Press Release](https://newsdirect.com/news/netscientific-ceo-hails-deal-with-martlet-capital-as-an-important-milestone-299823807)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/netscientific-ceo-announces-strategic-transaction-with-martlet-capital/9afd88ed70a65f6e3187544294f04d56) 
+
+ 
 
 
 

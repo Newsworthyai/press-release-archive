@@ -29,7 +29,13 @@ Disclaimer: $PEW is a meme token and should be treated as such. It’s for enter
 [Original/Source Press Release](https://blockchainwire.io/press-release/pepe-in-a-meme-world-launches-innovative-pew-the-ultimate-meme-token-experience-in-digital-currency)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pepe-in-a-meme-world-pew-emerges-as-a-meme-token-capturing-internet-culture/01716d4d821f14749e8a27ff2aa3e582) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/pepe-in-a-meme-world-pew-emerges-as-a-meme-token-capturing-internet-culture)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/pepe-in-a-meme-world-pew-emerges-as-a-meme-token-capturing-internet-culture)
+ 
 
 
 

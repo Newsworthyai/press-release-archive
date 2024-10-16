@@ -7,7 +7,17 @@ LONDON, ENGLAND, August 22, 2024 /24-7PressRelease/ -- DevBlink AI is excited to
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513634/dennis-kessler-joins-devblink-ai-as-non-executive-director)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/devblink-ai-appoints-dennis-kessler-as-non-executive-director-marking-a-significant-step-forward/2113db9de567a8eb039294eaa0925a0a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/devblink-ai-appoints-data-governance-expert-dennis-kessler-as-non-executive-director)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dennis-kessler-joins-devblink-ai-as-non-executive-director/20245889)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/devblink-ai-appoints-data-governance-expert-dennis-kessler-to-board/20245889)
+
+Pickup - [advos.io](https://advos.io/en/dennis-kessler-joins-devblink-ai-as-non-executive-director/20245889)
+ 
 
 
 

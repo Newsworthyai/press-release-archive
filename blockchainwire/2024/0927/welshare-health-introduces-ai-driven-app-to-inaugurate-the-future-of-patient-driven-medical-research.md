@@ -29,7 +29,9 @@ You can learn more about Welshare Health and stay up-to-date with its developmen
 [Original/Source Press Release](https://blockchainwire.io/press-release/welshare-health-introduces-ai-driven-app-to-inaugurate-the-future-of-patient-driven-medical-research)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/welshare-health-develops-decentralized-app-for-ai-driven-medical-research/b3f93422b336c47ec9bba8f35a9d36e0) 
+
+ 
 
 
 

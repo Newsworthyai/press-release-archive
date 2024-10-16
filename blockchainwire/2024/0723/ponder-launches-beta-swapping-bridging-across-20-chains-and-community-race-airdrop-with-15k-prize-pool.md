@@ -39,7 +39,19 @@ You can learn more about Ponder at these links: Website | X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/ponder-launches-beta-swapping-bridging-across-20-chains-and-community-race-airdrop-with-15k-prize-pool-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ponder-beta-launch-simplifying-asset-swapping-and-bridging-across-web3-networks/8acc8729c1081b804e13be1cf759484d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ponder-beta-launch-simplifying-asset-swapping-and-bridging-across-web3-networks)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ponder-beta-launch-simplifying-asset-swapping-and-bridging-across-web3-networks)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/ponder-launches-beta-with-multi-chain-swapping-and-bridging-announces-15k-community-race-airdrop)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ponder-launches-beta-with-multi-chain-swapping-bridging-and-15k-community-airdrop/20245163)
+
+Pickup - [advos.io](https://advos.io/en/ponder-launches-beta-for-swapping-and-bridging-announces-15k-community-race-airdrop/20245163)
+ 
 
 
 

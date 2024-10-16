@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-growing-m
 [Original/Source Press Release](https://newsdirect.com/news/the-growing-market-demand-for-waste-energy-solutions-and-how-sky-quarry-has-prepared-itself-to-meet-it-477430228)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sky-quarry-inc-leading-in-waste-to-energy-solutions-amid-growing-market-demand/ca4d398cdfdff5dff1d431db84a3764d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/sky-quarry-s-innovative-approach-to-sustainable-waste-management)
+ 
 
 
 

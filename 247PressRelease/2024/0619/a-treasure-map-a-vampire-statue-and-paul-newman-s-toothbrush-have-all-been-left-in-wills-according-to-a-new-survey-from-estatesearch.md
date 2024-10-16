@@ -7,7 +7,13 @@ TORONTO, ON, June 19, 2024 /24-7PressRelease/ -- A treasure map, a vampire statu
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511810/a-treasure-map-a-vampire-statue-and-paul-newmans-toothbrush-have-all-been-left-in-wills-according-to-a-new-survey-from-estatesearch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quirky-inheritances-and-estate-planning-challenges-revealed-in-canadian-study/f66a28db79059bd59fed84a0a498a554) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/survey-reveals-quirky-bequests-and-critical-gaps-in-estate-planning-among-canadians/20244273)
+
+Pickup - [advos.io](https://advos.io/en/survey-reveals-quirky-will-inheritances-and-highlights-challenges-in-estate-planning/20244273)
+ 
 
 
 

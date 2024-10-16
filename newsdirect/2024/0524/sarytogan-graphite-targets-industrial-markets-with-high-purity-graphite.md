@@ -17,7 +17,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/sarytogan-gra
 [Original/Source Press Release](https://newsdirect.com/news/sarytogan-graphite-targets-industrial-markets-with-high-purity-graphite-457802588)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sarytogan-graphite-targets-new-industrial-markets-with-high-purity-graphite/33935f79014c4ab09e64b06b01c16978) 
+
+ 
 
 
 

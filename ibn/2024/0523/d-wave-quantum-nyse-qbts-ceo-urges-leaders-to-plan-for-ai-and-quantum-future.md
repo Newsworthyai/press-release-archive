@@ -33,7 +33,9 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-quantum-nyse-qbts-ceo-urges-leaders-to-plan-for-ai-and-quantum-future/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-ceo-urges-business-leaders-to-prioritize-quantum-computing-for-sustainable-ai-adoption/5a7d429568c1ed47c260537e91a0e011) 
+
+ 
 
 
 

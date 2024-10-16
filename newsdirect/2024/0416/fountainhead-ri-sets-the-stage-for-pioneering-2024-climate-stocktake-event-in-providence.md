@@ -63,7 +63,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/fountainhead-
 [Original/Source Press Release](https://newsdirect.com/news/fountainhead-ri-sets-the-stage-for-pioneering-2024-climate-stocktake-event-in-providence-769665916)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fountainhead-ri-hosts-2024-climate-stocktake-event-in-providence/cfeb854bd9a4f11e8b14e5dba3762a23) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/fountainhead-ri-sets-the-stage-for-pioneering-2024-climate-stocktake-event-in-providence)
+ 
 
 
 

@@ -27,7 +27,21 @@ GEM Digital Limited is a digital asset investment firm based in The Bahamas. The
 [Original/Source Press Release](https://blockchainwire.io/press-release/duelnow-secures-11-million-fueling-decentralized-sports-betting-revolution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/duelnow-secures-10m-investment-to-empower-sports-bettors/157869e38b7b96bba4bbc568a58ba130) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/duelnow-raises-11-million-to-revolutionize-decentralized-sports-betting)
+
+Pickup - [fishervista.com](https://fishervista.com/en/duelnow-secures-11-million-to-revolutionize-decentralized-sports-betting/20245438)
+
+Pickup - [advos.io](https://advos.io/en/duelnow-raises-11-million-to-revolutionize-decentralized-sports-betting/20245438)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/duelnow-secures-10m-investment-to-empower-sports-bettors)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/duelnow-secures-10m-investment-to-empower-sports-bettors)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/duelnow-raises-11-million-to-transform-sports-betting-with-decentralized-platform)
+ 
 
 
 

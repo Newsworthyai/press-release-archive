@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/effortless-or
 [Original/Source Press Release](https://newsdirect.com/news/effortless-organization-dola-ai-sets-new-standard-for-personal-assistants-919528035)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dola-ai-revolutionizing-personal-assistant-experience-with-gpt-4-technology/c145644f9c9cc4c25d24e9c17ca85b47) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/dola-ai-revolutionizes-personal-organization-with-cutting-edge-ai-assistant)
+ 
 
 
 

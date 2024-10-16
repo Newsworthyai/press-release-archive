@@ -35,7 +35,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/cwg-markets-t
 [Original/Source Press Release](https://newsdirect.com/news/cwg-markets-triumphs-at-2024-hong-kong-wiki-finance-expo-with-best-forex-trade-execution-356482208)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cwg-markets-triumphs-at-2024-hong-kong-wiki-finance-expo/2f8875dbf6bba497db6dadfe3e57d52e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cwg-markets-receives-best-forex-trade-execution-award-at-2024-hong-kong-wiki-finance-expo/20244450)
+
+Pickup - [advos.io](https://advos.io/en/cwg-markets-wins-best-forex-trade-execution-at-2024-hong-kong-wiki-finance-expo/20244450)
+ 
 
 
 

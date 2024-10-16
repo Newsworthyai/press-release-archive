@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/hope-on-the-h
 [Original/Source Press Release](https://newsdirect.com/news/hope-on-the-horizon-results-from-maveric-pilot-show-heartfelt-progress-for-patients-794994908)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cardiol-therapeutics-reports-positive-results-from-phase-ii-maveric-pilot-study/0175228cb05dffbd035b0c7a0d00e814) 
+
+
+Pickup - [advos.io](https://advos.io/en/cardiol-therapeutics-reports-positive-results-from-maveric-pilot-study-for-pericarditis-treatment/20244192)
+ 
 
 
 

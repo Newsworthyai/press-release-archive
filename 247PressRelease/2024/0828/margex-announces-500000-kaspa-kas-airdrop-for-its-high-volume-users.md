@@ -7,7 +7,21 @@ VICTORIA, SEYCHELLES, August 28, 2024 /24-7PressRelease/ -- Margex, a cryptocurr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513825/margex-announces-500000-kaspa-kas-airdrop-for-its-high-volume-users)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/margex-announces-500000-kaspa-kas-airdrop-for-high-volume-traders/3054f1f8b76eb53cc5a61fe73894c2b8) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/margex-announces-500000-kaspa-kas-airdrop-for-high-volume-traders)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/margex-announces-500000-kaspa-kas-airdrop-for-high-volume-traders)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/margex-launches-500000-kaspa-airdrop-for-high-volume-traders)
+
+Pickup - [fishervista.com](https://fishervista.com/en/margex-announces-500000-kaspa-kas-airdrop-for-high-volume-users/20246313)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/margex-launches-500000-kaspa-kas-airdrop-for-high-volume-traders/20246313)
+
+Pickup - [advos.io](https://advos.io/en/margex-announces-500000-kaspa-kas-airdrop-for-high-volume-users/20246313)
+ 
 
 
 

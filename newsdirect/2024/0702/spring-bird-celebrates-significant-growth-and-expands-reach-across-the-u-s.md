@@ -29,7 +29,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/spring-bird-c
 [Original/Source Press Release](https://newsdirect.com/news/spring-bird-celebrates-significant-growth-and-expands-reach-across-the-u-s-519998512)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/spring-bird-celebrates-remarkable-growth-and-expansion-in-transit-industry/f9dabae677adddd4e0a65a6c7a85b2d6) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/spring-bird-expands-nationwide-becoming-second-largest-supplier-of-certified-pre-owned-transit-vehicles/20244667)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/spring-bird-emerges-as-major-player-in-u-s-transit-solutions-market)
+
+Pickup - [advos.io](https://advos.io/en/spring-bird-celebrates-significant-growth-and-expands-reach-across-the-u-s/20244667)
+ 
 
 
 

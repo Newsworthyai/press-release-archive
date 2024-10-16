@@ -33,7 +33,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-kroma-announces-spectrums-launch-alongside-expansion-plans)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kroma-unveils-spectrum-advanced-staking-service-for-ethereum-layer-2/0dcf43603a4c27eb798703c4ed6a76ea) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/kroma-unveils-spectrum-advanced-staking-service-for-ethereum-layer-2)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/kroma-unveils-spectrum-advanced-staking-service-for-ethereum-layer-2)
+ 
 
 
 

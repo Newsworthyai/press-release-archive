@@ -7,7 +7,9 @@ RENO, NV, April 25, 2024 /24-7PressRelease/ -- "III" is a cohesive work of pop-r
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510246/pop-rock-band-world5-to-release-third-studio-album-iii-on-spectra-music-group-label)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/world5-to-release-new-album-iii-on-may-10-2024/916e98eaa4ad73a6dbf8275ea0d4e7dd) 
+
+ 
 
 
 

@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/green-lantern
 [Original/Source Press Release](https://newsdirect.com/news/green-lantern-solar-completes-sale-of-eight-community-solar-projects-in-vermont-to-sea-oak-capital-llc-475674848)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/green-lantern-solar-completes-sale-of-eight-community-solar-projects-in-vermont/4128942cf827ce14d3500bea105494dc) 
+
+ 
 
 
 

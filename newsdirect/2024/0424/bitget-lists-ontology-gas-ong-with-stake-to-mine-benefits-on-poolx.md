@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-lists-
 [Original/Source Press Release](https://newsdirect.com/news/bitget-lists-ontology-gas-ong-with-stake-to-mine-benefits-on-poolx-535347531)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-lists-ontology-gas-ong-with-stake-to-mine-benefits-on-poolx/4c3b5a44b9564626550c6e80b85da2a7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/bitget-lists-ontology-gas-ong-with-stake-to-mine-benefits-on-poolx)
+ 
 
 
 

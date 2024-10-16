@@ -59,7 +59,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/adin-avertisi
 [Original/Source Press Release](https://newsdirect.com/news/adin-avertising-technology-announces-ai-based-approach-to-digital-media-planning-adin-ai-624516634)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/adin-ai-revolutionizes-media-planning-with-ai-based-advertising-intelligence-platform/1ffa82a26a55fd7a390e96bf74349afe) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/adin-ai-revolutionizes-digital-media-planning-with-ai-driven-solutions)
+ 
 
 
 

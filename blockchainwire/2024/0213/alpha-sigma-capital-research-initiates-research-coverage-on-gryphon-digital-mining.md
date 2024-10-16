@@ -29,7 +29,11 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/alpha-sigma-capital-research-initiates-research-coverage-on-gryphon-digital-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alpha-sigma-capital-research-initiates-coverage-on-gryphon-digital-mining/f48d86907beb6196bb1c0030faa11753) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/13/alpha-sigma-capital-initiates-coverage-on-gryphon-digital-mining)
+ 
 
 
 

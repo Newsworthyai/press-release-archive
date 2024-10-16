@@ -33,7 +33,11 @@ Official Website | Telegram | Twitter | Discord | YouTube
 [Original/Source Press Release](https://blockchainwire.io/press-release/nektr-launches-airdrop-and-raffle-dapps-amid-recent-rebranding)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nektr-announces-new-web3-dapps-and-rebranding/c49e64d043c064827cb8514851a54c63) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/04/nektr-unveils-airdrop-and-raffle-dapps-in-web3-commerce-push)
+ 
 
 
 

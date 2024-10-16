@@ -9,7 +9,19 @@ The announcement of this revolutionary online poker platform launch merges the t
 [Original/Source Press Release](https://blockchainwire.io/press-release/cat-poker-launches-revolutionary-meme-token-first-to-make-poker-platform-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cat3-poker-launches-revolutionary-blockchain-poker-platform/5181b699c251278a1eb632977175cf2c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cat3-poker-unveils-blockchain-based-poker-platform-a-new-era-in-online-gaming-and-community-finance/20244702)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/cat3-poker-introduces-innovative-blockchain-based-online-poker-platform)
+
+Pickup - [advos.io](https://advos.io/en/cat3-poker-launches-revolutionary-blockchain-based-poker-platform/20244702)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cat3-poker-launches-revolutionary-blockchain-poker-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cat3-poker-launches-revolutionary-blockchain-poker-platform)
+ 
 
 
 

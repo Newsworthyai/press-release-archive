@@ -29,7 +29,17 @@ IR@icoreconnect.com
 [Original/Source Press Release](https://www.newmediawire.com/news/icoreconnect-inc-announces-appointment-of-industry-leader-yvonne-hyland-to-its-board-of-directors-7076035)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/icoreconnect-inc-appoints-yvonne-hyland-to-board-of-directors/6e9c2103ee6fa0ca09f6ef1d0ddbbc5a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/icoreconnect-inc-strengthens-board-with-appointment-of-tech-industry-veteran-yvonne-hyland)
+
+Pickup - [fishervista.com](https://fishervista.com/en/icoreconnect-inc-appoints-yvonne-hyland-to-board-of-directors/20246736)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/icoreconnect-strengthens-board-with-appointment-of-tech-industry-veteran-yvonne-hyland/20246736)
+
+Pickup - [advos.io](https://advos.io/en/icoreconnect-inc-appoints-yvonne-hyland-to-board-of-directors/20246736)
+ 
 
 
 

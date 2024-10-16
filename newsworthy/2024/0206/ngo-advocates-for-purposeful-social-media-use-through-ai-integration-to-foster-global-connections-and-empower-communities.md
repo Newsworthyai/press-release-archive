@@ -29,7 +29,11 @@ Facebook Group | Facebook | Linkedin | X (Twitter) |Instagram | Pinterest
 [Original/Source Press Release](https://newsworthy.ai/news/202402061056/do-people-use-social-media-too-much-not-if-they-use-it-with-ai-to-connect-with-the-world-to-help-others-thrive-says-ngo)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ngo-uses-ai-to-create-shared-emotional-peak-experiences/6ae78a89e457fe635bdf91d59d54a57e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/06/ngo-harnesses-ai-to-foster-global-connections-and-empower-communities)
+ 
 
 
 

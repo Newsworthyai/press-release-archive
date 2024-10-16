@@ -7,7 +7,17 @@ DALLAS, TX, August 31, 2024 /24-7PressRelease/ -- Harper Ellsworth Advertising, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513929/harper-ellsworth-advertising-is-a-finalist-for-the-2024-mmm-awards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/harper-ellsworth-advertising-named-finalist-for-2024-mm-m-awards/59508c3b3af0ff70d27dd5495dbf616d) 
+
+
+Pickup - [advos.io](https://advos.io/en/harper-ellsworth-advertising-named-finalist-for-2024-mm-m-awards/20246405)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/31/harper-ellsworth-advertising-named-finalist-for-2024-mm-m-awards)
+
+Pickup - [fishervista.com](https://fishervista.com/en/harper-ellsworth-advertising-recognized-as-finalist-for-2024-mm-m-awards/20246405)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/harper-ellsworth-advertising-named-finalist-for-2024-mm-m-awards/20246405)
+ 
 
 
 

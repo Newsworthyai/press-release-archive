@@ -50,7 +50,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/hoffman-finan
 [Original/Source Press Release](https://newsdirect.com/news/hoffman-financial-group-joins-forces-with-amerilifes-brookstone-capital-management-177839796)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brookstone-capital-management-partners-with-hoffman-financial-group-in-strategic-collaboration/3c5ebabebcce8499ed94ed0a10f31792) 
+
+
+Pickup - [advos.io](https://advos.io/en/hoffman-financial-group-partners-with-amerilife-s-brookstone-capital-management/20244202)
+ 
 
 
 

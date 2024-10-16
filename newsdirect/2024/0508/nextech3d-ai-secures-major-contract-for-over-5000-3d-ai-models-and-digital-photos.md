@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-
 [Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-secures-major-contract-for-over-5-000-3d-ai-models-and-digital-photos-300127164)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nextech3d-ai-ceo-announces-major-contract-for-3d-ai-models-and-digital-photos/e8476942e4a528256915306e76251ab0) 
+
+ 
 
 
 

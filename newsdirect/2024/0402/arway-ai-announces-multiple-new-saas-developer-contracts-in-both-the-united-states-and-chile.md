@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/arway-ai-anno
 [Original/Source Press Release](https://newsdirect.com/news/arway-ai-announces-multiple-new-saas-developer-contracts-in-both-the-united-states-and-chile-806648800)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arway-ai-announces-new-saas-developer-sign-ups-for-ar-indoor-navigation-platform/c13bdeaafb24701a6a0fcfd229ded4b8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/arway-ai-expands-global-reach-with-new-saas-developer-contracts)
+ 
 
 
 

@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bestgrowthsto
 [Original/Source Press Release](https://newsdirect.com/news/bestgrowthstocks-com-issues-comprehensive-evaluation-of-gamestop-corporation-327671910)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/best-growth-stocks-releases-comprehensive-evaluation-of-gamestop-corp/2d59e6ea8ad85fa6150b9b1c272b9558) 
+
+
+Pickup - [advos.io](https://advos.io/en/bestgrowthstocks-com-provides-in-depth-analysis-of-gamestop-corporation/20243625)
+ 
 
 
 

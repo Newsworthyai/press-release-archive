@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-study-sho
 [Original/Source Press Release](https://newsdirect.com/news/new-study-shows-rise-in-independent-by-choice-workers-over-traditional-employment-672523437)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-study-shows-rise-in-independent-by-choice-workers-over-traditional-employment/da021248d58fa785c25d61a1d7a3cfdb) 
+
+ 
 
 
 

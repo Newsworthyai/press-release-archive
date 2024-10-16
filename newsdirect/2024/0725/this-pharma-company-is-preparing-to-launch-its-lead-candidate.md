@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/this-pharma-c
 [Original/Source Press Release](https://newsdirect.com/news/this-pharma-company-is-preparing-to-launch-its-lead-candidate-252698575)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/citius-pharmaceuticals-ceo-discusses-exciting-developments-and-imminent-drug-launch/88cc6b42b57239085936a53e1b15761b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/citius-pharmaceuticals-prepares-for-landmark-drug-launch)
+
+Pickup - [fishervista.com](https://fishervista.com/en/citius-pharmaceuticals-set-to-launch-its-first-drug-marking-a-milestone-in-critical-care/20245252)
+
+Pickup - [advos.io](https://advos.io/en/citius-pharmaceuticals-prepares-for-imminent-launch-of-lead-drug-candidate/20245252)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/citius-pharmaceuticals-poised-to-launch-first-drug-ceo-reveals-in-interview)
+ 
 
 
 

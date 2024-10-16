@@ -7,7 +7,11 @@ WEST PALM BEACH, FL, March 27, 2024 /24-7PressRelease/ -- Graze Craze®, the wor
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509580/graze-craze-accelerates-franchise-development-and-achieves-10th-consecutive-quarter-of-growth-in-2023)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/graze-craze-r-celebrates-record-breaking-growth-in-2023/c154e9bf7e18109cc1be4c65502eb0fb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/graze-craze-achieves-remarkable-growth-in-2023)
+ 
 
 
 

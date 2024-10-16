@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/australian-st
 [Original/Source Press Release](https://newsdirect.com/news/australian-strategic-materials-signs-us-600-million-loi-794990750)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/australian-strategic-materials-secures-us-600-million-loi-for-dubbo-project/bd3fa73e091eda77b14e08c02bdd989f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/australian-strategic-materials-secures-massive-funding-for-critical-minerals-project)
+ 
 
 
 

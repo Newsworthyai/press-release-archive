@@ -31,7 +31,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/debo-fintech-llc-launches-the-latest-ai-data-model-to-lead-the-innovation-of-high-frequency-quantitative-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/debo-fintech-llc-announces-breakthrough-in-ai-data-model-development/ff8beb173aeef14705019b1d7fe04ab6) 
+
+
+Pickup - [advos.io](https://advos.io/en/debo-fintech-llc-launches-latest-ai-data-model-for-high-frequency-quantitative-trading/20243948)
+ 
 
 
 

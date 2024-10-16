@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/classiq-trans
 [Original/Source Press Release](https://newsdirect.com/news/classiq-transforms-quantum-computing-with-qmod-the-first-high-level-language-for-quantum-programming-589443299)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/classiq-launches-qmod-the-first-high-level-language-for-quantum-programming/3d143cef7e627a8dbd33d15bf97f05ea) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/classiq-unveils-qmod-revolutionizing-quantum-computing-with-high-level-programming-language)
+
+Pickup - [fishervista.com](https://fishervista.com/en/classiq-revolutionizes-quantum-computing-with-launch-of-qmod-language/20245184)
+
+Pickup - [advos.io](https://advos.io/en/classiq-introduces-qmod-a-high-level-language-revolutionizing-quantum-computing/20245184)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/classiq-launches-qmod-a-revolutionary-high-level-language-for-quantum-programming)
+ 
 
 
 

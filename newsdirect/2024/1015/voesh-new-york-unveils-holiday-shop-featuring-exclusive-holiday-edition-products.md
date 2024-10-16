@@ -38,7 +38,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/voesh-new-yor
 [Original/Source Press Release](https://newsdirect.com/news/voesh-new-york-unveils-holiday-shop-featuring-exclusive-holiday-edition-products-509278374)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/voesh-new-york-unveils-exclusive-holiday-edition-products/ff3f6ef327a46f8c00a83be8fb8c6077) 
+
+ 
 
 
 

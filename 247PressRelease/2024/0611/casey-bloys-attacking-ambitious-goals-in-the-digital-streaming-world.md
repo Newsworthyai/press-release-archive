@@ -7,7 +7,11 @@ LOS ANGELES, CA, June 11, 2024 /24-7PressRelease/ -- Under the astute leadership
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511585/casey-bloys-attacking-ambitious-goals-in-the-digital-streaming-world)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hbo-and-hbo-max-ceo-casey-bloys-leads-strategic-dominance-in-streaming-world/ea745110290ab12d9f4e2c121ef26e52) 
+
+
+Pickup - [advos.io](https://advos.io/en/casey-bloys-dynamic-leadership-propels-hbo-and-hbo-max-to-new-heights/20244014)
+ 
 
 
 

@@ -7,7 +7,9 @@ LOS ANGELES, CA, September 20, 2024 /24-7PressRelease/ -- Season 3 ended with ja
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514181/the-umbrella-academy-season-3-recap-essential-refresher-before-season-4-premieres)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-umbrella-academy-season-4-a-clash-of-timelines-and-looming-apocalypse/0e030102d566f855cd7866e020b6a9e4) 
+
+ 
 
 
 

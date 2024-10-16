@@ -18,7 +18,11 @@ To join the JDOGE community and participate in its growth journey:Download the T
 [Original/Source Press Release](https://blockchainwire.io/press-release/john-doge-jdoge-the-rising-star-of-ton-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jdoge-thriving-memecoin-project-poised-to-dominate-ton-chain-ecosystem/cf5ba806b15556ccde463a8ddf60cfbd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/14/john-doge-jdoge-the-rising-star-of-ton-blockchain)
+ 
 
 
 

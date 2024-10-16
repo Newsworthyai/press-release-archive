@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/horizon-miner
 [Original/Source Press Release](https://newsdirect.com/news/horizon-minerals-to-resume-gold-production-with-new-ore-deal-381834011)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/horizon-minerals-resumes-gold-production-with-new-ore-deal/cab2d8628e6a78354880d97763fc291c) 
+
+ 
 
 
 

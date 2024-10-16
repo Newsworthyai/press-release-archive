@@ -48,7 +48,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/mcc-brokerage
 [Original/Source Press Release](https://newsdirect.com/news/mcc-brokerage-named-one-of-americas-fastest-growing-private-companies-by-inc-5000-240717199)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcc-brokerage-named-to-inc-5000-list-of-fastest-growing-private-companies/285272f0f903a24534549c5328b0a9e5) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mcc-brokerage-earns-spot-on-inc-5000-list-of-fastest-growing-private-companies/20245842)
+
+Pickup - [advos.io](https://advos.io/en/mcc-brokerage-named-among-americas-fastest-growing-private-companies-by-inc-5000/20245842)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/19/mcc-brokerage-achieves-inc-5000-recognition-signaling-rapid-growth-in-insurance-industry)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mcc-brokerage-achieves-first-recognition-on-inc-5000-list-of-fastest-growing-private-companies/20245842)
+ 
 
 
 

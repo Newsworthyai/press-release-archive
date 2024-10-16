@@ -23,7 +23,9 @@ McEwen Mining (NYSE: MUX) (TSX: MUX), a gold and silver producer with operations
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-reports-on-70m-private-placement-funds-to-support-los-azules-copper-project/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-mining-announces-nonbrokered-private-placement-financing-for-mcewen-copper-inc/ed76c1b5bf09c23b993f9db6f75d3e31) 
+
+ 
 
 
 

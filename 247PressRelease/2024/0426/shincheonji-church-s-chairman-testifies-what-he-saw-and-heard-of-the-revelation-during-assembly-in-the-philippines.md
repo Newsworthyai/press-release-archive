@@ -7,7 +7,9 @@ HOUSTON, TX, April 26, 2024 /24-7PressRelease/ -- On April 20th, Shincheonji Chu
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510419/shincheonji-churchs-chairman-testifies-what-he-saw-and-heard-of-the-revelation-during-assembly-in-the-philippines)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-church-chairman-lee-begins-2024-continental-word-crusade/b6d274ae16f0c7adfb3adbc9b119f08a) 
+
+ 
 
 
 

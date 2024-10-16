@@ -27,7 +27,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/storm-trade-launches-pre-launch-futures-trading-on-notcoin)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/storm-trade-launches-pre-launch-futures-trading-on-notcoin/5a7697bfd923a9834dbfcc0ca067f6b9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/15/storm-trade-launches-pre-launch-futures-trading-on-notcoin)
+ 
 
 
 

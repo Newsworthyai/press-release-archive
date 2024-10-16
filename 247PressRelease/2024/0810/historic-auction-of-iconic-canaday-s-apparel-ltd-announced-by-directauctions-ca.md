@@ -7,7 +7,17 @@ MOOSE JAW, SK, August 10, 2024 /24-7PressRelease/ -- DirectAuctions.ca is proud 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513301/historic-auction-of-iconic-canadays-apparel-ltd-announced-by-directauctionsca)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rare-auction-event-for-canaday-s-apparel-ltd-in-moose-jaw/f7dbef7886775d36911fc1e31f1f972c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/10/historic-auction-of-canaday-s-apparel-ltd-set-to-preserve-moose-jaw-s-industrial-legacy)
+
+Pickup - [fishervista.com](https://fishervista.com/en/historic-auction-unfolds-for-iconic-canaday-s-apparel-ltd-in-moose-jaw/20245628)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/canaday-s-apparel-ltd-auctions-off-legacy-iconic-moose-jaw-business-closes-chapter/20245628)
+
+Pickup - [advos.io](https://advos.io/en/historic-auction-of-canaday-s-apparel-ltd-to-take-place/20245628)
+ 
 
 
 

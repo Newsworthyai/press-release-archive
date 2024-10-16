@@ -61,7 +61,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-scholarsh
 [Original/Source Press Release](https://newsdirect.com/news/new-scholarship-examines-how-changing-generations-affects-u-s-politics-231827675)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-scholarship-examines-how-changing-generations-affects-u-s-politics/ff390199c7a518f3ca1fbaa80176501c) 
+
+
+Pickup - [advos.io](https://advos.io/en/new-book-explores-generational-politics-in-the-united-states/20244213)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-book-explores-generational-shifts-and-their-impact-on-u-s-politics/20244213)
+ 
 
 
 

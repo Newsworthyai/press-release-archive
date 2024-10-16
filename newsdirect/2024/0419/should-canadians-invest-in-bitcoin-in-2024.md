@@ -83,7 +83,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/should-canadi
 [Original/Source Press Release](https://newsdirect.com/news/should-canadians-invest-in-bitcoin-in-2024-877440404)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/canadian-investors-poised-for-lucrative-returns-amid-bitcoin-halving/f0ab96ae1c901c9f7896fe1c9b8cf952) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/should-canadians-invest-in-bitcoin-in-2024)
+ 
 
 
 

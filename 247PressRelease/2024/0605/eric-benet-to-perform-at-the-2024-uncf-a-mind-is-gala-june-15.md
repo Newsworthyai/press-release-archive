@@ -7,7 +7,11 @@ CHICAGO, IL, June 05, 2024 /24-7PressRelease/ -- Four-time Grammy Award-nominate
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511448/eric-ben%C3%89t-to-perform-at-the-2024-uncf-a-mind-is-gala-june-15)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/eric-benet-to-headline-2024-uncf-gala-in-chicago/aa6f85c09c40996475dabb6acb4cdd4d) 
+
+
+Pickup - [advos.io](https://advos.io/en/eric-benet-to-headline-2024-uncf-a-mind-is-gala-in-chicago/20243839)
+ 
 
 
 

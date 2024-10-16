@@ -7,7 +7,9 @@ DAYTON, OH, June 01, 2024 /24-7PressRelease/ -- In his groundbreaking new book, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511360/unveiling-the-truth-behind-the-roberts-courts-agenda)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vernon-lee-knox-s-new-book-reveals-alarming-shifts-within-the-supreme-court/0b7fb59ecedb5cd628da5be1c1fdf607) 
+
+ 
 
 
 

@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/kariba-redd-p
 [Original/Source Press Release](https://newsdirect.com/news/kariba-redd-project-withdrawal-from-vcs-ghg-program-927556172)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/carbon-green-investments-withdraws-kariba-and-chirisa-projects-from-vcs-ghg-program/9f9280d0cc6446ed0e987174ec964bc0) 
+
+ 
 
 
 

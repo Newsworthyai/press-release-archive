@@ -41,7 +41,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/denario-annou
 [Original/Source Press Release](https://newsdirect.com/news/denario-announces-strategic-partnership-with-inacta-ventures-to-revolutionize-precious-metals-ownership-612494353)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/denario-announces-strategic-partnership-with-inacta-ventures-to-revolutionize-precious-metals-ownership/10a6f69f0e97194ee9200c89a902d0ae) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/denario-and-inacta-ventures-partner-to-revolutionize-precious-metals-ownership/20244763)
+
+Pickup - [advos.io](https://advos.io/en/denario-and-inacta-ventures-partner-to-revolutionize-precious-metals-ownership/20244763)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/denario-partners-with-inacta-ventures-to-transform-precious-metals-ownership-through-tokenization)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/denario-announces-strategic-partnership-with-inacta-ventures-to-revolutionize-precious-metals-ownership)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/denario-announces-strategic-partnership-with-inacta-ventures-to-revolutionize-precious-metals-ownership)
+ 
 
 
 

@@ -7,7 +7,17 @@ PARIS, FRANCE, September 09, 2024 /24-7PressRelease/ -- The global fashion exhib
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514123/korea-upcycle-keia-showcases-13-sustainable-brands-at-whos-next-paris)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-fashion-exhibition-who-s-next-showcases-sustainable-korean-fashion/1698252d29a32c49b1cb6fa34b38fa87) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/korean-sustainable-fashion-takes-center-stage-at-paris-who-s-next-exhibition)
+
+Pickup - [fishervista.com](https://fishervista.com/en/korea-upcycle-keia-unveils-13-sustainable-brands-at-paris-who-s-next-exhibition/20246612)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/korean-sustainable-fashion-brands-debut-at-paris-who-s-next-exhibition/20246612)
+
+Pickup - [advos.io](https://advos.io/en/korean-brands-showcase-sustainability-at-who-s-next-paris/20246612)
+ 
 
 
 

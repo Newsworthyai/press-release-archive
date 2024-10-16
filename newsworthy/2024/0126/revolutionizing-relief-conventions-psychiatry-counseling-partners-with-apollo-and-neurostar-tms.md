@@ -15,7 +15,11 @@ In collaboration with Apollo and NeuroStar TMS, Conventions Psychiatry & Counsel
 [Original/Source Press Release](https://newsworthy.ai/news/202401261033/revolutionizing-relief-conventions-psychiatry-counseling-partners-with-apollo-and-neurostar-tms)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/conventions-psychiatry-counseling-partners-with-apollo-and-neurostar-tms-to-introduce-innovative-tms-therapy-for-depression/986cd0b4e9fa283c353c08ff0b0f3b12) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/26/transforming-depression-treatment-with-transcranial-magnetic-stimulation)
+ 
 
 
 

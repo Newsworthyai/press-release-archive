@@ -55,7 +55,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/personalized-
 [Original/Source Press Release](https://newsdirect.com/news/personalized-support-and-cutting-edge-tools-what-sets-edgeclear-apart-in-futures-trading-191973632)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/edgeclear-personalized-support-and-cutting-edge-tools/7f03801ee8c16fb87b918a9978a17f00) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/edgeclear-revolutionizes-futures-trading-with-personalized-support-and-advanced-tools)
+
+Pickup - [fishervista.com](https://fishervista.com/en/edgeclear-sets-new-standard-in-futures-trading-with-personalized-support-and-advanced-tools/20246531)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/edgeclear-revolutionizes-futures-trading-with-personalized-support-and-advanced-tools/20246531)
+
+Pickup - [advos.io](https://advos.io/en/edgeclear-sets-new-standard-in-futures-trading-with-personalized-support-and-advanced-tools/20246531)
+ 
 
 
 

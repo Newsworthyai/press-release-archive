@@ -7,7 +7,9 @@ ROSWELL, GA, May 08, 2024 /24-7PressRelease/ -- Trinity School of Medicine is ex
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510636/trinity-school-of-medicine-partners-with-chartjoy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trinity-school-of-medicine-partners-with-chartjoy-to-offer-medical-scribes-pathway-to-md/a7e805e3e2ed875497e71a9b8305862a) 
+
+ 
 
 
 

@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-immuno-on
 [Original/Source Press Release](https://newsdirect.com/news/new-immuno-oncology-research-team-in-partnership-with-ono-pharmaceutical-starts-at-biomed-x-institute-876552598)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/biomed-x-and-ono-pharmaceutical-co-ltd-collaborate-on-new-immunotherapy-research-team/404796b09c1061182da6edbae10c7b80) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/biomed-x-institute-launches-new-immuno-oncology-research-team-with-ono-pharmaceutical)
+
+Pickup - [fishervista.com](https://fishervista.com/en/biomed-x-and-ono-pharmaceutical-launch-innovative-immuno-oncology-research-team/20246895)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/biomed-x-and-ono-pharmaceutical-launch-collaborative-research-on-neutrophil-based-cancer-immunotherapy/20246895)
+
+Pickup - [advos.io](https://advos.io/en/biomed-x-institute-launches-new-immuno-oncology-research-team-with-ono-pharmaceutical/20246895)
+ 
 
 
 

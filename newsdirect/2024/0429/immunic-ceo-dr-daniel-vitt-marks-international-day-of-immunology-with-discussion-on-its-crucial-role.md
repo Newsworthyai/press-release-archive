@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/immunic-ceo-d
 [Original/Source Press Release](https://newsdirect.com/news/immunic-ceo-dr-daniel-vitt-marks-international-day-of-immunology-with-discussion-on-its-crucial-role-893458615)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ceo-dr-daniel-vitt-discusses-crucial-role-of-immunology-in-human-health/9ab0b469f81cde62bcd3e1708a992b05) 
+
+ 
 
 
 

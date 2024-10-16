@@ -101,7 +101,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/xlre-etf-an-e
 [Original/Source Press Release](https://newsdirect.com/news/xlre-etf-an-exploration-to-the-real-estate-sector-716365692)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xlre-etf-an-exploration-to-the-real-estate-sector/aa1545ad2303a7eba77207237be7700b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/xlre-etf-offers-targeted-exposure-to-real-estate-sector-with-low-expense-ratio)
+
+Pickup - [fishervista.com](https://fishervista.com/en/xlre-etf-offers-strategic-insight-into-real-estate-investment/20244914)
+
+Pickup - [advos.io](https://advos.io/en/xlre-etf-a-strategic-pathway-to-real-estate-investment-opportunities/20244914)
+ 
 
 
 

@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/avrupa-minera
 [Original/Source Press Release](https://newsdirect.com/news/avrupa-minerals-planning-aggressive-drill-program-at-sesmarias-copper-zinc-lead-project-in-portugal-728197058)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avrupa-minerals-planning-aggressive-drill-program-in-portugal-and-kosovo/881f184867c4774a5d29305b08db731d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/avrupa-minerals-gears-up-for-ambitious-exploration-campaigns)
+ 
 
 
 

@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/from-pets-to-
 [Original/Source Press Release](https://newsdirect.com/news/from-pets-to-humans-telomir-pharmaceuticals-nasdaq-telo-holds-the-key-to-extending-life-reversing-aging-257340194)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/telomir-pharmaceuticals-inc-holds-the-key-to-extending-life-reversing-aging/949fd787e0294d7ded456f0942e2cb2a) 
+
+ 
 
 
 

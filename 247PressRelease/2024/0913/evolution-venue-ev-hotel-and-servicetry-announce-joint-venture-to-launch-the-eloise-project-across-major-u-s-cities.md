@@ -7,7 +7,17 @@ ALPHARETTA, GA, September 13, 2024 /24-7PressRelease/ -- Introducing The Eloise 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514290/evolution-venue-ev-hotel-and-servicetry-announce-joint-venture-to-launch-the-eloise-project-across-major-us-cities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-the-eloise-project-a-groundbreaking-luxury-hotel-experience/698d6ff53a1d87cec0e24215f35a7650) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/ev-hotel-and-servicetry-launch-the-eloise-project-revolutionizing-luxury-hospitality)
+
+Pickup - [fishervista.com](https://fishervista.com/en/luxury-hospitality-reimagined-the-eloise-project-set-to-launch-across-major-u-s-cities/20246815)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ev-hotel-and-servicetry-partner-to-launch-luxury-eloise-project-in-major-u-s-cities/20246815)
+
+Pickup - [advos.io](https://advos.io/en/ev-hotel-corp-and-servicetry-launch-the-eloise-project-to-revolutionize-luxury-hospitality/20246815)
+ 
 
 
 

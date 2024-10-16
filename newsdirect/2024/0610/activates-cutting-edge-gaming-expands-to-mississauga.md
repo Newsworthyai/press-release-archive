@@ -57,7 +57,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/activates-cut
 [Original/Source Press Release](https://newsdirect.com/news/activates-cutting-edge-gaming-expands-to-mississauga-413209285)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/activate-expands-to-mississauga-with-cutting-edge-gaming-facility/d05db4e85e00858a4a79aeb3682375e8) 
+
+
+Pickup - [advos.io](https://advos.io/en/activate-s-cutting-edge-gaming-expands-to-mississauga-offering-unparalleled-entertainment-experience/20243980)
+ 
 
 
 

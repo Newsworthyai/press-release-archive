@@ -95,7 +95,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/broadband-lea
 [Original/Source Press Release](https://newsdirect.com/news/broadband-leaders-publish-permitting-success-strategies-for-isps-and-local-governments-670701907)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/broadband-leaders-publish-strategies-for-isps-and-local-governments/a130e9be206e111822055ca56ddbbacc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/new-strategic-paper-outlines-permitting-strategies-to-accelerate-broadband-deployment)
+
+Pickup - [fishervista.com](https://fishervista.com/en/broadband-leaders-release-strategies-to-streamline-permitting-close-digital-divide/20246528)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/new-paper-outlines-strategies-for-streamlining-broadband-permitting-process/20246528)
+
+Pickup - [advos.io](https://advos.io/en/broadband-leaders-release-strategies-to-streamline-permitting-for-isps-and-local-governments/20246528)
+ 
 
 
 

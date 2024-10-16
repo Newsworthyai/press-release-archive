@@ -21,7 +21,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/brunswick-exp
 [Original/Source Press Release](https://newsdirect.com/news/brunswick-exploration-sees-positive-results-from-mirage-drilling-and-plans-for-summer-exploration-778918328)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brunswick-exploration-sees-positive-results-from-mirage-drilling-and-plans-for-summer-exploration/2a8c4584bc014f289d97910a484f0d7b) 
+
+
+Pickup - [advos.io](https://advos.io/en/brunswick-exploration-reports-strong-lithium-results-from-mirage-drilling-plans-extensive-summer-exploration/20243991)
+ 
 
 
 

@@ -51,7 +51,9 @@ info@kyncap.com
 [Original/Source Press Release](https://www.newmediawire.com/news/kyn-capital-group-s-koinfold-integrates-usdt-on-polygon-ethereum-and-tron-blockchains-and-artificial-intelligence-into-cryptocurrency-app-7076058)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kyn-capital-group-updates-customers-on-new-koinfold-features/1c76dfd3400e834809c3fffe642c1c17) 
+
+ 
 
 
 

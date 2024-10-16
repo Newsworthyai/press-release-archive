@@ -41,7 +41,9 @@ Recently, Dr. Bowen He has been appointed as the most significant contributor in
 [Original/Source Press Release](https://evertise.net/dr-bowen-he-leading-the-digital-transformation-of-climate-mitigation-solutions-in-u-s-metro-cities/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-bowen-he-leads-digital-solutions-for-urban-climate-mitigation/2b7a9be9d2d4d240194bde8988393d87) 
+
+ 
 
 
 

@@ -45,7 +45,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/quantitative-
 [Original/Source Press Release](https://newsdirect.com/news/quantitative-easing-could-occur-soon-heres-what-that-could-mean-for-crypto-and-how-to-benefit-790279191)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-central-banks-cut-interest-rates-how-it-could-impact-cryptocurrency-investors/bfec15dd629d5dee88266e51df946693) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/global-central-banks-cut-interest-rates-how-it-could-impact-cryptocurrency-investors)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/global-central-banks-cut-interest-rates-how-it-could-impact-cryptocurrency-investors)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/potential-interest-rate-cuts-could-boost-cryptocurrency-markets)
+
+Pickup - [fishervista.com](https://fishervista.com/en/potential-quantitative-easing-implications-for-cryptocurrency-markets/20245364)
+
+Pickup - [advos.io](https://advos.io/en/quantitative-easing-s-potential-impact-on-cryptocurrency-markets/20245364)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/potential-interest-rate-cuts-signal-opportunities-for-cryptocurrency-investors)
+ 
 
 
 

@@ -17,7 +17,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/worldcore-coin-app-set-to-launch-transforming-crypto-management-and-transactions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/worldcore-coin-wcc-to-launch-innovative-app-for-managing-digital-assets/9aac2af58e5bb33e99e7bf74cf52121b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/16/worldcore-coin-app-revolutionizing-crypto-management-and-transactions)
+ 
 
 
 

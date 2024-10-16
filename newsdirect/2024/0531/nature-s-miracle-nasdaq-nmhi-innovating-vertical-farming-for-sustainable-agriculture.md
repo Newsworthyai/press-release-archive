@@ -55,7 +55,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/natures-mirac
 [Original/Source Press Release](https://newsdirect.com/news/natures-miracle-nasdaq-nmhi-innovating-vertical-farming-for-sustainable-agriculture-635257981)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nature-s-miracle-nasdaq-nmhi-leading-the-charge-in-vertical-farming-innovation/1f7b9fee6faa26284b783aeb5fffe774) 
+
+ 
 
 
 

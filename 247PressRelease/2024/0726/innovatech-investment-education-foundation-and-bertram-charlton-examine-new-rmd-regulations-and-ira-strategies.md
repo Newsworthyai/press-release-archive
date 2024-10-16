@@ -7,7 +7,17 @@ WASHINGTON, DC, July 26, 2024 /24-7PressRelease/ -- On July 18, the Treasury Dep
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512850/innovatech-investment-education-foundation-and-bertram-charlton-examine-new-rmd-regulations-and-ira-strategies)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/treasury-department-and-irs-release-updated-regulations-for-retirement-plans-and-iras/726af909c30c9a2cad7e7ae223913837) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/treasury-department-and-irs-release-updated-rmd-regulations-impacting-retirement-plans-and-iras)
+
+Pickup - [fishervista.com](https://fishervista.com/en/innovatech-and-bertram-charlton-analyze-new-rmd-regulations-and-ira-strategies/20245272)
+
+Pickup - [advos.io](https://advos.io/en/innovatech-and-bertram-charlton-examine-new-rmd-regulations-and-ira-strategies/20245272)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/treasury-department-and-irs-update-rmd-regulations-impacting-retirement-plans-and-iras)
+ 
 
 
 

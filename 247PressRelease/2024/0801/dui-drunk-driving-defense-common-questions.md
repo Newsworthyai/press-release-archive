@@ -7,7 +7,17 @@ JULIET, IL, August 01, 2024 /24-7PressRelease/ -- What will happen to me after a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513016/dui-drunk-driving-defense-common-questions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/understanding-the-consequences-of-a-first-offense-dui-in-illinois/0faf3d3918b86823e413a2d3505261a5) 
+
+
+Pickup - [advos.io](https://advos.io/en/understanding-the-consequences-of-a-first-offense-dui-in-illinois/20245412)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/understanding-the-consequences-of-first-time-dui-offenses-in-illinois)
+
+Pickup - [fishervista.com](https://fishervista.com/en/understanding-the-consequences-of-a-first-offense-dui-in-illinois/20245412)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/illinois-dui-first-offense-understanding-the-consequences-and-legal-options)
+ 
 
 
 

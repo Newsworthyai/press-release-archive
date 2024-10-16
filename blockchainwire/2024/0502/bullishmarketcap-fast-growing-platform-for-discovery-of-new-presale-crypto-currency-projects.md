@@ -9,7 +9,9 @@ Bullishmarketcap has promised to prioritize safety of crypto traders by ensuring
 [Original/Source Press Release](https://blockchainwire.io/press-release/bullishmarketcap-fast-growing-platform-for-discovery-of-new-presale-crypto-currency-projects)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bullishmarketcap-promises-safety-and-visibility-for-crypto-traders/051e93203d95fdc6e0ae43f5ce694c9e) 
+
+ 
 
 
 

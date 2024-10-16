@@ -33,7 +33,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/gather-attended-the-dubai-web3-summit-and-embarked-on-the-path-of-globalization-development)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/web3-summit-in-dubai-gather-s-key-role-and-expansion-plans/ddc4e5fe3402f233087c1d9c8bd49fc5) 
+
+ 
 
 
 

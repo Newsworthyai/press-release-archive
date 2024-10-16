@@ -7,7 +7,9 @@ PALM BEACH GARDENS, FL, May 30, 2024 /24-7PressRelease/ -- GL Homes, one of the 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511260/itchko-ezrattis-gl-homes-hosts-model-grand-opening-at-apex-at-avenir-in-palm-beach-gardens)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gl-homes-unveils-luxury-model-homes-at-apex-at-avenir-in-palm-beach-gardens/f26062d8bcdfa532b2c48363481d8750) 
+
+ 
 
 
 

@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-pinnacle-fire-systems-inc-and-the-hiller-companies-llc-644371491)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-facilitates-transaction-between-pinnacle-fire-systems-and-the-hiller-companies/c5b41249db11b7bf4261e2c545912f51) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/pinnacle-fire-systems-acquired-by-the-hiller-companies-in-strategic-fire-safety-industry-move)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-transaction-between-pinnacle-fire-systems-and-the-hiller-companies/20245554)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/benchmark-international-brokers-acquisition-of-pinnacle-fire-systems-by-the-hiller-companies)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-acquisition-of-pinnacle-fire-systems-by-the-hiller-companies/20245554)
+ 
 
 
 

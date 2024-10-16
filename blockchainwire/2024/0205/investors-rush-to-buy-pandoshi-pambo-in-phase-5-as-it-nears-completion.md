@@ -31,7 +31,11 @@ Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/investors-rush-to-buy-pandoshi-pambo-in-phase-5-as-it-nears-completion)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pandoshi-pambo-enters-final-phase-of-presale-enthusiasm-grows/f7a3c614ff6b1790419ba4b5ac0efb91) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/05/investors-flock-to-pandoshi-s-final-presale-phase-before-token-launch)
+ 
 
 
 

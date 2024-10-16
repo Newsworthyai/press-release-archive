@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kevel-named-t
 [Original/Source Press Release](https://newsdirect.com/news/kevel-named-to-newsweeks-list-of-the-top-100-global-most-loved-workplaces-for-2024-252662032)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kevel-ranks-13-on-newsweeks-top-100-global-most-loved-workplaces-r-list-for-2024/855da1121f927f464a7f7f1f1e571139) 
+
+
+Pickup - [advos.io](https://advos.io/en/kevel-ranks-13-on-newsweeks-2024-global-most-loved-workplaces-list/20243899)
+ 
 
 
 

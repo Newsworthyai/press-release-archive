@@ -25,7 +25,17 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, i
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-inks-agreement-with-leading-dealer-group/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-partners-with-pape-kenworth-to-expand-ev-dealership-network/7dad715cfe11adba6cfbfda1682c59e4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/mullen-automotive-expands-dealership-network-with-pape-kenworth-partnership)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mullen-automotive-expands-dealership-network-with-pape-kenworth-partnership/20246907)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mullen-automotive-expands-dealership-network-with-pape-kenworth-partnership/20246907)
+
+Pickup - [advos.io](https://advos.io/en/mullen-automotive-expands-dealership-network-with-pape-kenworth-partnership/20246907)
+ 
 
 
 

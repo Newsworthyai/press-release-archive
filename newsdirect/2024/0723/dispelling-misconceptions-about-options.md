@@ -57,7 +57,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/dispelling-mi
 [Original/Source Press Release](https://newsdirect.com/news/dispelling-misconceptions-about-options-363568321)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dispelling-misconceptions-about-options-trading/06f83010190a84e27b4cecb21099e89e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dispelling-common-misconceptions-about-options-trading/20245185)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/demystifying-options-trading-breaking-down-common-misconceptions)
+
+Pickup - [advos.io](https://advos.io/en/dispelling-common-misconceptions-about-options-trading/20245185)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/debunking-common-myths-options-trading-not-just-for-professionals)
+ 
 
 
 

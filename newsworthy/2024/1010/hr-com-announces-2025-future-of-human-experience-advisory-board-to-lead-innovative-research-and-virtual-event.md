@@ -46,7 +46,9 @@ HR.com Newsroom
 [Original/Source Press Release](https://newsworthy.ai/news/202410101311/hr-com-announces-2025-future-of-human-experience-advisory-board-to-lead-innovative-research-and-virtual-event)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-forms-advisory-board-for-future-of-human-experience-research-study-and-virtual-event/6a9be01d5409282bd49ff6bd90437491) 
+
+ 
 
 
 

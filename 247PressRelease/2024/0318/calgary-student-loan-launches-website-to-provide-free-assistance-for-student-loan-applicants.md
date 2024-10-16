@@ -7,7 +7,11 @@ CALGARY, AB, March 18, 2024 /24-7PressRelease/ -- Calgary Student Loan, a non-pr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509281/calgary-student-loan-launches-website-to-provide-free-assistance-for-student-loan-applicants)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/calgary-student-loan-launches-new-website-to-assist-students-with-student-loan-applications/c86174514ed8b518f55cd734c4acd0f1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/calgary-student-loan-launches-website-to-assist-student-loan-applicants)
+ 
 
 
 

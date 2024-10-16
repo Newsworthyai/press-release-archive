@@ -17,7 +17,9 @@ While The Zig Zag print and ebooks were published last month, The Zig Zag audiob
 [Original/Source Press Release](https://newsworthy.ai/news/202409261282/people-zig-and-zag-in-their-book-reading-habits)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/author-rich-christiansen-embraces-multi-format-book-release/8affb979887772eaddb8753b134e847e) 
+
+ 
 
 
 

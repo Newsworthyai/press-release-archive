@@ -7,7 +7,13 @@ WILMINGTON, NC, June 20, 2024 /24-7PressRelease/ -- Bestselling author Jody Shar
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511802/bestselling-author-jody-sharpe-discusses-animal-rescue-and-bullying-on-angel-inspirations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-jody-sharpe-wins-2024-nfpw-professional-communication-contest/59c31c4bcd793cc0e6ea1a07bf3d818e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bestselling-author-jody-sharpe-wins-nfpw-award-and-champions-animal-rescue-and-anti-bullying/20244301)
+
+Pickup - [advos.io](https://advos.io/en/bestselling-author-jody-sharpe-champions-animal-rescue-and-anti-bullying-efforts/20244301)
+ 
 
 
 

@@ -29,7 +29,17 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/bnx-token-officially-added-as-trading-pair-on-fourmeme-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/four-meme-announces-official-listing-of-bnx-token-expanding-trading-opportunities-and-liquidity/76fe4698028045913c824cf001d21f68) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/bnx-token-expands-trading-options-with-four-meme-platform-integration)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bnx-token-integration-expands-trading-options-on-four-meme-platform/20246857)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bnx-token-joins-four-meme-platform-expanding-trading-options-for-crypto-enthusiasts/20246857)
+
+Pickup - [advos.io](https://advos.io/en/bnx-token-added-as-trading-pair-on-four-meme-platform-expanding-opportunities-for-holders/20246857)
+ 
 
 
 

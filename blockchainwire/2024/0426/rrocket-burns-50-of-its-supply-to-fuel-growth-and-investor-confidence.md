@@ -46,7 +46,9 @@ X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/rrocket-burns-50-of-its-supply-to-fuel-growth-and-investor-confidence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rrocket-project-announces-50-token-supply-burn-and-future-plans/7809b937fdf13f23aca29ad7eb23aa3c) 
+
+ 
 
 
 

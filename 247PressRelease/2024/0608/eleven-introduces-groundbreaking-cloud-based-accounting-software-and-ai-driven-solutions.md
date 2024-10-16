@@ -7,7 +7,11 @@ HOUSTON, TX, June 08, 2024 /24-7PressRelease/ -- Eleven, a startup innovator in 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511527/eleven-introduces-groundbreaking-cloud-based-accounting-software-and-ai-driven-solutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/eleven-unveils-revolutionary-ai-powered-accounting-software-for-firms/3ef1dc9479ec90621a4fbcbfab396f8f) 
+
+
+Pickup - [advos.io](https://advos.io/en/eleven-unveils-ai-driven-cloud-based-accounting-software-for-accounting-firms/20243951)
+ 
 
 
 

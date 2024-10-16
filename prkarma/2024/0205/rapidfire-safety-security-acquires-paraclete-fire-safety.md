@@ -55,7 +55,11 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/rapidfire/news_release/1399)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rapidfire-safety-security-acquires-paraclete-fire-safety-in-california-strengthening-its-presence-in-the-region/65be97d15bd9606d75fc8bff242b53e7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/05/rapidfire-safety-security-expands-presence-in-california-with-acquisition-of-paraclete-fire-safety)
+ 
 
 
 

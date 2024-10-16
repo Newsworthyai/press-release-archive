@@ -85,7 +85,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/select-sector
 [Original/Source Press Release](https://newsdirect.com/news/select-sector-spdr-etfs-a-focused-approach-for-sector-specific-portfolio-management-699166287)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/select-sector-spdr-etfs-a-focused-approach-for-sector-specific-portfolio-management/301f814259b8defdd55fbd653fa25f1e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/select-sector-spdr-etfs-enhance-sector-specific-investment-strategies/20244410)
+
+Pickup - [advos.io](https://advos.io/en/select-sector-spdr-etfs-offer-targeted-investment-opportunities/20244410)
+ 
 
 
 

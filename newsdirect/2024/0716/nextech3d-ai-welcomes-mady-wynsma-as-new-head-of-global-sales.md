@@ -21,7 +21,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-
 [Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-welcomes-mady-wynsma-as-new-head-of-global-sales-359772034)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nextech3d-ai-welcomes-mady-wynsma-as-new-head-of-global-sales/549a707f7162fd228af141d5ccfa5693) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/nextech3d-ai-appoints-e-commerce-veteran-mady-wynsma-as-head-of-global-sales)
+
+Pickup - [fishervista.com](https://fishervista.com/en/nextech3d-ai-appoints-mady-wynsma-as-new-head-of-global-sales/20244996)
+
+Pickup - [advos.io](https://advos.io/en/nextech3d-ai-appoints-mady-wynsma-as-new-head-of-global-sales/20244996)
+ 
 
 
 

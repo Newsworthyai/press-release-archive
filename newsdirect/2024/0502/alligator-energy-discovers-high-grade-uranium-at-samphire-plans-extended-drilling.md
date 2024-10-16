@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/alligator-ene
 [Original/Source Press Release](https://newsdirect.com/news/alligator-energy-discovers-high-grade-uranium-at-samphire-plans-extended-drilling-484450056)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alligator-energy-makes-significant-uranium-discoveries-at-samphire-uranium-project/5d52d1d7cbf4ab1be959cf50c70d9420) 
+
+ 
 
 
 

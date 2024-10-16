@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/toolsgroup-an
 [Original/Source Press Release](https://newsdirect.com/news/toolsgroup-and-scarpeandscarpe-to-present-at-upcoming-ep-summit-april-9-10-florence-italy-840694558)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/toolsgroup-and-scarpe-scarpe-to-present-at-upcoming-ep-summit/7a64e56a0f2cd8ccd896c2ce9b2d38f9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/toolsgroup-and-scarpe-scarpe-showcase-ai-powered-retail-transformation-at-ep-summit)
+ 
 
 
 

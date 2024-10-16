@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/sandus-resili
 [Original/Source Press Release](https://newsdirect.com/news/sandus-resilient-performance-and-growth-strategy-amidst-economic-and-regulatory-headwinds-606067216)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/s-u-plc-chairman-anthony-coombs-discusses-company-s-performance-and-outlook/c1eb09e8eb6e4facc8e544c8266f3613) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/s-u-s-resilient-performance-and-growth-strategy-in-the-face-of-economic-and-regulatory-headwinds)
+ 
 
 
 

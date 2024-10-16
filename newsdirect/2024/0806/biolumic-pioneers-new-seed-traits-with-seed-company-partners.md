@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/biolumic-pion
 [Original/Source Press Release](https://newsdirect.com/news/biolumic-pioneers-new-seed-traits-with-seed-company-partners-685929663)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/biolumic-pioneers-new-seed-traits-with-seed-company-partners/cc05860b09211a8bd123a65d448bae30) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/biolumic-partners-to-revolutionize-corn-seed-production-with-light-activated-genetic-traits/20245518)
+
+Pickup - [advos.io](https://advos.io/en/biolumic-partners-with-seed-companies-to-revolutionize-corn-production/20245518)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/biolumic-s-light-technology-revolutionizes-corn-seed-production)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/biolumic-s-light-treatment-technology-revolutionizes-corn-seed-production)
+ 
 
 
 

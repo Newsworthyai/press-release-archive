@@ -7,7 +7,9 @@ TOKYO, JAPAN, May 01, 2024 /24-7PressRelease/ -- Janu Hotels is known for its co
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510551/gre-alphas-dimming-modules-power-a-luxurious-atmosphere-at-the-janu-hotel-in-tokyo-japan)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/janu-hotel-elevates-guest-experience-with-gre-alpha-s-dimming-modules/b2eda256dcf73daea4fdc3048bf18d0b) 
+
+ 
 
 
 

@@ -37,7 +37,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/500-car-enhan
 [Original/Source Press Release](https://newsdirect.com/news/500-car-enhances-global-market-reach-through-innovative-advertising-and-promoting-charitable-causes-601115917)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/500-car-drives-innovation-in-automotive-brand-advertising-and-promotion/97f824701e81629b68ce49bf6b1654a4) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/500-car-expands-global-reach-and-champions-social-responsibility-through-innovative-advertising/20244309)
+
+Pickup - [advos.io](https://advos.io/en/500-car-expands-global-reach-with-innovative-advertising-and-charitable-initiatives/20244309)
+ 
 
 
 

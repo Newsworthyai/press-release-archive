@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/direxion-unve
 [Original/Source Press Release](https://newsdirect.com/news/direxion-unveils-broadcom-and-micron-technologies-single-stock-leveraged-and-inverse-etfs-420197962)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/direxion-launches-new-semiconductor-pairs-and-expands-etf-suite/f948ac9ca3f982ac445f446148ae0859) 
+
+ 
 
 
 

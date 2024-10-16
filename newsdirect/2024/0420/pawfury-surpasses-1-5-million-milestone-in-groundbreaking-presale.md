@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/pawfury-surpa
 [Original/Source Press Release](https://newsdirect.com/news/pawfury-surpasses-1-5-million-milestone-in-groundbreaking-presale-688028434)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pawfury-surpasses-1-5-million-milestone-in-groundbreaking-presale/245543ccb4978d321d88b30da3683361) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/20/pawfury-surpasses-1-5-million-milestone-in-groundbreaking-presale)
+ 
 
 
 

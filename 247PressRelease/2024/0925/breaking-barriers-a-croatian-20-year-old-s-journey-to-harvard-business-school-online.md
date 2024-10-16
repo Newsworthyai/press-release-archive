@@ -7,7 +7,9 @@ PAZIN, CROATIA, September 25, 2024 /24-7PressRelease/ -- In the quiet, picturesq
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514615/breaking-barriers-a-croatian-20-year-olds-journey-to-harvard-business-school-online)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/20-year-old-vanessa-plejic-making-waves-at-harvard-from-her-hometown-of-pazin/b75c01ba267b9d014f6f39fe7dafd1d0) 
+
+ 
 
 
 

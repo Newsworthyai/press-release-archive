@@ -37,7 +37,17 @@ Contact: info@hr.com HR.com Newsroom
 [Original/Source Press Release](https://newsworthy.ai/news/202407161212/new-advisory-board-announced-for-hr-com-s-future-of-compensation-and-total-rewards-2024-study-and-event)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-announces-formation-of-future-of-compensation-and-total-rewards-2024-advisory-board/6eec5cfe1e6afdf72512aac71996072c) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-com-announces-advisory-board-for-future-of-compensation-and-total-rewards-2024-study/20244988)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/hr-com-assembles-expert-advisory-board-for-2024-compensation-and-total-rewards-study)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hr-com-announces-future-of-compensation-and-total-rewards-2024-advisory-board/20244988)
+
+Pickup - [advos.io](https://advos.io/en/hr-com-announces-advisory-board-for-2024-future-of-compensation-and-total-rewards-study-and-event/20244988)
+ 
 
 
 

@@ -56,7 +56,21 @@ X (Twitter) | Telegram | Instagram
 [Original/Source Press Release](https://blockchainwire.io/press-release/light--shadow-introduces-crypto-features-and-benefits-for-real-estate-investors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/light-shadow-launches-crypto-friendly-real-estate-ecosystem/1aef4b5ad32204231664740d0a2e77f3) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/light-shadow-launches-crypto-friendly-real-estate-ecosystem)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/light-shadow-launches-crypto-friendly-real-estate-ecosystem)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/light-shadow-unveils-innovative-crypto-friendly-real-estate-ecosystem)
+
+Pickup - [fishervista.com](https://fishervista.com/en/light-shadow-unveils-crypto-friendly-ecosystem-for-real-estate-investors/20245201)
+
+Pickup - [advos.io](https://advos.io/en/light-shadow-unveils-crypto-friendly-real-estate-ecosystem/20245201)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/light-shadow-unveils-crypto-powered-real-estate-investment-platform)
+ 
 
 
 

@@ -35,7 +35,13 @@ hello@gorillaonton.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/gorilla-protocol-building-the-first-community-powered-crowdfunding-ecosystem-on-ton-chain-for-web3-startups)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gorilla-protocol-launches-dao-based-crowdfunding-on-ton-blockchain/4a1ce1160f4d630959eda4eb456066fc) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gorilla-protocol-launches-dao-based-crowdfunding-on-ton-blockchain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gorilla-protocol-launches-dao-based-crowdfunding-on-ton-blockchain)
+ 
 
 
 

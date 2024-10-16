@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/ellipal-celebrates-six-years-the-originator-of-air-gapped-cold-wallet-certified-by-forbes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ellipal-celebrates-6th-anniversary-with-month-long-airdrop-celebration/20035ce9615867ded6f9efad3875f3ab) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/ellipal-celebrates-six-years-of-pioneering-crypto-security)
+ 
 
 
 

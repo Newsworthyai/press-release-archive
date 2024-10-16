@@ -25,7 +25,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-updates-j
 [Original/Source Press Release](https://newsdirect.com/news/htx-updates-june-security-monthly-report-putting-user-asset-safety-first-132621933)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-prioritizes-user-asset-safety-with-monthly-security-reports-and-merkle-tree-proof-of-reserves/c8937775b56fc75366735eff17ada3a6) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/htx-releases-june-security-monthly-report-reinforcing-commitment-to-user-asset-safety/20244842)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/htx-bolsters-user-trust-with-june-security-monthly-report)
+
+Pickup - [advos.io](https://advos.io/en/htx-releases-june-security-monthly-report-emphasizes-user-asset-safety/20244842)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-prioritizes-user-asset-safety-with-monthly-security-reports-and-merkle-tree-proof-of-reserves)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-prioritizes-user-asset-safety-with-monthly-security-reports-and-merkle-tree-proof-of-reserves)
+ 
 
 
 

@@ -37,7 +37,15 @@ Website
 [Original/Source Press Release](https://blockchainwire.io/press-release/renat-mansurov-launches-global-mentorship-program-to-empower-aspiring-fundraisers-and-innovators)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/investment-expert-renat-mansurov-launches-global-mentorship-program-for-aspiring-entrepreneurs)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/investment-expert-renat-mansurov-launches-global-mentorship-program-for-aspiring-entrepreneurs/20246714)
+
+Pickup - [advos.io](https://advos.io/en/investment-expert-renat-mansurov-launches-global-mentorship-program-for-aspiring-entrepreneurs/20246714)
+ 
 
  
 

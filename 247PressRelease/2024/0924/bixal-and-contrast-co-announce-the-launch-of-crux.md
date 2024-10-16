@@ -7,7 +7,9 @@ FAIRFAX, VA, September 24, 2024 /24-7PressRelease/ -- Bixal, a mission-driven co
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514587/bixal-and-contrast-co-announce-the-launch-of-crux)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bixal-and-contrast-co-launch-joint-venture-crux-to-transform-government-services/8c603003cd9e97ef7b0fb80d6ecf1714) 
+
+ 
 
 
 

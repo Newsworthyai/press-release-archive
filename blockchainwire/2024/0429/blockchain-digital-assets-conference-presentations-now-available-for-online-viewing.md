@@ -103,7 +103,9 @@ johnv@otcmarkets.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockchain--digital-assets-conference-presentations-now-available-for-online-viewing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockchain-digital-assets-virtual-investor-conference-presentations-now-available-online/12206cd4178290971066cc8132791b77) 
+
+ 
 
 
 

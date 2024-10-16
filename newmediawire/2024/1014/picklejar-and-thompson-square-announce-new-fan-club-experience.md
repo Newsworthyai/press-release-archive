@@ -37,7 +37,9 @@ anna@picklejar.com
 [Original/Source Press Release](https://www.newmediawire.com/news/picklejar-and-thompson-square-announce-new-fan-club-experience-7076223)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/picklejar-launches-official-fan-club-for-thompson-square/80037eaf79d1faafdd83f8abeb909506) 
+
+ 
 
 
 

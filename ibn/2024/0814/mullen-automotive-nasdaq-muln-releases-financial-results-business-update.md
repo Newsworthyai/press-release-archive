@@ -23,7 +23,11 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, i
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-releases-financial-results-business-update/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-reports-positive-financial-and-business-results-for-q3-and-q9-2024/5b12e5717277081010ab805a0e56bb91) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mullen-automotive-reports-strong-financial-position-and-business-growth-in-latest-update/20246215)
+ 
 
 
 

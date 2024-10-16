@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/suro-capital-
 [Original/Source Press Release](https://newsdirect.com/news/suro-capital-unlocking-access-to-potentially-high-growth-venture-opportunities-like-openai-and-liquid-death-832630280)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/suro-capital-corp-unlocking-access-to-high-growth-venture-opportunities/8b7db1d1af46a159a498863cc06b3ede) 
+
+ 
 
 
 

@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-technolog
 [Original/Source Press Release](https://newsdirect.com/news/the-technology-powering-aevas-nyse-aeva-vision-for-a-safer-autonomous-future-and-why-it-could-be-game-changing-723129789)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aeva-technologies-advanced-lidar-technology-paving-the-way-for-a-safer-autonomous-future/6db071639415a9a3667af5fc7b40dac5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/aeva-s-fmcw-lidar-technology-paves-the-way-for-safer-autonomous-vehicles)
+
+Pickup - [fishervista.com](https://fishervista.com/en/aeva-technologies-advanced-lidar-sensors-pave-the-way-for-safer-autonomous-driving/20246562)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/aeva-s-fmcw-lidar-technology-paves-the-way-for-safer-autonomous-vehicles/20246562)
+
+Pickup - [advos.io](https://advos.io/en/aeva-technologies-advanced-lidar-sensors-aim-to-revolutionize-autonomous-driving/20246562)
+ 
 
 
 

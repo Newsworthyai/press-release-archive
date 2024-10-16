@@ -7,7 +7,13 @@ FORT LAUDERDALE, FL, June 24, 2024 /24-7PressRelease/ -- BurgerFi®, owned by Bu
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511925/its-a-hot-chicken-summer-at-burgerfi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/burgerfi-r-introduces-buffalo-chicken-sandwich-and-coca-cola-freestyle-r-float/6c725f7f0ecc4555708a8d94deb8dfc9) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/burgerfi-heats-up-summer-with-new-buffalo-chicken-sandwich-and-coca-cola-freestyle-floats/20244401)
+
+Pickup - [advos.io](https://advos.io/en/burgerfi-introduces-bold-buffalo-chicken-sandwich-and-customizable-coca-cola-floats/20244401)
+ 
 
 
 

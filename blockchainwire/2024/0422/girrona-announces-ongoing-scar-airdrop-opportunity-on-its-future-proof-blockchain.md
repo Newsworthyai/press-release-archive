@@ -47,7 +47,9 @@ X (Twitter) | Telegram | YouTube
 [Original/Source Press Release](https://blockchainwire.io/press-release/girrona-announces-ongoing-scar-airdrop-opportunity-on-its-future-proof-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exciting-scar-airdrop-opportunity-for-girrona-community-members/b2c5fa1f2033561755f34c44e9fc0096) 
+
+ 
 
 
 

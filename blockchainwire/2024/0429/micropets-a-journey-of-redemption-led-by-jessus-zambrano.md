@@ -27,7 +27,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/micropets-a-journey-of-redemption-led-by-jessus-zambrano)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/micropets-resurgence-actor-producer-jessus-zambrano-leads-transformation/3ea49b6f1424b7f444782a476eadcb4b) 
+
+ 
 
 
 

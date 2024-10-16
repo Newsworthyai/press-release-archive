@@ -35,7 +35,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/first-and-las
 [Original/Source Press Release](https://newsdirect.com/news/first-and-last-pr-supports-beauty-lifestyle-and-wellness-brands-introducing-new-pr-services-at-beauty-independents-uplink-expo-conference-875907564)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/first-and-last-pr-introduces-new-pr-services-for-beauty-wellness-and-lifestyle-brands/0396d9361725465294fe125346f8bfc2) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/first-and-last-pr-unveils-new-pr-services-for-emerging-beauty-and-wellness-brands/20244492)
+
+Pickup - [advos.io](https://advos.io/en/first-and-last-pr-unveils-specialized-services-for-indie-beauty-and-wellness-brands/20244492)
+ 
 
 
 

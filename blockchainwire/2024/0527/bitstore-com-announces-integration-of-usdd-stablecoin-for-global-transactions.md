@@ -32,7 +32,13 @@ Website
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitstorecom-announces-integration-of-usdd-stablecoin-for-global-transactions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitstore-com-partners-with-usdd-to-bring-stablecoin-integration-to-everyday-transactions/bc731f133068557ef72e456863fcde4b) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitstore-com-partners-with-usdd-to-bring-stablecoin-integration-to-everyday-transactions)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitstore-com-partners-with-usdd-to-bring-stablecoin-integration-to-everyday-transactions)
+ 
 
 
 

@@ -7,7 +7,9 @@ BOSTON, MA, October 05, 2024 /24-7PressRelease/ -- Dr. Sudipta Mohanty, MD, an e
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514996/dr-sudipta-mohanty-spearheads-innovations-in-medical-education-and-advocacy-to-advance-healthcare-quality-and-accessibility)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-sudipta-mohanty-shaping-the-future-of-medicine/f9b456be3a150a0bfd6b82d077b116ab) 
+
+ 
 
 
 

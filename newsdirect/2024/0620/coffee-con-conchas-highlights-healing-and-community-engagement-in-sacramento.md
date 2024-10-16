@@ -39,7 +39,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/coffee-con-co
 [Original/Source Press Release](https://newsdirect.com/news/coffee-con-conchas-highlights-healing-and-community-engagement-in-sacramento-309531906)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coffee-con-conchas-celebrating-community-and-connection-in-sacramento/ea9f3c418f28c65848c3311454e37d58) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/coffee-con-conchas-event-promotes-healing-and-community-engagement-in-sacramento/20244338)
+
+Pickup - [advos.io](https://advos.io/en/coffee-con-conchas-event-promotes-healing-and-community-in-sacramento/20244338)
+ 
 
 
 

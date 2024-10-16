@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/battery-miner
 [Original/Source Press Release](https://newsdirect.com/news/battery-mineral-resources-announces-first-shipments-of-copper-concentrates-to-anglo-american-plc-for-smelting-614044974)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/battery-mineral-resources-corp-announces-first-shipments-of-copper-concentrates-to-anglo-american-plc/95810b15e7c4f6adf8d1dfe7b1741b89) 
+
+ 
 
 
 

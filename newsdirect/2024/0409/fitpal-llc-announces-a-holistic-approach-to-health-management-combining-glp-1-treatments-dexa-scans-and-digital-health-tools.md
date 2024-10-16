@@ -49,7 +49,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/fitpal-llc-an
 [Original/Source Press Release](https://newsdirect.com/news/fitpal-llc-announces-a-holistic-approach-to-health-management-combining-glp-1-treatments-dexa-scans-and-digital-health-tools-888250876)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fitpal-llc-announces-holistic-health-management-program/bd388805071f4cba9efbf5eba2484bb8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/fitpal-llc-unveils-integrated-approach-to-health-management)
+ 
 
 
 

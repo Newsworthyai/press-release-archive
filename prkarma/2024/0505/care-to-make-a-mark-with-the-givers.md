@@ -48,7 +48,11 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/ycommunicate/news_release/1456)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trish-standley-and-walk-in-my-shoes-foundation-announce-care-for-the-giver-community-event/91acc7b817d63324f6a83d80e8b48cc2) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/inaugural-care-for-the-giver-event-spotlights-crucial-role-of-caregivers/20243186)
+ 
 
 
 

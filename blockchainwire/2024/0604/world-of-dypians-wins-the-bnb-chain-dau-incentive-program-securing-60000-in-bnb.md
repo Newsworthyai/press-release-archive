@@ -31,7 +31,9 @@ You can learn more about World of Dypians and stay up-to-date with its developme
 [Original/Source Press Release](https://blockchainwire.io/press-release/world-of-dypians-wins-the-bnb-chain-dau-incentive-program-securing-60000-in-bnb)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/world-of-dypians-wins-bnb-chain-dau-incentive-program/c2d2c9934e6615c3427333c045628d4f) 
+
+ 
 
 
 

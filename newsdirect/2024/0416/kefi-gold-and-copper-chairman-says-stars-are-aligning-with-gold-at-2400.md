@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kefi-gold-and
 [Original/Source Press Release](https://newsdirect.com/news/kefi-gold-and-copper-chairman-says-stars-are-aligning-with-gold-at-2-400-432307258)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kefi-gold-and-copper-chairman-projects-90-million-net-cash-flow-as-gold-hits-2400/013710aa672caeb2ab26ec9ec79de737) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/stars-are-aligning-for-kefi-gold-and-copper-as-gold-prices-reach-record-highs)
+ 
 
 
 

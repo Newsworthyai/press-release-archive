@@ -49,7 +49,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/greenwave-tec
 [Original/Source Press Release](https://newsdirect.com/news/greenwave-technology-solutions-could-be-emerging-as-recycling-leader-by-increasing-metal-processing-capabilities-in-eastern-u-s-951411191)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greenwave-technology-solutions-driving-growth-in-metal-recycling-industry/db7f19d05efd6efd49f3814fce32d4c6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/greenwave-technology-solutions-poised-for-growth-in-metal-recycling-industry)
+ 
 
 
 

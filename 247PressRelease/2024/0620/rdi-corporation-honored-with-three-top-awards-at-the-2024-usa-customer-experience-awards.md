@@ -7,7 +7,13 @@ BLUE ASH, OH, June 20, 2024 /24-7PressRelease/ -- RDI Corporation is proud to an
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511865/rdi-corporation-honored-with-three-top-awards-at-the-2024-usa-customer-experience-awards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rdi-corporation-takes-top-honors-at-2024-usa-customer-experience-awards/31b9cb99e22778f7f0a4f33df7854b1d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/rdi-corporation-wins-three-major-honors-at-2024-usa-customer-experience-awards/20244297)
+
+Pickup - [advos.io](https://advos.io/en/rdi-corporation-secures-three-top-honors-at-2024-usa-customer-experience-awards/20244297)
+ 
 
 
 

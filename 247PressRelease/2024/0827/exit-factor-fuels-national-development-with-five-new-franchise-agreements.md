@@ -7,7 +7,17 @@ WEST PALM BEACH, FL, August 27, 2024 /24-7PressRelease/ -- Exit Factor™, the l
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513787/exit-factor-fuels-national-development-with-five-new-franchise-agreements)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exit-factor-announces-expansion-and-new-franchise-agreements/e8b5c47863e0411bb3a277e60684c601) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/exit-factor-expands-national-footprint-with-five-new-franchise-agreements/20245975)
+
+Pickup - [advos.io](https://advos.io/en/exit-factor-expands-nationwide-with-five-new-franchise-agreements/20245975)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/exit-factor-expands-nationwide-with-five-new-franchise-agreements)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/exit-factor-expands-nationwide-with-five-new-franchise-agreements/20245975)
+ 
 
 
 

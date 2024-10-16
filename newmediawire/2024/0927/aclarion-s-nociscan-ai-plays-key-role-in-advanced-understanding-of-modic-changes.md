@@ -35,7 +35,9 @@ Media Contacts:Jodi LambertiSPRIG Consulting612.812.7477jodi@sprigconsulting.com
 [Original/Source Press Release](http://www.newmediawire.com/news/aclarion-s-nociscan-ai-plays-key-role-in-advanced-understanding-of-modic-changes-7076099)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aclarion-s-nociscan-solution-used-to-understand-modic-changes-in-chronic-low-back-pain-patients/c358fc0215a8f7166f7d4d1c58733f35) 
+
+ 
 
 
 

@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitcoins-4th-
 [Original/Source Press Release](https://newsdirect.com/news/bitcoins-4th-halving-is-approaching-vie-for-30-000-usdt-in-htxs-bitcoin-halving-themed-trading-contest-328519299)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-halving-themed-trading-contest-with-30000-usdt-prize-pool/5ddd733ed20d5a5df44595ebf200bd04) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/htx-hosts-bitcoin-halving-themed-trading-contest-with-30000-usdt-prize-pool)
+ 
 
 
 

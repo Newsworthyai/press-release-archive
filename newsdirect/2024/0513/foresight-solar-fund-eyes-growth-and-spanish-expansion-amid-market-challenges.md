@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/foresight-sol
 [Original/Source Press Release](https://newsdirect.com/news/foresight-solar-fund-eyes-growth-and-spanish-expansion-amid-market-challenges-648341164)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/foresight-solar-fund-focuses-on-growth-and-spanish-expansion-amid-market-challenges/cb4491e2aae9a5f1e459d353ab2bc426) 
+
+ 
 
 
 

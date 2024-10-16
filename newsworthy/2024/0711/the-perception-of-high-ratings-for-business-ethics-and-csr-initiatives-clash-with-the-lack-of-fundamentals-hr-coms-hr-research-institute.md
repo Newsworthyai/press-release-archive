@@ -37,7 +37,15 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202407111209/the-perception-of-high-ratings-for-business-ethics-and-csr-initiatives-clash-with-the-lack-of-fundamentals-hr-coms-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-study-reveals-discrepancy-in-companies-business-ethics-practices/d170045ae9f5eaf9f03286a71bd01534) 
+
+
+Pickup - [advos.io](https://advos.io/en/hr-com-study-reveals-gaps-between-perceived-and-actual-business-ethics-and-csr-practices/20244890)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hr-study-reveals-discrepancy-between-perceived-and-actual-business-ethics-and-csr-practices/20244890)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/11/hr-research-reveals-gap-between-perceived-and-actual-business-ethics-practices)
+ 
 
 
 

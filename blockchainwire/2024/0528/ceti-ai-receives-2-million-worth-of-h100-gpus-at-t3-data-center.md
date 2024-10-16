@@ -31,7 +31,13 @@ The ceτi AI invites tech enthusiasts and AI-skilled individuals to join and sup
 [Original/Source Press Release](https://blockchainwire.io/press-release/cei-ai-receives-2-million-worth-of-h100-gpus-at-t3-data-center)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ce-i-ai-receives-2-million-worth-of-cutting-edge-hardware/c891b7f7075aad5541b65a9e520e00ca) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ce-i-ai-receives-2-million-worth-of-cutting-edge-hardware)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ce-i-ai-receives-2-million-worth-of-cutting-edge-hardware)
+ 
 
 
 

@@ -61,7 +61,21 @@ Media contact: bluewave@transformgroup.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/waterfall-network-announces-integration-with-infstones-and-highlights-post-mainnet-growth-in-ama-recap)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/waterfall-network-integrates-with-infstones-to-enhance-decentralization-and-scalability/94621fee358aa8403816d15e5294b4ed) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/waterfall-network-integrates-with-infstones-to-enhance-decentralization-and-scalability)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/waterfall-network-integrates-with-infstones-to-enhance-decentralization-and-scalability)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/waterfall-network-integrates-with-infstones-showcases-post-mainnet-growth/20245821)
+
+Pickup - [advos.io](https://advos.io/en/waterfall-network-integrates-with-infstones-achieves-major-post-mainnet-milestones/20245821)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/waterfall-network-integrates-with-infstones-showcases-post-mainnet-growth)
+
+Pickup - [fishervista.com](https://fishervista.com/en/waterfall-network-partners-with-infstones-showcases-unprecedented-decentralization-and-growth/20245821)
+ 
 
 
 

@@ -7,7 +7,11 @@ DUBAI, UAE, April 04, 2024 /24-7PressRelease/ -- International Business Magazine
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509743/bigboss-bags-three-award-titles-at-international-business-magazine-award-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bigboss-wins-three-top-forex-broker-titles-for-2024/1522221b6d05cc74d9cee1bfe78a2a09) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/bigboss-sweeps-prestigious-awards-at-international-business-magazine-event)
+ 
 
 
 

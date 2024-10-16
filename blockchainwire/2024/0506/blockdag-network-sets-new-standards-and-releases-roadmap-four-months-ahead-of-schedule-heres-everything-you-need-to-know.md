@@ -39,7 +39,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-network-sets-new-standards-and-releases-roadmap-four-months-ahead-of-schedule-heres-everything-you-need-to-know-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-unveils-roadmap-ahead-of-schedule/e59c8108d0c00b94e13b9c67e28f23d5) 
+
+ 
 
 
 

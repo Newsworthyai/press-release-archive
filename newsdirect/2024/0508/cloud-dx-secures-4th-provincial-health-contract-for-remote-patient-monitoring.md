@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cloud-dx-secu
 [Original/Source Press Release](https://newsdirect.com/news/cloud-dx-secures-4th-provincial-health-contract-for-remote-patient-monitoring-739644377)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloud-dx-ceo-robert-kaul-secures-new-remote-patient-monitoring-agreement-with-canadian-provincial-health-authority/d5c70a269f44b113353c1c5bbc20d2c5) 
+
+ 
 
 
 

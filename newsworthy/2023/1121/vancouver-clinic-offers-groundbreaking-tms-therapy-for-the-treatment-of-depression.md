@@ -17,7 +17,11 @@ TMS NW understands that the cost of treatment can be a concern for many individu
 [Original/Source Press Release](https://newsworthy.ai/news/20231121730/vancouver-clinic-offers-groundbreaking-tms-therapy-for-the-treatment-of-depression)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-tms-therapy-for-depression-offered-by-tms-nw-in-vancouver-wa/b5a31fabb78a80787bd6c1d912575844) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/21/vancouver-clinic-pioneers-innovative-tms-therapy-for-depression-treatment)
+ 
 
 
 

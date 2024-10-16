@@ -59,7 +59,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-defiquant-offers-competitive-pricing-and-tailored-plans-for-crypto-traders-of-all-levels)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-launches-ai-based-trading-bot-setting-new-standard-in-automated-trading/721caffec699fa3bbb7e5042b3110e13) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/02/defiquant-unveils-ai-powered-crypto-trading-bot-with-competitive-pricing)
+ 
 
 
 

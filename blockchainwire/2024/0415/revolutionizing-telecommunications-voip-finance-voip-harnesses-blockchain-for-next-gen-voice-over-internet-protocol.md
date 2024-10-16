@@ -48,7 +48,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/revolutionizing-telecommunications-voip-finance-voip-harnesses-blockchain-for-next-gen-voice-over-internet-protocol)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/voip-finance-revolutionizes-voip-services-with-blockchain-technology/67b3f9d6f0e27f2cec364eddb9fe81e0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/revolutionizing-telecommunications-voip-finance-voip-harnesses-blockchain-for-next-gen-voice-over-internet-protocol)
+ 
 
 
 

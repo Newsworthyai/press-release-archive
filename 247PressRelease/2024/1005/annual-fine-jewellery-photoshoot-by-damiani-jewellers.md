@@ -7,7 +7,9 @@ TORONTO, ON, October 05, 2024 /24-7PressRelease/ -- Damiani Jewellers, located i
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515002/annual-fine-jewellery-photoshoot-by-damiani-jewellers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/damiani-jewellers-announces-annual-photoshoot-to-showcase-latest-jewellery-collection/8d86dc447e8ac2115d806fb5c8ff903e) 
+
+ 
 
 
 

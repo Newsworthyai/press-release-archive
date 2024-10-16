@@ -9,7 +9,11 @@ The LLM Parser excels in analyzing complex language structures and understanding
 [Original/Source Press Release](https://newsworthy.ai/news/202404121147/rchilli-launches-llm-parser-that-transforms-the-resume-parsing-and-recruitment-industry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-launches-llm-parser-revolutionizing-resume-parsing-and-recruitment/992587e1bb518bcc0d782d31fce196a9) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-introduces-llm-parser-beta-revolutionizing-resume-parsing-technology/20241762)
+ 
 
 
 

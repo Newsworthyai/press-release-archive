@@ -13,7 +13,11 @@ Figure 3: Bitcoin mining technology efficiencyVolcano X: Pioneers Since 2018Sinc
 [Original/Source Press Release](https://blockchainwire.io/press-release/volcano-x-pioneers-sustainable-practices-in-bitcoin-mining-embracing-bitcoin-minings-transformative-era)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/volcano-x-pioneering-bitcoin-mining-amid-halving-events/4446e3edb82cfd3aca36ba5dc8b48716) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/20/volcano-x-pioneering-sustainable-bitcoin-mining-for-a-transformative-era)
+ 
 
 
 

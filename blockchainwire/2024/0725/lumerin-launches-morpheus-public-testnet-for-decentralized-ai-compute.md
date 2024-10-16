@@ -35,7 +35,21 @@ Lumerin is an open-source protocol and foundational layer technology that uses s
 [Original/Source Press Release](https://blockchainwire.io/press-release/lumerin-launches-morpheus-public-testnet--for-decentralized-ai-compute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lumerin-announces-morpheus-ai-testnet-launch-on-arbitrum-sepolia-network/2b9d8daae613eda3354faf31b4efb3d7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/lumerin-launches-morpheus-public-testnet-for-decentralized-ai-compute-on-arbitrum-sepolia)
+
+Pickup - [fishervista.com](https://fishervista.com/en/lumerin-unveils-morpheus-public-testnet-for-decentralized-ai-compute/20245246)
+
+Pickup - [advos.io](https://advos.io/en/lumerin-unveils-morpheus-public-testnet-for-decentralized-ai-compute/20245246)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/lumerin-announces-morpheus-ai-testnet-launch-on-arbitrum-sepolia-network)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/lumerin-announces-morpheus-ai-testnet-launch-on-arbitrum-sepolia-network)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/lumerin-unveils-morpheus-public-testnet-for-decentralized-ai-compute)
+ 
 
 
 

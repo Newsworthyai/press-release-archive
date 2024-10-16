@@ -61,7 +61,9 @@ Telegram Official Announcement: https://t.me/Orangedx_Official
 [Original/Source Press Release](https://blockchainwire.io/press-release/o4dx-bridge-set-to-revolutionize-cross-chain-transactions-launching-october-9th-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/orangedx-to-launch-o4dx-bridge-revolutionizing-cross-chain-defi-transactions/71f7c585a081f2dfafbbe1578db1e8d7) 
+
+ 
 
 
 

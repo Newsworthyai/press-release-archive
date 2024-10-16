@@ -15,7 +15,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/pulsar-helium
 [Original/Source Press Release](https://newsdirect.com/news/pulsar-helium-inc-ceo-thomas-abraham-james-discusses-high-helium-concentrations-and-future-plans-504927228)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pulsar-helium-inc-ceo-thomas-abraham-james-discusses-high-helium-concentrations-and-future-plans/bdf7b3266a87e0a6c43a2df41a66b369) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/pulsar-helium-inc-confirms-high-helium-concentrations-outlines-future-development-plans/20244840)
+
+Pickup - [advos.io](https://advos.io/en/pulsar-helium-inc-reports-significant-helium-discoveries-and-future-plans/20244840)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/pulsar-helium-inc-unveils-promising-results-and-strategic-plans-for-minnesota-helium-project)
+ 
 
 
 

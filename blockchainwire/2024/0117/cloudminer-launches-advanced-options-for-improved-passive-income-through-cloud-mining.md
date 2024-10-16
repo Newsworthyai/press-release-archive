@@ -45,7 +45,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cloudminer-launches-advanced-options-for-improved-passive-income-through-cloud-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloudminer-unveils-enhanced-platform-for-cryptocurrency-cloud-mining/7b5663a88b2b46b1650600607befbb55) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/17/cloudminer-unveils-enhanced-cloud-mining-platform-for-passive-crypto-income)
+ 
 
 
 

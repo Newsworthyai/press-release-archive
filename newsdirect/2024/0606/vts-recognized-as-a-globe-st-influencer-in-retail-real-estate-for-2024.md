@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/vts-recognize
 [Original/Source Press Release](https://newsdirect.com/news/vts-recognized-as-a-globe-st-influencer-in-retail-real-estate-for-2024-189989500)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vts-recognized-as-2024-influencer-in-retail-real-estate-by-globest/a8c584f9b001a0da6fc2e6061626dba8) 
+
+
+Pickup - [advos.io](https://advos.io/en/vts-honored-as-a-2024-influencer-in-retail-real-estate-by-globest/20243893)
+ 
 
 
 

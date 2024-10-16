@@ -43,7 +43,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/media-advisor
 [Original/Source Press Release](https://newsdirect.com/news/media-advisory-interview-opportunities-available-for-tuesday-july-9th-world-premiere-of-the-bilingual-bistec-podcast-series-345463046)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/world-premiere-of-bistec-podcast-series-a-riveting-tale-of-cuban-revolutionaries-and-dissidents/1a92fe6bae001bdcf2d8997aef861133) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/world-premiere-of-bilingual-bistec-podcast-series-unveils-cuba-s-hidden-realities/20244766)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/bilingual-podcast-bistec-set-to-premiere-offering-unique-glimpse-into-modern-cuba)
+
+Pickup - [advos.io](https://advos.io/en/bilingual-bistec-podcast-series-premieres-july-9th/20244766)
+ 
 
 
 

@@ -15,7 +15,13 @@ Telegram : [https://t.me/gametyio](https://t.me/gametyio)Website : [http://gamet
 [Original/Source Press Release](https://blockchainwire.io/press-release/why-gamety-is-a-hidden-gem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gamety-the-hidden-gem-of-blockchain-gaming/c563b387c25264ce7771d90e30b1182d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gamety-the-hidden-gem-of-blockchain-gaming)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gamety-the-hidden-gem-of-blockchain-gaming)
+ 
 
 
 

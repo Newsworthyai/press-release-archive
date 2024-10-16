@@ -35,7 +35,11 @@ GitHub: https://github.com/Particle-Network
 [Original/Source Press Release](https://blockchainwire.io/press-release/particle-network-unveils-modular-layer-1-for-chain-abstraction--universal-accounts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/particle-network-unveils-revolutionary-modular-layer-1-solution/0ca325266e93600a9ece65ddd0c4dc05) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/particle-network-unveils-revolutionary-modular-layer-1-for-seamless-web3-experience)
+ 
 
 
 

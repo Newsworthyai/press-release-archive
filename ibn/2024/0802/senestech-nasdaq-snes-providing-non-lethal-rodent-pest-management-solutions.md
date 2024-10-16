@@ -31,7 +31,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestech-nasdaq-snes-providing-non-lethal-rodent-pest-management-solutions/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/study-reveals-threat-to-birds-of-prey-from-rodenticides/ec77cc11614f32defb98cd75c6eaf79d) 
+
+ 
 
 
 

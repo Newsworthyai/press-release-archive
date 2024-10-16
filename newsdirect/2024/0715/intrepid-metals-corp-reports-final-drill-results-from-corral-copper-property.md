@@ -21,7 +21,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/intrepid-meta
 [Original/Source Press Release](https://newsdirect.com/news/intrepid-metals-corp-reports-final-drill-results-from-corral-copper-property-596283662)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/intrepid-metals-corp-ceo-shares-final-drill-results-from-corral-copper-property/dd00829676b3c20dfe1b8bd060b341fb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/intrepid-metals-corp-unveils-high-grade-copper-findings-at-corral-copper-property)
+
+Pickup - [fishervista.com](https://fishervista.com/en/intrepid-metals-corp-reveals-promising-drill-results-from-corral-copper-property/20244962)
+
+Pickup - [advos.io](https://advos.io/en/intrepid-metals-corp-announces-promising-final-drill-results-from-corral-copper-property/20244962)
+ 
 
 
 

@@ -7,7 +7,11 @@ VALENCIA, SPAIN, June 09, 2024 /24-7PressRelease/ -- Over the past two weeks, Va
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511552/longwood-university-students-explore-the-legends-and-lore-of-the-way-of-the-holy-grail-in-valencia)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/valencia-hosts-cultural-exchange-days-of-the-way-of-the-holy-grail/ccf40c6a04eb1455cafceb0597b73688) 
+
+
+Pickup - [advos.io](https://advos.io/en/longwood-university-students-engage-in-cultural-exchange-on-the-way-of-the-holy-grail-in-valencia/20243961)
+ 
 
 
 

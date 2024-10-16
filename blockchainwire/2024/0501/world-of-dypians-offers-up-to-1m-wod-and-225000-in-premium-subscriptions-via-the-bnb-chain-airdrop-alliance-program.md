@@ -98,7 +98,9 @@ You can learn more about World of Dypians at these links: Website | Twitter | Di
 [Original/Source Press Release](https://blockchainwire.io/press-release/world-of-dypians-offers-up-to-1m-wod-and-225000-in-premium-subscriptions-via-the-bnb-chain-airdrop-alliance-program)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-mmorpg-world-of-dypians-joins-bnb-chain-airdrop-alliance-program/886d55404717864c67aec35a951cfd5d) 
+
+ 
 
 
 

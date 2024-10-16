@@ -7,7 +7,11 @@ Announcing Trade Bionic, the pioneering Web3 trading, fund management platform t
 [Original/Source Press Release](https://blockchainwire.io/press-release/trade-bionic-onic-a-gateway-to-secure-and-profitable-cryptocurrency-investing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionizing-crypto-trading-with-ai-driven-web3-platform/1fef68310c871f076291802ed79984ba) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/trade-bionic-pioneering-ai-driven-crypto-trading-platform)
+ 
 
 
 

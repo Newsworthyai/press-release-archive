@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/toggle3d-ai-w
 [Original/Source Press Release](https://newsdirect.com/news/toggle3d-ai-welcomes-hareesh-achi-as-new-ceo-transitioning-from-evan-gappelberg-143677874)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tech-leader-hareesh-achi-appointed-ceo-of-toggle3d-ai-driving-innovation-in-3d-and-ai/824cd65880982e2234542a8e09ed57e2) 
+
+ 
 
 
 

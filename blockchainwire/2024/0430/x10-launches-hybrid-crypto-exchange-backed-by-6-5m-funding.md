@@ -35,7 +35,9 @@ For more information, please visit https://x10.exchange/
 [Original/Source Press Release](https://blockchainwire.io/press-release/x10-launches-hybrid-crypto-exchange-backed-by-65m-funding)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hybrid-crypto-exchange-x10-launches-out-of-stealth-with-6-5m-in-funding/4f656992ed4a32ce8fddc10c274ed7f9) 
+
+ 
 
 
 

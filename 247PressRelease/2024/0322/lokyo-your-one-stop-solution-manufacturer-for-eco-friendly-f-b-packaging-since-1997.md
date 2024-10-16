@@ -7,7 +7,11 @@ GUANGZHOU, CHINA, March 22, 2024 /24-7PressRelease/ -- For over two decades, LOK
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509447/lokyo-your-one-stop-solution-manufacturer-for-eco-friendly-fb-packaging-since-1997)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lokyo-your-trusted-one-stop-solution-for-eco-friendly-f-b-packaging/b99a8b287a5674d7080cb67e415b8728) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/lokyo-leading-the-way-in-sustainable-f-b-packaging-solutions)
+ 
 
 
 

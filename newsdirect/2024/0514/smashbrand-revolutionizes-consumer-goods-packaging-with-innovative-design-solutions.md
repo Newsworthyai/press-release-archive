@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/smashbrand-re
 [Original/Source Press Release](https://newsdirect.com/news/smashbrand-revolutionizes-consumer-goods-packaging-with-innovative-design-solutions-467160652)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/smashbrand-revolutionizes-consumer-goods-packaging-with-innovative-design-solutions/88dabdfe2e5f6ad6a4937511a41ff2ab) 
+
+ 
 
 
 

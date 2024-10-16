@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/pathai-partne
 [Original/Source Press Release](https://newsdirect.com/news/pathai-partners-with-google-cloud-to-transform-drug-discovery-and-precision-medicine-through-ai-powered-pathology-574680230)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pathai-partners-with-google-cloud-to-accelerate-adoption-of-ai-powered-pathology/fd853b74bc9ab62e3595136af3fc9ceb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/pathai-partners-with-google-cloud-to-transform-drug-discovery-and-precision-medicine-through-ai-powered-pathology)
+ 
 
 
 

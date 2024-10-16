@@ -7,7 +7,9 @@ LONDON, ENGLAND, May 09, 2024 /24-7PressRelease/ --   Q. Please briefly introduc
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510733/q-and-a-with-mr-timothy-tim-hembry-of-rdhh-capital)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rdhh-capital-discusses-impact-of-sanctions-on-oil-markets-and-issues-financial-instrument/b2f535339ff60291058a87a90ce2a626) 
+
+ 
 
 
 

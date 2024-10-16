@@ -67,7 +67,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/north-america
 [Original/Source Press Release](https://newsdirect.com/news/north-american-gold-rush-spotlights-strategically-positioned-explorers-like-austin-gold-amex-aust-729655724)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-rush-price-reaches-all-time-high/2fa997f264a313d37466367182e81466) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/north-american-gold-rush-highlights-strategic-opportunities-for-austin-gold/20244370)
+
+Pickup - [advos.io](https://advos.io/en/north-american-gold-rush-highlights-explorers-like-austin-gold-amid-soaring-demand/20244370)
+ 
 
 
 

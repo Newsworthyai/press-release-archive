@@ -51,7 +51,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/ethereum-eth-analyst-dives-into-eth-etf--sec-eth-whales-profits-in-new-ai-cryptocurrency-priced-00291)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-eth-whales-eye-option2trade-o2t-as-a-i-driven-crypto-trading-takes-center-stage/5cd978d25a96769237e69cf5be6aac9d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/ethereum-whales-dive-into-option2trade-ai-driven-crypto-trading-beckons)
+ 
 
 
 

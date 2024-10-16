@@ -23,7 +23,11 @@ Elevate your strategic acumen. Begin the journey at www.CorporateStrategy.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231218799/corporatestrategy-io-launches-a-new-hub-for-business-visionaries-and-strategic-thinkers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionizing-business-strategy-with-corporatestrategy-io-launch/1f59eed82fc060fbc5b9b5486213955f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/18/corporatestrategy-io-a-new-hub-for-business-strategists-and-visionaries)
+ 
 
 
 

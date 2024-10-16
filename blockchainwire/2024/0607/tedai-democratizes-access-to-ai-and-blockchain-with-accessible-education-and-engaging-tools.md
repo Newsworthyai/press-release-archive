@@ -59,7 +59,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-tedai-democratizes-access-to-ai-and-blockchain-with-accessible-education-and-engaging-tools)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tedai-revolutionizes-access-to-ai-and-blockchain-with-new-educational-platform-and-tools/c36946dbcc7761f13f7b70b13fd06371) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tedai-revolutionizes-access-to-ai-and-blockchain-with-new-educational-platform-and-tools)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tedai-revolutionizes-access-to-ai-and-blockchain-with-new-educational-platform-and-tools)
+ 
 
 
 

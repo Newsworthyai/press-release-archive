@@ -7,7 +7,17 @@ FREMONT, CA, August 31, 2024 /24-7PressRelease/ -- Learn And Play® Montessori S
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513730/learn-and-play-montessori-school-announces-open-preschool-enrollment-including-in-hercules-and-sunnyvale-ca)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/open-enrollment-for-top-rated-preschool-programs-now-available-at-learn-and-play-r-montessori-school/d9daa1c2c1d6b3fe1beb4279c237f989) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/31/learn-and-play-montessori-school-expands-preschool-enrollment-opportunities-in-bay-area)
+
+Pickup - [fishervista.com](https://fishervista.com/en/learn-and-play-montessori-school-announces-open-preschool-enrollment-including-new-hercules-campus/20246408)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/learn-and-play-montessori-school-expands-preschool-enrollment-opportunities-in-bay-area/20246408)
+
+Pickup - [advos.io](https://advos.io/en/learn-and-play-montessori-school-r-opens-preschool-enrollment-at-new-hercules-campus/20246408)
+ 
 
 
 

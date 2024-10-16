@@ -28,7 +28,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blofin-announced-as-diamond-sponsor-for-european-blockchain-convention-2024-in-barcelona)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blofin-exchange-announces-role-as-diamond-sponsor-for-european-blockchain-convention-2024/92ff4e74fca51ff7ff9f5746349ddc81) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/blofin-exchange-takes-center-stage-as-diamond-sponsor-for-european-blockchain-convention-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/blofin-announced-as-diamond-sponsor-for-european-blockchain-convention-2024/20245561)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/blofin-exchange-secures-diamond-sponsorship-for-european-blockchain-convention-2024/20245561)
+
+Pickup - [advos.io](https://advos.io/en/blofin-becomes-diamond-sponsor-for-european-blockchain-convention-2024/20245561)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blofin-exchange-announces-role-as-diamond-sponsor-for-european-blockchain-convention-2024)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blofin-exchange-announces-role-as-diamond-sponsor-for-european-blockchain-convention-2024)
+ 
 
 
 

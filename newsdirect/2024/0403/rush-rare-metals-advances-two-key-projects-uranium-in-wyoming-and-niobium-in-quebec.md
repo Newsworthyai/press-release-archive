@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/rush-rare-met
 [Original/Source Press Release](https://newsdirect.com/news/rush-rare-metals-advances-two-key-projects-uranium-in-wyoming-and-niobium-in-quebec-162804134)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rush-rare-metals-advances-uranium-in-wyoming-and-niobium-in-quebec/777cc7ae10a13ba7fbc5479be2f5658e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/rush-rare-metals-progresses-uranium-and-niobium-projects)
+ 
 
 
 

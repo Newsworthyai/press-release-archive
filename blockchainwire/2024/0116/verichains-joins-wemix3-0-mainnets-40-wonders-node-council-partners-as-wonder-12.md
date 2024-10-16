@@ -27,7 +27,11 @@ The WEMIX blockchain mega-ecosystem features innovative services including WEMIX
 [Original/Source Press Release](https://blockchainwire.io/press-release/verichains-joins-wemix30-mainnets-40-wonders-node-council-partners-as-wonder-12)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/verichains-joins-40-wonders-on-wemix3-0-mainnet-for-enhanced-blockchain-security/03eb8846056115176bc1aa26423453ed) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/16/verichains-fortifies-wemix3-0-mainnet-security-as-wonder-12)
+ 
 
 
 

@@ -27,7 +27,11 @@ Download Earn Alliance App: Google Play Store | Apple Store
 [Original/Source Press Release](https://blockchainwire.io/press-release/earn-alliance-welcomes-new-coo-jeff-drobick-as-company-continues-to-drive-web3-gaming-revolution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/earn-alliance-appoints-jeff-drobick-as-new-coo-to-lead-web3-gaming-revolution/356b195230a79e649fba79bea9db040f) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/earn-alliance-appoints-former-tapjoy-ceo-jeff-drobick-as-new-coo/20246720)
+ 
 
 
 

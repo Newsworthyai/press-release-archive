@@ -51,7 +51,9 @@ Social Media:
 [Original/Source Press Release](https://blockchainwire.io/press-release/block3-finance-leading-the-way-in-comprehensive-accounting-tax--cfo-services-for-the-evolving-cryptocurrency-landscape)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/block3-finance-premier-crypto-accounting-firm-providing-expert-cfo-services/2546a51fa57705709edcc60a9c220984) 
+
+ 
 
 
 

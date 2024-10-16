@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/quadrise-sign
 [Original/Source Press Release](https://newsdirect.com/news/quadrise-signs-commercial-framework-agreement-with-moroccan-client-for-msar-supply-744174200)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quadrise-signs-commercial-framework-agreement-with-moroccan-client-for-msar-supply/4155a0f2121d432006bbb849c2a0f105) 
+
+ 
 
 
 

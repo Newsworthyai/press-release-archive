@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ilika-chief-e
 [Original/Source Press Release](https://newsdirect.com/news/ilika-chief-executive-graeme-purdy-discusses-2024-revenue-growth-and-strategic-milestones-763092778)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ilika-plc-ceo-discusses-2024-revenue-growth-and-strategic-milestones/f1a13b5b32e59ab827d018296f412e2f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/ilika-chief-executive-graeme-purdy-discusses-2024-revenue-growth-and-strategic-milestones)
+ 
 
 
 

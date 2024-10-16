@@ -7,7 +7,11 @@ PRINCETON, NJ, March 11, 2024 /24-7PressRelease/ -- igolgi, inc., a leading inno
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509137/igolgi-introduces-updated-high-density-low-power-live-ott-transcoding-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/igolgi-inc-introduces-high-density-low-power-platform-for-live-ott-transcoding/2fb98c28503f7b465ad03c1846647c1a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/igolgi-unveils-high-density-low-power-live-ott-transcoding-platform)
+ 
 
 
 

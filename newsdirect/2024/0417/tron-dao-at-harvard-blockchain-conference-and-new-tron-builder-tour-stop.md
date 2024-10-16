@@ -57,7 +57,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-at-h
 [Original/Source Press Release](https://newsdirect.com/news/tron-dao-at-harvard-blockchain-conference-and-new-tron-builder-tour-stop-145667732)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tron-dao-shines-at-harvard-blockchain-conference-and-new-builder-tour-stop/0a5cc7229a8d0a1bcaabb19da920f59f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/tron-dao-shines-at-harvard-blockchain-conference-and-expands-tron-builder-tour)
+ 
 
 
 

@@ -59,7 +59,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/euronav-share
 [Original/Source Press Release](https://newsdirect.com/news/euronav-shareholders-in-line-for-a-us-46-million-payout-following-court-ruling-against-cmb-362267644)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brussels-market-court-rules-against-cmb-in-euronav-shareholder-case/3687bf5be919a1e941224bf554eae1a7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/euronav-shareholders-to-receive-46-million-following-court-ruling-against-cmb)
+
+Pickup - [fishervista.com](https://fishervista.com/en/euronav-shareholders-to-receive-us-46-million-following-court-ruling-against-cmb/20246606)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/court-orders-additional-46-million-payout-to-euronav-shareholders-in-cmb-takeover-dispute/20246606)
+
+Pickup - [advos.io](https://advos.io/en/euronav-shareholders-to-receive-46-million-following-court-ruling-against-cmb/20246606)
+ 
 
 
 

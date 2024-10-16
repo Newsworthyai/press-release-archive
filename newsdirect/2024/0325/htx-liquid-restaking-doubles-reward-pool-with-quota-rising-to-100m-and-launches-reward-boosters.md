@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-liquid-re
 [Original/Source Press Release](https://newsdirect.com/news/htx-liquid-restaking-doubles-reward-pool-with-quota-rising-to-100m-and-launches-reward-boosters-768389186)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-liquid-restaking-doubles-reward-pool-and-launches-boosters/63c85b46f13d4b77675c3ca90429c9ac) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/htx-boosts-liquid-restaking-rewards-with-100m-pool-and-boosters)
+ 
 
 
 

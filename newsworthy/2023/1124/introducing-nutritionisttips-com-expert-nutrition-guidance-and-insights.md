@@ -23,7 +23,11 @@ Stay informed and healthy by visiting www.NutritionistTips.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231124855/introducing-nutritionisttips-com-expert-nutrition-guidance-and-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-nutrition-platform-nutritionisttips-com-launches-to-provide-expert-backed-advice/6fe192a6f2d583d72c5c575423e7cc8d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/24/introducing-nutritionisttips-com-a-comprehensive-resource-for-nutrition-guidance)
+ 
 
 
 

@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/non-addictive
 [Original/Source Press Release](https://newsdirect.com/news/non-addictive-options-to-opioids-exploring-pain-relief-options-before-taking-opioids-910173303)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mothers-against-prescription-drug-abuse-launches-the-painful-truth-campaign-with-aleve-r-to-encourage-nonaddictive-pain-relief-options/9deb27ceab368aa63b86def16aecc4bd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/exploring-non-addictive-pain-relief-options-before-opioids)
+ 
 
 
 

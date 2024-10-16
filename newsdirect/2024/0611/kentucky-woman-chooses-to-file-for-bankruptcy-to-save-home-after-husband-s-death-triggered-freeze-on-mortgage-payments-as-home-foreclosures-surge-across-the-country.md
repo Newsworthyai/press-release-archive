@@ -65,7 +65,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kentucky-woma
 [Original/Source Press Release](https://newsdirect.com/news/kentucky-woman-chooses-to-file-for-bankruptcy-to-save-home-after-husbands-death-triggered-freeze-on-mortgage-payments-as-home-foreclosures-surge-across-the-country-351951990)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kentucky-woman-files-for-bankruptcy-to-save-home-after-husband-s-death-triggers-freeze-on-mortgage-payments-as-home-foreclosures-surge-across-the-country/ae2840693fd219739a5d15af33c03107) 
+
+
+Pickup - [advos.io](https://advos.io/en/kentucky-widow-files-for-bankruptcy-to-save-home-amid-rising-foreclosures/20244023)
+ 
 
 
 

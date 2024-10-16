@@ -37,7 +37,11 @@ About the DFINITY FoundationThe DFINITY Foundation is a nonprofit organization d
 [Original/Source Press Release](https://blockchainwire.io/press-release/portugals-maiden-hackathon-for-icp-developers-comes-to-a-close)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/inaugural-build-on-icp-hackathon-showcases-innovation-in-web3/53c9040faa800dc64a3d4349209778a2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/portugal-s-maiden-icp-hackathon-unveils-groundbreaking-web3-solutions)
+ 
 
 
 

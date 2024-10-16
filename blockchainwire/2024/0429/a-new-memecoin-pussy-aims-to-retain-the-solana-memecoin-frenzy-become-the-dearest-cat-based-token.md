@@ -25,7 +25,9 @@ $Pussy is an SPL meme token with no intrinsic value or expectation of financial 
 [Original/Source Press Release](https://blockchainwire.io/press-release/-a-new-memecoin-pussy-aims-to-retain-the-solana-memecoin-frenzy--become-the-dearest-cat-based-token)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pussy-cat-the-next-big-memecoin-on-solana/3c75a1a913ede46c1bef081f2b6fc92d) 
+
+ 
 
 
 

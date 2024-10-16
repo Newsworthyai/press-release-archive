@@ -29,7 +29,17 @@ To learn more about SHIB, please visit the official website and home of the Shib
 [Original/Source Press Release](https://blockchainwire.io/press-release/shibarium-based-restaurateur-welly-adds-second-franchise-location-plans-to-expand-emerging-fast-food-empire-to-us)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shib-backed-welly-restaurant-expands-with-second-location-in-italy/161669bd7693374d4203d0079fe73d44) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/welly-expands-with-second-franchise-location-eyes-u-s-market/20244304)
+
+Pickup - [advos.io](https://advos.io/en/shibarium-based-welly-expands-with-second-franchise-and-plans-u-s-expansion/20244304)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/shib-backed-welly-restaurant-expands-with-second-location-in-italy)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/shib-backed-welly-restaurant-expands-with-second-location-in-italy)
+ 
 
 
 

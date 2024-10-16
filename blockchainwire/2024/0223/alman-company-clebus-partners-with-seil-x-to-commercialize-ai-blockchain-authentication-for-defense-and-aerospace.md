@@ -17,7 +17,11 @@ Both companies expressed their commitment to technology and knowledge sharing, f
 [Original/Source Press Release](https://blockchainwire.io/press-release/alman-company-clebus-partners-with-seil-x-to-commercialize-ai-blockchain-authentication-for-defense-and-aerospace)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alman-company-partners-with-seil-x-to-apply-ai-and-blockchain-technology-to-defense-and-satellite-sectors/11f54f0b5d85c4271dd8dc4fd864c7cb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/23/alman-company-and-seil-x-join-forces-to-secure-defense-and-aerospace-with-ai-blockchain-authentication)
+ 
 
 
 

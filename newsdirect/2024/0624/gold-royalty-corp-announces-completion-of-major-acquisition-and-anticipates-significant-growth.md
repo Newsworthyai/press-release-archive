@@ -21,7 +21,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/gold-royalty-
 [Original/Source Press Release](https://newsdirect.com/news/gold-royalty-corp-announces-completion-of-major-acquisition-and-anticipates-significant-growth-674777363)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-royalty-corp-ceo-david-garofalo-announces-major-acquisition-and-anticipates-significant-growth/1312f28a2eba89ed676519a06e3ea4fa) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/gold-royalty-corp-completes-major-acquisition-projects-significant-growth/20244425)
+
+Pickup - [advos.io](https://advos.io/en/gold-royalty-corp-completes-major-acquisition-projects-significant-revenue-growth/20244425)
+ 
 
 
 

@@ -7,7 +7,11 @@ MIAMI, FL, March 10, 2024 /24-7PressRelease/ -- Pro Palestinian Supporters Disru
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509161/jewish-students-at-florida-international-university-stay-strong-and-united-despite-attempts-made-by-anti-israel-supporters)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pro-palestinian-supporters-disrupt-jewish-students-at-florida-international-university/b4e528d8226bfcbcd0e0b2ceda330718) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/10/jewish-students-stand-firm-against-anti-israel-protesters-at-fiu)
+ 
 
 
 

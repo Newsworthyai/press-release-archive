@@ -75,7 +75,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/activisions-l
 [Original/Source Press Release](https://newsdirect.com/news/activisions-landmark-deal-boosts-esports-team-revenue-831508509)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/activision-s-landmark-deal-boosts-esports-team-revenue/f7e323585e2390ecc65fb78d277391e6) 
+
+ 
 
 
 

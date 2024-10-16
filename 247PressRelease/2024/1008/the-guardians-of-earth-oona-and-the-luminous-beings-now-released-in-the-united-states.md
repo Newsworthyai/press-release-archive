@@ -7,7 +7,9 @@ LOS ANGELES, CA, October 08, 2024 /24-7PressRelease/ -- The Guardians of Earth â
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515010/the-guardians-of-earth-oona-and-the-luminous-beings-now-released-in-the-united-states)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-release-the-guardians-of-earth-oona-and-the-luminous-beings-by-oriane-livingston/b8b8e37bb5076c5343e04294bb805ae9) 
+
+ 
 
 
 

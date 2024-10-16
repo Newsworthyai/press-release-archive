@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/c3-metals-str
 [Original/Source Press Release](https://newsdirect.com/news/c3-metals-strikes-significant-copper-gold-intersections-at-connors-porphyry-prospect-392568473)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/c3-metals-strikes-significant-copper-gold-intersections-at-connors-porphyry-prospect/d3fbb9aaf3d49851b6d43db287facbbd) 
+
+ 
 
 
 

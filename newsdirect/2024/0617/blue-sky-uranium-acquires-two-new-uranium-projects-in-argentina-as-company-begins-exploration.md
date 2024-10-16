@@ -21,7 +21,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/blue-sky-uran
 [Original/Source Press Release](https://newsdirect.com/news/blue-sky-uranium-acquires-two-new-uranium-projects-in-argentina-as-company-begins-exploration-164368712)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blue-sky-uranium-expands-with-acquisition-of-two-new-uranium-projects/366d394d6df70a2e6e6938c9e5e35737) 
+
+
+Pickup - [advos.io](https://advos.io/en/blue-sky-uranium-expands-uranium-exploration-in-argentina-with-two-new-projects/20244218)
+
+Pickup - [fishervista.com](https://fishervista.com/en/blue-sky-uranium-expands-with-two-new-projects-in-argentina/20244218)
+ 
 
 
 

@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-hidden-ec
 [Original/Source Press Release](https://newsdirect.com/news/the-hidden-economic-and-environmental-cost-of-ev-batteries-and-how-to-create-a-sustainable-circular-economy-180439948)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aqua-metals-revolutionizing-battery-recycling-with-sustainable-circular-economy-solutions/284d98b2f49b533ec1a19d399f914a64) 
+
+ 
 
 
 

@@ -41,7 +41,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/tuminewap-to-collaborate-with-japanese-financial-giant-accelerating-expansion-in-asian-markets)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tuminewap-expands-into-asian-market-with-strategic-partnership-in-japan/1cc93ee546ba421e6f95449e592ae13f) 
+
+ 
 
 
 

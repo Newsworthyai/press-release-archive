@@ -41,7 +41,11 @@ Twitter: [SHIBA BUDZ "$BUDZ" (@ShibaBudz) / X](https://twitter.com/ShibaBudz)Dis
 [Original/Source Press Release](https://blockchainwire.io/press-release/ethereum-eth-investors-maximize-eth-profits-in-shiba-inu-like-cryptocurrency)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-investors-leveraging-eth-for-shiba-budz-investments/67d6464611f660c796d030e1f95919c6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/ethereum-investors-unlock-shiba-inu-like-gains-with-shiba-budz)
+ 
 
 
 

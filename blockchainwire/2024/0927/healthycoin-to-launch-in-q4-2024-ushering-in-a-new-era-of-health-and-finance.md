@@ -39,7 +39,9 @@ For more information, visit the [HealthyCoin Twitter](https://x.com/healthycoin
 [Original/Source Press Release](https://blockchainwire.io/press-release/healthycoin-to-launch-in-q4-2024-ushering-in-a-new-era-of-health-and-finance-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-healthycoin-hyc-platform-rewards-users-for-healthy-lifestyle-choices/a0591768ee0a70b1b0f1ad2b6d567329) 
+
+ 
 
 
 

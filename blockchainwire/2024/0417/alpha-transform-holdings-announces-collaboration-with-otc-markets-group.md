@@ -37,7 +37,11 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/alpha-transform-holdings-announces-collaboration-with-otc-markets-group)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ath-and-otc-markets-group-to-co-host-blockchain-digital-assets-conference/83712dc5fa3e52562871f8055692864e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/alpha-transform-holdings-collaborates-with-otc-markets-group-for-blockchain-digital-assets-virtual-investors-conference)
+ 
 
 
 

@@ -40,7 +40,9 @@ For more information, please visit the CryptoKeying official website: https://c
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptokeying-launches-new-cloud-mining-plan-providing-one-click-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptokeying-launches-new-cloud-mining-plans-for-accessible-cryptocurrency-mining/eb1b50df7d44b457ee616f43f742d6b4) 
+
+ 
 
 
 

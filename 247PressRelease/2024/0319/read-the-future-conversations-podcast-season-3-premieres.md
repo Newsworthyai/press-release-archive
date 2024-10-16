@@ -7,7 +7,11 @@ PHOENIX, AZ, March 19, 2024 /24-7PressRelease/ -- Read The Future is delighted t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509335/read-the-future-conversations-podcast-season-3-premieres)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/read-the-future-unveils-season-3-of-conversations-podcast-with-captivating-guest-speakers/2cdf4b82c005a7cf0dec2f0fa5fd7955) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/read-the-future-conversations-podcast-unveils-captivating-season-3)
+ 
 
 
 

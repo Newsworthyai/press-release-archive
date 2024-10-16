@@ -63,7 +63,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cadiz-inc-nas
 [Original/Source Press Release](https://newsdirect.com/news/cadiz-inc-nasdaq-cdzi-water-solutions-for-a-sustainable-future-581454034)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cadiz-inc-nasdaq-cdzi-leading-the-charge-in-water-solutions-for-a-sustainable-future/0784cc7fea32b2a261999ce98ad5afc8) 
+
+ 
 
 
 

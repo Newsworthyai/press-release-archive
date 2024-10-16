@@ -75,7 +75,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-yfx-v4-the-optimal-solution-for-decentralized-perpetual-protocol)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/yfx-v4-introduces-innovative-mechanisms-for-decentralized-perpetual-contract-trading/6045ebceb8223e29c07cc01ec94dedb9) 
+
+ 
 
 
 

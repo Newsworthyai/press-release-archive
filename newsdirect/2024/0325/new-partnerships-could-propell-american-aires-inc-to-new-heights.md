@@ -51,7 +51,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-partnersh
 [Original/Source Press Release](https://newsdirect.com/news/new-partnerships-could-propell-american-aires-inc-to-new-heights-842511532)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-aires-inc-leads-the-charge-in-addressing-harmful-effects-of-emf-radiation/7475c76e27bc9b0ed876e7927728f529) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/american-aires-forges-strategic-alliances-to-combat-emf-radiation)
+ 
 
 
 

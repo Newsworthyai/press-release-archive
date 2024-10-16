@@ -17,7 +17,9 @@ Pacific Mind Health aims to make mental health care accessible to as many indivi
 [Original/Source Press Release](https://newsworthy.ai/news/20231221924/pacific-mind-health-a-leading-provider-of-comprehensive-and-innovative-mental-health-care)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leading-mental-health-clinic-offers-innovative-therapies-and-personalized-care/66733e51d9fac28ab052bd0a3503995f) 
+
+ 
 
 
 

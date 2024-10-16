@@ -47,7 +47,9 @@ Telephone: 939-212-9068
 [Original/Source Press Release](https://www.newmediawire.com/news/bots-inc-reports-financial-growth-of-its-bitcoin-atm-subsidiary-7076119)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bots-inc-reports-strong-financial-performance-for-bullet-blockchain-inc-in-h1-2024/00f8690b383ec8fe7e254eb2fd0217e6) 
+
+ 
 
 
 

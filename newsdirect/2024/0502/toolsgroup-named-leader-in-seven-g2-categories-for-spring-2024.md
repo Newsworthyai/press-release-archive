@@ -57,7 +57,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/toolsgroup-na
 [Original/Source Press Release](https://newsdirect.com/news/toolsgroup-named-leader-in-seven-g2-categories-for-spring-2024-422616964)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/toolsgroup-named-leader-in-seven-g2-categories-for-spring-2024/7f0296c4237e17a60da1a624af9907f1) 
+
+ 
 
 
 

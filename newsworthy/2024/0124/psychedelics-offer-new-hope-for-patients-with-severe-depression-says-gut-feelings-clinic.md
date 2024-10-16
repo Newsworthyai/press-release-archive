@@ -15,7 +15,9 @@ Patients interested in exploring the potential benefits of psychedelics and othe
 [Original/Source Press Release](https://newsworthy.ai/news/202401241029/psychedelics-offer-new-hope-for-patients-with-severe-depression-says-gut-feelings-clinic)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leading-psychiatry-clinic-adds-psychedelics-to-treatment-options/5305c60fc0962c676aa7bad3d7dc430d) 
+
+ 
 
 
 

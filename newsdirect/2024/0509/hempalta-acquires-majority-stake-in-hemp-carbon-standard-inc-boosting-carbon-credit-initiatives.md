@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/hempalta-acqu
 [Original/Source Press Release](https://newsdirect.com/news/hempalta-acquires-majority-stake-in-hemp-carbon-standard-inc-boosting-carbon-credit-initiatives-369439706)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hempalta-acquires-majority-stake-in-hemp-carbon-standard-inc-boosting-carbon-credit-initiatives/c08ffbaeef0a62b9c892993ad1892e7e) 
+
+ 
 
 
 

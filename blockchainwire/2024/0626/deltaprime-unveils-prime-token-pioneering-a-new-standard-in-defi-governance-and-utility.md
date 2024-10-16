@@ -47,7 +47,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/deltaprime-unveils-prime-token-pioneering-a-new-standard-in-defi-governance-and-utility)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/deltaprime-launches-token-generation-event-for-prime-and-sprime-tokens-on-uniswap-and-trader-joe/f7c8569ff5be4d0822f3b8290939e286) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/deltaprime-launches-prime-and-sprime-tokens-ushering-in-a-new-era-of-defi-governance-and-utility/20244495)
+
+Pickup - [advos.io](https://advos.io/en/deltaprime-introduces-prime-token-to-revolutionize-defi-governance-and-utility/20244495)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/deltaprime-launches-token-generation-event-for-prime-and-sprime-tokens-on-uniswap-and-trader-joe)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/deltaprime-launches-token-generation-event-for-prime-and-sprime-tokens-on-uniswap-and-trader-joe)
+ 
 
 
 

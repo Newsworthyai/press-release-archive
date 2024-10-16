@@ -7,7 +7,9 @@ LOS ANGELES, CA, July 11, 2024 /24-7PressRelease/ -- ESPY Nominees, Presenters, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512482/the-biggest-names-in-sports-came-out-for-gbk-brand-bars-pre-espy-luxury-lounge-presented-by-mend)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/luxury-lounge-at-ten-thousand-residences-in-la-gifts-over-60000-to-espy-nominees-and-athletes/5d40e5070e25e137543b2ba910041185) 
+
+ 
 
 
 

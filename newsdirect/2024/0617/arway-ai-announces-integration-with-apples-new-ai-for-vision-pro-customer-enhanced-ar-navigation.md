@@ -25,7 +25,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/arway-ai-anno
 [Original/Source Press Release](https://newsdirect.com/news/arway-ai-announces-integration-with-apples-new-ai-for-vision-pro-customer-enhanced-ar-navigation-428692603)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arway-ai-integrates-apple-s-enterprise-apis-for-enhanced-ar-navigation/1685095097adf5dafa150d6222c3f09a) 
+
+
+Pickup - [advos.io](https://advos.io/en/arway-ai-integrates-with-apple-s-vision-pro-for-enhanced-ar-navigation/20244219)
+
+Pickup - [fishervista.com](https://fishervista.com/en/arway-ai-integrates-apple-vision-pro-to-enhance-ar-navigation/20244219)
+ 
 
 
 

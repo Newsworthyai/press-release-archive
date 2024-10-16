@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/foresta-group
 [Original/Source Press Release](https://newsdirect.com/news/foresta-group-holdings-innovating-with-pine-for-sustainable-future-400118195)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/foresta-group-holdings-innovating-with-pine-for-sustainable-future/3c8dd53be5c992b36cae83d074d8c035) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/foresta-group-holdings-pioneers-sustainable-pine-innovation)
+ 
 
 
 

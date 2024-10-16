@@ -39,7 +39,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/navigating-bitcoins-dive-hlx-token-presale-offers-stability-amidst-pre-halving-market-shake-up)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/healix-protocol-s-hlx-token-presale-a-beacon-of-stability-amidst-bitcoin-s-pre-halving-turbulence/6f7df85afb3375bcf32c0b5e4d607373) 
+
+ 
 
 
 

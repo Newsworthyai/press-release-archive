@@ -7,7 +7,9 @@ SAN FRANCISCO, CA, April 30, 2024 /24-7PressRelease/ -- Jason McDonald Consultin
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510404/jason-mcdonald-consulting-announces-new-summer-course-in-social-media-marketing-seo-google-ads)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jason-mcdonald-consulting-relaunches-online-course-on-social-media-seo-and-google-ads/3dec35e2c0906e5e27da643d41fda57d) 
+
+ 
 
 
 

@@ -7,7 +7,17 @@ ST. LOUIS, MO, August 26, 2024 /24-7PressRelease/ -- GiftAMeal, the innovative c
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513653/giftameal-announces-new-partnership-with-the-great-greek-mediterranean-grill)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/giftameal-and-the-great-greek-join-forces-to-fight-hunger/22a70bcb7aea0b27f54b91526a5b91ee) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/giftameal-and-the-great-greek-mediterranean-grill-partner-to-combat-hunger)
+
+Pickup - [fishervista.com](https://fishervista.com/en/giftameal-partners-with-the-great-greek-mediterranean-grill-to-combat-hunger/20245948)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/giftameal-and-the-great-greek-mediterranean-grill-partner-to-combat-hunger/20245948)
+
+Pickup - [advos.io](https://advos.io/en/giftameal-partners-with-the-great-greek-mediterranean-grill-to-combat-hunger/20245948)
+ 
 
 
 

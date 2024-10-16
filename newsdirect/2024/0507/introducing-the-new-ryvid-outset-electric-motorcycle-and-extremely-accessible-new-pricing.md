@@ -119,7 +119,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/introducing-t
 [Original/Source Press Release](https://newsdirect.com/news/introducing-the-new-ryvid-outset-electric-motorcycle-and-extremely-accessible-new-pricing-149216610)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ryvid-unveils-new-outset-electric-motorcycle-model/da65a5d85dd3bb06c32421bb0d3e2ce5) 
+
+ 
 
 
 

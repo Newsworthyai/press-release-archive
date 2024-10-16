@@ -45,7 +45,17 @@ Website: https://360wowcom.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/asprofin-bank-and-360-wowcom-launch-wellness-tech-across-asia-pacific)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/asprofin-bank-s-partnership-with-360-wowcom-to-revolutionize-health-and-technology-access-in-asia-pacific/f7f39757691e01391836f3b64cb06489) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/asprofin-bank-and-360-wowcom-launch-wellness-tech-across-asia-pacific/20246689)
+
+Pickup - [advos.io](https://advos.io/en/asprofin-bank-and-360-wowcom-to-revolutionize-wellness-tech-in-asia-pacific/20246689)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/asprofin-bank-and-360-wowcom-partner-to-bring-innovative-wellness-tech-to-asia-pacific)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/asprofin-bank-and-360-wowcom-partner-to-revolutionize-wellness-technology-in-asia-pacific/20246689)
+ 
 
 
 

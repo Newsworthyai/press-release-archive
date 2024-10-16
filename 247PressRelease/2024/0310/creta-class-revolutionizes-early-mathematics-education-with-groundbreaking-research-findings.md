@@ -7,7 +7,11 @@ SINGAPORE, March 10, 2024 /24-7PressRelease/ -- Creta Class, a leading education
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509132/creta-class-revolutionizes-early-mathematics-education-with-groundbreaking-research-findings)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/creta-class-reveals-groundbreaking-research-findings-on-children-s-learning-behaviors-in-four-asian-countries/3c6772398b135e1fa28a4f249d71fa98) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/10/creta-class-unveils-groundbreaking-research-on-children-s-learning-behaviors)
+ 
 
 
 

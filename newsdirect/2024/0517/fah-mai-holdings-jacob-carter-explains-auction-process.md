@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/fah-mai-holdi
 [Original/Source Press Release](https://newsdirect.com/news/fah-mai-holdings-jacob-carter-explains-auction-process-829041850)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fah-mai-holdings-uk-head-jacob-carter-explains-auction-process/67545bb3de92f1b7accf990a5597e458) 
+
+ 
 
 
 

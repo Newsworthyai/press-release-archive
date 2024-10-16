@@ -27,7 +27,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/family-justic
 [Original/Source Press Release](https://newsdirect.com/news/family-justice-center-of-washington-county-selects-comcast-business-to-support-bandwidth-and-reliable-connectivity-229588611)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-business-supports-family-justice-center-with-technology-solutions/89cb95534ab05843809929240d848e2d) 
+
+
+Pickup - [advos.io](https://advos.io/en/family-justice-center-partners-with-comcast-business-for-reliable-connectivity/20244214)
+
+Pickup - [fishervista.com](https://fishervista.com/en/family-justice-center-of-washington-county-partners-with-comcast-business-for-enhanced-connectivity/20244214)
+ 
 
 
 

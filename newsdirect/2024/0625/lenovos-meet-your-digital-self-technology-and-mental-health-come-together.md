@@ -33,7 +33,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/lenovos-meet-
 [Original/Source Press Release](https://newsdirect.com/news/lenovos-meet-your-digital-self-technology-and-mental-health-come-together-780553992)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lenovo-s-meet-your-digital-self-technology-and-mental-health-come-together/0e76e1193ed2578d94ad3ddb2e376646) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/lenovo-introduces-meet-your-digital-self-to-promote-mental-health/20244464)
+
+Pickup - [advos.io](https://advos.io/en/lenovo-unveils-ai-powered-mental-health-initiative-meet-your-digital-self/20244464)
+ 
 
 
 

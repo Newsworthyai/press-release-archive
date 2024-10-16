@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cwg-secures-b
 [Original/Source Press Release](https://newsdirect.com/news/cwg-secures-best-copy-trading-platform-award-at-brokersview-expo-2024-in-dubai-980697552)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cwg-markets-wins-best-copy-trading-platform-at-brokersview-expo-2024/3a5a9092cfd7bc9390340697cdc17a1a) 
+
+ 
 
 
 

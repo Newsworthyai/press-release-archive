@@ -9,7 +9,11 @@ Launched on February 28th on the Solana blockchain, $BIF (Bonkwifhat) has experi
 [Original/Source Press Release](https://blockchainwire.io/press-release/bonkwifhat-a-new-memecoin-garnering-all-the-attention-on-the-solana-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/remarkable-growth-for-bif-bonkwifhat-on-solana-blockchain/1643dac6c94d0a2713469702ef836a63) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/04/bonkwifhat-the-memecoin-fusion-taking-solana-by-storm)
+ 
 
 
 

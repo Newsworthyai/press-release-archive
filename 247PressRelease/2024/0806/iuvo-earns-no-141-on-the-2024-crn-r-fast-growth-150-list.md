@@ -7,7 +7,17 @@ BOSTON, MA, August 06, 2024 /24-7PressRelease/ -- CRN®, a brand of The Channel 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513062/iuvo-earns-no-141-on-the-2024-crn-fast-growth-150-list)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iuvo-named-to-crn-s-2024-fast-growth-150-list/8ecdef261e7d344809587b4024a93f79) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/iuvo-technologies-ranks-141st-on-crn-s-2024-fast-growth-150-list)
+
+Pickup - [fishervista.com](https://fishervista.com/en/iuvo-earns-place-on-2024-crn-r-fast-growth-150-list-at-no-141/20245503)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/iuvo-technologies-secures-141st-position-on-crn-s-2024-fast-growth-150-list)
+
+Pickup - [advos.io](https://advos.io/en/iuvo-achieves-no-141-on-2024-crn-fast-growth-150-list/20245503)
+ 
 
 
 

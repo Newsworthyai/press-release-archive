@@ -23,7 +23,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/crispmind-set-to-revolutionize-cryptocurrency-spending-with-tectum-emission-token-listing-on-travala-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tectum-emission-token-listed-on-travala-revolutionizing-cryptocurrency-spending/353beab8a579d087611c93580602b954) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/01/crispmind-unlocks-cryptocurrency-spending-with-tectum-token-listing-on-travala)
+ 
 
 
 

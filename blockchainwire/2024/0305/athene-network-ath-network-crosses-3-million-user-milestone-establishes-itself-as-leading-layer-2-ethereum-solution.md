@@ -37,7 +37,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/athene-network-ath-network-crosses-3-million-user-milestone-establishes-itself-as-leading-layer-2-ethereum-solution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/athene-network-ath-network-revolutionizing-mobile-crypto-mining/a3c147041436746b05c82327e77995e1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/05/athene-network-disrupts-mobile-crypto-mining-surpasses-3-million-users)
+ 
 
 
 

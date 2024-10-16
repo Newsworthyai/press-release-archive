@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/martis-ride-h
 [Original/Source Press Release](https://newsdirect.com/news/martis-ride-hailing-service-in-growth-mode-reaches-788-000-riders-and-over-145-000-registered-drivers-company-revises-june-target-upwards-107965622)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marti-s-ride-hailing-service-hits-major-milestone-in-turkiye/cd1814f9f4c535551c8e0674482c5ad1) 
+
+ 
 
 
 

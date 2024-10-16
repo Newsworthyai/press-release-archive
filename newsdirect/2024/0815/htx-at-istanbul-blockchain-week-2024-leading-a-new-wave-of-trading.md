@@ -31,7 +31,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-at-istanb
 [Original/Source Press Release](https://newsdirect.com/news/htx-at-istanbul-blockchain-week-2024-leading-a-new-wave-of-trading-781897967)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-leads-new-wave-of-trading-at-istanbul-blockchain-week-2024/f567ce6e0471a798ce6ae74819c0b258) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/htx-leads-cryptocurrency-innovation-at-istanbul-blockchain-week-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/htx-at-istanbul-blockchain-week-2024-leading-a-new-wave-of-trading/20245766)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/htx-showcases-leadership-in-cryptocurrency-innovation-at-istanbul-blockchain-week-2024/20245766)
+
+Pickup - [advos.io](https://advos.io/en/htx-advocates-for-innovation-at-istanbul-blockchain-week-2024/20245766)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-leads-new-wave-of-trading-at-istanbul-blockchain-week-2024)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-leads-new-wave-of-trading-at-istanbul-blockchain-week-2024)
+ 
 
 
 

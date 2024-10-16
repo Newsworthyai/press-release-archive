@@ -31,7 +31,9 @@ For more information, please visit https://gdmining.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-launches-new-high-efficiency-bitcoin-cloud-mining-plan-maximize-your-passive-income)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gdmining-launches-high-efficiency-bitcoin-cloud-mining-plan/8b37e7fa53183aada951078b8d94ebc3) 
+
+ 
 
 
 

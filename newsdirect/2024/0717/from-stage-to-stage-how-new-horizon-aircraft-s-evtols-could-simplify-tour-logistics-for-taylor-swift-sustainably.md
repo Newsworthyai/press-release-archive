@@ -49,7 +49,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/from-stage-to
 [Original/Source Press Release](https://newsdirect.com/news/from-stage-to-stage-how-new-horizon-aircrafts-evtols-could-simplify-tour-logistics-for-taylor-swift-sustainably-267734511)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-horizon-aircraft-s-evtols-could-simplify-tour-logistics-for-taylor-swift-sustainably/bd6dc80a6fa8d2d84f651b6bc5057e9f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/new-horizon-aircraft-s-evtols-could-revolutionize-tour-logistics-for-major-artists)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-horizon-aircraft-s-evtols-could-revolutionize-tour-logistics-for-taylor-swift/20245020)
+
+Pickup - [advos.io](https://advos.io/en/new-horizon-aircraft-s-evtols-a-sustainable-solution-for-taylor-swift-s-tour-logistics/20245020)
+ 
 
 
 

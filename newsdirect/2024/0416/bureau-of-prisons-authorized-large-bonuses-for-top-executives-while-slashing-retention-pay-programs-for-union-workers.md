@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bureau-of-pri
 [Original/Source Press Release](https://newsdirect.com/news/bureau-of-prisons-authorized-large-bonuses-for-top-executives-while-slashing-retention-pay-programs-for-union-workers-541392109)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bureau-of-prisons-authorizes-executive-bonuses-slashes-union-worker-pay/7f4c81cd11f9ebe1bda5c5ada3190212) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/bureau-of-prisons-authorizes-lavish-bonuses-for-executives-while-slashing-retention-pay-for-union-workers)
+ 
 
 
 

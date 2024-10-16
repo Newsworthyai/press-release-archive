@@ -23,7 +23,11 @@ Unlock the universe of gaming. Start your quest at www.ComputerGames.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231212794/introducing-computergames-io-the-premier-destination-for-gaming-insights-and-industry-know-how)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-computergames-io-a-new-platform-for-gamers-and-industry-experts/9d5746abfafb43567571d82b7a8d1118) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/12/computergames-io-bridging-the-gap-between-gamers-and-industry-experts)
+ 
 
 
 

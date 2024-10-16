@@ -21,7 +21,13 @@ To learn more about SHIB, please visit the official website: https://www.shib.io
 [Original/Source Press Release](https://blockchainwire.io/press-release/-welly-updates-nft-collection-with-elevated-individual-design)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shib-announces-refresh-of-welly-friends-nft-collection-in-partnership-with-popular-italian-restaurant/fc9865ee7531e87154b5d6bed413c989) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/shib-announces-refresh-of-welly-friends-nft-collection-in-partnership-with-popular-italian-restaurant)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/shib-announces-refresh-of-welly-friends-nft-collection-in-partnership-with-popular-italian-restaurant)
+ 
 
 
 

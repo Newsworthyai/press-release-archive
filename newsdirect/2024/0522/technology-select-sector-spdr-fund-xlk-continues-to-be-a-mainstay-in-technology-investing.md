@@ -87,7 +87,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/technology-se
 [Original/Source Press Release](https://newsdirect.com/news/technology-select-sector-spdr-fund-xlk-continues-to-be-a-mainstay-in-technology-investing-837273829)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/technology-select-sector-spdr-fund-xlk-a-mainstay-in-technology-investing/780abd0753b31d9365d4680ea49ff18c) 
+
+ 
 
 
 

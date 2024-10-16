@@ -41,7 +41,9 @@ LinkedIn: https://www.linkedin.com/company/detrip/
 [Original/Source Press Release](https://blockchainwire.io/press-release/invest-in-your-travel-experience-and-more-with-detrip)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/detrip-network-revolutionizing-travel-with-crypto-friendly-platform-and-cashback-rewards/45e290b5c8d92b407db19ac2e9ad3976) 
+
+ 
 
 
 

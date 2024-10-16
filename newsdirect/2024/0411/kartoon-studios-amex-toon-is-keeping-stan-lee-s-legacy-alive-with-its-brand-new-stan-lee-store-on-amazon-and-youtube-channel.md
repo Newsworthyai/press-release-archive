@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kartoon-studi
 [Original/Source Press Release](https://newsdirect.com/news/kartoon-studios-amex-toon-is-keeping-stan-lees-legacy-alive-with-its-brand-new-stan-lee-store-on-amazon-and-youtube-channel-774405638)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kartoon-studios-keeping-stan-lees-legacy-alive-with-new-amazon-storefront-and-youtube-channel/3262bddc93bd95e2f9ce87fa2a226f9f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/kartoon-studios-launches-new-stan-lee-store-on-amazon-and-youtube-channel)
+ 
 
 
 

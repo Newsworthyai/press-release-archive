@@ -15,7 +15,9 @@ Sessions typically last for 2 hours and encompass the administration of Ketamine
 [Original/Source Press Release](https://newsworthy.ai/news/20231221926/balanced-mental-wellness-introduces-ketamine-assisted-psychotherapy-for-effective-treatment-of-depression-anxiety-ptsd-and-addictions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kap-offers-revolutionary-therapy-approach-with-ketamine-medication-and-therapy-integration/7e9d8b504ed3d1ca646d16345f38c826) 
+
+ 
 
 
 

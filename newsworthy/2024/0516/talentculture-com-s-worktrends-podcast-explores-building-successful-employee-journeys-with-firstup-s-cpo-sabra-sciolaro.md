@@ -34,7 +34,11 @@ TalentCulture is regarded as a renowned authority in HR and HR Technology promot
 [Original/Source Press Release](https://newsworthy.ai/news/202405161170/talentculture-com-s-worktrends-podcast-explores-building-successful-employee-journeys-with-firstup-s-cpo-sabra-sciolaro)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/firstup-s-cpo-sabra-sciolaro-talks-employee-experience-on-worktrends-podcast/563a25cef52067ba25a605ef47ddef7b) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/talentculture-s-worktrends-podcast-highlights-strategies-for-enhancing-employee-experience/20243110)
+ 
 
 
 

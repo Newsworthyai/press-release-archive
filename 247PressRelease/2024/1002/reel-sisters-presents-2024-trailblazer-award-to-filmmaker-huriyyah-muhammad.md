@@ -7,7 +7,9 @@ NEW YORK, NY, October 02, 2024 /24-7PressRelease/ -- On Friday, Oct. 4, 2024, 6:
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514848/reel-sisters-presents-2024-trailblazer-award-to-filmmaker-huriyyah-muhammad)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/reel-sisters-to-honor-award-winning-director-huriyyah-muhammad-at-2024-trailblazer-awards-ceremony/a14735ce10f5823326f7c6bc5a512d30) 
+
+ 
 
 
 

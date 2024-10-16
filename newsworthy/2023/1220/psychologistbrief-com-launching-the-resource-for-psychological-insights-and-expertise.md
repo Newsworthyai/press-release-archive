@@ -23,7 +23,11 @@ Embark on a journey of psychological exploration at www.PsychologistBrief.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231220867/psychologistbrief-com-launching-the-resource-for-psychological-insights-and-expertise)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/psychologistbrief-com-your-premier-destination-for-psychological-insights-and-expertise/9ca544a5d7bbbebd9d46aaa95ad51f4b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/20/psychologistbrief-com-unlocking-the-power-of-psychological-insights)
+ 
 
 
 

@@ -59,7 +59,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-lcr-lucre-waylisting-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-announces-listing-of-lcr-token-for-defi-trading-pair/0d1ccbd3771659390ed9de52a0602ec3) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/xt-announces-listing-of-lcr-token-for-defi-trading-pair)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/xt-announces-listing-of-lcr-token-for-defi-trading-pair)
+ 
 
 
 

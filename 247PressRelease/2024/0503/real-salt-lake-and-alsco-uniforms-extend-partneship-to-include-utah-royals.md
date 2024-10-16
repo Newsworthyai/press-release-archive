@@ -7,7 +7,9 @@ SALT LAKE CITY, UT, May 03, 2024 /24-7PressRelease/ -- Utah soccer's two most pr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510633/real-salt-lake-and-alsco-uniforms-extend-partneship-to-include-utah-royals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/real-salt-lake-and-utah-royals-fc-extend-partnership-with-alsco-uniforms/82b4fdccb4a120c67bea9dd3d69bbfe8) 
+
+ 
 
 
 

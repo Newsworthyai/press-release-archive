@@ -34,7 +34,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/launch-of-okaycoin-latest-innovation-in-crypto-staking-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/okaycoin-launches-innovative-crypto-staking-platform/d3528d8e962a2aa20918ef161b6dbd20) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/okaycoin-launches-innovative-crypto-staking-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/okaycoin-launches-innovative-crypto-staking-platform)
+ 
 
 
 

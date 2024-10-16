@@ -19,7 +19,11 @@ https://t.me/PEPEUWUCUTEhttps://pepeuwu.com/Disclaimer: The information provided
 [Original/Source Press Release](https://blockchainwire.io/press-release/solanas-pepe-uwu-cute-labelled-the-next-pepe-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pepe-uwu-cute-making-waves-in-the-solana-ecosystem/08bed948338b8bb12acab49c6b4ecafd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/13/pepe-uwu-cute-the-blue-pepe-making-waves-on-solana)
+ 
 
 
 

@@ -45,7 +45,11 @@ Visit: https://starter.xyzContact Information: Starter@transformgroup.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/starters-legendary-crypto-launchpad-partners-with-atlanta-blockchain-center-immutable-founders-incubator-to-empower-diverse-startups)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/starter-international-holdings-resumes-ido-operations-with-atlanta-blockchain-center-partnership/39d46c79fbd01e685090a1de05189690) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/21/starter-s-crypto-launchpad-embraces-diversity-and-blockchain-innovation)
+ 
 
 
 

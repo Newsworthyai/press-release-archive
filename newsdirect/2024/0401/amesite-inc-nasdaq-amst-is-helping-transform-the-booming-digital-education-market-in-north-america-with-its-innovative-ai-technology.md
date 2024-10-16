@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/amesite-inc-n
 [Original/Source Press Release](https://newsdirect.com/news/amesite-inc-nasdaq-amst-is-helping-transform-the-booming-digital-education-market-in-north-america-with-its-innovative-ai-technology-776236442)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amesite-inc-nasdaq-amst-leads-digital-education-revolution/669b52b24a231cd12e2ada3761983015) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/amesite-leads-digital-education-transformation-with-ai-powered-platform)
+ 
 
 
 

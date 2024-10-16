@@ -15,7 +15,11 @@ Don't miss BEK TV’s debuts of Special Cowboy Moments on Wednesday, February 28
 [Original/Source Press Release](https://newsworthy.ai/news/202402281103/bek-tv-debuts-special-cowboy-moments-capturing-the-essence-of-cowboy-life-and-legacy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/north-dakota-native-hosts-compelling-cowboy-culture-docuseries/58ef5f6a9df92234cad709055d153365) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/28/bek-tv-brings-cowboy-culture-to-life-with-special-cowboy-moments)
+ 
 
 
 

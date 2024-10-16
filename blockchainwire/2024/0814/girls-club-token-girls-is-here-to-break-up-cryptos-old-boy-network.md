@@ -27,7 +27,21 @@ Media Contact: [girlsclub@transformgroup.com](mailto:girlsclub@transformgroup.co
 [Original/Source Press Release](https://blockchainwire.io/press-release/girls-club-token-girls-is-here-to-break-up-cryptos-old-boy-network)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/girls-club-token-girls-making-waves-in-cryptocurrency-world/29bf75a83dcecdcd8159bc8d70f8730f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/girls-club-token-girls-aims-to-revolutionize-crypto-s-gender-dynamics)
+
+Pickup - [fishervista.com](https://fishervista.com/en/girls-club-token-girls-aims-to-revolutionize-gender-dynamics-in-cryptocurrency/20245727)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/girls-club-token-aims-to-revolutionize-crypto-space-with-female-focused-initiative/20245727)
+
+Pickup - [advos.io](https://advos.io/en/girls-club-token-girls-aims-to-revolutionize-gender-dynamics-in-cryptocurrency/20245727)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/girls-club-token-girls-making-waves-in-cryptocurrency-world)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/girls-club-token-girls-making-waves-in-cryptocurrency-world)
+ 
 
 
 

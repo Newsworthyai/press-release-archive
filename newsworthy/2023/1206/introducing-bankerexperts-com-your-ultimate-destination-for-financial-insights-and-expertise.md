@@ -28,7 +28,11 @@ Visit BankerExperts.com today to explore the website and discover financial know
 [Original/Source Press Release](https://newsworthy.ai/news/20231206779/introducing-bankerexperts-com-your-ultimate-destination-for-financial-insights-and-expertise)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bankerexperts-com-launches-revolutionizes-financial-expertise/868a69a8250d41ec802466b7275cd269) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/06/bankerexperts-com-your-gateway-to-financial-enlightenment)
+ 
 
 
 

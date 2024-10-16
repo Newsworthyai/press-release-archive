@@ -33,7 +33,9 @@ For investors, Poland’s actions provide a timely reminder of the benefits of d
 [Original/Source Press Release](https://blockchainwire.io/press-release/kacper-sobieski-poland-expands-gold-reserves-by-19-tons-in-response-to-global-economic-instability)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/national-bank-of-poland-increases-gold-reserves-by-19-tons-in-strategic-move/799e317335453efcebaf5b70fd99fda7) 
+
+ 
 
 
 

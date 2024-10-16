@@ -7,7 +7,13 @@ MONTE CARLO, MONACO, July 01, 2024 /24-7PressRelease/ -- SuperReturn, the world'
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512175/speaker-line-up-announced-for-superinvestor-monaco)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/superreturn-launches-agenda-and-speaker-line-up-for-superinvestor-conference-in-monte-carlo/8b4cb5e529b2994aaa808f76c45c654a) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/superinvestor-conference-to-convene-in-monte-carlo-with-star-studded-speaker-line-up/20244656)
+
+Pickup - [advos.io](https://advos.io/en/superinvestor-conference-to-gather-industry-leaders-in-monaco/20244656)
+ 
 
 
 

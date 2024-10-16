@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/gordon-market
 [Original/Source Press Release](https://newsdirect.com/news/gordon-marketing-acquires-seniorhealthpro-192677687)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gordon-marketing-acquires-seniorhealthpro-expanding-medicare-advantage-reach/52a5dcce7096c34b26aa4604a6211f35) 
+
+ 
 
 
 

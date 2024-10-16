@@ -52,7 +52,13 @@ Alpha Transform Holdings (ATH) is an investment and advisory organization that f
 [Original/Source Press Release](https://blockchainwire.io/press-release/marketmind-technologies-unveils-beta-launch--of-genai-investor-relations-platform-to-service-the-increase-in-retail-investors-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marketmind-unveils-groundbreaking-ai-investor-relations-platform/054489d7f5a08cf83c0bd419b467964a) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/marketmind-unveils-groundbreaking-ai-investor-relations-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/marketmind-unveils-groundbreaking-ai-investor-relations-platform)
+ 
 
 
 

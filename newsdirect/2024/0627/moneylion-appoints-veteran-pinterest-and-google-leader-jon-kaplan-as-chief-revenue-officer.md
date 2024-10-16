@@ -37,7 +37,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/moneylion-app
 [Original/Source Press Release](https://newsdirect.com/news/moneylion-appoints-veteran-pinterest-and-google-leader-jon-kaplan-as-chief-revenue-officer-228270947)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/moneylion-appoints-jon-kaplan-as-chief-revenue-officer-to-drive-growth-in-fintech/56a4a122d42126ff7845da85de29191e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/moneylion-appoints-jon-kaplan-as-chief-revenue-officer/20244543)
+
+Pickup - [advos.io](https://advos.io/en/moneylion-appoints-jon-kaplan-as-chief-revenue-officer-to-drive-growth/20244543)
+ 
 
 
 

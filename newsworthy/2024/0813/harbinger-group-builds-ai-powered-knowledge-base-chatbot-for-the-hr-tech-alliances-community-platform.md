@@ -39,7 +39,19 @@ For more information, visit HRTechAlliances.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20240813389/harbinger-group-builds-ai-powered-knowledge-base-chatbot-for-hr-tech-alliances)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/harbinger-group-develops-ai-powered-knowledge-based-chatbot-for-hr-tech-community/32a5c6d117f91fc59317a9922fd57f66) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/harbinger-group-develops-ai-powered-chatbot-for-hr-tech-alliances-revolutionizing-knowledge-access)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/harbinger-group-develops-ai-powered-chatbot-for-hr-tech-alliances-revolutionizing-knowledge-access/20245698)
+
+Pickup - [fishervista.com](https://fishervista.com/en/harbinger-group-develops-ai-powered-knowledge-base-chatbot-for-hr-tech-alliances/20245698)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/harbinger-group-develops-ai-powered-chatbot-for-hr-tech-alliances-revolutionizing-knowledge-access/20245698)
+
+Pickup - [advos.io](https://advos.io/en/harbinger-group-develops-ai-powered-knowledge-base-chatbot-for-hr-tech-alliances/20245698)
+ 
 
 
 

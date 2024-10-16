@@ -69,7 +69,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/capturing-con
 [Original/Source Press Release](https://newsdirect.com/news/capturing-consumer-spending-on-health-care-with-xlv-892419463)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/health-care-select-sector-spdr-fund-xlv-offers-opportunity-for-investors/05076f9c0eb3dff851cc0e57021d53e5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/capturing-consumer-spending-on-health-care-with-xlv)
+ 
 
 
 

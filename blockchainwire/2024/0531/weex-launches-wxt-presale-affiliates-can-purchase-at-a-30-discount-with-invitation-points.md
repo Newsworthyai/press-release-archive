@@ -79,7 +79,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/weex-launches-wxt-presale-affiliates-can-purchase-at-a-30-discount-with-invitation-points)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/affiliates-purchase-at-a-30-discount-new-users-receive-free-tokens/0839eea55897348c3a0527c1979dec29) 
+
+ 
 
 
 

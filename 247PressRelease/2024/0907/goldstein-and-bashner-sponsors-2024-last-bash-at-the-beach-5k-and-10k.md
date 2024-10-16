@@ -7,7 +7,17 @@ ROCKAWAY, NY, September 07, 2024 /24-7PressRelease/ -- Goldstein and Bashner is 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514117/goldstein-and-bashner-sponsors-2024-last-bash-at-the-beach-5k-and-10k)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/goldstein-and-bashner-sponsors-2024-last-bash-at-the-beach-5k-and-10k/fb6c569627f6ea81daebb837b904635f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/07/goldstein-and-bashner-sponsors-charity-run-last-bash-at-the-beach-5k-and-10k)
+
+Pickup - [fishervista.com](https://fishervista.com/en/goldstein-and-bashner-sponsors-2024-last-bash-at-the-beach-5k-and-10k/20246602)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/goldstein-and-bashner-sponsors-charity-run-last-bash-at-the-beach-5k-and-10k/20246602)
+
+Pickup - [advos.io](https://advos.io/en/goldstein-and-bashner-sponsors-2024-last-bash-at-the-beach-5k-and-10k/20246602)
+ 
 
 
 

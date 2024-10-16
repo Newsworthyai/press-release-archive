@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/immunic-chief
 [Original/Source Press Release](https://newsdirect.com/news/immunic-chief-medical-officer-discusses-promising-treatments-to-mark-world-ibd-day-769721127)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/immunic-inc-chief-medical-officer-discusses-promising-treatments-for-ibd-on-world-ibd-day/76935f84260891ba6c495a4a725a47a1) 
+
+ 
 
 
 

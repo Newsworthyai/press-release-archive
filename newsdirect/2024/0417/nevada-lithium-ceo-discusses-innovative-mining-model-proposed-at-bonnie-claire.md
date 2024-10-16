@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/nevada-lithiu
 [Original/Source Press Release](https://newsdirect.com/news/nevada-lithium-ceo-discusses-innovative-mining-model-proposed-at-bonnie-claire-593675777)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nevada-lithium-ceo-unveils-innovative-mining-model-at-bonnie-claire/6a9d15d8d752010df3b8e577110dc761) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/nevada-lithium-unveils-innovative-mining-approach-for-bonnie-claire-project)
+ 
 
 
 

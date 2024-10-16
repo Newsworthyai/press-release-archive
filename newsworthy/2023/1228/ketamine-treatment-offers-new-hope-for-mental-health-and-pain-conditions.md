@@ -19,7 +19,9 @@ As more studies continue to unveil the therapeutic potential of ketamine, medica
 [Original/Source Press Release](https://newsworthy.ai/news/20231228944/ketamine-treatment-offers-new-hope-for-mental-health-and-pain-conditions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ketamine-a-game-changing-treatment-for-mental-health-conditions/0e42dbccf8a3f61b12b4de5bef10bb4f) 
+
+ 
 
 
 

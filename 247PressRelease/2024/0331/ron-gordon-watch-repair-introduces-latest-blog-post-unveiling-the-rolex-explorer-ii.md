@@ -7,7 +7,11 @@ NEW YORK, NY, March 31, 2024 /24-7PressRelease/ -- Ron Gordon Watch Repair, a le
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509675/ron-gordon-watch-repair-introduces-latest-blog-post-unveiling-the-rolex-explorer-ii)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ron-gordon-watch-repair-releases-blog-post-on-iconic-rolex-explorer-ii/048ceed890af8ba8f71570c0b0c87b6a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/31/exploring-the-rolex-explorer-ii-a-timeless-companion-for-modern-adventurers)
+ 
 
 
 

@@ -7,7 +7,17 @@ NAIROBI, KENYA, August 14, 2024 /24-7PressRelease/ -- Burhani Engineers announce
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513382/burhani-engineers-completes-another-successful-oil-gas-gate-valve-project)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/burhani-engineers-completes-successful-oil-and-gas-project-with-motorised-gate-valves/233e94bd25e234401f05d5f3c3b83cfa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/burhani-engineers-completes-critical-motorised-gate-valve-project-for-oil-and-gas-industry)
+
+Pickup - [fishervista.com](https://fishervista.com/en/burhani-engineers-completes-critical-oil-gas-gate-valve-project/20245716)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/burhani-engineers-completes-crucial-motorised-gate-valve-project-for-oil-and-gas-industry/20245716)
+
+Pickup - [advos.io](https://advos.io/en/burhani-engineers-completes-critical-oil-gas-gate-valve-project/20245716)
+ 
 
 
 

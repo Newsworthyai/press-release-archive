@@ -69,7 +69,17 @@ MIAMI, FL - (NewMediaWire) - September 03, 2024 - Luminar Media Group, Inc. (OT
 [Original/Source Press Release](https://www.newmediawire.com/news/fortun-reports-exponential-asset-growth-and-impressive-month-over-month-metrics-appoints-industry-banking-veteran-juan-m-sese-as-vice-president-of-finance-7075991)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/luminar-media-group-inc-proudly-announces-substantial-growth-in-assets-and-welcomes-new-vice-president-of-finance/368aaf4032266dddb20ad2c08d6da030) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/luminar-media-group-reports-significant-growth-in-fortun-advance-appoints-new-vp-of-finance)
+
+Pickup - [fishervista.com](https://fishervista.com/en/luminar-media-group-reports-strong-asset-growth-and-appoints-juan-m-sese-as-vp-of-finance/20246480)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/luminar-media-group-s-fortun-advance-reports-substantial-asset-growth-and-appoints-new-vp-of-finance/20246480)
+
+Pickup - [advos.io](https://advos.io/en/luminar-media-group-reports-significant-growth-and-appoints-juan-m-sese-as-vp-of-finance/20246480)
+ 
 
 
 

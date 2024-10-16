@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/standard-uran
 [Original/Source Press Release](https://newsdirect.com/news/standard-uranium-set-to-begin-inaugural-drill-program-on-canary-project-792966149)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/standard-uranium-to-begin-inaugural-drill-program-on-canary-project/4784a603cea4a8c7d06802d69a612683) 
+
+ 
 
 
 

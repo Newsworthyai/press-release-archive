@@ -50,7 +50,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-avaava-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-ava-token-with-multichain-capabilities-on-its-socially-infused-trading-platform/f42b46c3247b2de89fb30d8740905d7b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/09/ava-token-debuts-on-xt-com-unlocking-multichain-capabilities)
+ 
 
 
 

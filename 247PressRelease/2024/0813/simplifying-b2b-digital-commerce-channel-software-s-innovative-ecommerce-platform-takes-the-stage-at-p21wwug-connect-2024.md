@@ -7,7 +7,17 @@ MINNEAPOLIS, MN, August 13, 2024 /24-7PressRelease/ -- Channel Software will spo
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513355/simplifying-b2b-digital-commerce-channel-softwares-innovative-ecommerce-platform-takes-the-stage-at-p21wwug-connect-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/channel-software-to-showcase-b2b-ecommerce-platform-at-connect-2024-conference/fe31255df9facca720cd72cfad3ce185) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/channel-software-to-showcase-innovative-b2b-ecommerce-platform-at-p21wwug-connect-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/channel-software-unveils-cutting-edge-b2b-ecommerce-platform-at-p21wwug-connect-2024/20245679)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/channel-software-to-showcase-innovative-b2b-ecommerce-platform-at-p21wwug-connect-2024/20245679)
+
+Pickup - [advos.io](https://advos.io/en/channel-software-to-showcase-innovative-b2b-ecommerce-platform-at-p21wwug-connect-2024/20245679)
+ 
 
 
 

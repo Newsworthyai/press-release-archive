@@ -7,7 +7,17 @@ CHICAGO, IL, September 11, 2024 /24-7PressRelease/ -- Black Girl Vitamins is sha
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514205/black-girl-vitamins-unveils-pcos-relief-a-groundbreaking-gummy-vitamin-crafted-by-black-women-for-black-women)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/black-girl-vitamins-launches-pcos-relief-for-black-women/0fcf03c5f6e329074009931c92b3287e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/black-girl-vitamins-launches-pcos-relief-gummies-tailored-for-black-women)
+
+Pickup - [fishervista.com](https://fishervista.com/en/black-girl-vitamins-launches-groundbreaking-pcos-relief-gummy-for-black-women/20246679)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/black-girl-vitamins-launches-pcos-relief-gummies-tailored-for-black-women-s-health/20246679)
+
+Pickup - [advos.io](https://advos.io/en/black-girl-vitamins-launches-pcos-relief-aimed-at-addressing-health-disparities-for-black-women/20246679)
+ 
 
 
 

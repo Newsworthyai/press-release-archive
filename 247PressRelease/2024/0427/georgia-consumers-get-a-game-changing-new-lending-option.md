@@ -7,7 +7,9 @@ DES PLAINES, IL, April 27, 2024 /24-7PressRelease/ -- "If you don't have savings
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510418/georgia-consumers-get-a-game-changing-new-lending-option)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-short-term-installment-loan-helps-georgia-consumers-build-savings-and-achieve-financial-stability/281486a868e5e51818aa7bcf3b32d73f) 
+
+ 
 
 
 

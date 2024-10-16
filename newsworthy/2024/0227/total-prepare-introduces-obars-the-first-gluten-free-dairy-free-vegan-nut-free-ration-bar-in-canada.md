@@ -38,7 +38,11 @@ Founded in 2012 and headquartered in British Columbia, Total Prepare is Canada's
 [Original/Source Press Release](https://newsworthy.ai/news/202402271102/total-prepare-introduces-obars-the-first-gluten-free-dairy-free-vegan-nut-free-ration-bar-in-canada)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/total-prepare-launches-allergen-free-obars-for-emergency-preparedness/84d86cd5893b4b753bd22e0507d1ed35) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/27/total-prepare-introduces-allergen-free-emergency-ration-bars)
+ 
 
 
 

@@ -7,7 +7,13 @@ CHICAGO, IL, June 21, 2024 /24-7PressRelease/ -- Bottle Rocket Media (BRM) is de
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511906/bottle-rocket-media-celebrates-prestigious-wins-at-the-2024-telly-awards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bottle-rocket-media-wins-multiple-awards-at-telly-awards-2024/5571f683f5be0857842b52e3688fd10c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bottle-rocket-media-triumphs-at-2024-telly-awards-with-gold-and-silver-wins/20244357)
+
+Pickup - [advos.io](https://advos.io/en/bottle-rocket-media-triumphs-at-2024-telly-awards-with-gold-and-silver-wins/20244357)
+ 
 
 
 

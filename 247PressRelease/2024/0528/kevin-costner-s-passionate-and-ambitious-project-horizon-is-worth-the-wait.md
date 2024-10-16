@@ -7,7 +7,9 @@ LOS ANGELES, CA, May 28, 2024 /24-7PressRelease/ -- Fans have eagerly awaited Ke
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511178/kevin-costners-passionate-and-ambitious-project-horizon-is-worth-the-wait)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kevin-costner-s-horizon-an-american-saga-set-to-release-on-june-28th/ed50e813f762daf8f8a0e4a64de50019) 
+
+ 
 
 
 

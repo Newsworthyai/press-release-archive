@@ -17,7 +17,11 @@ With a strong emphasis on mental health, wellness, living, and relationships, Dr
 [Original/Source Press Release](https://newsworthy.ai/news/20231229969/leading-psychiatrist-dr-tola-introduces-revolutionary-tms-therapy-for-depression-treatment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-tms-therapy-offers-non-invasive-solution-for-depression-at-dr-tola-s-practice/3972f9d3cec9ce5bf4b5e0be2cd3b262) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/29/pioneering-psychiatrist-introduces-groundbreaking-tms-therapy-for-depression)
+ 
 
 
 

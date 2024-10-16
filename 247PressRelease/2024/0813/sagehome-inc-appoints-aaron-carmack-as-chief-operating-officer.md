@@ -7,7 +7,17 @@ ATLANTA, GA, August 13, 2024 /24-7PressRelease/ -- A highly talented executive, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513337/sagehome-inc-appoints-aaron-carmack-as-chief-operating-officer)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/retail-home-improvement-veteran-aaron-carmack-joins-sagehome-as-coo/8143c9e0fb8c872d1b3d0b15c89b46f3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/sagehome-inc-strengthens-leadership-with-appointment-of-aaron-carmack-as-chief-operating-officer)
+
+Pickup - [fishervista.com](https://fishervista.com/en/sagehome-inc-appoints-aaron-carmack-as-coo-to-drive-strategic-growth/20245675)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/sagehome-strengthens-leadership-team-with-appointment-of-aaron-carmack-as-coo/20245675)
+
+Pickup - [advos.io](https://advos.io/en/sagehome-inc-appoints-aaron-carmack-as-chief-operating-officer/20245675)
+ 
 
 
 

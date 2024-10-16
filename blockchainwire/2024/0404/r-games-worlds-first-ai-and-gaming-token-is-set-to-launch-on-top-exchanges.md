@@ -57,7 +57,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/r-games-worlds-first-ai-and-gaming-token-is-set-to-launch-on-top-exchanges)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/r-games-revolutionizes-web3-gaming-with-rgame-token-listing/6a951f3786cc8fbc2d14bc9428b86250) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/r-games-revolutionizing-the-web3-gaming-landscape-with-ai-and-automotive-innovation)
+ 
 
 
 

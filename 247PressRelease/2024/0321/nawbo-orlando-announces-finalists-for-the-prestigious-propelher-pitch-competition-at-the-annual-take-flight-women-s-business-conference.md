@@ -7,7 +7,11 @@ ORLANDO, FL, March 21, 2024 /24-7PressRelease/ -- The Orlando Chapter of the Nat
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509416/nawbo-orlando-announces-finalists-for-the-prestigious-propelher-pitch-competition-at-the-annual-take-flight-womens-business-conference)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nawbo-orlando-announces-finalists-for-propelher-pitch-competition-at-take-flight-women-s-business-conference/4e59b40c9798e05a741979525f4f9d3b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/nawbo-orlando-unveils-finalists-for-propelher-pitch-competition)
+ 
 
 
 

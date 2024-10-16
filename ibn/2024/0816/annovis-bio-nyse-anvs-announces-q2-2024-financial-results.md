@@ -35,7 +35,11 @@ Annovis Bio (NYSE: ANVS), a late-stage, drug-platform company developing novel 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-announces-q2-2024-financial-results/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annovis-bio-releases-encouraging-results-from-phase-2-3-ad-study-and-phase-3-pd-study/e64a6e52c65587dd063868e4b7e28ffd) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/annovis-bio-reports-promising-results-for-alzheimer-s-and-parkinson-s-treatment-in-q2-2024-update/20246110)
+ 
 
 
 

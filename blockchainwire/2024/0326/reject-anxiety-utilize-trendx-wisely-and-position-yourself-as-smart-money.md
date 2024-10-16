@@ -35,7 +35,11 @@ In summary, utilizing the right strategy tools like TrendX's AlphaSquare in a bu
 [Original/Source Press Release](https://blockchainwire.io/press-release/reject-anxiety-utilize-trendx-wisely-and-position-yourself-as-smart-money)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trendx-launches-alphasquare-a-game-changer-in-smart-investing/3a9cd0fbf28da8c5eaa1f1649ac6d76d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/trendx-launches-alphasquare-a-strategic-tool-for-navigating-bull-markets)
+ 
 
 
 

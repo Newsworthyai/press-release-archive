@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/smart-glasses
 [Original/Source Press Release](https://newsdirect.com/news/smart-glasses-let-you-see-the-world-in-a-new-way-393684693)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vuzix-corp-ceo-discusses-augmented-reality-wearable-displays-in-benzinga-interview/cf08be4147a1858cc9c8726429871528) 
+
+ 
 
 
 

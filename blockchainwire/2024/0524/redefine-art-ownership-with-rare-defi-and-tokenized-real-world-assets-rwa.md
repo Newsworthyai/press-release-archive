@@ -47,7 +47,9 @@ Learn more about Rare’s innovative projects and tokenomics on the official web
 [Original/Source Press Release](https://blockchainwire.io/press-release/redefine-art-ownership-with-rare-defi-and-tokenized-real-world-assets-rwa)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rare-unveils-tokenized-art-studio-partnerships-with-conor-mcgregor-and-formula-e/ff799c8fd6647b700a0bef8590d336ad) 
+
+ 
 
 
 

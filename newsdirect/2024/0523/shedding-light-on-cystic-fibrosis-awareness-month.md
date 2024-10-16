@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/shedding-ligh
 [Original/Source Press Release](https://newsdirect.com/news/shedding-light-on-cystic-fibrosis-awareness-month-358414001)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shedding-light-on-cystic-fibrosis-awareness-month/15d521c19c87d69c045542cc5ede1183) 
+
+ 
 
 
 

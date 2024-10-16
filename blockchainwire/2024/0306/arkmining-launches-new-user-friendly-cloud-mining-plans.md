@@ -41,7 +41,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/arkmining-launches-new-user-friendly-cloud-mining-plans)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arkmining-launches-new-user-friendly-cloud-mining-plans/0d39cd3184a2e9404fa1656f7bc55d80) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/06/arkmining-unveils-user-friendly-cloud-mining-plans-for-global-accessibility)
+ 
 
 
 

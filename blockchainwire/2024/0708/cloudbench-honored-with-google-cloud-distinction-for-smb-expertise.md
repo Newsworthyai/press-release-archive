@@ -17,7 +17,15 @@ Press Inquiries:Tom RicherCEO[investorrelations@cloudbench.net](mailto:investorr
 [Original/Source Press Release](https://blockchainwire.io/press-release/cloudbench-honored-with-google-cloud-distinction-for-smb-expertise)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloudbench-awarded-new-google-cloud-expertise-designation-for-smb-segment/9cb318b6a38005b260b9835125e88144) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cloudbench-receives-google-cloud-expertise-designation-for-smb-sector/20244742)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/cloudbench-receives-google-cloud-expertise-designation-for-smb-solutions)
+
+Pickup - [advos.io](https://advos.io/en/cloudbench-honored-with-google-cloud-distinction-for-smb-expertise/20244742)
+ 
 
 
 

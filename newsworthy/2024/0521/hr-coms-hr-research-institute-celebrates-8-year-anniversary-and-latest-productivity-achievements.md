@@ -33,7 +33,11 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202405211173/hr-coms-hr-research-institute-celebrates-8-year-anniversary-and-latest-productivity-achievements)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-coms-hr-research-institute-celebrates-8th-anniversary-as-leading-hr-research-institute/e3589bc765f4bd7ac30c15c2c79c433f) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-com-s-research-institute-marks-8-years-of-prolific-hr-industry-insights/20243248)
+ 
 
 
 

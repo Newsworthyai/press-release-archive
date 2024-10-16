@@ -27,7 +27,9 @@ Women Grow was founded in 2014 in Denver, Colorado but is now headquartered in W
 [Original/Source Press Release](https://newsworthy.ai/news/202404301156/leading-change-in-the-cannabis-industry-candy-angel-recognized-by-women-grow-for-social-impact-efforts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/candy-angel-receives-prestigious-social-impact-award-from-women-grow/217c8abb3ea0447ec66181a759c48c71) 
+
+ 
 
 
 

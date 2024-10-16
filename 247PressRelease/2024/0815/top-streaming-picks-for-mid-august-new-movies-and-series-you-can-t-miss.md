@@ -7,7 +7,17 @@ LOS ANGELES, CA, August 15, 2024 /24-7PressRelease/ -- Platforms like Netflix, H
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513396/top-streaming-picks-for-mid-august-new-movies-and-series-you-cant-miss)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/top-new-releases-on-major-streaming-platforms-this-week/e150a3c36236c9eb5ccd9e15502e93d2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/streaming-services-unveil-exciting-new-content-for-mid-august)
+
+Pickup - [fishervista.com](https://fishervista.com/en/top-streaming-picks-for-mid-august-new-movies-and-series-you-can-t-miss/20245751)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/streaming-services-unveil-exciting-new-content-for-mid-august/20245751)
+
+Pickup - [advos.io](https://advos.io/en/top-streaming-picks-for-mid-august-essential-viewing-across-platforms/20245751)
+ 
 
 
 

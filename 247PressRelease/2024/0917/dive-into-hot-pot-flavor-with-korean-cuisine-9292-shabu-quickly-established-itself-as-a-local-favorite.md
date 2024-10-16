@@ -7,7 +7,17 @@ DULUTH, GA, September 17, 2024 /24-7PressRelease/ -- Get ready to savor an incre
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514374/dive-into-hot-pot-flavor-with-korean-cuisine-9292-shabu-quickly-established-itself-as-a-local-favorite)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/experience-authentic-korean-hot-pot-and-fun-desserts-at-9292-shabu-shabu-in-duluth-ga/c4f708bd24a68e9d4e571f6c56911a38) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/9292-shabu-shabu-brings-authentic-korean-hot-pot-experience-to-duluth-georgia)
+
+Pickup - [fishervista.com](https://fishervista.com/en/9292-shabu-shabu-brings-authentic-korean-hot-pot-experience-to-duluth-georgia/20246883)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/9292-shabu-shabu-brings-authentic-korean-hot-pot-experience-to-duluth-georgia/20246883)
+
+Pickup - [advos.io](https://advos.io/en/9292-shabu-shabu-brings-authentic-korean-hot-pot-experience-to-duluth-georgia/20246883)
+ 
 
 
 

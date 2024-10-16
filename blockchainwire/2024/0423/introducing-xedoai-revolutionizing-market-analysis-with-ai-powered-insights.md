@@ -47,7 +47,11 @@ Telegram: @Arpita_nca
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-xedoai-revolutionizing-market-analysis-with-ai-powered-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xedoai-launches-market-data-analyzer-powered-by-ai/a30184316959423e413d48ef48c05d37) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/introducing-xedoai-revolutionizing-market-analysis-with-ai-powered-insights)
+ 
 
 
 

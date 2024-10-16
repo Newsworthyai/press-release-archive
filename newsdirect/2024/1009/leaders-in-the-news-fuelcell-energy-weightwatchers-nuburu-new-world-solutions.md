@@ -57,7 +57,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/leaders-in-th
 [Original/Source Press Release](https://newsdirect.com/news/leaders-in-the-news-fuelcell-energy-weightwatchers-nuburu-new-world-solutions-283690022)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wall-street-reporter-highlights-latest-insights-from-ceos-of-weightwatchers-ww-fuelcell-energy-fcel-nuburu-buru-and-new-world-solutions-regrf-news/5cff9192dd7a1ab99d00aaba5a1e4142) 
+
+ 
 
 
 

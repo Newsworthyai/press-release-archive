@@ -27,7 +27,13 @@ Tokenize! is a global boutique conference series connecting professional investo
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitangels-network-presents-24-blockchain-startups-in-competition-during-consensus-week)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/24-blockchain-startups-to-compete-for-bitangels-best-of-show-at-tokenize-conference/489ded88debc9989e1dcf3d2c8299505) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/24-blockchain-startups-to-compete-for-bitangels-best-of-show-at-tokenize-conference)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/24-blockchain-startups-to-compete-for-bitangels-best-of-show-at-tokenize-conference)
+ 
 
 
 

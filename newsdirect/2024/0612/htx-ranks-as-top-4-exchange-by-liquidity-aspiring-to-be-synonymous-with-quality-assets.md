@@ -57,7 +57,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-ranks-as-
 [Original/Source Press Release](https://newsdirect.com/news/htx-ranks-as-top-4-exchange-by-liquidity-aspiring-to-be-synonymous-with-quality-assets-840261638)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-ranks-as-top-4-exchange-by-liquidity-aspiring-to-be-synonymous-with-quality-assets/fff9ba2d5aa175d0127e3f51e379548e) 
+
+
+Pickup - [advos.io](https://advos.io/en/htx-achieves-top-4-exchange-ranking-by-liquidity-aiming-for-quality-asset-leadership/20244083)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-ranks-as-top-4-exchange-by-liquidity-aspiring-to-be-synonymous-with-quality-assets)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-ranks-as-top-4-exchange-by-liquidity-aspiring-to-be-synonymous-with-quality-assets)
+ 
 
 
 

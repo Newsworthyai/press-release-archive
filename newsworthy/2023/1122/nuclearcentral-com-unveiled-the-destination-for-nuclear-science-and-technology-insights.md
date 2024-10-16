@@ -23,7 +23,11 @@ Stay informed and enlightened at www.NuclearCentral.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231122852/nuclearcentral-com-unveiled-the-destination-for-nuclear-science-and-technology-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nuclearcentral-com-the-trusted-knowledge-platform-for-nuclear-industry-insights/2f8cf3c6d35a5d8ac9e7b2675e63df77) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/22/nuclearcentral-com-illuminating-the-path-to-nuclear-science-excellence)
+ 
 
 
 

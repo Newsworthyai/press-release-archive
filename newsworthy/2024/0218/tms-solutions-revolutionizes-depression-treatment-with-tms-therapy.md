@@ -15,7 +15,11 @@ Patient testimonials speak volumes about the transformative power of TMS therapy
 [Original/Source Press Release](https://newsworthy.ai/news/202402181070/tms-solutions-revolutionizes-depression-treatment-with-tms-therapy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tms-solutions-revolutionizes-mental-health-treatment-with-innovative-tms-therapy/fe8fe8998a5f3de6d687e05dd4e9e0c2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/18/tms-solutions-pioneers-non-invasive-depression-treatment)
+ 
 
 
 

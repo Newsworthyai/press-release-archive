@@ -32,7 +32,11 @@ RDDT Coin is an independent entity with no affiliation to any corporation, inclu
 [Original/Source Press Release](https://blockchainwire.io/press-release/gamestop-wallstreetbets-and-now-rddt-coin-discover-the-potential-of-rddt-meme-fan-token-inspired-by-the-upcoming-reddit-ipo)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rddt-coin-poised-for-growth-amid-anticipation-of-reddit-ipo/439cfaa0bc80178451bf1482a7a6da26) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/13/rddt-coin-pioneering-decentralized-fan-token-inspired-by-reddit-ipo)
+ 
 
 
 

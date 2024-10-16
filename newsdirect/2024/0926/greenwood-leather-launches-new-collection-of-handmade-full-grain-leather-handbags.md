@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/greenwood-lea
 [Original/Source Press Release](https://newsdirect.com/news/greenwood-leather-launches-new-collection-of-handmade-full-grain-leather-handbags-351048144)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greenwood-leather-launches-new-collection-of-handmade-leather-handbags/0dd038a545c3fd7342a3aa35d0a6e7fb) 
+
+ 
 
 
 

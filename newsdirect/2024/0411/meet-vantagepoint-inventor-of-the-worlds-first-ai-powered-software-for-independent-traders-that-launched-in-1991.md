@@ -61,7 +61,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/meet-vantagep
 [Original/Source Press Release](https://newsdirect.com/news/meet-vantagepoint-inventor-of-the-worlds-first-ai-powered-software-for-independent-traders-that-launched-in-1991-548202432)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vantagepoint-the-pioneer-of-ai-powered-software-for-independent-traders/7ea160074a583459d52703d7a14013c5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/vantagepoint-the-pioneers-of-ai-powered-software-for-traders-since-1991)
+ 
 
 
 

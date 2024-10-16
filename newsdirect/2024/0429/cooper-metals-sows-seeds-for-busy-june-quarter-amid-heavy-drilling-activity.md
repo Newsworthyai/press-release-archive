@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cooper-metals
 [Original/Source Press Release](https://newsdirect.com/news/cooper-metals-sows-seeds-for-busy-june-quarter-amid-heavy-drilling-activity-734703525)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cooper-metals-sows-seeds-for-busy-june-quarter-amid-heavy-drilling-activity/7a6440d5165e11a5b68596695976729e) 
+
+ 
 
 
 

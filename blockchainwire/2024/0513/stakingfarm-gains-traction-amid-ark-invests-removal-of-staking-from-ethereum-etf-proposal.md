@@ -68,7 +68,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-gains-traction-amid-ark-invests-removal-of-staking-from-ethereum-etf-proposal)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-experiences-surge-in-eth-staking-signups-after-ark-invest-s-etf-proposal-changes/34d48cba9066420352e3301045ef5ba9) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/stakingfarm-experiences-surge-in-eth-staking-signups-after-ark-invest-s-etf-proposal-changes)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/stakingfarm-experiences-surge-in-eth-staking-signups-after-ark-invest-s-etf-proposal-changes)
+ 
 
 
 

@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nrxs-nasdaq-n
 [Original/Source Press Release](https://newsdirect.com/news/nrxs-nasdaq-nrxp-nmda-modification-therapy-and-its-multiple-applications-from-mental-health-to-chronic-pain-179610199)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nrx-pharmaceuticals-inc-advances-groundbreaking-treatment-for-bipolar-depression-and-chronic-pain/64b9b816d8db32b73f4777982a85ee9d) 
+
+ 
 
 
 

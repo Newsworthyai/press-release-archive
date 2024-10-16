@@ -29,7 +29,13 @@ Media Contact:Team Retik[bd@retik.com](mailto:bd@retik.com)[https://retik.com/](
 [Original/Source Press Release](https://blockchainwire.io/press-release/retik-finance-retik-may-21-2024-launch-why-is-everyone-talking-about-it)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/retik-finance-set-to-redefine-defi-landscape-with-highly-anticipated-may-21-2024-launch/6ecf315efbf60cea3c72e4b1f4466b29) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/retik-finance-set-to-redefine-defi-landscape-with-highly-anticipated-may-21-2024-launch)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/retik-finance-set-to-redefine-defi-landscape-with-highly-anticipated-may-21-2024-launch)
+ 
 
 
 

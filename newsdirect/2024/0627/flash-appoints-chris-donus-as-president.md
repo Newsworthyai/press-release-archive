@@ -29,7 +29,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/flash-appoint
 [Original/Source Press Release](https://newsdirect.com/news/flash-appoints-chris-donus-as-president-654066047)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/flash-appoints-chris-donus-as-president/433d20aacc99f66290a3ff04b14f66f5) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/flash-appoints-chris-donus-as-president-to-lead-transformative-growth/20244547)
+
+Pickup - [advos.io](https://advos.io/en/flash-appoints-chris-donus-as-president-highlighting-strategic-growth-in-parking-and-ev-charging/20244547)
+ 
 
 
 

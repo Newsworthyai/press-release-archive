@@ -45,7 +45,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/mobile-mining-is-the-future-of-digital-finance-blockdag-network-has-you-covered)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionizing-cryptocurrency-mining-with-mobile-mining-system/bd473996b8de427ace2cb166edaad3fc) 
+
+ 
 
 
 

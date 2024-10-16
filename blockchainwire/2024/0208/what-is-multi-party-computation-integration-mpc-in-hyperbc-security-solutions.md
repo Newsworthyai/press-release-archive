@@ -45,7 +45,11 @@ For more information, visit the official website: HyperBC
 [Original/Source Press Release](https://blockchainwire.io/press-release/what-is-multi-party-computation-integration-mpc-in-hyperbc-security-solutions-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hyperbc-introduces-innovations-in-crypto-and-blockchain-security/d38916c6aefdd6afb401988c5ba967e8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/08/hyperbc-unveils-cutting-edge-multi-party-computation-for-secure-digital-asset-management)
+ 
 
 
 

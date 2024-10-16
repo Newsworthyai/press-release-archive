@@ -7,7 +7,17 @@ SYDNEY, AUSTRALIA, August 14, 2024 /24-7PressRelease/ -- RobobAI (pronounced "ro
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513383/how-an-ethical-ai-company-is-making-waves-in-the-industry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/robobai-using-ai-to-transform-global-supply-chains-ethically/447095573515c992c25f6199bf122af5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/robobai-revolutionizes-supply-chain-management-with-ethical-ai-technology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/robobai-leverages-ai-for-ethical-supply-chain-management/20245709)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/robobai-revolutionizes-supply-chain-ethics-with-ai-technology/20245709)
+
+Pickup - [advos.io](https://advos.io/en/robobai-leverages-ai-for-ethical-supply-chain-management/20245709)
+ 
 
 
 

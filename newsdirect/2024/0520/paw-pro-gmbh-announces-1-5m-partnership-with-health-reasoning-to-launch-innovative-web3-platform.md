@@ -63,7 +63,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/paw-pro-gmbh-
 [Original/Source Press Release](https://newsdirect.com/news/paw-pro-gmbh-announces-1-5m-partnership-with-health-reasoning-to-launch-innovative-web3-platform-672235370)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/paw-pro-gmbh-announces-1-5m-partnership-with-health-reasoning-to-launch-innovative-web3-platform/44e51670de386369ae5104922af9a514) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/paw-pro-gmbh-announces-1-5m-partnership-with-health-reasoning-to-launch-innovative-web3-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/paw-pro-gmbh-announces-1-5m-partnership-with-health-reasoning-to-launch-innovative-web3-platform)
+ 
 
 
 

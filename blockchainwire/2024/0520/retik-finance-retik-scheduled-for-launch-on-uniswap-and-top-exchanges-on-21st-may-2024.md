@@ -45,7 +45,13 @@ Media Contact:Team Retik[bd@retik.com](mailto:bd@retik.com)[https://retik.com/](
 [Original/Source Press Release](https://blockchainwire.io/press-release/retik-finance-retik-scheduled-for-launch-on-uniswap-and-top-exchanges-on-21st-may-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/retik-finance-raises-32050000-in-presale-set-to-launch-on-major-exchanges/910ca7b7acf041d8f47581941fe12aac) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/retik-finance-raises-32050000-in-presale-set-to-launch-on-major-exchanges)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/retik-finance-raises-32050000-in-presale-set-to-launch-on-major-exchanges)
+ 
 
 
 

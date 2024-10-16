@@ -26,7 +26,11 @@ Coin Bureau is a leading educational resource for all things cryptocurrency, pro
 [Original/Source Press Release](https://blockchainwire.io/press-release/coin-bureau-unveils-coin-bureau-club-a-premium-membership-offering-for-crypto-enthusiasts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coin-bureau-launches-exclusive-coin-bureau-club-for-crypto-enthusiasts/5d545d866bc143a36063ded964c0ea13) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/01/coin-bureau-launches-exclusive-membership-program-for-crypto-enthusiasts)
+ 
 
 
 

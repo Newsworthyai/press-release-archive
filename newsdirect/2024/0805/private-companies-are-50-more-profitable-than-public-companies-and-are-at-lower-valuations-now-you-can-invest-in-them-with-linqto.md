@@ -71,7 +71,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/private-compa
 [Original/Source Press Release](https://newsdirect.com/news/private-companies-are-50-more-profitable-than-public-companies-and-are-at-lower-valuations-now-you-can-invest-in-them-with-linqto-963815933)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/discover-the-lucrative-world-of-pre-ipo-investing-with-linqto/f5de05583a8b4ec8730824b4b93ef13f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/linqto-opens-door-for-individual-investors-to-access-pre-ipo-companies)
+
+Pickup - [fishervista.com](https://fishervista.com/en/investing-in-private-companies-how-linqto-is-changing-the-game/20245492)
+
+Pickup - [advos.io](https://advos.io/en/linqto-enables-individual-investors-to-access-profitable-pre-ipo-companies/20245492)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/linqto-opens-door-for-individual-investors-to-access-pre-ipo-companies)
+ 
 
 
 

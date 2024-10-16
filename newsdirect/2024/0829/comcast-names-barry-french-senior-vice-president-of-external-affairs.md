@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/comcast-names
 [Original/Source Press Release](https://newsdirect.com/news/comcast-names-barry-french-senior-vice-president-of-external-affairs-625345606)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-names-barry-french-as-senior-vice-president-of-external-affairs/24ca4f0e2f78fb185a6ba2cfe0abb6ed) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/comcast-appoints-barry-french-as-senior-vp-of-external-affairs-for-west-division)
+
+Pickup - [fishervista.com](https://fishervista.com/en/comcast-appoints-barry-french-as-senior-vice-president-of-external-affairs/20246384)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/comcast-appoints-barry-french-as-senior-vp-of-external-affairs-for-west-division/20246384)
+
+Pickup - [advos.io](https://advos.io/en/comcast-appoints-barry-french-as-senior-vp-of-external-affairs-for-west-division/20246384)
+ 
 
 
 

@@ -73,7 +73,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/west-africa-h
 [Original/Source Press Release](https://newsdirect.com/news/west-africa-has-long-had-a-wealth-of-gold-resources-companies-are-now-looking-to-regions-like-liberia-for-their-as-yet-untapped-potential-943545867)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/west-africa-s-gold-potential-liberia-s-untapped-frontier/44481001d4c8eef240491c78f877d1c8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/west-africa-s-untapped-gold-potential-spotlight-on-liberia/20244690)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/liberia-emerges-as-west-africa-s-untapped-gold-frontier)
+
+Pickup - [advos.io](https://advos.io/en/liberia-emerges-as-a-promising-frontier-for-gold-mining-in-west-africa/20244690)
+ 
 
 
 

@@ -7,7 +7,15 @@ VANCOUVER, BC, July 12, 2024 /24-7PressRelease/ -- As a team specializing in sto
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512483/understanding-stonework-repair-signs-a-property-needs-professional-attention)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/recognizing-the-signs-the-importance-of-professional-stonework-repair/4f90e9193f32cd77afa3b222da0bc339) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/vancouver-stonework-experts-highlight-critical-signs-for-professional-repair)
+
+Pickup - [fishervista.com](https://fishervista.com/en/essential-stonework-repair-signs-highlighted-by-nickel-masonry-construction/20244907)
+
+Pickup - [advos.io](https://advos.io/en/nickel-masonry-construction-highlights-key-signs-for-stonework-repair-in-vancouver/20244907)
+ 
 
 
 

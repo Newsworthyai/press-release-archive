@@ -28,7 +28,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-ceo-calls-on-business-leaders-to-adopt-joint-ai-quantum-strategies/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-ceo-highlights-quantum-computing-and-ai-potential-in-forbes-piece/be8245d74ce5bbceb3c33a275ec64414) 
+
+ 
 
 
 

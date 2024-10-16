@@ -59,7 +59,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/closure-of-li
 [Original/Source Press Release](https://newsdirect.com/news/closure-of-lithium-mine-in-china-sees-uptick-in-lithium-prices-760981283)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lithium-mine-closure-in-china-sparks-surge-in-lithium-prices/0a9904c4003fca211c8975e6f78887a2) 
+
+ 
 
 
 

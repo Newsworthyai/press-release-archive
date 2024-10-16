@@ -97,7 +97,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/microvisionchain-celebrates-first-anniversary-mainnet-launch-and-f2pool-listing-of-space)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/microvisionchain-mvc-marks-first-anniversary-with-high-performance-and-decentralization/b5ff38ae5235766a6c27ea39f6f3232b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/27/microvisionchain-celebrates-milestone-filled-first-year)
+ 
 
 
 

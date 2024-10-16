@@ -61,7 +61,21 @@ X (Twitter) | Telegram | Instagram | TikTok | YouTube
 [Original/Source Press Release](https://blockchainwire.io/press-release/booh-world-presents-new-telegram-play-to-earn-game-for-meme-fans-eyeing-dual-token-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/booh-world-launches-play-to-earn-game-booh-brawlers/b3587dcbe4c942feed4bea7298675349) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/booh-world-launches-play-to-earn-game-booh-brawlers-on-telegram-announces-dual-token-launch)
+
+Pickup - [fishervista.com](https://fishervista.com/en/booh-world-launches-play-to-earn-game-on-telegram-merging-meme-culture-with-crypto-gaming/20246816)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/booh-world-launches-play-to-earn-game-on-telegram-merging-meme-culture-with-blockchain-gaming/20246816)
+
+Pickup - [advos.io](https://advos.io/en/booh-world-launches-play-to-earn-game-on-telegram-merging-meme-culture-with-crypto-gaming/20246816)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/booh-world-launches-play-to-earn-game-booh-brawlers)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/booh-world-launches-play-to-earn-game-booh-brawlers)
+ 
 
 
 

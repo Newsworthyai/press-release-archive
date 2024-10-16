@@ -27,7 +27,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/handlery-hote
 [Original/Source Press Release](https://newsdirect.com/news/handlery-hotel-to-brighten-up-union-square-with-a-summer-of-lights-943175404)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/handlery-hotels-launches-summer-lights-celebration-in-san-francisco/b8ca8f6c2f4ee11023155588fe5ef124) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/handlery-hotel-illuminates-union-square-with-summer-lights-celebration/20244257)
+
+Pickup - [advos.io](https://advos.io/en/handlery-hotel-s-summer-lights-celebration-illuminates-union-square/20244257)
+ 
 
 
 

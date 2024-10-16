@@ -13,7 +13,11 @@ Dr. Tola's work has earned her considerable recognition and media exposure. Her 
 [Original/Source Press Release](https://newsworthy.ai/news/20240117984/dr-tola-introduces-tms-therapy-as-a-safe-and-effective-alternative-for-treating-depression)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-psychiatrist-introduces-innovative-tms-therapy-for-depression/fc7aabeb8cb2548f860a21b7eb027fa1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/17/tms-therapy-a-promising-alternative-for-treating-depression)
+ 
 
 
 

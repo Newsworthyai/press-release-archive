@@ -7,7 +7,9 @@ NEW YORK, NY, May 14, 2024 /24-7PressRelease/ -- Being involved in a hit-and-run
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510846/tucker-lawyers-helps-victims-report-hit-and-run-accidents-in-new-york)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hit-and-run-accident-in-new-york-your-rights-and-legal-steps/c58b9d5cf5645fe3cb76188850aec9e2) 
+
+ 
 
 
 

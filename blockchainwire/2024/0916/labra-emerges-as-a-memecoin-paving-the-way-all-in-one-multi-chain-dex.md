@@ -31,7 +31,17 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/labra-emerges-as-a-memecoin-paving-the-way-all-in-one-multi-chain-dex)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/labrador-unveils-labra-a-loyal-meme-token-on-multichain-dex/f04bafdc37578921759956bf7ece077e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/labra-introduces-innovative-memecoin-on-multi-chain-dex-platform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-memecoin-labra-launches-with-innovative-features-and-community-focus/20246867)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-memecoin-labra-launches-with-unique-features-and-community-focus/20246867)
+
+Pickup - [advos.io](https://advos.io/en/new-memecoin-labra-launches-with-multi-chain-dex-ambitions/20246867)
+ 
 
 
 

@@ -29,7 +29,11 @@ The April presale and official launch offer a chance to join Elevault Coin's vis
 [Original/Source Press Release](https://blockchainwire.io/press-release/elevault-coin-announces-april-presale-and-official-launch-of-its-cryptocurrency)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elevault-coin-announces-highly-anticipated-presale-and-official-launch/9b911271135457831eb660cd0f5ebf8e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/elevault-coin-unveils-innovative-tokenomics-for-april-presale-and-launch)
+ 
 
 
 

@@ -35,7 +35,11 @@ Disclaimer:The information provided in this release is not investment advice, fi
 [Original/Source Press Release](https://blockchainwire.io/press-release/looted-announces-partnership-with-chainlink-crediting-them-to-making-the-platform-possible)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/looted-network-announces-partnership-with-chainlink-for-decentralized-gaming/f771f1cd1798289659e1e5e6bb0e4bf0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/05/looted-network-announces-groundbreaking-partnership-with-chainlink)
+ 
 
 
 

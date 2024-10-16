@@ -45,7 +45,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/market-sentiment-suggests-o2t-will-dominate-3-of-cryptocurrency-market-cap-challenging-bitcoin-btc-and-ethereum-eth-before-2025)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/option2trade-o2t-poised-to-command-3-of-cryptocurrency-market-cap-by-2025/13a245e55ddb504910abbd7ab26c7e66) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/option2trade-o2t-poised-to-disrupt-cryptocurrency-market-challenging-bitcoin-and-ethereum)
+ 
 
 
 

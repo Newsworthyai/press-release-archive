@@ -52,7 +52,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/investments-a
 [Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-institute-awards-recognize-best-of-the-best-in-investment-and-wealth-management-industry-during-its-experience-2024-annual-conference-763025170)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investments-wealth-institute-awards-recognize-best-of-the-best-in-investment-and-wealth-management-industry/ecd37f60fd9bc02637e673d8d5250887) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/investments-wealth-institute-honors-excellence-in-investment-and-wealth-management)
+ 
 
 
 

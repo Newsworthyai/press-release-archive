@@ -29,7 +29,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/peru-es-recon
 [Original/Source Press Release](https://newsdirect.com/news/peru-es-reconocido-como-destino-lider-de-sudamerica-en-los-world-travel-awards-716532429)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peru-named-top-destination-in-world-travel-awards-2024/d6b9ca0d4751d8af9c693164f1e5b3bd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/peru-crowned-south-america-s-leading-destination-at-world-travel-awards)
+
+Pickup - [fishervista.com](https://fishervista.com/en/peru-gana-reconocimientos-en-los-world-travel-awards-2024/20245096)
+
+Pickup - [advos.io](https://advos.io/en/peru-reigns-supreme-at-world-travel-awards-2024/20245096)
+ 
 
 
 

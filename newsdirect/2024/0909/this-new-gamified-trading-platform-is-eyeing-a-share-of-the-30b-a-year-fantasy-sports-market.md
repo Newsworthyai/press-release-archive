@@ -43,7 +43,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/this-new-gami
 [Original/Source Press Release](https://newsdirect.com/news/this-new-gamified-trading-platform-is-eyeing-a-share-of-the-30b-a-year-fantasy-sports-market-652563543)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fantasy-trading-platform-bullrush-enters-30b-market-with-gamified-approach/c020a0cca02e186b5274fd30c7a2d758) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/bullrush-new-fantasy-trading-platform-targets-30-billion-fantasy-sports-market)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bullrush-launches-gamified-trading-platform-to-tap-into-30-billion-fantasy-sports-market/20246618)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bullrush-new-fantasy-trading-platform-aims-to-disrupt-30-billion-fantasy-sports-industry/20246618)
+
+Pickup - [advos.io](https://advos.io/en/bullrush-introduces-gamified-trading-platform-amid-booming-30b-fantasy-sports-market/20246618)
+ 
 
 
 

@@ -7,7 +7,9 @@ CHICAGO, IL, September 19, 2024 /24-7PressRelease/ -- Black Girl Vitamins is inn
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514453/black-girl-vitamins-launches-meno-chill-an-innovative-menopause-supplement)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/black-girl-vitamins-launches-meno-chill-a-holistic-menopause-supplement/d42f7466f7662469faeb904007deae4f) 
+
+ 
 
 
 

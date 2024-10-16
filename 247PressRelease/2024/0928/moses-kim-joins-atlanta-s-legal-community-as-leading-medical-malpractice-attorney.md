@@ -7,7 +7,9 @@ ATLANTA, GA, September 28, 2024 /24-7PressRelease/ -- Moses Kim, an accomplished
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514764/moses-kim-joins-atlantas-legal-community-as-leading-medical-malpractice-attorney)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/accomplished-atlanta-attorney-moses-kim-to-advocate-for-victims-of-medical-negligence/3d05a0ab0ab7fa0e4ce29cbe5fb0eb79) 
+
+ 
 
 
 

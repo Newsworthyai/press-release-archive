@@ -33,7 +33,13 @@ Nifty Media is an industry-leading web3 media company, with its flagship brand N
 [Original/Source Press Release](https://blockchainwire.io/press-release/nifty-media-acquires-innovative-web3-media-brand-nft-insider)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nifty-media-expands-media-arm-with-acquisition-of-nft-insider/b45eb748eaa1f014a36bdf072d03dd6d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/nifty-media-expands-media-arm-with-acquisition-of-nft-insider)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/nifty-media-expands-media-arm-with-acquisition-of-nft-insider)
+ 
 
 
 

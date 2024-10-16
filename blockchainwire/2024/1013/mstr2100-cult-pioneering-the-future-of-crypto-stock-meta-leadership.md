@@ -9,7 +9,9 @@ New York, 13/10 – $MSTR continues to make waves as a leader in the emerging wo
 [Original/Source Press Release](https://blockchainwire.io/press-release/mstr2100-cult-pioneering-the-future-of-crypto-stock-meta-leadership)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mstr-continues-to-lead-in-crypto-stock-with-exciting-updates-and-new-service-launch/892929a1e1d6f4ead017b6fe4dc6921e) 
+
+ 
 
 
 

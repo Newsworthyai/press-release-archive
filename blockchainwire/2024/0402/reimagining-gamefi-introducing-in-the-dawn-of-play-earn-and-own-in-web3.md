@@ -59,7 +59,11 @@ Instagram: [https://instagram.com/in.ongame](https://proficientpr.com/wp-json/wp
 [Original/Source Press Release](https://blockchainwire.io/press-release/reimagining-gamefi-introducing-in---the-dawn-of-play-earn-and-own-in-web3)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ongame-s-in-project-redefines-gaming-with-blockchain-integration/495c375e53e41e53dfba02263cfdd113) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/in-reimagining-gamefi-with-play-earn-and-true-ownership)
+ 
 
 
 

@@ -23,7 +23,11 @@ Watches World is a premier e-commerce platform specializing in luxury watches. F
 [Original/Source Press Release](https://blockchainwire.io/press-release/watches-world-reinforcing-its-commitment-to-cryptocurrency-transactions-amidst-positive-momentum-in-the-crypto-market-in-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/watches-world-leading-the-luxury-watch-market-with-cryptocurrency-transactions/e5841de1263c5e11b99831e72a6952be) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/20/watches-world-embraces-cryptocurrency-amid-positive-crypto-market-momentum)
+ 
 
 
 

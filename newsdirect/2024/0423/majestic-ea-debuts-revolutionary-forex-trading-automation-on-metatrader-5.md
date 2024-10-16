@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/majestic-ea-d
 [Original/Source Press Release](https://newsdirect.com/news/majestic-ea-debuts-revolutionary-forex-trading-automation-on-metatrader-5-787390240)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avenix-fzco-launches-revolutionary-forex-trading-automation-with-majestic-ea-for-metatrader-5/d913d094550dbda7bd8c8768896989bf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/majestic-ea-debuts-revolutionary-forex-trading-automation-on-metatrader-5)
+ 
 
 
 

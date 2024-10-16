@@ -9,7 +9,19 @@ Unleash the Solympics!From minting unique NFTs to participating in meme competit
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-solympics-introduces-a-collection-of-1100-unique-nfts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solympics-the-ultimate-blend-of-culture-and-blockchain-innovation/948408f59d804fc6f3cd48af7d152762) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/solympics-the-ultimate-blend-of-culture-and-blockchain-innovation)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/solympics-the-ultimate-blend-of-culture-and-blockchain-innovation)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/solympics-launches-1100-unique-nfts-blending-blockchain-and-olympic-spirit)
+
+Pickup - [fishervista.com](https://fishervista.com/en/solympics-a-fusion-of-blockchain-innovation-and-olympic-spirit/20245057)
+
+Pickup - [advos.io](https://advos.io/en/solympics-a-new-era-of-blockchain-and-olympic-fusion-on-solana/20245057)
+ 
 
 
 

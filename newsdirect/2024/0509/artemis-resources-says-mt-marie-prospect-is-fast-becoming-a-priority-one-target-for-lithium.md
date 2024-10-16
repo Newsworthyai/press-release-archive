@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/artemis-resou
 [Original/Source Press Release](https://newsdirect.com/news/artemis-resources-says-mt-marie-prospect-is-fast-becoming-a-priority-one-target-for-lithium-948647894)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/artemis-resources-unveils-promising-results-from-mt-marie-lithium-prospect-in-western-australia/04b36831d1726365a55d2f4e1fbddf6f) 
+
+ 
 
 
 

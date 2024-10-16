@@ -43,7 +43,21 @@ Finally, when it comes to security, privacy, compliance, and customer service, w
 [Original/Source Press Release](https://blockchainwire.io/press-release/strike-chain-trading-center-leading-social-investment-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionizing-social-investment-virtual-forex-trading-platform/5b5627e56335a862e8201d4b1117c661) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/strike-chain-trading-center-revolutionizes-social-investment-with-innovative-platform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/strike-chain-trading-center-innovating-social-investment-and-trading/20245295)
+
+Pickup - [advos.io](https://advos.io/en/strike-chain-trading-center-transforming-social-investment-with-innovative-platform/20245295)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/revolutionizing-social-investment-virtual-forex-trading-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/revolutionizing-social-investment-virtual-forex-trading-platform)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/strike-chain-trading-center-revolutionizes-social-investment-with-innovative-platform)
+ 
 
 
 

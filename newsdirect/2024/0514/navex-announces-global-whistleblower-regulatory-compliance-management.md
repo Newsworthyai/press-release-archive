@@ -29,7 +29,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/navex-announc
 [Original/Source Press Release](https://newsdirect.com/news/navex-announces-global-whistleblower-regulatory-compliance-management-621508665)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/navex-launches-regulatory-compliance-management-solution/62cd83b1c354f2db1281b641bcebe3b4) 
+
+ 
 
 
 

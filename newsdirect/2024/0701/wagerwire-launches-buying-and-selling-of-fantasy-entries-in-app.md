@@ -29,7 +29,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/wagerwire-lau
 [Original/Source Press Release](https://newsdirect.com/news/wagerwire-launches-buying-and-selling-of-fantasy-entries-in-app-980667988)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wagerwire-launches-fantasy-entry-buying-and-selling-feature-in-app/f0ead2ca164082c4a103a0d3b8c0b327) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/wagerwire-launches-first-ever-legal-fantasy-entry-marketplace-in-app/20244609)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/01/wagerwire-revolutionizes-fantasy-sports-with-in-app-buying-and-selling-feature)
+
+Pickup - [advos.io](https://advos.io/en/wagerwire-launches-revolutionary-buying-and-selling-feature-for-fantasy-entries/20244609)
+ 
 
 
 

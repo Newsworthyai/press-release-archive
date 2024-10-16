@@ -31,7 +31,11 @@ Website: https://gradientprotocol.io/
 [Original/Source Press Release](https://blockchainwire.io/press-release/gradient-protocol-unveils-plans-for-exciting-second-funding-phase-with-fjord-foundry-following-successful-seed-round-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gradient-protocol-launches-second-funding-phase-on-fjord-foundry/b034b66284c76723c789130c9ea4c3e2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/gradient-protocol-unveils-second-funding-phase-with-fjord-foundry)
+ 
 
 
 

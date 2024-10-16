@@ -71,7 +71,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ryvid-introdu
 [Original/Source Press Release](https://newsdirect.com/news/ryvid-introduces-fresh-new-colorways-and-accessories-for-anthem-electric-motorcycle-plus-new-financing-options-250769605)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ryvid-introduces-fresh-new-colorways-and-accessories-for-anthem-electric-motorcycle/abfbe1696dd81d0b55de842050c7b309) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/ryvid-expands-anthem-electric-motorcycle-lineup-with-new-colors-accessories-and-financing-options)
+ 
 
 
 

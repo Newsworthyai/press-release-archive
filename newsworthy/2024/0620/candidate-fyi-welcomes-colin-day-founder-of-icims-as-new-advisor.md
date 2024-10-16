@@ -21,7 +21,15 @@ candidate.fyi is dedicated to enhancing the candidate experience by providing in
 [Original/Source Press Release](https://newsworthy.ai/news/202406201196/candidate-fyi-welcomes-colin-day-founder-of-icims-as-new-advisor)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-tech-pioneer-colin-day-joins-candidate-fyi-as-advisor/6e3dd6901eebab554754f44c40467ef3) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/colin-day-founder-of-icims-joins-candidate-fyi-as-advisor/20244320)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/icims-founder-colin-day-joins-candidate-fyi-as-advisor/20244320)
+
+Pickup - [advos.io](https://advos.io/en/candidate-fyi-welcomes-hr-tech-pioneer-colin-day-as-new-advisor/20244320)
+ 
 
 
 

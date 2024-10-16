@@ -61,7 +61,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/worldwide-phenomenon-blockdag-network-raised-42-million-while-bitcoin-hits-71000-aiming-for-150000-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-revolutionizes-cryptocurrency-space-with-dag-technology/194c016fea07f07765dc8542b25f3a5b) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blockdag-network-revolutionizes-cryptocurrency-space-with-dag-technology)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blockdag-network-revolutionizes-cryptocurrency-space-with-dag-technology)
+ 
 
 
 

@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/benzinga-mone
 [Original/Source Press Release](https://newsdirect.com/news/benzinga-money-article-discusses-how-to-become-part-of-the-12-of-retirees-who-have-achieved-the-recommended-550-000-minimum-retirement-savings-threshold-244408969)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shocking-statistics-on-american-retirement-savings-revealed/ae6aeeb893bdacfd85bebbee6f171af7) 
+
+ 
 
 
 

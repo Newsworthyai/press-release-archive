@@ -7,7 +7,11 @@ SANTA ANA, CA, April 10, 2024 /24-7PressRelease/ -- Celebrating the Presidential
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509901/celebrating-the-presidential-election-year-with-patrick-odonnells-memoir-what-do-11us-presidents-the-dalai-lama-and-whoopi-have-in-common)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/patrick-o-donnell-s-memoir-chronicles-encounters-with-11-u-s-presidents-and-celebrities/d222a4f42d7c53e3d008da6c19c02761) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/patrick-o-donnell-s-memoir-a-retrospective-look-at-11-u-s-presidents-the-dalai-lama-and-whoopi-goldberg)
+ 
 
 
 

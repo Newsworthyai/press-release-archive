@@ -7,7 +7,11 @@ TORONTO, ON, June 11, 2024 /24-7PressRelease/ -- Quantum Noora Dynamics (QND) is
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511609/quantum-noora-dynamics)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-book-noora-unveiling-secrets-of-the-universe-by-r-a-sarkar/8d5b3a5604e78ebf3b23776a7c6ba623) 
+
+
+Pickup - [advos.io](https://advos.io/en/quantum-noora-dynamics-releases-groundbreaking-book-by-r-a-sarkar/20244017)
+ 
 
 
 

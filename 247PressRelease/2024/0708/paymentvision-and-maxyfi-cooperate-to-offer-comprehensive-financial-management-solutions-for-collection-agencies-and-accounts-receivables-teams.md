@@ -7,7 +7,15 @@ JACKSONVILLE, FL, July 08, 2024 /24-7PressRelease/ -- PaymentVision, a market le
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512319/paymentvision-and-maxyfi-cooperate-to-offer-comprehensive-financial-management-solutions-for-collection-agencies-and-accounts-receivables-teams)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/paymentvision-and-maxyfi-announce-strategic-collaboration/2b61c959c6d12cd194ad6e2a67ca02d6) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/paymentvision-and-maxyfi-collaborate-to-enhance-financial-management-for-collection-agencies/20244746)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/paymentvision-and-maxyfi-join-forces-to-enhance-financial-management-for-collection-agencies)
+
+Pickup - [advos.io](https://advos.io/en/paymentvision-and-maxyfi-join-forces-to-elevate-debt-collection-and-financial-management/20244746)
+ 
 
 
 

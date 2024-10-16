@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-izea-worl
 [Original/Source Press Release](https://newsdirect.com/news/how-izea-worldwide-nasdaq-izea-is-leading-the-world-into-the-creator-economy-era-983717226)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/izea-worldwide-leading-the-creator-economy-era/89315e0b8c005030be3c03e27e6a4be5) 
+
+
+Pickup - [advos.io](https://advos.io/en/izea-worldwide-pioneers-the-creator-economy-with-innovative-tools-and-proven-success/20244031)
+ 
 
 
 

@@ -7,7 +7,11 @@ Announcing UniDexAI: Pioneering the Future of Decentralized TradingGroundbreakin
 [Original/Source Press Release](https://blockchainwire.io/press-release/announcing-unidexai-pioneering-the-future-of-decentralized-trading-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unidexai-revolutionizing-decentralized-trading-with-innovative-features/e1064887b56f57be2b9e76efdb121489) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/unidexai-revolutionizing-decentralized-trading-with-ai-powered-features)
+ 
 
 
 

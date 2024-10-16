@@ -37,7 +37,21 @@ Core: core@transformgroup.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/copper-partners-with-core-offering-custody-and-staking-support-for-institutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/core-foundation-announces-strategic-partnership-with-copper-for-non-custodial-btc-staking/089e37b3daab75b9a2883a176a4f7adc) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/core-foundation-announces-strategic-partnership-with-copper-for-non-custodial-btc-staking)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/core-foundation-announces-strategic-partnership-with-copper-for-non-custodial-btc-staking)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/copper-and-core-form-strategic-partnership-for-institutional-digital-asset-custody-and-staking)
+
+Pickup - [fishervista.com](https://fishervista.com/en/copper-partners-with-core-to-enhance-institutional-bitcoin-staking-and-custody/20245592)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/core-foundation-and-copper-forge-strategic-partnership-for-institutional-digital-asset-custody-and-staking/20245592)
+
+Pickup - [advos.io](https://advos.io/en/copper-partners-with-core-to-enhance-institutional-btc-staking/20245592)
+ 
 
 
 

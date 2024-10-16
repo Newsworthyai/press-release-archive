@@ -15,7 +15,11 @@ Join Verity One Ltd. in its mission to digitize trust across industries. For mor
 [Original/Source Press Release](https://blockchainwire.io/press-release/verity-one-ltd-truth-matters-digitizing-trust-in-supply-chains-with-vert-v)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/verity-one-unveils-innovative-verity-license-unit-to-revolutionize-supply-chain-transparency/055484ed0dfe6a4851f56aa286f3d3c8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/verity-one-ltd-introduces-vert-v-to-digitize-trust-in-supply-chains)
+ 
 
 
 

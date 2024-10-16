@@ -55,7 +55,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-seniors-c
 [Original/Source Press Release](https://newsdirect.com/news/how-seniors-can-benefit-from-flip-phones-453199715)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-appeal-of-flip-phones-for-seniors-simplicity-security-and-reliability/b82a4c184d0e1ca0364da639334d4973) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/flip-phones-offer-seniors-simplicity-security-and-durability/20245985)
+
+Pickup - [advos.io](https://advos.io/en/the-advantages-of-flip-phones-for-seniors-simplicity-security-and-durability/20245985)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/flip-phones-a-practical-choice-for-seniors-in-the-smartphone-era)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/flip-phones-a-smart-choice-for-seniors-seeking-simplicity-and-security/20245985)
+ 
 
 
 

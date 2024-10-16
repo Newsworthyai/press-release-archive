@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/beyond-oil-ce
 [Original/Source Press Release](https://newsdirect.com/news/beyond-oil-celebrates-new-milestone-secures-major-international-food-chain-as-customer-982660772)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beyond-oil-celebrates-new-milestone-secures-major-international-food-chain-as-customer/9d53c737f5c60a4b6ceeb6d65cc8d828) 
+
+ 
 
 
 

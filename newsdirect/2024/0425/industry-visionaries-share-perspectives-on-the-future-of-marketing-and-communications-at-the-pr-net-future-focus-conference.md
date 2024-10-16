@@ -79,7 +79,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/industry-visi
 [Original/Source Press Release](https://newsdirect.com/news/industry-visionaries-share-perspectives-on-the-future-of-marketing-and-communications-at-the-pr-net-future-focus-conference-434689580)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/insights-from-future-focus-conference-reinventing-modern-media-ai-s-effect-more/98d1e246abba4cb4c6c383c6aa2a85d2) 
+
+ 
 
 
 

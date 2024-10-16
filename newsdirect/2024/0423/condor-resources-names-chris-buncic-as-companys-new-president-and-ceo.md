@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/condor-resour
 [Original/Source Press Release](https://newsdirect.com/news/condor-resources-names-chris-buncic-as-companys-new-president-and-ceo-804118315)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/condor-resources-names-chris-buncic-as-companys-new-president-and-ceo/165dc9bfaae222af60f90f644802ca8c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/condor-resources-names-chris-buncic-as-company-s-new-president-and-ceo)
+ 
 
 
 

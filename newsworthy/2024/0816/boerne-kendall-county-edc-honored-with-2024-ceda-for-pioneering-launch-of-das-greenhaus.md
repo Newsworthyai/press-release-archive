@@ -27,7 +27,17 @@ The Boerne Kendall County Economic Development Corporation (BKCEDC) is dedicated
 [Original/Source Press Release](https://newsworthy.ai/news/202408161233/boerne-kendall-county-edc-honored-with-2024-ceda-for-pioneering-launch-of-das-greenhaus-empowering-texas-hill-country-entrepreneurs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bkcedc-receives-2024-ceda-award-for-launching-das-greenhaus/5dea60d281f6136e09190a4e9a4f321b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/16/boerne-kendall-county-edc-wins-2024-ceda-for-das-greenhaus-initiative)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/boerne-kendall-county-edc-wins-2024-ceda-for-das-greenhaus-initiative/20245782)
+
+Pickup - [advos.io](https://advos.io/en/boerne-kendall-county-edc-wins-2024-ceda-for-launch-of-das-greenhaus/20245782)
+
+Pickup - [fishervista.com](https://fishervista.com/en/boerne-kendall-county-edc-wins-2024-ceda-for-launch-of-das-greenhaus/20245782)
+ 
 
 
 

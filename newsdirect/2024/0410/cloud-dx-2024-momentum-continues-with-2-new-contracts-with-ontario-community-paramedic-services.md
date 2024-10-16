@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/cloud-dx-2024
 [Original/Source Press Release](https://newsdirect.com/news/cloud-dx-2024-momentum-continues-with-2-new-contracts-with-ontario-community-paramedic-services-961949687)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloud-dx-expands-healthcare-reach-with-new-agreements/b91f76c393bc20c43857d2dbb1f6cd02) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/cloud-dx-signs-2-new-contracts-with-ontario-community-paramedic-services)
+ 
 
 
 

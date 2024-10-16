@@ -61,7 +61,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/alta-global-t
 [Original/Source Press Release](https://newsdirect.com/news/alta-global-targets-45-000-us-martial-arts-gyms-to-drive-revenue-growth-with-hype-marketing-launch-981167377)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alta-global-group-launches-hype-marketing-platform-for-combat-sports-gyms/756caffcb85f70b218184e85179fca43) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/alta-global-group-launches-hype-marketing-platform-to-revolutionize-combat-sports-industry)
+
+Pickup - [fishervista.com](https://fishervista.com/en/alta-global-group-launches-hype-marketing-platform-to-revolutionize-combat-sports-gyms-revenue-streams/20245894)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/alta-global-group-launches-hype-marketing-platform-to-revolutionize-combat-sports-industry/20245894)
+
+Pickup - [advos.io](https://advos.io/en/alta-global-group-launches-hype-marketing-platform-to-target-45000-us-martial-arts-gyms/20245894)
+ 
 
 
 

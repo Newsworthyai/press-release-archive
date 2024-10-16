@@ -7,7 +7,9 @@ DUBAI, UAE, October 05, 2024 /24-7PressRelease/ -- The 10th World Green Economy 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514977/world-green-economy-summit-2024-hosts-a-high-level-ministerial-roundtable)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/10th-world-green-economy-summit-key-players-discuss-climate-action-and-green-economy-advancements/7101078bfa6f472c139ae270a36fa79d) 
+
+ 
 
 
 

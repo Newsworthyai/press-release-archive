@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitgets-pre-m
 [Original/Source Press Release](https://newsdirect.com/news/bitgets-pre-market-brings-notcoin-not-to-its-users-prior-to-cex-listings-682969994)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-announces-pre-market-token-sales-for-not-tokens-from-notcoin-ecosystem/9167eb25a38b3eb00c68ce64e6260a4c) 
+
+ 
 
 
 

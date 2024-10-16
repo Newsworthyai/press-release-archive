@@ -102,7 +102,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/us-china-lega
 [Original/Source Press Release](https://newsdirect.com/news/us-china-legal-experts-jiangsu-junjin-law-firm-celebrates-their-tenth-chinese-client-successfully-listing-on-the-us-stock-market-891686908)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jiangsu-junjin-law-firm-leads-the-charge-in-chinese-ipos-on-us-exchanges/9021f43919f78267572fb48786ff4227) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/jiangsu-junjin-law-firm-celebrates-milestone-with-tenth-chinese-client-listing-on-us-stock-market/20244575)
+
+Pickup - [advos.io](https://advos.io/en/jiangsu-junjin-law-firm-marks-milestone-with-tenth-chinese-ipo-on-us-market/20244575)
+ 
 
 
 

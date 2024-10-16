@@ -7,7 +7,11 @@ SAN FRANCISCO, CA, April 01, 2024 /24-7PressRelease/ -- Poets&Quants For Undergr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509700/poetsquants-honors-best-brightest-business-majors-for-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/poets-quants-for-undergrads-honors-100-best-brightest-business-majors-of-2024/20661f7754f83f49a2863ad67977a479) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/poets-quants-honors-top-undergraduate-business-students-for-2024)
+ 
 
 
 

@@ -29,7 +29,11 @@ You can learn more about DGNX at these links: Website | Twitter | Discord 
 [Original/Source Press Release](https://blockchainwire.io/press-release/dgnx-connects-to-ethereum-via-broccoliswap---its-brand-new-user-focused-cross-chain-aggregator)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/degenx-launches-linkbridge-to-connect-dgnx-to-ethereum-and-introduces-broccoliswap-for-multi-chain-token-swapping/656edb54cb8f17701fb8aaaa782768b5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/10/degenx-bridges-dgnx-token-to-ethereum-via-broccoliswap-aggregator)
+ 
 
 
 

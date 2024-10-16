@@ -7,7 +7,9 @@ ARLINGTON, VA, April 15, 2024 /24-7PressRelease/ -- The U.S. Naval Sea Cadet Cor
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510025/applications-open-for-the-us-naval-sea-cadet-corps-2024-international-exchange-program)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-naval-sea-cadet-corps-opens-applications-for-summer-2024-international-exchange-program/21a591b04f98ea4e9c191d622a209bb9) 
+
+ 
 
 
 

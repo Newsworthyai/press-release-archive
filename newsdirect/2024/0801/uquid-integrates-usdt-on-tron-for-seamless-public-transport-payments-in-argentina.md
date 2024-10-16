@@ -61,7 +61,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/uquid-integra
 [Original/Source Press Release](https://newsdirect.com/news/uquid-integrates-usdt-on-tron-for-seamless-public-transport-payments-in-argentina-305105606)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uquid-introduces-usdt-on-tron-for-seamless-public-transport-payments-in-argentina/00e4d564da0f9527b1fa8492d757ea69) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/uquid-revolutionizes-public-transport-payments-in-argentina-with-usdt-on-tron)
+
+Pickup - [fishervista.com](https://fishervista.com/en/uquid-integrates-usdt-on-tron-for-public-transport-payments-in-argentina/20245441)
+
+Pickup - [advos.io](https://advos.io/en/uquid-integrates-usdt-on-tron-for-efficient-public-transport-payments-in-argentina/20245441)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/uquid-introduces-usdt-on-tron-for-seamless-public-transport-payments-in-argentina)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/uquid-introduces-usdt-on-tron-for-seamless-public-transport-payments-in-argentina)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/uquid-launches-usdt-on-tron-for-sube-card-top-ups-in-argentina)
+ 
 
 
 

@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/lancaster-res
 [Original/Source Press Release](https://newsdirect.com/news/lancaster-resources-secures-approval-for-phase-1-drill-program-at-alkali-flat-lithium-brine-project-244177370)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lancaster-resources-secures-approval-for-phase-1-drill-program-at-alkali-flat-lithium-brine-project/e3a98f207c7845b8116d72071fa74345) 
+
+ 
 
 
 

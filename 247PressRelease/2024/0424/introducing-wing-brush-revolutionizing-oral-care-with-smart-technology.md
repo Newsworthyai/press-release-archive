@@ -7,7 +7,11 @@ NEW YORK, NY, April 24, 2024 /24-7PressRelease/ -- WING BRUSH INC is excited to 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510278/introducing-wing-brush-revolutionizing-oral-care-with-smart-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-smart-e-toothbrush-launching-on-kickstarter/84b0706c2ab108f318f21ca98e464990) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/introducing-wing-brush-revolutionizing-oral-care-with-smart-technology)
+ 
 
 
 

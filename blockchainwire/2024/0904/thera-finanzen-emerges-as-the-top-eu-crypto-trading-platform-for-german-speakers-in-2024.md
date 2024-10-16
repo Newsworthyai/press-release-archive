@@ -25,7 +25,11 @@ Visit Thera Finanzen today to explore the platform and start your trading journe
 [Original/Source Press Release](https://blockchainwire.io/press-release/thera-finanzen-emerges-as-the-top-eu-crypto-trading-platform-for-german-speakers-in-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/thera-finanzen-recognized-as-top-crypto-trading-platform-in-2024/77dca9a4117ddd772b161f61524107fd) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/thera-finanzen-leads-eu-crypto-trading-for-german-speakers-in-2024/20246721)
+ 
 
 
 

@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/battery-miner
 [Original/Source Press Release](https://newsdirect.com/news/battery-mineral-resources-corp-announces-closing-of-the-second-drawdown-of-credit-facility-with-fiera-enhanced-private-debt-fund-689133728)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/battery-mineral-resources-corp-announces-closing-of-the-second-drawdown-of-credit-facility-with-fiera-enhanced-private-debt-fund/f08be68f4f835a985235dbe80ae775bd) 
+
+
+Pickup - [advos.io](https://advos.io/en/battery-mineral-resources-corp-completes-second-drawdown-of-credit-facility-with-fiera-enhanced-private-debt-fund/20243972)
+ 
 
 
 

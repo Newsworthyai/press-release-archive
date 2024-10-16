@@ -7,7 +7,17 @@ TORONTO, ON, August 08, 2024 /24-7PressRelease/ -- Coconut Software, a provider 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513187/coconut-software-and-lpl-financial-announce-strategic-relationship-offering-advisors-a-streamlined-efficient-meeting-scheduling-solution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coconut-software-announces-strategic-relationship-with-lpl-financial/2eed554de8d121123193bbda1b94e73d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/coconut-software-and-lpl-financial-partner-to-enhance-advisor-client-meetings/20245567)
+
+Pickup - [advos.io](https://advos.io/en/coconut-software-and-lpl-financial-partner-to-streamline-advisor-client-meetings/20245567)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/coconut-software-and-lpl-financial-partner-to-enhance-advisor-client-meeting-efficiency/20245567)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/coconut-software-and-lpl-financial-partner-to-revolutionize-advisor-client-meeting-scheduling)
+ 
 
 
 

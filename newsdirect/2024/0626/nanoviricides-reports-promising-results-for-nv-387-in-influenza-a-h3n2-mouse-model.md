@@ -21,7 +21,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/nanoviricides
 [Original/Source Press Release](https://newsdirect.com/news/nanoviricides-reports-promising-results-for-nv-387-in-influenza-a-h3n2-mouse-model-126149681)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nanoviricides-reports-promising-results-for-nv-387-in-influenza-a-h3n2-mouse-model/bef32e8d268a8f28a44f5d188fbdbe21) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/nanoviricides-shows-promising-results-for-nv-387-in-influenza-a-h3n2-mouse-model/20244502)
+
+Pickup - [advos.io](https://advos.io/en/nanoviricides-nv-387-shows-promising-results-in-combating-influenza-a-h3n2-in-mice/20244502)
+ 
 
 
 

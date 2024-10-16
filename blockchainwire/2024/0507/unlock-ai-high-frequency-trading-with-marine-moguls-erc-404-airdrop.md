@@ -57,7 +57,9 @@ CoinGecko: https://www.coingecko.com/en/coins/metfiInstagram: https://instagram.
 [Original/Source Press Release](https://blockchainwire.io/press-release/unlock-ai-high-frequency-trading-with-marine-moguls-erc-404-airdrop)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionizing-digital-asset-management-and-high-frequency-trading-with-erc-404-marine-moguls-collection-launch/915177d5277300c2966b3094c34ffe38) 
+
+ 
 
 
 

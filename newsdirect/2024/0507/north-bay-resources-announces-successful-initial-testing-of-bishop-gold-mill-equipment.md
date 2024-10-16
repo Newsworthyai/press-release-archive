@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/north-bay-res
 [Original/Source Press Release](https://newsdirect.com/news/north-bay-resources-announces-successful-initial-testing-of-bishop-gold-mill-equipment-220232085)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/north-bay-resources-ceo-announces-successful-testing-of-bishop-gold-mill-equipment/375f8d55ea88a96c949aadb912b5f075) 
+
+ 
 
 
 

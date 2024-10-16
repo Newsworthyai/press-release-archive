@@ -41,7 +41,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/ocean-estable
 [Original/Source Press Release](https://newsdirect.com/news/ocean-establece-un-centro-global-en-el-salvador-951371490)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ocean-establishes-global-center-in-el-salvador-to-advance-bitcoin-mining-decentralization/69c681f5379acf55ad11b3aa2f030ac4) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ocean-establishes-global-center-in-el-salvador-to-advance-bitcoin-mining-decentralization)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ocean-establishes-global-center-in-el-salvador-to-advance-bitcoin-mining-decentralization)
+ 
 
 
 

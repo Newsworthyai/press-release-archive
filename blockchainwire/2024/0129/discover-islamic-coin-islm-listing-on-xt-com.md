@@ -60,7 +60,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-islamic-coin-islm-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-islamic-coin-islm-on-its-socially-infused-trading-platform/a3a0cd9e8f93a509d18d0a277c887d54) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/29/xt-com-lists-islamic-coin-islm-embracing-blockchain-technology-with-islamic-finance-principles)
+ 
 
 
 

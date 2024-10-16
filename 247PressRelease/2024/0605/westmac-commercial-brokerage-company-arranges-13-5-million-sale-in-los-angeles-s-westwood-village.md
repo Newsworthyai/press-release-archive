@@ -7,7 +7,9 @@ LOS ANGELES, CA, June 05, 2024 /24-7PressRelease/ -- WESTMAC Commercial Brokerag
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511450/westmac-commercial-brokerage-company-arranges-135-million-sale-in-los-angeless-westwood-village)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iconic-cpk-building-in-westwood-village-sold-for-13-5m/7cc5aab4a78d833ce70a3a0bfba13b70) 
+
+ 
 
 
 

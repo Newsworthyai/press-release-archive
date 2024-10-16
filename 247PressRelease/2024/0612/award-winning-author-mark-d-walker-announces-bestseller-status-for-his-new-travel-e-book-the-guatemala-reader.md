@@ -7,7 +7,11 @@ WILMINGTON, NC, June 12, 2024 /24-7PressRelease/ -- Bestselling travel writer Ma
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511567/award-winning-author-mark-d-walker-announces-bestseller-status-for-his-new-travel-e-book-the-guatemala-reader)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-travel-writer-mark-d-walker-achieves-bestseller-status-with-the-guatemala-reader/03eb96e52fa44571b967154adcf53b05) 
+
+
+Pickup - [advos.io](https://advos.io/en/mark-d-walkers-new-e-book-the-guatemala-reader-reaches-bestseller-status/20244060)
+ 
 
 
 

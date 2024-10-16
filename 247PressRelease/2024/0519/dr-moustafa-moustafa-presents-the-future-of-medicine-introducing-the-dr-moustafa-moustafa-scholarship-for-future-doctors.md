@@ -7,7 +7,9 @@ ORANGEBURG, SC, May 19, 2024 /24-7PressRelease/ -- Dr. Moustafa Moustafa, a dist
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511003/dr-moustafa-moustafa-presents-the-future-of-medicine-introducing-the-dr-moustafa-moustafa-scholarship-for-future-doctors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/distinguished-physician-launches-scholarship-for-future-doctors/8eb37b7aa563bb6d6a8205e7d59e60eb) 
+
+ 
 
 
 

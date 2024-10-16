@@ -45,7 +45,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/ripple-sellin
 [Original/Source Press Release](https://newsdirect.com/news/ripple-selling-400m-xrp-price-dump-incoming-jasmy-fluctuates-as-investors-shift-to-new-viral-contender-311313469)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ripple-and-jasmycoin-facing-turbulent-times-in-crypto-market-raboo-emerges-as-new-viral-contender/abee4a2f478d9944600cd72428502d75) 
+
+
+Pickup - [advos.io](https://advos.io/en/ripple-facing-uncertain-future-as-xrp-price-drops-and-investors-shift-focus-to-new-contender/20243959)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ripple-and-jasmycoin-facing-turbulent-times-in-crypto-market-raboo-emerges-as-new-viral-contender)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ripple-and-jasmycoin-facing-turbulent-times-in-crypto-market-raboo-emerges-as-new-viral-contender)
+ 
 
 
 

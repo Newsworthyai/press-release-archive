@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/aapi-owned-th
 [Original/Source Press Release](https://newsdirect.com/news/aapi-owned-three-ships-beauty-raises-2-5-million-347943136)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/award-winning-three-ships-beauty-raises-2-5-million-to-expand-in-us-market/d05e3ddf6a3c1f72d6182ccf8ad02f02) 
+
+ 
 
 
 

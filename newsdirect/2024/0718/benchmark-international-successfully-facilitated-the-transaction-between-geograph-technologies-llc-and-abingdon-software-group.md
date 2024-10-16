@@ -35,7 +35,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-geograph-technologies-llc-and-abingdon-software-group-869203975)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-facilitates-transaction-between-geograph-technologies-llc-and-abingdon-software-group/1c8b9d89d20607c8862bdedc62938ff6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/geograph-technologies-acquired-by-abingdon-software-group-in-strategic-move)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-geograph-technologies-and-abingdon-software-group-transaction/20245049)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-acquisition-of-geograph-technologies-by-abingdon-software-group/20245049)
+ 
 
 
 

@@ -45,7 +45,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/nuvei-and-fintech360-announce-a-cutting-edge-cashier-solution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nuvei-and-fintech360-revolutionize-forex-b2b-payments-with-new-cashier-solution/d4980ca46444953fb4d867c2c47c319d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/nuvei-and-fintech360-launch-advanced-cashier-solution-for-forex-b2b-industry/20245967)
+
+Pickup - [advos.io](https://advos.io/en/nuvei-and-fintech360-unveil-advanced-cashier-solution-for-forex-b2b-market/20245967)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/nuvei-and-fintech360-launch-advanced-cashier-solution-for-forex-b2b-industry)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/nuvei-and-fintech360-launch-advanced-cashier-solution-for-forex-b2b-industry/20245967)
+ 
 
 
 

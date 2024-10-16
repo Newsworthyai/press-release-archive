@@ -41,7 +41,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-introduces-new-cloud-mining-plans-tailored-for-beginners)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gdmining-launches-new-beginner-friendly-cloud-mining-plans/291b6c7ac241545dd3dfa0bb71fa2e43) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/gdmining-launches-affordable-cloud-mining-plans-for-cryptocurrency-newcomers)
+
+Pickup - [advos.io](https://advos.io/en/gdmining-launches-affordable-cloud-mining-plans-for-cryptocurrency-newcomers/20246709)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gdmining-launches-affordable-cloud-mining-plans-for-cryptocurrency-newcomers/20246709)
+ 
 
 
 

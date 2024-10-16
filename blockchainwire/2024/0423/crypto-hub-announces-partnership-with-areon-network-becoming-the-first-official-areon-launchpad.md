@@ -31,7 +31,11 @@ To learn more, join the Crypto Hub community for an upcoming Ask Me Anything (AM
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-hub-announces-partnership-with-areon-network-becoming-the-first-official-areon-launchpad)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-hub-announces-strategic-partnership-with-areon-network/004a23163c545dc063d56a85fd7a3930) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/crypto-hub-announces-partnership-with-areon-network-becoming-the-first-official-areon-launchpad)
+ 
 
 
 

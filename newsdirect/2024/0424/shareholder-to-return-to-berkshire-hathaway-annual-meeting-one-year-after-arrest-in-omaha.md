@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/shareholder-t
 [Original/Source Press Release](https://newsdirect.com/news/shareholder-to-return-to-berkshire-hathaway-annual-meeting-one-year-after-arrest-in-omaha-591950088)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shareholder-to-return-to-berkshire-hathaway-annual-meeting-one-year-after-arrest-in-omaha/ee4bf4c7139dfe9d87c2b46d845ec690) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/shareholder-to-return-to-berkshire-hathaway-annual-meeting-one-year-after-arrest-in-omaha)
+ 
 
 
 

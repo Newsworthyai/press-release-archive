@@ -59,7 +59,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/navex-2024-gl
 [Original/Source Press Release](https://newsdirect.com/news/navex-2024-global-incident-management-benchmark-study-reveals-significant-third-party-reporting-to-companies-276410195)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/navex-releases-2024-whistleblowing-incident-management-benchmark-report/bca757564dcacca710a31143eb09f257) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/navex-s-2024-whistleblowing-report-reveals-record-internal-reporting-and-third-party-insights/2024986)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/navex-study-highlights-rising-third-party-whistleblowing-and-workplace-misconduct-reports)
+ 
 
 
 

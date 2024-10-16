@@ -55,7 +55,9 @@ TORONTO, Ontario - (NewMediaWire) - October 08, 2024 - ZenaTech, Inc. (Nasdaq: Z
 [Original/Source Press Release](https://www.newmediawire.com/news/zenatech-s-zenadrone-commences-aerial-operations-to-commercialize-drone-services-in-the-us-following-faa-approval-7076165)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zenatech-s-zenadrone-receives-faa-approval-for-commercial-drone-services-in-the-us/c7a4a1121564b66c5ab6a6f98e21a13f) 
+
+ 
 
 
 

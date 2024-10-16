@@ -34,7 +34,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/construction-
 [Original/Source Press Release](https://newsdirect.com/news/construction-begins-on-comcasts-high-speed-internet-expansion-on-key-peninsula-182913138)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-expands-high-speed-internet-on-key-peninsula/c420957727c181be5ddf4a49d2f57dc6) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/comcast-and-pierce-county-partner-to-expand-high-speed-internet-on-key-peninsula/20244617)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/01/comcast-begins-construction-to-expand-high-speed-internet-on-key-peninsula)
+
+Pickup - [advos.io](https://advos.io/en/comcast-begins-high-speed-internet-expansion-on-key-peninsula/20244617)
+ 
 
 
 

@@ -38,7 +38,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/novus-ink-adv
 [Original/Source Press Release](https://newsdirect.com/news/novus-ink-advisors-and-solidus-capital-group-team-up-to-serve-growing-transatlantic-commercial-interests-of-mid-market-enterprises-913733575)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/novus-ink-advisors-and-solidus-capital-group-join-forces-for-transatlantic-enterprise-growth/153821fc242ca28b4deb4d6878c90cbb) 
+
+
+Pickup - [advos.io](https://advos.io/en/novus-ink-advisors-and-solidus-capital-group-forge-alliance-to-support-transatlantic-mid-market-enterprises/20244032)
+ 
 
 
 

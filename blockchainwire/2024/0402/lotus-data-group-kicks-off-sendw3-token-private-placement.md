@@ -33,7 +33,11 @@ For further details on the SENDW3 token, the ongoing private placement, and the 
 [Original/Source Press Release](https://blockchainwire.io/press-release/lotus-data-group-kicks-off-sendw3-token-private-placement)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lotus-data-group-launches-private-placement-for-sendw3-token/7f905e76519431087ecd1f694c46570b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/lotus-data-group-unveils-sendw3-token-for-decentralized-data-storage)
+ 
 
 
 

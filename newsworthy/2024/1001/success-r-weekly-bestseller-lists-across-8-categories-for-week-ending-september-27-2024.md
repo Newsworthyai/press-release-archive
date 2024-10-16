@@ -103,7 +103,9 @@ Dallas, TX (Newsworthy.ai) Tuesday Oct 1, 2024 @ 1:15 PM Central — SUCCESS®, 
 [Original/Source Press Release](https://newsworthy.ai/news/202410011294/success-r-weekly-bestseller-lists-across-8-categories-for-week-ending-september-27-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/success-r-reveals-weekly-bestsellers-across-eight-categories/3bf0b8585a75b33a58a09dbb1c48201f) 
+
+ 
 
 
 

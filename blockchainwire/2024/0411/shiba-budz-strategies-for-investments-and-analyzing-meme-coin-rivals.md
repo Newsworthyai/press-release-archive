@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/shiba-budz-strategies-for-investments-and-analyzing-meme-coin-rivals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/navigating-bonkonomics-the-rise-of-shiba-budz-budz/fd7443abfcfe898ae6f5d47115c750b2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/shiba-budz-the-new-challenger-in-the-meme-coin-market)
+ 
 
 
 

@@ -27,7 +27,11 @@ For those who wish to learn more specifics about our protocols, or inquire about
 [Original/Source Press Release](https://newsworthy.ai/news/20231227943/ibogaine-clinic-inc-unveils-details-on-landmark-approach-to-addiction-treatment-through-dopamine-regulation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ibogaine-clinic-inc-introduces-innovative-approach-to-combat-addiction/6c533d6cd3c4f9063ef2bf1fc4d53f7c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/27/ibogaine-clinic-inc-pioneers-dopamine-regulation-for-addiction-treatment)
+ 
 
 
 

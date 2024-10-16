@@ -57,7 +57,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/is-institutional-adoption-next-speculations-arise-as-private-businesses-eyeing-blockdag-investment-move-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/private-sector-eyes-blockdag-network-potential-100-million-investment-in-sight/bdba3306c133f519ef2d33898ed43b30) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/private-sector-eyes-blockdag-network-potential-100-million-investment-in-sight)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/private-sector-eyes-blockdag-network-potential-100-million-investment-in-sight)
+ 
 
 
 

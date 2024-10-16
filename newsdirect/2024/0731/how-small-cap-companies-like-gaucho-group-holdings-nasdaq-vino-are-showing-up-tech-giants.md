@@ -53,7 +53,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-small-cap
 [Original/Source Press Release](https://newsdirect.com/news/how-small-cap-companies-like-gaucho-group-holdings-nasdaq-vino-are-showing-up-tech-giants-914499621)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/small-caps-surge-gaucho-group-holdings-positioned-to-benefit/50e3ed5201d7b945e00397408d0c450d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/small-cap-stocks-outperform-tech-giants-as-gaucho-group-holdings-benefits-from-market-shift)
+
+Pickup - [fishervista.com](https://fishervista.com/en/small-cap-companies-like-gaucho-group-holdings-nasdaq-vino-outperform-tech-giants-amid-market-shift/20245392)
+
+Pickup - [advos.io](https://advos.io/en/small-cap-stocks-like-gaucho-group-holdings-nasdaq-vino-outperforming-tech-giants-amid-market-rotation/20245392)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/small-cap-stocks-outperform-tech-giants-as-market-shifts)
+ 
 
 
 

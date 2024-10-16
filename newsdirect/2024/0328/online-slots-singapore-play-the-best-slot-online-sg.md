@@ -169,7 +169,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/online-slots-
 [Original/Source Press Release](https://newsdirect.com/news/online-slots-singapore-play-the-best-slot-online-sg-274336181)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/discover-the-best-real-money-slot-games-in-singapore/5252afd67a9e480186110b11920b92d9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/spinning-for-riches-a-guide-to-online-slots-in-singapore)
+ 
 
 
 

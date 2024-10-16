@@ -27,7 +27,17 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/investing-smart-ethereums-etf-progress-bitcoins-decline-and-furrever-tokens-rewards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-s-etf-progress-and-bitcoin-s-decline-furrever-token-offers-a-unique-investment-opportunity/a329bbf335c005b9db46eb7e31ae27d0) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/ethereum-s-etf-advances-bitcoin-s-decline-and-furrever-token-s-unique-investment-opportunity/20244279)
+
+Pickup - [advos.io](https://advos.io/en/ethereums-etf-momentum-bitcoins-decline-and-the-rise-of-furrever-token/20244279)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ethereum-s-etf-progress-and-bitcoin-s-decline-furrever-token-offers-a-unique-investment-opportunity)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ethereum-s-etf-progress-and-bitcoin-s-decline-furrever-token-offers-a-unique-investment-opportunity)
+ 
 
 
 

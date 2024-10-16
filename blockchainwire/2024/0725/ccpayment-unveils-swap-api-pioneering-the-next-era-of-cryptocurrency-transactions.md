@@ -39,7 +39,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/ccpayment-unveils-swap-api-pioneering-the-next-era-of-cryptocurrency-transactions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ccpayment-launches-innovative-swap-api-for-seamless-cryptocurrency-transactions/1d9e59a28c0fa665b900e1f8651ede97) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ccpayment-launches-innovative-swap-api-for-seamless-cryptocurrency-transactions)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ccpayment-launches-innovative-swap-api-for-seamless-cryptocurrency-transactions)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/ccpayment-launches-swap-api-to-revolutionize-cryptocurrency-transactions-for-merchants)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ccpayment-launches-swap-api-to-revolutionize-cryptocurrency-transactions/20245270)
+
+Pickup - [advos.io](https://advos.io/en/ccpayment-introduces-swap-api-to-streamline-cryptocurrency-transactions/20245270)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ccpayment-launches-swap-api-to-revolutionize-cryptocurrency-transactions-for-merchants)
+ 
 
 
 

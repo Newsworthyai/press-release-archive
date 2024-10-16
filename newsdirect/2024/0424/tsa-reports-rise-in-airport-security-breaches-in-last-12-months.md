@@ -79,7 +79,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/tsa-reports-r
 [Original/Source Press Release](https://newsdirect.com/news/tsa-reports-rise-in-airport-security-breaches-in-last-12-months-144220094)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tsa-reports-rise-in-airport-security-breaches/9c981f5baecd3af4beb8bbcbee9a421d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/tsa-reports-rise-in-airport-security-breaches-in-last-12-months)
+ 
 
 
 

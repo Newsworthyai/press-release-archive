@@ -102,7 +102,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/hackatron-sea
 [Original/Source Press Release](https://newsdirect.com/news/hackatron-season-6-submission-period-concludes-with-notable-achievements-996486489)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tron-dao-completes-monumental-hackatron-season-6/4f7852cfe60e75d3fec477dbf96000e9) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tron-dao-completes-monumental-hackatron-season-6)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tron-dao-completes-monumental-hackatron-season-6)
+ 
 
 
 

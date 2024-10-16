@@ -15,7 +15,11 @@ About StarkDeFi StarkDeFi is a permissionless and trustless hub of comprehensiv
 [Original/Source Press Release](https://blockchainwire.io/press-release/-starkdefis-regenesis-countdown-is-on-for-defi-solutions-hubs-campaign)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/starkdefi-regenesis-campaign-enters-final-stretch-with-gamified-approach/160e57cebc94a4f3a643e5d61ec730bd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/01/starkdefi-unveils-gamified-regenesis-campaign-for-defi-solutions-on-starknet)
+ 
 
 
 

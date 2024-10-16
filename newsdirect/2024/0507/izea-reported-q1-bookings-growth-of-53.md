@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/izea-reported
 [Original/Source Press Release](https://newsdirect.com/news/izea-reported-q1-bookings-growth-of-53-658204872)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/influencer-marketing-market-booms-izea-reports-q1-bookings-growth-of-53/9898c55773c3b0122925d5a6e06a2e95) 
+
+ 
 
 
 

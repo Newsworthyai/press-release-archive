@@ -15,7 +15,9 @@ Individuals seeking mental health services can benefit from Pacific Mind Health'
 [Original/Source Press Release](https://newsworthy.ai/news/20240118993/pacific-mind-health-offering-hope-and-relief-through-transcranial-magnetic-stimulation-tms-therapy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pacific-mind-health-introduces-innovative-mental-health-therapies/2a0f4c85fa2d1b8a60cd6afa7c84411a) 
+
+ 
 
 
 

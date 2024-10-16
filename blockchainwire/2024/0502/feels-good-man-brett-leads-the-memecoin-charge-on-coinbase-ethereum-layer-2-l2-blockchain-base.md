@@ -35,7 +35,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/feels-good-man-brett-leads-the-memecoin-charge-on-coinbase-ethereum-layer-2-l2-blockchain-base)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/popular-memecoin-brett-approaches-500-million-in-market-cap-on-coinbase-ethereum-layer-2-l2-blockchain-base/a2c4c1255699e188921c140585ddc86b) 
+
+ 
 
 
 

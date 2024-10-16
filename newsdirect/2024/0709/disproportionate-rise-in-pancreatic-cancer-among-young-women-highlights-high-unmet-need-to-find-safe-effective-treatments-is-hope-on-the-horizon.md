@@ -63,7 +63,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/disproportion
 [Original/Source Press Release](https://newsdirect.com/news/disproportionate-rise-in-pancreatic-cancer-among-young-women-highlights-high-unmet-need-to-find-safe-effective-treatments-is-hope-on-the-horizon-533142563)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-trial-offers-hope-for-pancreatic-cancer-patients/1b3a5ed64ea08dff0252e070830e4d62) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/rise-in-pancreatic-cancer-among-young-women-underscores-urgent-need-for-new-treatments/20244798)
+
+Pickup - [advos.io](https://advos.io/en/rising-pancreatic-cancer-rates-among-young-women-highlight-urgent-need-for-new-treatments/20244798)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/pancreatic-cancer-rates-rising-in-young-women-novel-treatment-shows-promise)
+ 
 
 
 

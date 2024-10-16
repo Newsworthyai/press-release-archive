@@ -26,7 +26,13 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/clenes-nasdaq-clnn-cnm-au8r-affects-key-biomarkers-long-term-survival-in-als-trials/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clene-announces-positive-results-of-phase-2-als-trials-for-cnm-au8/0ba304638b79cd7b9e53d0699f47f8c2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/23/clene-s-cnm-au8-shows-promise-in-als-treatment-biomarker-improvement)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/clene-s-cnm-au8-shows-promise-in-als-treatment-aims-for-accelerated-fda-approval/20246208)
+ 
 
 
 

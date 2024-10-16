@@ -69,7 +69,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/1-8-trillion-
 [Original/Source Press Release](https://newsdirect.com/news/1-8-trillion-investment-in-clean-energy-in-2023-highlights-importance-of-critical-materials-572383058)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-importance-of-critical-minerals-in-the-global-energy-transition/dd22155f5d2599bf5b774faa01169868) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/1-8-trillion-investment-in-clean-energy-emphasizes-critical-materials/20244579)
+
+Pickup - [advos.io](https://advos.io/en/1-8-trillion-investment-in-clean-energy-highlights-the-role-of-critical-materials/20244579)
+ 
 
 
 

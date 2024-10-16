@@ -7,7 +7,17 @@ DALLAS, TX, August 29, 2024 /24-7PressRelease/ -- MorganHill is pleased to annou
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513879/morganhill-launches-essential-iso-27001-internal-audit-template-for-instant-download-for-achieving-iso-2700-certification)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/morganhill-releases-new-iso-27001-internal-audit-template/f33dbc26c4641897dfc9d12532f3f87c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/morganhill-releases-iso-27001-internal-audit-template-to-streamline-certification-process)
+
+Pickup - [fishervista.com](https://fishervista.com/en/morganhill-unveils-essential-iso-27001-internal-audit-template-for-streamlined-certification/20246365)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/morganhill-releases-iso-27001-internal-audit-template-to-streamline-certification-process/20246365)
+
+Pickup - [advos.io](https://advos.io/en/morganhill-unveils-essential-iso-27001-internal-audit-template-for-streamlined-compliance/20246365)
+ 
 
 
 

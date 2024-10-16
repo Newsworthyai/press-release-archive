@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/wisas-datavau
 [Original/Source Press Release](https://newsdirect.com/news/wisas-datavault-technology-launches-academic-credential-verification-platform-for-universities-aims-to-licence-20-30-to-institutions-by-2025-622369122)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wisa-s-datavault-technology-launches-academic-credential-verification-platform-for-universities/0dd45829dd5b1b471b8aebd06de0b291) 
+
+ 
 
 
 

@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/cwg-markets-p
 [Original/Source Press Release](https://newsdirect.com/news/cwg-markets-pioneering-the-future-of-trading-platforms-with-dual-regulation-and-cutting-edge-technology-603061405)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cwg-markets-revolutionizing-trading-industry-with-advanced-technology-and-transparency-commitment/580272852caba26b776f8f26b6d72ddb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/cwg-markets-leads-trading-industry-with-dual-regulation-and-advanced-technology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cwg-markets-sets-new-standard-in-trading-with-dual-regulation-and-advanced-technology/20246311)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cwg-markets-redefines-trading-with-dual-regulation-and-advanced-technology/20246311)
+
+Pickup - [advos.io](https://advos.io/en/cwg-markets-sets-new-standards-with-dual-regulation-and-advanced-trading-technology/20246311)
+ 
 
 
 

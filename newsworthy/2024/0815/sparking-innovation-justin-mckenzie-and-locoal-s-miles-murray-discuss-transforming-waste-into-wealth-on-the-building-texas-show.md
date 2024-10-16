@@ -25,7 +25,17 @@ For more information about the podcast, visit www.buildingtexasshow.comTo learn 
 [Original/Source Press Release](https://newsworthy.ai/news/202408151236/sparking-innovation-justin-mckenzie-and-locoal-s-miles-murray-discuss-transforming-waste-into-wealth-on-the-building-texas-show)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-building-texas-show-spotlights-locoal-s-sustainable-innovations/bd876d7b1394fdc2b44a407c99bf8b89) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/locoal-s-innovative-waste-to-resource-technology-highlighted-on-the-building-texas-show)
+
+Pickup - [fishervista.com](https://fishervista.com/en/locoal-s-miles-murray-shares-vision-for-sustainable-waste-management-on-the-building-texas-show/20245765)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/locoal-s-innovative-waste-to-resource-technology-highlighted-on-the-building-texas-show/20245765)
+
+Pickup - [advos.io](https://advos.io/en/locoal-s-miles-murray-discusses-transformative-waste-management-on-the-building-texas-show/20245765)
+ 
 
 
 

@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ocean-innovat
 [Original/Source Press Release](https://newsdirect.com/news/ocean-innovates-bitcoin-miners-offered-first-ever-lightning-payouts-using-bolt12-946331135)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ocean-innovates-bitcoin-miners-offered-first-ever-lightning-payouts-using-bolt12/efe594bbcbeabbfbb7dd98300adae61a) 
+
+ 
 
 
 

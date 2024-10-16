@@ -35,7 +35,19 @@ Oracle PartnerNetwork (OPN) is Oracle’s partner program designed to enable par
 [Original/Source Press Release](https://newsworthy.ai/news/202409041254/rchilli-a-sponsor-and-exhibitor-at-oracle-cloudworld-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-to-showcase-ai-powered-recruitment-solutions-at-oracle-cloudworld-2024/b7c09810257eb929314c9a82fde3e529) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/rchilli-to-showcase-ai-powered-recruitment-solutions-at-oracle-cloudworld-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rchilli-to-showcase-ai-driven-recruitment-solutions-at-oracle-cloudworld-2024/20246509)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/rchilli-to-showcase-ai-driven-recruitment-solutions-at-oracle-cloudworld-2024/20246509)
+
+Pickup - [advos.io](https://advos.io/en/rchilli-to-showcase-ai-driven-recruitment-solutions-at-oracle-cloudworld-2024/20246509)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-to-showcase-ai-powered-recruitment-solutions-at-oracle-cloudworld-2024/20246509)
+ 
 
 
 

@@ -7,7 +7,11 @@ TUALATIN, OR, June 06, 2024 /24-7PressRelease/ -- Craft Holsters, a leading dist
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511455/craft-holsters-introduces-comprehensive-glock-guides-for-all-glock-enthusiasts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/craft-holsters-releases-comprehensive-glock-guides-and-holsters/c018401607f544a3ca8e7dd121f355d3) 
+
+
+Pickup - [advos.io](https://advos.io/en/craft-holsters-unveils-comprehensive-glock-guides-for-enthusiasts/20243867)
+ 
 
 
 

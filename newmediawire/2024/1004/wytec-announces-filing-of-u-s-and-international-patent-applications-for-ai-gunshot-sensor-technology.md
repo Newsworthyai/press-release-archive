@@ -33,7 +33,9 @@ eperez@wytecintl.com
 [Original/Source Press Release](https://www.newmediawire.com/news/wytec-announces-filing-of-u-s-and-international-patent-applications-for-ai-gunshot-sensor-technology-7076160)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wytec-international-inc-submits-five-new-patent-applications-for-ai-gunshot-and-sensor-technology/73d3c3a0560bdbe5231456bc14653eb8) 
+
+ 
 
 
 

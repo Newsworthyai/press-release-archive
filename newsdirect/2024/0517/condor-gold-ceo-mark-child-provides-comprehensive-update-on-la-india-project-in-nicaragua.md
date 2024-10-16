@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/condor-gold-c
 [Original/Source Press Release](https://newsdirect.com/news/condor-gold-ceo-mark-child-provides-comprehensive-update-on-la-india-project-in-nicaragua-448262199)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/condor-gold-ceo-mark-child-provides-detailed-update-on-la-india-project-in-nicaragua/68dd3fdee933f982bce1d70f92ed010b) 
+
+ 
 
 
 

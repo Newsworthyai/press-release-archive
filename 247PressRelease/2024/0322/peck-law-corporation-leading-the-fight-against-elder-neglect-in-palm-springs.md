@@ -7,7 +7,11 @@ LOS ANGELES, CA, March 22, 2024 /24-7PressRelease/ -- Peck Law Corporation stand
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509480/peck-law-corporation-leading-the-fight-against-elder-neglect-in-palm-springs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/premier-elder-neglect-attorney-firm-in-palm-springs-offers-unmatched-legal-representation/cb6f1a324e1d2318b1376b710ca3a855) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/peck-law-corporation-championing-justice-for-vulnerable-seniors-in-palm-springs)
+ 
 
 
 

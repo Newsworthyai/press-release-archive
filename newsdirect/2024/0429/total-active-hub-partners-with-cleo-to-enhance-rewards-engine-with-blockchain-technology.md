@@ -42,7 +42,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/total-active-
 [Original/Source Press Release](https://newsdirect.com/news/total-active-hub-partners-with-cleo-to-enhance-rewards-engine-with-blockchain-technology-580616136)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/total-active-hub-partners-with-cleo-to-enhance-rewards-engine-with-blockchain-technology/a1892b5ae416a59bfb3c79d5e816542a) 
+
+ 
 
 
 

@@ -45,7 +45,11 @@ For more information please visit our Website at: https://tonbridgeglobal.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/tonbridge-global-celebrates-exponential-growth-in-2023-and-strategic-market-expansion-ahead)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tonbridge-global-redefining-excellence-in-financial-trading/a89331166ef9880fb57a3d7419e207e0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/02/tonbridge-global-celebrates-remarkable-growth-and-strategic-expansion)
+ 
 
 
 

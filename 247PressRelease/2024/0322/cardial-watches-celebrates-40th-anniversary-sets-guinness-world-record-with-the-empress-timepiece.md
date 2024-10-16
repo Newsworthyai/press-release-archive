@@ -7,7 +7,11 @@ DUBAI, UAE, March 22, 2024 /24-7PressRelease/ -- Cardial Watches, an acclaimed S
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509453/cardial-watches-celebrates-40th-anniversary-sets-guinness-world-record-with-the-empress-timepiece)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cardial-watches-sets-new-guinness-world-record-with-the-empress-watch/3ebd7c0231042e980dc916f5736cddf3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/cardial-watches-celebrates-40-years-with-record-breaking-the-empress-timepiece)
+ 
 
 
 

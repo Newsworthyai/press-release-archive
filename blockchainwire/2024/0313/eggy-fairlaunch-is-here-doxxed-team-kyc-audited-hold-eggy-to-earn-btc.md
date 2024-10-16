@@ -9,7 +9,11 @@ This distribution of BTC is calculated based on the volume of buys, with a perce
 [Original/Source Press Release](https://blockchainwire.io/press-release/eggy-fairlaunch-is-here---doxxed-team---kyc--audited---hold-eggy-to-earn-btc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/invest-in-eggy-for-bitcoin-reflections-and-long-term-growth-potential/07e715a20b4d8c9492be793419bc9a1b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/13/revolutionizing-crypto-investments-eggy-offers-bitcoin-reflections-and-meme-token-growth)
+ 
 
 
 

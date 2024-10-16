@@ -13,7 +13,9 @@ Toobit’s mission is clear: to not only respond to threats but to proactively p
 [Original/Source Press Release](https://blockchainwire.io/press-release/toobit-drives-the-future-of-exchange-security-with-cutting-edge-solutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/toobit-sets-new-standards-in-digital-asset-security/5c2b34efa93e90ef660ab1b425ae3a18) 
+
+ 
 
 
 

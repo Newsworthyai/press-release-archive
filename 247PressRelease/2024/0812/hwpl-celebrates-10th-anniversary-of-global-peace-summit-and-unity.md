@@ -7,7 +7,17 @@ BRISBANE, AUSTRALIA, August 12, 2024 /24-7PressRelease/ -- On 18 September 2024,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513312/hwpl-celebrates-10th-anniversary-of-global-peace-summit-and-unity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hwpl-world-peace-summit-celebrates-10th-anniversary-with-global-leaders/82e3115f72ca4d253f1013c68ba906c6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/global-peace-organization-hwpl-marks-decade-of-unity-with-10th-anniversary-summit)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hwpl-celebrates-decade-of-global-peace-initiatives/20245644)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hwpl-world-peace-summit-marks-10-years-of-global-unity-and-collaboration/20245644)
+
+Pickup - [advos.io](https://advos.io/en/hwpl-celebrates-10th-anniversary-of-global-peace-summit/20245644)
+ 
 
 
 

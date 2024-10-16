@@ -49,7 +49,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/standard-char
 [Original/Source Press Release](https://newsdirect.com/news/standard-chartered-predicts-ethereum-to-reach-8k-coinbase-to-list-fantom-futures-kangamoon-skyrockets-180-769230268)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kangamoon-kang-price-surge-gives-early-investors-180-roi/6bbcac45e0246098843f742a7e3c5411) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/kangamoon-soars-180-as-ethereum-and-fantom-futures-gain-traction)
+ 
 
 
 

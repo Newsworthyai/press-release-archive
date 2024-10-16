@@ -27,7 +27,17 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-announces-landmark-agreement-providing-exposure-to-middle-east/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-announces-210-million-ev-contract-with-volt-mobility/42b6ae7790166b891a55600557de56ef) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/mullen-automotive-secures-210-million-contract-with-uae-s-volt-mobility/20246206)
+
+Pickup - [advos.io](https://advos.io/en/mullen-automotive-secures-210-million-contract-with-uae-s-volt-mobility/20246206)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/mullen-automotive-secures-210-million-contract-for-ev-delivery-in-middle-east)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/mullen-automotive-secures-210-million-contract-with-uae-s-volt-mobility-for-ev-fleet/20246206)
+ 
 
 
 

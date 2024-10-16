@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-historical-innovation-with-joseph-of-egypt-a-unique-investment-journey)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/joseph-of-egypt-joe-reviving-history-through-blockchain-innovation/f662a3ba648b11321369e15fb19f5099) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/05/discover-historical-innovation-with-joseph-of-egypt-a-unique-investment-journey)
+ 
 
 
 

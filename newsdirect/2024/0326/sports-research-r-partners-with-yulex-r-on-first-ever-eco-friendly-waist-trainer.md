@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/sports-resear
 [Original/Source Press Release](https://newsdirect.com/news/sports-research-r-partners-with-yulex-r-on-first-ever-eco-friendly-waist-trainer-992404889)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sports-research-introduces-eco-friendly-sweet-sweat-r-waist-trainer-made-with-yulex-r-technology/ba614a7bb99d36eb1d745489e2178ef8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/sports-research-launches-eco-friendly-sweet-sweat-waist-trainer-with-yulex-technology)
+ 
 
 
 

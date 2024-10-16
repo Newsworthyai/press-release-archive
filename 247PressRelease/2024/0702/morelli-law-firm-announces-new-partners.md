@@ -7,7 +7,15 @@ NEW YORK, NY, July 02, 2024 /24-7PressRelease/ -- Morelli Law Firm is proud to a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512196/morelli-law-firm-announces-new-partners)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/morelli-law-firm-announces-promotions-and-elevations-of-key-attorneys/ffbdfb3df37a7cd8ba9033e7698c9002) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/morelli-law-firm-promotes-three-attorneys-to-partner-and-elevates-two-to-managing-partner/20244641)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/morelli-law-firm-announces-partner-promotions-and-leadership-changes)
+
+Pickup - [advos.io](https://advos.io/en/morelli-law-firm-announces-new-partners-and-managing-partners/20244641)
+ 
 
 
 

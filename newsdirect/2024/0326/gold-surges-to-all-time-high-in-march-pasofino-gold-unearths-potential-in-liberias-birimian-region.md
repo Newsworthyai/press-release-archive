@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/gold-surges-t
 [Original/Source Press Release](https://newsdirect.com/news/gold-surges-to-all-time-high-in-march-pasofino-gold-unearths-potential-in-liberias-birimian-region-241551587)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-prices-surge-to-all-time-high-in-march-liberia-s-gold-potential-unearthed/dec1c56c88d901051abe36de4fc86eca) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/liberia-s-untapped-gold-potential-shines-amid-record-high-prices)
+ 
 
 
 

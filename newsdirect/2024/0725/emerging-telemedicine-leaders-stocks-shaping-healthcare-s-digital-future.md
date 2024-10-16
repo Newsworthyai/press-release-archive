@@ -69,7 +69,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/emerging-tele
 [Original/Source Press Release](https://newsdirect.com/news/emerging-telemedicine-leaders-stocks-shaping-healthcares-digital-future-902917776)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/telemedicine-stocks-set-to-capitalize-on-booming-market/230849105c387e62b298c1ce9e1e8874) 
+
+ 
 
 
 

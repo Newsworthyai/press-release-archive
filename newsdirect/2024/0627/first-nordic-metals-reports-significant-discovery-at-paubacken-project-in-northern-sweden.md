@@ -19,7 +19,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/first-nordic-
 [Original/Source Press Release](https://newsdirect.com/news/first-nordic-metals-reports-significant-discovery-at-paubacken-project-in-northern-sweden-816635712)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/first-nordic-metals-ceo-announces-major-gold-discovery-in-northern-sweden/2877a1c7b3719028f347b7d0fa5b5139) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/first-nordic-metals-announces-major-gold-discovery-at-paubacken-project-in-northern-sweden/20244550)
+
+Pickup - [advos.io](https://advos.io/en/first-nordic-metals-unveils-major-gold-discovery-in-northern-sweden/20244550)
+ 
 
 
 

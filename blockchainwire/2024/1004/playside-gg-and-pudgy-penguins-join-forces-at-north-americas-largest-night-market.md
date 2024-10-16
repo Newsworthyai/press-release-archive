@@ -21,7 +21,9 @@ PLAYSIDE.gg is a gaming rewards platform founded by Wil Lee and Cass Chan of the
 [Original/Source Press Release](https://blockchainwire.io/press-release/playsidegg-and-pudgy-penguins-join-forces-at-north-americas-largest-night-market)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pudgy-penguins-and-playside-gg-bring-interactive-gameplay-and-prizes-to-richmond-night-market/d7f8974943f7e97ed4d53cb77bb687e4) 
+
+ 
 
 
 

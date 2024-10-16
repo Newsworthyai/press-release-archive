@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ashkenazy-acq
 [Original/Source Press Release](https://newsdirect.com/news/ashkenazy-acquisition-corp-transforms-vernon-hills-retail-village-744725049)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ashkenazy-acquisition-corp-transforms-vernon-hills-retail-village/82f02b7ab972a8c88792173d888ba0d5) 
+
+ 
 
 
 

@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/axmed-raises-
 [Original/Source Press Release](https://newsdirect.com/news/axmed-raises-2-million-to-transform-access-to-critical-medicines-in-low-and-middle-income-countries-911007690)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/axmed-raises-2-million-to-transform-access-to-critical-medicines-in-lmics/7632f0335f8810ecff86e8550a79f358) 
+
+ 
 
 
 

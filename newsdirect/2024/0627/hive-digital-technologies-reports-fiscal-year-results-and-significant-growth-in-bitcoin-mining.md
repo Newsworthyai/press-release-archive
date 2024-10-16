@@ -19,7 +19,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/hive-digital-
 [Original/Source Press Release](https://newsdirect.com/news/hive-digital-technologies-reports-fiscal-year-results-and-significant-growth-in-bitcoin-mining-104088212)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hive-digital-technologies-reports-impressive-financial-results-and-bitcoin-mining-growth/0677978dcde94fc24799822163acd210) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/hive-digital-technologies-reports-strong-fiscal-year-and-expansion-in-bitcoin-mining/20244551)
+
+Pickup - [advos.io](https://advos.io/en/hive-digital-technologies-announces-strong-fiscal-year-results-and-significant-bitcoin-mining-expansion/20244551)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/hive-digital-technologies-reports-impressive-financial-results-and-bitcoin-mining-growth)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/hive-digital-technologies-reports-impressive-financial-results-and-bitcoin-mining-growth)
+ 
 
 
 

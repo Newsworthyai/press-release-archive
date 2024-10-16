@@ -7,7 +7,17 @@ ST. LOUIS, MO, September 10, 2024 /24-7PressRelease/ -- Missouri trial attorney 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514164/st-louis-attorney-brent-a-sumner-recognized-by-the-best-lawyers-in-america-for-plaintiffs-personal-injury-litigation-medical-malpractice-and-products-liability-litigation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brent-a-sumner-recognized-by-the-best-lawyers-in-america/5874fac47d20f5f1b5ce7a8ddbb63808) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/st-louis-attorney-brent-a-sumner-recognized-by-the-best-lawyers-in-america-in-multiple-categories)
+
+Pickup - [fishervista.com](https://fishervista.com/en/st-louis-attorney-brent-a-sumner-honored-by-the-best-lawyers-in-america/20246649)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/st-louis-attorney-brent-a-sumner-recognized-in-three-categories-by-the-best-lawyers-in-america/20246649)
+
+Pickup - [advos.io](https://advos.io/en/st-louis-attorney-brent-a-sumner-honored-by-best-lawyers-in-america/20246649)
+ 
 
 
 

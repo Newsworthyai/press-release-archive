@@ -9,7 +9,11 @@ Embrace Innovation with SOLONG: Discover the transformative power of SOLONG, a c
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-original-dragon-coin-on-sol-solong---presale-live-on-pinksale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solong-cryptocurrency-embrace-innovation-in-2024/924b4aa1da0da5f2eef4cbea5997ebfc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/13/unleash-the-power-of-solong-the-solana-based-cryptocurrency-revolutionizing-digital-finance)
+ 
 
 
 

@@ -7,7 +7,9 @@ AIKEN, SC, October 05, 2024 /24-7PressRelease/ -- In a landmark decision, an Aik
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514971/45-million-verdict-in-landmark-case-against-vacation-property-rentals-voyeur)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/landmark-decision-aiken-county-jury-awards-45-million-in-damages-in-secret-recording-case/e2c330172562c0b859b932bd9cb80de3) 
+
+ 
 
 
 

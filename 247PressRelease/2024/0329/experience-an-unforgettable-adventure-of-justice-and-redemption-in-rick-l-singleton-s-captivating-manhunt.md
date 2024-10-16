@@ -7,7 +7,11 @@ KILLEN, AL, March 29, 2024 /24-7PressRelease/ -- Renowned author Rick L. Singlet
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509651/experience-an-unforgettable-adventure-of-justice-and-redemption-in-rick-l-singletons-captivating-manhunt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-author-rick-l-singleton-releases-latest-masterpiece-manhunt/6ed92d8035dbe3e0c8c8ad531b482650) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/manhunt-a-gripping-tale-of-pursuit-and-justice)
+ 
 
 
 

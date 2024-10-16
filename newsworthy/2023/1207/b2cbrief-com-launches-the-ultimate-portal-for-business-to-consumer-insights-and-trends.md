@@ -23,7 +23,11 @@ Explore the ever-evolving B2C landscape at www.B2CBrief.com. Dive deep, discover
 [Original/Source Press Release](https://newsworthy.ai/news/20231207777/b2cbrief-com-launches-the-ultimate-portal-for-business-to-consumer-insights-and-trends)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-b2cbrief-com-launches-shaping-the-future-of-b2c-business/06e7a1d71cdac08b79c174f040b5ebe6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/07/b2cbrief-com-emerges-as-premier-b2c-knowledge-hub)
+ 
 
 
 

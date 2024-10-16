@@ -17,7 +17,21 @@ You can find Luigi’s digital twin on the European Gymnastics website.
 [Original/Source Press Release](https://blockchainwire.io/press-release/championing-european-gymnastics-with-borderless-knowledge-enabled-by-artificial-intelligence-and-origintrail)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/european-gymnastics-launches-ai-assistant-luigi-to-promote-community-synergy/96a97c704b00ec0f4c92386388f9b334) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/european-gymnastics-launches-ai-powered-digital-assistant-to-promote-sport-and-community)
+
+Pickup - [fishervista.com](https://fishervista.com/en/european-gymnastics-launches-ai-assistant-luigi-to-foster-community-engagement/20245297)
+
+Pickup - [advos.io](https://advos.io/en/european-gymnastics-introduces-ai-assistant-luigi-for-enhanced-community-engagement/20245297)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/european-gymnastics-launches-ai-assistant-luigi-to-promote-community-synergy)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/european-gymnastics-launches-ai-assistant-luigi-to-promote-community-synergy)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/european-gymnastics-launches-ai-assistant-to-enhance-community-engagement-and-knowledge-sharing)
+ 
 
 
 

@@ -29,7 +29,9 @@ Associate Executive ProducersMike Cislo, Eli the coffee guy, Kayce Konrad, Dan R
 [Original/Source Press Release](https://newsworthy.ai/news/202410141319/no-agenda-hosts-claim-we-ve-got-a-lot-of-bad-genes-in-our-country-trump-s-words-spark-controversy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/no-agenda-podcast-analyzes-trump-s-controversial-statement-and-encourages-critical-thinking/4ab9124aeba43594332da8674369cb69) 
+
+ 
 
 
 

@@ -43,7 +43,9 @@ Follow “420 Expo” on Instagram, X/Twitter, and Facebook @the420expos.
 [Original/Source Press Release](https://newsworthy.ai/news/202409101257/420-expo-the-garden-states-premier-consumer-cannabis-convention-takes-place-september-13-15-2024-in-edison-new-jersey)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wakit-grinders-presents-third-annual-420-expo-in-new-jersey/f0f5095e0907cc8c974fecbce1c0c690) 
+
+ 
 
 
 

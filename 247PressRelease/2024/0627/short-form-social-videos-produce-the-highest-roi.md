@@ -7,7 +7,13 @@ BOULDER, CO, June 27, 2024 /24-7PressRelease/ -- We can produce and promote cost
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512071/short-form-social-videos-produce-the-highest-roi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/channelpartner-tv-integrates-gpt-4o-with-kill-switch-feature/606bd1731b852b4b8d3e8da120268dd6) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/channelpartner-tv-accelerates-ai-video-network-integration-with-gpt-4o/20244518)
+
+Pickup - [advos.io](https://advos.io/en/channelpartner-tv-unveils-new-ai-powered-video-network-platform/20244518)
+ 
 
 
 

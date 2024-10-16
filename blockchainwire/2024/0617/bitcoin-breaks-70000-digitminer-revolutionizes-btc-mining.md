@@ -59,7 +59,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-breaks-70000-digitminer-revolutionizes-btc-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-soars-to-65000-sparking-interest-in-digitminer-btc-mining/7e866a184d268946172c98551927ec27) 
+
+
+Pickup - [advos.io](https://advos.io/en/bitcoin-surges-past-70000-digitminer-offers-innovative-btc-mining-solution/20244211)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-soars-to-65000-sparking-interest-in-digitminer-btc-mining)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-soars-to-65000-sparking-interest-in-digitminer-btc-mining)
+ 
 
 
 

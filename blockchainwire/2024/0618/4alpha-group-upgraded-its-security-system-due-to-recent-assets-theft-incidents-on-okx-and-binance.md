@@ -33,7 +33,17 @@ Disclaimer: This press release may contain forward-looking statements. Forward-l
 [Original/Source Press Release](https://blockchainwire.io/press-release/4alpha-group-upgraded-its-security-system-due-to-recent-assets-theft-incidents-on-okx-and-binance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/4alpha-group-takes-swift-action-to-enhance-crypto-asset-security/ea5f5ec7b8f87dbbb9ae9be7e38e6de1) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/4alpha-group-bolsters-security-following-major-crypto-theft-incidents/20244260)
+
+Pickup - [advos.io](https://advos.io/en/4alpha-group-upgrades-security-system-following-recent-asset-theft-incidents-on-okx-and-binance/20244260)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/4alpha-group-takes-swift-action-to-enhance-crypto-asset-security)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/4alpha-group-takes-swift-action-to-enhance-crypto-asset-security)
+ 
 
 
 

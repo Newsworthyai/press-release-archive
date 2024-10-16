@@ -7,7 +7,11 @@ ARLINGTON HEIGHTS, IL, April 19, 2024 /24-7PressRelease/ -- This year marks the 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510201/the-law-offices-of-rf-wittmeyer-celebrates-40-years-of-advocacy-community-service-and-legal-excellence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/law-offices-of-r-f-wittmeyer-ltd-celebrates-40-years-of-legal-advocacy/b4035c842090b155a938f4cd8fd10104) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/the-law-offices-of-r-f-wittmeyer-celebrates-40-years-of-advocacy-community-service-and-legal-excellence)
+ 
 
 
 

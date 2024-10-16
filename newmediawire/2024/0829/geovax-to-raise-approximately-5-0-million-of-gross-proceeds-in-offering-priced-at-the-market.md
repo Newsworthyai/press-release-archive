@@ -29,7 +29,13 @@ ATLANTA, GA - ![](https://app.newmediawire.com/track/66cfc13ada846f306ac04520/6
 [Original/Source Press Release](https://www.newmediawire.com/news/geovax-to-raise-approximately-5-0-million-of-gross-proceeds-in-offering-priced-at-the-market-7075974)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/geovax-labs-inc-announces-securities-purchase-agreement-with-institutional-investor/d1ef2ce305b67a16a8266ef95510570f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/geovax-secures-5-million-in-registered-direct-offering-to-advance-vaccine-development)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/geovax-secures-5-million-in-registered-direct-offering-to-advance-biotechnology-initiatives/20246450)
+ 
 
 
 

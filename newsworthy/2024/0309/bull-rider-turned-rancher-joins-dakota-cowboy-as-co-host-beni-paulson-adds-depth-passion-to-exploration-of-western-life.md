@@ -27,7 +27,11 @@ For more information, log onto bek.tv and bek.news.
 [Original/Source Press Release](https://newsworthy.ai/news/202403091113/bull-rider-turned-rancher-joins-dakota-cowboy-as-co-host-beni-paulson-adds-depth-passion-to-exploration-of-western-life)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-bull-rider-joins-bek-tv-s-dakota-cowboy-as-co-host/857b8cd9f6ff84fe1f44905a24478520) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/09/bull-rider-turned-rancher-joins-dakota-cowboy-as-co-host)
+ 
 
 
 

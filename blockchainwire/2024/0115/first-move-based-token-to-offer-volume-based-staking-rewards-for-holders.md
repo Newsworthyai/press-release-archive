@@ -7,7 +7,11 @@
 [Original/Source Press Release](https://blockchainwire.io/press-release/first-move-based-token-to-offer-volume-based-staking-rewards-for-holders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mau-token-achieves-milestone-with-volume-based-staking-on-baptswap/fcb430eba4ec7924ec02ec7e06df66dc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/15/mau-token-pioneers-volume-based-staking-for-move-based-blockchains)
+ 
 
 
 

@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/lumina-gold-c
 [Original/Source Press Release](https://newsdirect.com/news/lumina-gold-ceo-discusses-impact-of-rising-gold-prices-on-project-valuations-780065807)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lumina-gold-ceo-discusses-impact-of-rising-gold-prices-on-project-valuations/df1320422ed9d2a922a85147227be0ab) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/lumina-gold-ceo-discusses-impact-of-rising-gold-prices-on-project-valuations)
+ 
 
 
 

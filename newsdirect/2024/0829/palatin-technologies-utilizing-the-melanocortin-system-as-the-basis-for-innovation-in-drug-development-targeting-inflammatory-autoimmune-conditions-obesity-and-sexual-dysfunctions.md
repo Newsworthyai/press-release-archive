@@ -68,7 +68,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/palatin-techn
 [Original/Source Press Release](https://newsdirect.com/news/palatin-technologies-utilizing-the-melanocortin-system-as-the-basis-for-innovation-in-drug-development-targeting-inflammatory-and-autoimmune-conditions-obesity-and-sexual-dysfunctions-778509273)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/palatin-technologies-receives-first-fda-approval-for-melanocortin-agent-vyleesi-r/75dfa6bb4a931b9c457ccc5491df14cf) 
+
+ 
 
 
 

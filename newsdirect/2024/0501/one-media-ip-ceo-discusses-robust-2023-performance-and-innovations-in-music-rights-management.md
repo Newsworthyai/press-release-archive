@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/one-media-ip-
 [Original/Source Press Release](https://newsdirect.com/news/one-media-ip-ceo-discusses-robust-2023-performance-and-innovations-in-music-rights-management-722712184)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/one-media-ip-ceo-discusses-robust-2023-performance-and-innovations-in-music-rights-management/083d2cc8facc05f112259691bf8692e0) 
+
+ 
 
 
 

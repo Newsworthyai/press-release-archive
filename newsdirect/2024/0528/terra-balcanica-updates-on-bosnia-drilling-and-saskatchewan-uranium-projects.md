@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/terra-balcani
 [Original/Source Press Release](https://newsdirect.com/news/terra-balcanica-updates-on-bosnia-drilling-and-saskatchewan-uranium-projects-782129020)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/terra-balcanica-provides-exciting-update-on-exploration-drilling-and-uranium-projects/60b355c733c09e27bbd399cda8f7d2de) 
+
+ 
 
 
 

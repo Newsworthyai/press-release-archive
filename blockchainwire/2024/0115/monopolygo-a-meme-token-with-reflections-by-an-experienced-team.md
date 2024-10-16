@@ -11,7 +11,11 @@ Who are the behind project?An extremely successful team with track record  of 3
 [Original/Source Press Release](https://blockchainwire.io/press-release/monopolygo--a-meme-token-with-reflections-by-an-experienced-team)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-the-monopoly-meme-token-go-a-digital-marvel-for-modern-gaming/06b4671b5d634765414acc8dde7f5548) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/15/monopoly-go-a-meme-token-fusing-classic-gaming-with-cryptocurrency)
+ 
 
 
 

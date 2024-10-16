@@ -41,7 +41,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/soex-creates-an-all-in-one-social-trading-ecosystem-with-cexdexdefi-aggregation-and-social-interactions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/soex-launches-integrated-social-trading-ecosystem-with-multi-token-strategy/47ff880d67fe223ed9e302bbd52f9a0f) 
+
+
+Pickup - [advos.io](https://advos.io/en/soex-introduces-comprehensive-social-trading-ecosystem-with-cex-dex-defi-integration/20243996)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/soex-launches-integrated-social-trading-ecosystem-with-multi-token-strategy)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/soex-launches-integrated-social-trading-ecosystem-with-multi-token-strategy)
+ 
 
 
 

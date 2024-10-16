@@ -25,7 +25,11 @@ X (Twitter) | Discord | YouTube
 [Original/Source Press Release](https://blockchainwire.io/press-release/sx-network-closes-successful-strategic-funding-round)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sx-network-secures-strategic-funding-round-plans-cross-chain-expansion/62103e2666699f6760e8b60c29d0c2ea) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/sx-network-secures-strategic-funding-gears-up-for-cross-chain-betting-expansion)
+ 
 
 
 

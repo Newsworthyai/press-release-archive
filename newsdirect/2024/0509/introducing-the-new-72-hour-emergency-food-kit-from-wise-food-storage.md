@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/introducing-t
 [Original/Source Press Release](https://newsdirect.com/news/introducing-the-new-72-hour-emergency-food-kit-from-wise-food-storage-368418862)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wise-food-storage-launches-new-72-hour-emergency-food-kit/ae3d4e6f5600f963752b0fa48dbf02a3) 
+
+ 
 
 
 

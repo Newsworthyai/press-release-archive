@@ -7,7 +7,11 @@ CHICAGO, IL, June 05, 2024 /24-7PressRelease/ -- The solar shade consists of spe
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511422/total-shade-inc-collaborates-with-a-mit-spin-off-to-develop-flexible-ultralight-energy-efficient-solar-technologies)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/total-shade-inc-partners-with-mit-spin-off-to-develop-revolutionary-solar-shade-technology/a7ffd8e6aa2b50cd5ea16477fbbe6a73) 
+
+
+Pickup - [advos.io](https://advos.io/en/total-shade-inc-partners-with-mit-spin-off-to-revolutionize-solar-technology/20243823)
+ 
 
 
 

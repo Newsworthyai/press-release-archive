@@ -39,7 +39,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/u-s-chamber-o
 [Original/Source Press Release](https://newsdirect.com/news/u-s-chamber-of-commerce-unveils-expanded-small-business-awards-program-882833815)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-chamber-of-commerce-unveils-expanded-small-business-awards-program/c27f43057ac9aaabc67f7879ef32cf31) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/u-s-chamber-of-commerce-expands-small-business-awards-program/20244612)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/01/u-s-chamber-of-commerce-launches-co-100-to-recognize-top-small-businesses)
+
+Pickup - [advos.io](https://advos.io/en/u-s-chamber-of-commerce-expands-small-business-awards-program/20244612)
+ 
 
 
 

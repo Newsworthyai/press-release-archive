@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/world-renowne
 [Original/Source Press Release](https://newsdirect.com/news/world-renowned-neurologist-and-bestselling-author-joins-forum-healths-annual-integrative-medicine-summit-480491927)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-dale-bredesen-to-keynote-forum-health-summit-emerging-therapies-in-integrative-medicine/7b27b059c424f60c6762b8f705050bad) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/world-renowned-neurologist-and-bestselling-author-joins-forum-health-s-annual-integrative-medicine-summit)
+ 
 
 
 

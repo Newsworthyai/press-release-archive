@@ -7,7 +7,9 @@ DEKALB, IL, August 26, 2024 /24-7PressRelease/ -- 1935 CBD has set a new standar
 [Original/Source Press Release](https://www.24-7pressrelease.com/press_release/513659/1935-cbd-launches-revolutionary-relief-line-featuring-full-spectrum-cbd-roll-on-cbd-cream-and-cbd-stick)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/1935-cbd-launches-innovative-relief-product-line-for-superior-muscle-and-joint-relief/73785adea70197ef5d0a349dcce7252f) 
+
+ 
 
 
 

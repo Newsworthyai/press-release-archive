@@ -53,7 +53,13 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1550)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-print-whisperer-leads-walk-with-warren-at-printing-united-expo-2024/ae784090a300eb4f9013bf45447efa19) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/warren-werbitt-to-lead-walk-with-warren-at-printing-united-expo-2024-launches-new-book)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/print-industry-leader-warren-werbitt-to-guide-printers-at-printing-united-expo-2024/20246421)
+ 
 
 
 

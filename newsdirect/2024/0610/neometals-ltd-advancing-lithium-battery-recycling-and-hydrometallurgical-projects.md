@@ -21,7 +21,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/neometals-ltd
 [Original/Source Press Release](https://newsdirect.com/news/neometals-ltd-advancing-lithium-battery-recycling-and-hydrometallurgical-projects-777709443)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/neometals-ltd-upgrades-listing-on-otc-market-in-the-united-states/9d99551e5a6cfc84627f407f6af5ce39) 
+
+
+Pickup - [advos.io](https://advos.io/en/neometals-ltd-enhances-u-s-presence-with-otc-market-listing-upgrade/20243984)
+ 
 
 
 

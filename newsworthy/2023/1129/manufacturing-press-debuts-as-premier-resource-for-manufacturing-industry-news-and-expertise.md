@@ -23,7 +23,11 @@ To stay updated with the pulse of manufacturing, visit www.Manufacturing.press.
 [Original/Source Press Release](https://newsworthy.ai/news/20231129840/manufacturing-press-debuts-as-premier-resource-for-manufacturing-industry-news-and-expertise)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/manufacturing-press-launches-as-the-ultimate-hub-for-manufacturing-news-and-expert-insights/035007fd322e47d79ca56f1bc23f7d00) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/29/manufacturing-press-unveiled-as-premier-manufacturing-news-and-insights-hub)
+ 
 
 
 

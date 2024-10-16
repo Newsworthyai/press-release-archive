@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/royal-helium-
 [Original/Source Press Release](https://newsdirect.com/news/royal-helium-secures-6-million-in-bought-deal-offering-to-fuel-expansion-and-well-development-646614364)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/royal-helium-raises-6-million-in-bought-deal-offering-for-expansion-and-well-development/7ed0ca6ff71fb33e6a294ebdea803472) 
+
+ 
 
 
 

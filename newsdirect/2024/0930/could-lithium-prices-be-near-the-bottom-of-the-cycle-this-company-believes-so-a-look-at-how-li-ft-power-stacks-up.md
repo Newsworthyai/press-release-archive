@@ -81,7 +81,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/could-lithium
 [Original/Source Press Release](https://newsdirect.com/news/could-lithium-prices-be-near-the-bottom-of-the-cycle-this-company-believes-so-a-look-at-how-li-ft-power-stacks-up-785628588)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lithium-market-dynamics-and-li-ft-power-s-positioning/0318f81d4208c70bed83a5ba7ce0bb46) 
+
+ 
 
 
 

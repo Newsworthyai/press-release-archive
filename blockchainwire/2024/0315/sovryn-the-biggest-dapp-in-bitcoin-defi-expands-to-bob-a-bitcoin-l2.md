@@ -25,7 +25,11 @@ Visit: [www.gobob.xyz](http://www.gobob.xyz)BOB@transformgroup.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/sovryn-the-biggest-dapp-in-bitcoin-defi-expands-to-bob-a-bitcoin-l2)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sovryn-partners-with-bob-to-expand-bitcoin-defi-product-suite/7301c19b0f1301a9a396c77929e90198) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/sovryn-partners-with-bob-to-bring-bitcoin-defi-to-ethereum)
+ 
 
 
 

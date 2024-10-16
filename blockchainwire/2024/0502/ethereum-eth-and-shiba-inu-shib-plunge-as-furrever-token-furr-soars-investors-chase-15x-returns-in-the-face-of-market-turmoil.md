@@ -29,7 +29,9 @@ Media Contact:Robert Smith[https://furrevertoken.com/](https://furrevertoken.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/ethereum-eth-and-shiba-inu-shib-plunge-as-furrever-token-furr-soars-investors-chase-15x-returns-in-the-face-of-market-turmoil)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-chaos-eth-and-shib-plunge-furr-emerges-as-top-choice/0d9cf56909e77c62e5e216bf78b03a83) 
+
+ 
 
 
 

@@ -35,7 +35,11 @@ Website
 [Original/Source Press Release](https://newsworthy.ai/news/202403121115/eg-token-redefines-the-future-of-crypto-with-a-new-defi-ecosystem-and-3-7-million-donation-to-global-causes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/eg-token-launches-innovative-defi-ecosystem-with-egswap-decentralised-exchange/f26ddd0115e9684bbe0e07f909ebc602) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/eg-token-launches-innovative-defi-ecosystem-and-donates-millions-to-global-causes)
+ 
 
 
 

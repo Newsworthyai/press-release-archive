@@ -93,7 +93,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/overview-of-c
 [Original/Source Press Release](https://newsdirect.com/news/overview-of-consumer-staples-select-sector-spdr-fund-xlp-portfolio-composition-111782409)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/consumer-staples-select-sector-spdr-fund-xlp-emphasizes-investment-in-essential-goods-and-services/a9d71d2b0c65452b5ac18c61d158e5f7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/consumer-staples-select-sector-spdr-fund-xlp-showcases-resilient-portfolio-composition)
+
+Pickup - [fishervista.com](https://fishervista.com/en/consumer-staples-select-sector-spdr-fund-xlp-highlights-resilient-portfolio-composition/20245465)
+
+Pickup - [advos.io](https://advos.io/en/insight-into-consumer-staples-select-sector-spdr-fund-xlp-portfolio/20245465)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/consumer-staples-select-sector-spdr-fund-xlp-maintains-focus-on-essential-goods-and-services)
+ 
 
 
 

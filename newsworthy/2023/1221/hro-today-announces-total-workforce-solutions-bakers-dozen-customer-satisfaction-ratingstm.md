@@ -21,7 +21,13 @@ HRO Today and HRO Today Global are the properties of SharedXpertise Media and of
 [Original/Source Press Release](https://newsworthy.ai/news/20231221920/hro-today-announces-total-workforce-solutions-bakers-dozen-customer-satisfaction-ratingstm)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sharedxpertise-media-announces-hro-today-total-workforce-solutions-bakers-dozen-customer-satisfaction-ratings/f586c48f157ea02452b4969750eddd93) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hro-today-unveils-2023-total-workforce-solutions-baker-s-dozen-customer-satisfaction-ratings/2023318)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/21/hro-today-unveils-total-workforce-solutions-satisfaction-ratings)
+ 
 
 
 

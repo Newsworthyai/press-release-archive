@@ -7,7 +7,15 @@ FORT WORTH, TX, July 23, 2024 /24-7PressRelease/ -- After being let down time an
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512535/sippi-kutz-barbershop-opens-at-salon-spa-galleria)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/talented-barber-marlon-johnson-opens-sippi-kutz-barbershop-in-fort-worth/5a13b259d5bdf77d7cc43df093f310dc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/experienced-barber-marlon-johnson-opens-sippi-kutz-barbershop-in-fort-worth)
+
+Pickup - [fishervista.com](https://fishervista.com/en/veteran-barber-marlon-johnson-opens-sippi-kutz-barbershop-at-salon-spa-galleria/20245166)
+
+Pickup - [advos.io](https://advos.io/en/sippi-kutz-barbershop-opens-at-salon-spa-galleria-in-fort-worth/20245166)
+ 
 
 
 

@@ -45,7 +45,17 @@ Bismarck, ND (Newsworthy.ai) Thursday Aug 8, 2024 @ 12:00 PM Pacific — BEK TV,
 [Original/Source Press Release](https://newsworthy.ai/news/202408081230/bowling-takes-center-stage-on-bek-tv-headliners-bowling-series-premieres-aug-18)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bek-tv-and-jmar-entertainment-launch-headliners-bowling-series/e77e0f5b956ddd80059fb9ba50fdcfdd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/bek-tv-launches-nationwide-bowling-coverage-with-headliners-bowling-series)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bek-tv-launches-headliners-bowling-series-to-elevate-bowling-entertainment/20245597)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bek-tv-launches-nationwide-bowling-coverage-with-headliners-bowling-series/20245597)
+
+Pickup - [advos.io](https://advos.io/en/bek-tv-and-jmar-entertainment-launch-national-bowling-coverage/20245597)
+ 
 
 
 

@@ -7,7 +7,11 @@ ALVARADO, TX, March 19, 2024 /24-7PressRelease/ -- The 917 Industrial Park recen
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509324/brand-new-commercial-space-for-lease-in-alvarado-tx-business-park)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/917-industrial-park-completes-300000-sq-ft-expansion-offers-prime-office-warehouse-space/f8fc44094d6bbcb2844f3d81f9395ca8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/new-commercial-space-available-in-alvarado-industrial-park)
+ 
 
 
 

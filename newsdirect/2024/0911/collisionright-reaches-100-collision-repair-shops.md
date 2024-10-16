@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/collisionrigh
 [Original/Source Press Release](https://newsdirect.com/news/collisionright-reaches-100-collision-repair-shops-258802591)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/collisionright-reaches-100-collision-repair-shops-milestone/f8a59f66e98a6f569c91885d893bcd5b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/collisionright-expands-to-100-shops-sets-sights-on-tripling-revenue)
+
+Pickup - [fishervista.com](https://fishervista.com/en/collisionright-expands-to-100-locations-in-four-years-eyes-further-growth/20246742)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/collisionright-expands-to-100-shops-plans-aggressive-growth/20246742)
+
+Pickup - [advos.io](https://advos.io/en/collisionright-reaches-milestone-with-100th-collision-repair-shop/20246742)
+ 
 
 
 

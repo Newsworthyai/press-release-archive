@@ -7,7 +7,11 @@ REDMOND, WA, March 22, 2024 /24-7PressRelease/ -- It took the Redmond City Counc
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509484/community-demanding-redmond-city-council-explain-legal-ground-for-giving-away-public-land-to-plymouth-housing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/redmond-city-council-faces-scrutiny-over-land-transfer-to-non-profit/9318929c0726633816af894dca345647) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/community-demands-transparency-on-public-land-transfer)
+ 
 
 
 

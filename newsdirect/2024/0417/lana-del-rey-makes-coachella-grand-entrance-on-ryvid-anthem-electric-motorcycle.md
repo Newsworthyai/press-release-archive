@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/lana-del-rey-
 [Original/Source Press Release](https://newsdirect.com/news/lana-del-rey-makes-coachella-grand-entrance-on-ryvid-anthem-electric-motorcycle-947946536)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lana-del-rey-s-dramatic-coachella-entrance-on-ryvid-anthem-electric-motorcycle/d3b703f269efdf8623660539f7af6e2d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/lana-del-rey-makes-coachella-grand-entrance-on-ryvid-anthem-electric-motorcycle)
+ 
 
 
 

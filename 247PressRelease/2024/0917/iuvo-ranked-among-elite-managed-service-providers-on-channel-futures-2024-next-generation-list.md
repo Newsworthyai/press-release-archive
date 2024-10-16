@@ -7,7 +7,17 @@ BOSTON, MA, September 17, 2024 /24-7PressRelease/ -- iuvo has been named as one 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514345/iuvo-ranked-among-elite-managed-service-providers-on-channel-futures-2024-next-generation-list)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iuvo-named-as-premier-managed-service-provider-on-2024-next-generation-rankings/df6dd813b1db99f58406a5704943f399) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/iuvo-recognized-as-top-managed-service-provider-on-channel-futures-2024-next-generation-list)
+
+Pickup - [fishervista.com](https://fishervista.com/en/iuvo-recognized-as-top-managed-service-provider-in-channel-futures-2024-next-generation-list/20246881)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/iuvo-recognized-as-top-managed-service-provider-in-channel-futures-2024-next-generation-list/20246881)
+
+Pickup - [advos.io](https://advos.io/en/iuvo-recognized-as-top-managed-service-provider-in-channel-futures-2024-next-generation-list/20246881)
+ 
 
 
 

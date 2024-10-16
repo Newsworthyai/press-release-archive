@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-apfc-apf-coin-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-apfc-apf-coin-on-socially-infused-trading-platform/edb11f554912fabe185966990eb7fd91) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/discover-the-apfc-apf-coin-listing-on-xt-com)
+ 
 
 
 

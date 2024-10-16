@@ -38,7 +38,19 @@ About FEARNOT
 [Original/Source Press Release](https://blockchainwire.io/press-release/fearnot-a-meme-coin-will-be-initially-listed-on-coinw-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-list-fearnot-token-on-trump-zone-with-5000-usdt-bounty-program/5ed87dcefe7ca5290d1412cf99f2564f) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-to-list-fearnot-token-on-trump-zone-with-5000-usdt-bounty-program)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-to-list-fearnot-token-on-trump-zone-with-5000-usdt-bounty-program)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/coinw-exchange-to-list-fearnot-meme-coin-inspired-by-trump-s-fear-not-message)
+
+Pickup - [fishervista.com](https://fishervista.com/en/fearnot-a-trump-inspired-meme-coin-to-be-listed-on-coinw-exchange/20245061)
+
+Pickup - [advos.io](https://advos.io/en/fearnot-meme-coin-to-be-listed-on-coinw-exchange/20245061)
+ 
 
 
 

@@ -31,7 +31,21 @@ About PUPPIES
 [Original/Source Press Release](https://blockchainwire.io/press-release/puppies-a-meme-coin-will-be-listed-on-coinw-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-list-puppies-meme-coin-on-innovation-zone-with-17000-usdt-bounty-program/2b576ed323a8fd65637218694beeb16e) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-to-list-puppies-meme-coin-on-innovation-zone-with-17000-usdt-bounty-program)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-to-list-puppies-meme-coin-on-innovation-zone-with-17000-usdt-bounty-program)
+
+Pickup - [fishervista.com](https://fishervista.com/en/puppies-meme-coin-to-be-listed-on-coinw-exchange/20245316)
+
+Pickup - [advos.io](https://advos.io/en/coinw-to-list-meme-coin-puppies-launches-17000-usdt-bounty-program/20245316)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/puppies-meme-coin-set-for-major-exchange-listing-offering-17000-usdt-reward-pool)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/coinw-exchange-to-list-puppies-meme-coin-offering-17000-usdt-reward-pool)
+ 
 
 
 

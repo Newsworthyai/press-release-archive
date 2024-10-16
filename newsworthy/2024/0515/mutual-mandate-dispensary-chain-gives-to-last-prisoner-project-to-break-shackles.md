@@ -35,7 +35,9 @@ For more about this release call Bart Benne at 828-575-7516 or email media@apoth
 [Original/Source Press Release](https://newsworthy.ai/news/202405151168/dispensary-chain-helps-last-prisoner-project-break-shackles-a-mutual-mandate-for-cannabis-reform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/apotheca-dispensary-joins-forces-with-last-prisoner-project-to-fight-unjust-cannabis-sentencing/d7bc122d653b2d061c4d77dee0a1c53b) 
+
+ 
 
 
 

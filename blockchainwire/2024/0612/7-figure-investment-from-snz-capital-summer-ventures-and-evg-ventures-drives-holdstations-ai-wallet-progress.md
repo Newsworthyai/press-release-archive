@@ -33,7 +33,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/7-figure-investment-from-snz-capital-summer-ventures-and-evg-ventures-drives-holdstations-ai-wallet-progress)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/holdstation-secures-7-figure-investment-for-advancement-of-smart-ai-wallets/f788e61c6c00a0e239986dba9accba17) 
+
+
+Pickup - [advos.io](https://advos.io/en/holdstation-secures-major-investment-to-advance-ai-wallet-technology/20244087)
+ 
 
 
 

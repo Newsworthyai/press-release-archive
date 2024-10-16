@@ -7,7 +7,11 @@ CHARLOTTE, NC, April 12, 2024 /24-7PressRelease/ -- In a strategic move to enhan
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509944/par-led-lights-launches-dazzling-new-website)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/par-led-lights-unveils-new-website-with-customizable-led-lighting-solutions/35c734b7c9fe14e47b0baf6ba2a28c7c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/par-led-lights-unveils-cutting-edge-website-for-customizable-lighting-solutions)
+ 
 
 
 

@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/deutsche-gluc
 [Original/Source Press Release](https://newsdirect.com/news/deutsche-glucksspielindustrie-regulierter-markt-226279106)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/challenges-and-potential-the-state-of-german-gambling-industry/faa01c7e3011b796c60b06ea3dfb89dc) 
+
+ 
 
 
 

@@ -54,7 +54,9 @@ For more information about Odyssey and Dione Protocol’s mission, please visit 
 [Original/Source Press Release](https://blockchainwire.io/press-release/dione-protocol-launches-odyssey---an-l1-blockchain-solution-powered-entirely-by-renewable-energy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dione-protocol-launches-odyssey-blockchain-with-renewable-energy-commitment/1af50fb95a4399d6272ee09e2d5bf8ba) 
+
+ 
 
 
 

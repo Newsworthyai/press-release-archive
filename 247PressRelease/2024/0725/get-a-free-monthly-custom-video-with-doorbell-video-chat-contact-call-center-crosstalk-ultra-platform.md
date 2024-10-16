@@ -7,7 +7,17 @@ BOULDER, CO, July 25, 2024 /24-7PressRelease/ -- Get a Free Monthly Custom Video
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512816/get-a-free-monthly-custom-video-with-doorbell-video-chat-contact-call-center-crosstalk-ultra-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/get-a-free-monthly-custom-video-with-doorbell-video-chat-contact-call-center-crosstalk-ultra-platform/d37a798fc0ad6800684ec7b7ee9f7dbc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/crosstalk-ultra-launches-doorbell-video-chat-for-enhanced-customer-engagement)
+
+Pickup - [advos.io](https://advos.io/en/socialstreamingtv-unveils-free-monthly-custom-videos-via-doorbell-video-chat-platform/20245228)
+
+Pickup - [fishervista.com](https://fishervista.com/en/socialstreamingtv-com-introduces-doorbell-video-chat-platform-with-free-monthly-custom-videos/20245228)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/crosstalk-ultra-introduces-doorbell-video-chat-for-enhanced-customer-engagement)
+ 
 
 
 

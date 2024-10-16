@@ -41,7 +41,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/looking-for-a-fool-proof-crypto-mining-experience-trendsetting-blockdag-network-just-launched-its-x1-miner-app-and-its-a-game-changer-for-smart-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-launches-x1-miner-app-making-cryptocurrency-mining-accessible-to-all/a38848ce6794131c7de9498d1f4569de) 
+
+
+Pickup - [advos.io](https://advos.io/en/blockdag-network-launches-x1-miner-app-revolutionizing-smart-mining/20243957)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blockdag-network-launches-x1-miner-app-making-cryptocurrency-mining-accessible-to-all)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blockdag-network-launches-x1-miner-app-making-cryptocurrency-mining-accessible-to-all)
+ 
 
 
 

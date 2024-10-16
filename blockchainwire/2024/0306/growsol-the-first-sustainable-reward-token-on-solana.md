@@ -7,7 +7,11 @@ Introduction:Pioneers in the Solana spaceGrowSol is an innovative token in the S
 [Original/Source Press Release](https://blockchainwire.io/press-release/growsol--the-first-sustainable-reward-token-on-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/growsol-redefines-passive-income-in-solana-ecosystem/c37930d026751907cf19dabef12a78e9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/06/growsol-pioneering-sustainable-rewards-on-solana)
+ 
 
 
 

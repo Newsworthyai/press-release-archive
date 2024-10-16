@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-unveils-the-2024-global-robotics-industry-report-151276415)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-unveils-the-2024-global-robotics-industry-report/4794674fab41eda854c49c7ee1f6f583) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/16/benchmark-international-releases-comprehensive-2024-global-robotics-industry-report)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-releases-comprehensive-2024-global-robotics-industry-report/20245786)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/benchmark-international-releases-comprehensive-2024-global-robotics-industry-report/20245786)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-releases-2024-robotics-industry-report-forecasting-significant-growth/20245786)
+ 
 
 
 

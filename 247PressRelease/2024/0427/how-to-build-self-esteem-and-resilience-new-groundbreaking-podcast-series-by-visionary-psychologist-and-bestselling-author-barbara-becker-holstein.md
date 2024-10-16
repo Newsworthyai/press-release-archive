@@ -7,7 +7,9 @@ WILMINGTON, NC, April 27, 2024 /24-7PressRelease/ -- Unlike their predecessors, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510372/how-to-build-self-esteem-and-resilience-new-groundbreaking-podcast-series-by-visionary-psychologist-and-bestselling-author-barbara-becker-holstein)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-psychologist-dr-barbara-becker-holstein-launches-podcast-series-to-help-girls-build-resilience-and-self-esteem/26c65340290ab72f695db0386b8262fc) 
+
+ 
 
 
 

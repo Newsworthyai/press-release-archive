@@ -53,7 +53,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/use-crypticorns-ai-crypto-price-predictions-and-bots-to-maximize-profits)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypticorn-introduces-ai-powered-ecosystem-for-informed-crypto-trading/08ff0652ea3a5f4eae3f960c8ce79e5e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/13/crypticorn-unveils-ai-powered-crypto-trading-ecosystem)
+ 
 
 
 

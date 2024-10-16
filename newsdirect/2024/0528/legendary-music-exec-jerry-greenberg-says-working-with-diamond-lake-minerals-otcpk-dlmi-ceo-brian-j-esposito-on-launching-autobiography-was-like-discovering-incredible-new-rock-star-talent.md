@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/legendary-mus
 [Original/Source Press Release](https://newsdirect.com/news/legendary-music-exec-jerry-greenberg-says-working-with-diamond-lake-minerals-otcpk-dlmi-ceo-brian-j-esposito-on-launching-autobiography-was-like-discovering-incredible-new-rock-star-talent-875203500)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jerry-greenberg-partners-with-diamond-lake-minerals-ceo-for-autobiography-launch/71745a76e0253b3a93b735a27a91e92c) 
+
+ 
 
 
 

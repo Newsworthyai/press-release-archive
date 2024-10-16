@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/accelerate-re
 [Original/Source Press Release](https://newsdirect.com/news/accelerate-resources-locks-in-heritage-surveys-ahead-of-drilling-at-prinsep-lithium-project-308104609)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/accelerate-resources-locks-in-heritage-surveys-ahead-of-drilling-at-prinsep-lithium-project/706bbb1e9a8fe2f4d2401c94f8f77415) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/accelerate-resources-poised-for-maiden-drilling-at-prinsep-lithium-project)
+ 
 
 
 

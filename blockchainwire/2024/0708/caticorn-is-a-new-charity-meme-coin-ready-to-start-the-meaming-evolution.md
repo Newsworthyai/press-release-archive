@@ -19,7 +19,19 @@ To learn more about the Meaming Meme Evolution and Caticorn Token visit: https:/
 [Original/Source Press Release](https://blockchainwire.io/press-release/caticorn-is-a-new-charity-meme-coin-ready-to-start-the-meaming-evolution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/caticorn-announced-as-the-new-meaming-meme-in-cryptocurrency/5efdf58f01ff1c6b177e1b20be2423b2) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/caticorn-launches-philanthropic-meme-coin-to-revolutionize-cryptocurrency/20244772)
+
+Pickup - [advos.io](https://advos.io/en/caticorn-the-new-charity-meme-coin-revolutionizing-cryptocurrency-with-philanthropy/20244772)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/caticorn-new-charity-focused-cryptocurrency-aims-to-revolutionize-meme-coins)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/caticorn-announced-as-the-new-meaming-meme-in-cryptocurrency)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/caticorn-announced-as-the-new-meaming-meme-in-cryptocurrency)
+ 
 
 
 

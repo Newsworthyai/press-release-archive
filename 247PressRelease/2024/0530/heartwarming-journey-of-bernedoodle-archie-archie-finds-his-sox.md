@@ -7,7 +7,9 @@ MELVILLE, NY, May 30, 2024 /24-7PressRelease/ -- Archie, the lovable Bernedoodle
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511271/heartwarming-journey-of-bernedoodle-archie-archie-finds-his-sox)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heartwarming-journey-of-archie-the-bernedoodle/cd29b840d385dfa9a60b7ab439697011) 
+
+ 
 
 
 

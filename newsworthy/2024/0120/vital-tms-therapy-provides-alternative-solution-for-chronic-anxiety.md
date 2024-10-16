@@ -13,7 +13,11 @@ To learn more about TMS therapy or schedule an appointment, individuals are enco
 [Original/Source Press Release](https://newsworthy.ai/news/202401201002/vital-tms-therapy-provides-alternative-solution-for-chronic-anxiety)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vital-tms-therapy-introduces-tms-therapy-as-alternative-solution-for-chronic-anxiety/cc22aecb2aa8fdd90bfaa9f999cc3a8e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/20/vital-tms-therapy-offers-innovative-approach-to-treating-chronic-anxiety)
+ 
 
 
 

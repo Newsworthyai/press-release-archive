@@ -75,7 +75,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/team-1144s-ne
 [Original/Source Press Release](https://newsdirect.com/news/team-1144s-new-initiative-lead-by-nesty-delgado-launch-of-the-project-management-and-transformational-leadership-institute-914959035)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nesty-delgado-and-upr-mayaguez-launch-project-management-transformational-leadership-institute/81b768fee2cfe8107d5e0662058cca53) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/team-1144-and-upr-mayaguez-launch-project-management-transformational-leadership-institute)
+
+Pickup - [fishervista.com](https://fishervista.com/en/team-1144-and-upr-mayaguez-launch-project-management-transformational-leadership-institute/20246796)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/team-1144-and-upr-mayaguez-launch-project-management-institute-to-boost-puerto-rico-s-development/20246796)
+
+Pickup - [advos.io](https://advos.io/en/team-1144-and-upr-mayaguez-launch-project-management-transformational-leadership-institute/20246796)
+ 
 
 
 

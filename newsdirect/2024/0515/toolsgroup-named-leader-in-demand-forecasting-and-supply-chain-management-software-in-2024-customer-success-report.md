@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/toolsgroup-na
 [Original/Source Press Release](https://newsdirect.com/news/toolsgroup-named-leader-in-demand-forecasting-and-supply-chain-management-software-in-2024-customer-success-report-813471487)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/toolsgroup-recognized-as-market-leader-in-spring-2024-customer-success-report/57787a74618eae6b7ec963a2edf2264c) 
+
+ 
 
 
 

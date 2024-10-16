@@ -23,7 +23,11 @@ Stay informed and elevate your tax planning game at www.TaxDeduction.co.
 [Original/Source Press Release](https://newsworthy.ai/news/20231127881/taxdeduction-co-the-portal-for-tax-savvy-individuals-and-professionals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/taxdeduction-co-launches-to-simplify-tax-deductions-and-financial-planning/31a578529d0059756c483c428f0caad1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/27/taxdeduction-co-the-go-to-resource-for-tax-savvy-individuals-and-professionals)
+ 
 
 
 

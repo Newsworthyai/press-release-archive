@@ -45,7 +45,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/3-reasons-why-bitcoin-and-blockdag-network-are-expected-to-be-long-term-millionaire-makers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-and-blockdag-network-creating-long-term-wealth-opportunities/996c12e8b180ede1d69bb2730fcadc0d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-and-blockdag-network-creating-long-term-wealth-opportunities)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-and-blockdag-network-creating-long-term-wealth-opportunities)
+ 
 
 
 

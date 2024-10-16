@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/bluepeak-name
 [Original/Source Press Release](https://newsdirect.com/news/bluepeak-named-winner-of-broadbandnows-digital-inclusivity-award-503254228)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bluepeak-honored-with-broadbandnows-2024-digital-inclusivity-award/6780b8c94f18138c6d9f9d8cd8566527) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/bluepeak-recognized-for-digital-inclusivity-efforts-with-broadbandnow-award)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bluepeak-honored-with-broadbandnow-s-2024-digital-inclusivity-award/20245619)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bluepeak-wins-broadbandnow-s-2024-digital-inclusivity-award-for-bridging-the-digital-divide/20245619)
+
+Pickup - [advos.io](https://advos.io/en/bluepeak-wins-broadbandnow-s-2024-digital-inclusivity-award/20245619)
+ 
 
 
 

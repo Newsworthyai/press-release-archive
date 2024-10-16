@@ -27,7 +27,11 @@ BitMart is the premier global digital asset trading platform. With millions of 
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-celebrates-bmx-20-with-exclusive-ask-me-anything-session-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmart-hosts-special-ama-space-to-unveil-bmx-2-0-and-future-ecosystem-plans/7d166cb4ae48032b2851a978f742224e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/09/bitmart-unveils-bmx-2-0-and-web3-wallet-in-exclusive-ama-session)
+ 
 
 
 

@@ -23,7 +23,11 @@ Discover, connect, and elevate at www.CounselorBrief.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231214800/introducing-counselorbrief-com-a-premier-resource-for-the-counseling-and-therapeutic-community)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-interactive-platform-counselorbrief-com-launched-for-counseling-community/5aef64957c90312ef53e3cdd18443f38) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/14/counselorbrief-com-a-groundbreaking-platform-for-counseling-professionals)
+ 
 
 
 

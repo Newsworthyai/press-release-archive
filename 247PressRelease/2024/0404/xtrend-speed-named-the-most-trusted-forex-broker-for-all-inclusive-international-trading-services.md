@@ -7,7 +7,11 @@ SINGAPORE, April 04, 2024 /24-7PressRelease/ -- XTrend Speed, the South Africa-b
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509744/xtrend-speed-named-the-most-trusted-forex-broker-for-all-inclusive-international-trading-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xtrend-speed-awarded-most-trusted-forex-broker-global-2024-by-world-business-outlook/d11d3996200b085bed92c64b4258002b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/xtrend-speed-crowned-most-trusted-forex-broker-for-global-trading-services)
+ 
 
 
 

@@ -85,7 +85,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/copper-supply
 [Original/Source Press Release](https://newsdirect.com/news/copper-supply-struggles-against-surging-demand-729512517)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/copper-demand-surges-abitibi-metals-expands-exploration-efforts-at-b26-polymetallic-deposit/76c8c89872a2f6acbc6ed6ae11b48d47) 
+
+ 
 
 
 

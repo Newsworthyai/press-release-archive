@@ -7,7 +7,17 @@ VANCOUVER, BC, August 28, 2024 /24-7PressRelease/ -- SaveRxCanada.to, a leader i
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513754/saverxcanadato-celebrates-20-years-of-providing-affordable-prescription-medications-to-americans)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/saverxcanada-to-celebrates-20-years-of-affordable-medication-access-for-americans/c561a1f105b2779142957f4b692962d0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/saverxcanada-to-marks-two-decades-of-providing-affordable-medications-to-americans)
+
+Pickup - [fishervista.com](https://fishervista.com/en/saverxcanada-to-celebrates-20-years-of-affordable-prescription-medications-for-americans/20246318)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/saverxcanada-to-marks-two-decades-of-affordable-medication-access-for-americans/20246318)
+
+Pickup - [advos.io](https://advos.io/en/saverxcanada-to-celebrates-20-years-of-affordable-prescription-medications-for-americans/20246318)
+ 
 
 
 

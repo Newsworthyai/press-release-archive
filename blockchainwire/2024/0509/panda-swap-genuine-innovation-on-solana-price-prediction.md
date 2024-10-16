@@ -9,7 +9,9 @@ What is Panda Swap?Panda Swap is a genuinely innovative project, poised to give 
 [Original/Source Press Release](https://blockchainwire.io/press-release/panda-swap-genuine-innovation-on-solana--price-prediction)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/panda-swap-the-emerging-crypto-ready-to-surge/a5610cbd255636dd8a13ae27e77e8d6b) 
+
+ 
 
 
 

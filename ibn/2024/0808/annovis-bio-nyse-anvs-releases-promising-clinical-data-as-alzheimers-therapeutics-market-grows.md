@@ -37,7 +37,9 @@ Annovis Bio (NYSE: ANVS), a late-stage, clinical-drug platform company pioneeri
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-releases-promising-clinical-data-as-alzheimers-therapeutics-market-grows/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annovis-bio-releases-preclinical-data-showing-synergistic-effect-of-buntanetap-in-enhancing-cognition-in-alzheimers-mouse-model/5cbf4667a16032e9ef5b46ecdebf6803) 
+
+ 
 
 
 

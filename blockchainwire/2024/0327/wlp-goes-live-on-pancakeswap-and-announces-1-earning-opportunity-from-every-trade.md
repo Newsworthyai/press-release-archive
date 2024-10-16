@@ -29,7 +29,11 @@ X (Twitter) | TikTok | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/wlp-goes-live-on-pancakeswap-and-announces-1-earning-opportunity-from-every-trade)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/whoselandpurple-launches-wlp-token-on-pancakeswap/970b9dfae0100e1ec44c002ea7a2ea9b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/whoselandpurple-wlp-token-launches-on-pancakeswap-offering-1-earning-opportunity)
+ 
 
 
 

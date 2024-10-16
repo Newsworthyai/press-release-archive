@@ -9,7 +9,9 @@ In May 2024, Tide Capital's hedge fund secured investment from a subsidiary of G
 [Original/Source Press Release](https://blockchainwire.io/press-release/tide-capital-receives-investment-from-gofintech-innovation-a-hong-kong-listed-securities-firm-to-develop-compliant-digital-asset-financial-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tide-capital-s-hedge-fund-secures-investment-from-gofintech-innovation-subsidiary/3ea24c52c2ee898b9f496eba93ab2166) 
+
+ 
 
 
 

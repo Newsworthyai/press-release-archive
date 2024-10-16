@@ -59,7 +59,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/laser-photoni
 [Original/Source Press Release](https://newsdirect.com/news/laser-photonics-inks-deals-with-brokk-fastenal-and-isl-to-bring-its-laser-technology-to-more-markets-527648302)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/laser-photonics-inks-deals-with-brokk-fastenal-and-isl-to-bring-its-laser-technology-to-more-markets/db640859a78d484a708775c46fc5bd58) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/laser-photonics-expands-market-reach-with-strategic-partnerships/20244369)
+
+Pickup - [advos.io](https://advos.io/en/laser-photonics-partners-with-brokk-fastenal-and-isl-to-expand-market-reach/20244369)
+ 
 
 
 

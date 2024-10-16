@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/base-starts-r
 [Original/Source Press Release](https://newsdirect.com/news/base-starts-requiring-kyc-get-back-to-basics-with-octoblock-399370658)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinbase-s-base-introduces-kyc-octoblock-revolutionizes-defi-with-cfyf/6c3a038438b3740edab98536391d5065) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/base-implements-mandatory-kyc-verification-while-octoblock-aims-to-revolutionize-defi)
+ 
 
 
 

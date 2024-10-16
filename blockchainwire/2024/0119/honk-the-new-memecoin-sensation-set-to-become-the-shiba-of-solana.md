@@ -9,7 +9,11 @@ However, $HONK aims to be more than just a part of this rivalry; it aspires to b
 [Original/Source Press Release](https://blockchainwire.io/press-release/honk-the-new-memecoin-sensation-set-to-become-the-shiba-of-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sol-memecoin-honk-experiences-rapid-growth-and-rivalry-with-bonk/42514037fea5d6bc59efc5f429aa6b11) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/19/honk-the-goose-memecoin-aiming-to-become-the-shiba-of-solana)
+ 
 
 
 

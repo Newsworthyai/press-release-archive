@@ -15,7 +15,9 @@ In addition to Ketamine-Assisted Psychotherapy, Soul Psychedelic Systems offers 
 [Original/Source Press Release](https://newsworthy.ai/news/202401261034/soul-psychedelic-systems-introduces-ketamine-assisted-psychotherapy-to-provide-revolutionary-mental-health-treatment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/soul-psychedelic-systems-unveils-breakthrough-therapy-for-mental-health/42f032d6dbba519309d2a2933a1ec882) 
+
+ 
 
 
 

@@ -43,7 +43,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/shiba-inu-targets-0001-solana-points-for-200-point-of-reference-and-furrever-token-looks-for-meme-coin-matchless-quality)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiba-inu-solana-and-furrever-token-making-waves-in-the-cryptocurrency-market/9794dff57ed9981f112df3ad62534695) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/shiba-inu-solana-and-furrever-token-making-waves-in-the-cryptocurrency-market)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/shiba-inu-solana-and-furrever-token-making-waves-in-the-cryptocurrency-market)
+ 
 
 
 

@@ -410,7 +410,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/battery-miner
 [Original/Source Press Release](https://newsdirect.com/news/battery-mineral-resources-initiates-new-drilling-program-and-announces-encouraging-drill-results-from-its-punitaqui-copper-mine-in-chile-922834693)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/battery-mineral-resources-corp-announces-encouraging-drill-results-from-punitaqui-copper-mine/1a0a610379fa8882fd21b7b058476516) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/battery-mineral-resources-announces-positive-drilling-results-at-punitaqui-copper-mine/20244624)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/battery-mineral-resources-reports-promising-copper-drill-results-at-punitaqui-mine)
+
+Pickup - [advos.io](https://advos.io/en/battery-mineral-resources-announces-positive-drill-results-from-punitaqui-copper-mine/20244624)
+ 
 
 
 

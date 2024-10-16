@@ -51,7 +51,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/rivalz-network-launches-its--intel-incentivized-testnet)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rivalz-network-launches-intel-incentivized-testnet-event/995f72d3dbadba8d77124194129104cc) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/rivalz-network-launches-intel-incentivized-testnet-event)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/rivalz-network-launches-intel-incentivized-testnet-event)
+ 
 
 
 

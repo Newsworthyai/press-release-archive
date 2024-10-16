@@ -33,7 +33,9 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/top-3-cryptocurrency-to-invest-now-according-to-reddit-bitcoin-ethereum-furrever-token)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/furrever-token-announces-20000-giveaway-amid-bitcoin-and-ethereum-declines/dd468e48847399428355a1d1c9801d02) 
+
+ 
 
 
 

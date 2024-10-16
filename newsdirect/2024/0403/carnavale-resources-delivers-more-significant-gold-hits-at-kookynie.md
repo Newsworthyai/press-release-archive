@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/carnavale-res
 [Original/Source Press Release](https://newsdirect.com/news/carnavale-resources-delivers-more-significant-gold-hits-at-kookynie-544362318)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/carnavale-resources-delivers-significant-gold-hits-at-kookynie/02e2540efc8fa61bede3806a8188cadd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/carnavale-resources-unearths-high-grade-gold-at-kookynie-project)
+ 
 
 
 

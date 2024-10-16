@@ -39,7 +39,11 @@ Official Website: [https://bl2.live/](https://bl2.live/)Disclaimer: The informat
 [Original/Source Press Release](https://blockchainwire.io/press-release/bl2-technology-officially-launched-fostering-the-development-at-on-chain-scaling-evolution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bl2-technology-officially-launches-pioneering-force-in-bitcoin-ecosystem/aaaa1fff583d2cfc3abb9084f493d88d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/09/bl2-technology-unleashes-the-power-of-on-chain-scaling-for-bitcoin)
+ 
 
 
 

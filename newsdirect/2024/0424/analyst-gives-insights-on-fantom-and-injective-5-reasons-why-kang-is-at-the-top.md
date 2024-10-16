@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/analyst-gives
 [Original/Source Press Release](https://newsdirect.com/news/analyst-gives-insights-on-fantom-and-injective-5-reasons-why-kang-is-at-the-top-262444134)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-tony-s-insights-on-fantom-injective-and-kangamoon/120a7dc5a90061e2012d4f4fff04cdd1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/analyst-gives-insights-on-fantom-and-injective-5-reasons-why-kang-is-at-the-top)
+ 
 
 
 

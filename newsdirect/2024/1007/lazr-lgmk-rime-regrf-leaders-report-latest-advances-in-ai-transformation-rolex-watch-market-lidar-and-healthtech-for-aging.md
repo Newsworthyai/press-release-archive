@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/lazr-lgmk-rim
 [Original/Source Press Release](https://newsdirect.com/news/lazr-lgmk-rime-regrf-leaders-report-latest-advances-in-ai-transformation-rolex-watch-market-lidar-and-healthtech-for-aging-805819533)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/latest-insights-from-luminar-logicmark-new-world-solutions-and-semicab-ceos/c3ce915060be173d7d51725387529373) 
+
+ 
 
 
 

@@ -17,7 +17,17 @@ About [Rich Christiansen](https://www.richchristiansen.com)Rich founded the Entr
 [Original/Source Press Release](https://newsworthy.ai/news/202409161263/usa-today-best-selling-author-rich-christiansen-s-new-book-blindsighted-shows-that-family-is-more-than-dna)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/author-rich-christiansen-to-discuss-new-book-blindsighted-at-local-bookstore-events/a8cd00e35d206a50b6b14c995644c026) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/rich-christiansen-s-blindsighted-explores-family-identity-and-healing-beyond-dna)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rich-christiansen-s-blindsighted-explores-family-bonds-beyond-dna/20246852)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/usa-today-best-selling-author-rich-christiansen-explores-family-identity-in-new-book-blindsighted/20246852)
+
+Pickup - [advos.io](https://advos.io/en/usa-today-best-selling-author-rich-christiansen-explores-family-bonds-beyond-dna-in-new-book/20246852)
+ 
 
 
 

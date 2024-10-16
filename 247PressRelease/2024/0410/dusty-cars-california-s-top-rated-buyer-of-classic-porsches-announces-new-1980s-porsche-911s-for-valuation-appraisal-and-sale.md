@@ -7,7 +7,11 @@ PLEASANTON, CA, April 10, 2024 /24-7PressRelease/ -- Dusty Cars, a top-rated cla
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509925/dusty-cars-californias-top-rated-buyer-of-classic-porsches-announces-new-1980s-porsche-911s-for-valuation-appraisal-and-sale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/top-classic-car-buyer-celebrates-1980-s-porsche-911s-valuation/f2374294ca8ff837bdf73db82e527c8d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/dusty-cars-announces-new-1980s-porsche-911s-for-valuation-appraisal-and-sale)
+ 
 
 
 

@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/former-usc-st
 [Original/Source Press Release](https://newsdirect.com/news/former-usc-student-athlete-l-simpson-launches-take-no-ls-collection-with-shiekh-at-usc-village-751352942)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-usc-student-athlete-l-simpson-launches-take-no-ls-collection-with-shiekh-at-usc-village/d2aeec190ec20312d7a745831eaa1d14) 
+
+ 
 
 
 

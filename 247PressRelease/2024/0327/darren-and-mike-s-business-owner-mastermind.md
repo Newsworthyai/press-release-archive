@@ -7,7 +7,11 @@ VANCOUVER, BC, March 27, 2024 /24-7PressRelease/ -- In an era where digital tran
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509577/darren-and-mikes-business-owner-mastermind)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/darren-and-mike-s-business-owner-mastermind-redefining-success-in-the-digital-business-landscape/ed909873dd7e3b9e76fa8ac13a648b55) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/darren-and-mike-s-mastermind-redefines-digital-entrepreneurship)
+ 
 
 
 

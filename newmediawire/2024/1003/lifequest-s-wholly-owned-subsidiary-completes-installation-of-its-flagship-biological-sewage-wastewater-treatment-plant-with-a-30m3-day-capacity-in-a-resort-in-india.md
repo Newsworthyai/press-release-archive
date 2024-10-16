@@ -25,7 +25,9 @@ This press release contains forward-looking statements that reflect the Company'
 [Original/Source Press Release](https://www.newmediawire.com/news/lifequest-s-wholly-owned-subsidiary-completes-installation-of-its-flagship-biological-sewage-wastewater-treatment-plant-with-a-30m3-day-capacity-in-a-resort-in-india-7076148)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lifequest-world-corp-announces-installation-of-cutting-edge-sewage-wastewater-treatment-plant-at-resort-in-india/1fea092213b63c87480699226c00e45e) 
+
+ 
 
 
 

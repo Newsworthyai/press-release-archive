@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/text-patents-
 [Original/Source Press Release](https://newsdirect.com/news/text-patents-a-method-for-combining-asynchronous-and-real-time-communication-143788012)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/text-secures-fifth-patent-for-asynchronous-and-real-time-communication-integration/eb6b4671a2ba7ba1834fa8fa1f251ef4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/text-secures-patent-for-innovative-communication-integration-technology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/text-secures-patent-for-integrating-asynchronous-and-real-time-communication/20245313)
+
+Pickup - [advos.io](https://advos.io/en/text-secures-patent-for-integrating-asynchronous-and-real-time-communication/20245313)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/text-secures-patent-for-integrated-asynchronous-and-real-time-communication-system)
+ 
 
 
 

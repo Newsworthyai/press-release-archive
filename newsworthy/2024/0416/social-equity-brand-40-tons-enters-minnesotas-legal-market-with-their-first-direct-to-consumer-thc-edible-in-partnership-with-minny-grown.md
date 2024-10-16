@@ -21,7 +21,9 @@ Minny Grown commits to the cannabis cause with a clear, local-first philosophy. 
 [Original/Source Press Release](https://newsworthy.ai/news/202404161138/social-equity-brand-40-tons-introduces-first-direct-to-consumer-thc-edible-in-partnership-with-minny-grown-enters-minnesotas-legal-market)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/40-tons-and-minny-grown-collaborate-to-launch-thc-gummies-in-minnesota/b35c23f7a1befa68feebcbf1714b8468) 
+
+ 
 
 
 

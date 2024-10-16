@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/increase-in-f
 [Original/Source Press Release](https://newsdirect.com/news/increase-in-fund-managers-launching-hedge-funds-via-cv5-294552821)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cv5-capital-launches-regulated-and-audited-hedge-funds-for-emerging-managers/4d3ae80b7b087de5e4d9a13fd5883754) 
+
+ 
 
 
 

@@ -23,7 +23,9 @@ Media Contact:Robert Smith[https://furrevertoken.com/](https://furrevertoken.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/-seizing-opportunities-bitcoin-and-ethereum-investors-flock-to-furrever-token-for-stability--and-high-returns)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/furrever-token-furr-defying-market-trends-with-adorable-innovation-and-unstoppable-momentum/60f80391b40ee3d1ca0b6cfb8dc962d8) 
+
+ 
 
 
 

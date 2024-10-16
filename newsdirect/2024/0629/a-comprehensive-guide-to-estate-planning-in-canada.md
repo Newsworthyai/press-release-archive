@@ -98,7 +98,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/a-comprehensi
 [Original/Source Press Release](https://newsdirect.com/news/a-comprehensive-guide-to-estate-planning-in-canada-500335563)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/over-one-third-of-canadians-prioritize-estate-planning-in-2021/14eb46cda9dbb9a33b81135020845fac) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/comprehensive-guide-to-estate-planning-in-canada-highlights-importance-of-financial-preparedness/20244598)
+
+Pickup - [advos.io](https://advos.io/en/a-comprehensive-guide-to-estate-planning-in-canada/20244598)
+ 
 
 
 

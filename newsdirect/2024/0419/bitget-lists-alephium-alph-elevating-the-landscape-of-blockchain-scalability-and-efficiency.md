@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-lists-
 [Original/Source Press Release](https://newsdirect.com/news/bitget-lists-alephium-alph-elevating-the-landscape-of-blockchain-scalability-and-efficiency-555233551)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-lists-alephium-alph-to-revolutionize-defi-landscape/7a558f1ed5c43e156fb628184d3eee92) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/bitget-lists-alephium-alph-elevating-the-landscape-of-blockchain-scalability-and-efficiency)
+ 
 
 
 

@@ -7,7 +7,9 @@ CLEARWATER, FL, October 02, 2024 /24-7PressRelease/ -- Every year, September, is
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514846/cchr-suicide-rates-once-again-climbing-in-the-united-states)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rising-u-s-suicide-rate-prompts-call-for-review-of-prevention-methods/926a5ffbde8040ebfb83d404bdb86db2) 
+
+ 
 
 
 

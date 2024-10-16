@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/mainz-biomeds
 [Original/Source Press Release](https://newsdirect.com/news/mainz-biomeds-nasdaq-mynz-cutting-edge-colorectal-cancer-test-applies-for-fda-breakthrough-status-224803617)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mainz-biomed-applies-for-fda-breakthrough-status-for-cutting-edge-colorectal-cancer-test/30e2276caa6498e2e7d2d2bb6abb9b13) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/mainz-biomed-seeks-fda-breakthrough-status-for-advanced-colorectal-cancer-screening-test)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mainz-biomed-seeks-fda-breakthrough-status-for-innovative-colorectal-cancer-test/20245390)
+
+Pickup - [advos.io](https://advos.io/en/mainz-biomed-seeks-fda-breakthrough-status-for-revolutionary-colorectal-cancer-test/20245390)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mainz-biomed-seeks-fda-breakthrough-status-for-advanced-colorectal-cancer-test)
+ 
 
 
 

@@ -25,7 +25,9 @@ In conclusion, the IAT Community is more than just an educational platform; it i
 [Original/Source Press Release](https://blockchainwire.io/press-release/iat-community-theron-vales-commitment-to-comprehensive-financial-education)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iat-community-launches-innovative-online-platform-for-investment-education/1b50bd1e6ec865a7d9f9feabc4b3256f) 
+
+ 
 
 
 

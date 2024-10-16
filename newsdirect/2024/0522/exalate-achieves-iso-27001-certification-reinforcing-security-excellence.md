@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/exalate-achie
 [Original/Source Press Release](https://newsdirect.com/news/exalate-achieves-iso-27001-certification-reinforcing-security-excellence-595223194)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exalate-attains-iso-27001-certification-reinforcing-security-excellence/18a365c903d42ce5d79dc0589f7d982b) 
+
+ 
 
 
 

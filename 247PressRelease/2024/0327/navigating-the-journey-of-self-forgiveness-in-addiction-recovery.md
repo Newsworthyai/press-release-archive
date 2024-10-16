@@ -7,7 +7,11 @@ CORVALLIS, OR, March 27, 2024 /24-7PressRelease/ -- Taking the brave step toward
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509552/navigating-the-journey-of-self-forgiveness-in-addiction-recovery)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-role-of-self-forgiveness-in-addiction-recovery-a-compassionate-guide/7c41d31845ae39b4984f4383e7c3d4c7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/embracing-self-forgiveness-a-cornerstone-of-addiction-recovery)
+ 
 
 
 

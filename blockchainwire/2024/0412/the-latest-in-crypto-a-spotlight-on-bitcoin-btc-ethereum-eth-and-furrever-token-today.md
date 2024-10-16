@@ -55,7 +55,11 @@ Media Contact: Robert Smith support(at)furrevertoken.com https://furrevertoken.c
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-latest-in-crypto-a-spotlight-on-bitcoin-btc-ethereum-eth-and-furrever-token-today)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-market-update-bitcoin-ethereum-and-furrever-token-analysis/d430e6a2d1b8ae778a85d225f7780d68) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/the-latest-in-crypto-a-spotlight-on-bitcoin-btc-ethereum-eth-and-furrever-token)
+ 
 
 
 

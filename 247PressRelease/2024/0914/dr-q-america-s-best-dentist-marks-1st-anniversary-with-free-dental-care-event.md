@@ -7,7 +7,17 @@ ATLANTA, GA, September 14, 2024 /24-7PressRelease/ -- In celebration of its firs
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514319/dr-q-americas-best-dentist-marks-1st-anniversary-with-free-dental-care-event)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/art-of-aesthetics-dental-studio-celebrates-anniversary-with-community-giveback-event/8f71fbcff9ef0c5fccefdab1942d7a73) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/14/atlanta-dentist-celebrates-clinic-s-first-anniversary-with-free-dental-care-event)
+
+Pickup - [fishervista.com](https://fishervista.com/en/atlanta-dentist-celebrates-anniversary-with-free-dental-care-for-uninsured-patients/20246830)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/atlanta-dentist-celebrates-clinic-s-first-anniversary-with-free-dental-care-event/20246830)
+
+Pickup - [advos.io](https://advos.io/en/atlanta-dentist-celebrates-anniversary-with-free-dental-care-event/20246830)
+ 
 
 
 

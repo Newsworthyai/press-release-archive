@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/airship-ai-aw
 [Original/Source Press Release](https://newsdirect.com/news/airship-ai-awarded-contract-with-doj-agency-marking-second-big-government-contract-win-since-december-ipo-340612161)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/airship-ai-wins-major-doj-contract-for-acropolis-platform/4e9a9654ff4ae1077345f5cf3fddd835) 
+
+ 
 
 
 

@@ -7,7 +7,11 @@ DES PLAINES, IL, April 10, 2024 /24-7PressRelease/ -- "The best lending services
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509880/empathetic-service-that-makes-a-real-difference-to-stressed-customers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sail-loans-offers-illinois-consumers-an-innovative-savings-and-installment-loan/42118c5f16f1038c08897d61ee1453f3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/sail-loans-offers-empathetic-service-and-innovative-lending-solutions-to-stressed-illinois-consumers)
+ 
 
 
 

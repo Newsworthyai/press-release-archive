@@ -7,7 +7,11 @@ ALBERTA, CANADA, March 29, 2024 /24-7PressRelease/ -- The Outstanding Maternity 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509637/celebrating-a-world-of-maternity-and-beyond-outstanding-maternity-award-announced-the-season-31-winners)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/outstanding-maternity-award-announces-31st-season-winners/eca66a2b5cdd947061f0a41d420ba915) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/celebrating-global-excellence-in-maternity-photography)
+ 
 
 
 

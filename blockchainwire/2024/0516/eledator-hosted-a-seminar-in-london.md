@@ -11,7 +11,13 @@ The seminar not only reinforced Eledator’s corporate community but also sparke
 [Original/Source Press Release](https://blockchainwire.io/press-release/eledator-hosted-a-seminar-in-london)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/eledator-hosts-seminar-to-discuss-crypto-trading-strategies-and-innovations/c55255a2494961c693f9059a16cbc57c) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/eledator-hosts-seminar-to-discuss-crypto-trading-strategies-and-innovations)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/eledator-hosts-seminar-to-discuss-crypto-trading-strategies-and-innovations)
+ 
 
 
 

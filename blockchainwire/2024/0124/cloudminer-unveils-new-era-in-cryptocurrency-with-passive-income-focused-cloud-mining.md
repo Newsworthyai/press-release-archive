@@ -35,7 +35,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cloudminer-unveils-new-era-in-cryptocurrency-with-passive-income-focused-cloud-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloudminer-launches-state-of-the-art-cloud-mining-platform/28f0baa4b729e2138257a6d832fa32de) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/24/cloudminer-ushers-in-new-era-of-passive-income-through-innovative-cloud-mining-platform)
+ 
 
 
 

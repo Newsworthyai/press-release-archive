@@ -51,7 +51,11 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/alpha-transform-holdings-announces-february-results-for-ai-index-performance-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alpha-transform-ai-index-aai-delivers-70-6-return-in-february-2024/c4af7f32bc4b5dd7e9014efc833765f1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/ai-tokens-surge-as-sector-gains-momentum)
+ 
 
 
 

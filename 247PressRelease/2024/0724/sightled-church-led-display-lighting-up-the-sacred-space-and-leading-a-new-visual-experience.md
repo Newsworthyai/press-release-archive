@@ -7,7 +7,17 @@ LOS ANGELES, CA, July 24, 2024 /24-7PressRelease/ -- Church LED display screen p
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512805/sightled-church-led-display-lighting-up-the-sacred-space-and-leading-a-new-visual-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sightled-launches-innovative-sl-d-series-rental-led-display-for-churches/89180246c2edede6ae685ba5debfddd2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/sightled-revolutionizes-church-experiences-with-advanced-led-display-technology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/sightled-unveils-advanced-led-display-for-churches-enhancing-religious-engagement/20245208)
+
+Pickup - [advos.io](https://advos.io/en/sightled-introduces-innovative-church-led-display-for-enhanced-worship-experience/20245208)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/sightled-introduces-innovative-church-led-display-series)
+ 
 
 
 

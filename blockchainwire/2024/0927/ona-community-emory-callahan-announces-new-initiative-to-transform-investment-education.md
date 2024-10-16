@@ -19,7 +19,9 @@ In conclusion, this new initiative marks a significant milestone for ONA Communi
 [Original/Source Press Release](https://blockchainwire.io/press-release/ona-community-emory-callahan-announces-new-initiative-to-transform-investment-education)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ona-community-launches-new-initiative-to-revolutionize-investment-education/9e675f4602facee8fd57da3b0a683a92) 
+
+ 
 
 
 

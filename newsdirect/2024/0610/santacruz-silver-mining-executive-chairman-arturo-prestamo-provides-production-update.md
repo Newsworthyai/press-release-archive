@@ -21,7 +21,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/santacruz-sil
 [Original/Source Press Release](https://newsdirect.com/news/santacruz-silver-mining-executive-chairman-arturo-prestamo-provides-production-update-663644868)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/santacruz-silver-mining-executive-provides-production-update/6eab0e9259283cf01f8614b00b360a38) 
+
+
+Pickup - [advos.io](https://advos.io/en/santacruz-silver-mining-announces-strong-production-and-strategic-debt-restructuring/20243985)
+ 
 
 
 

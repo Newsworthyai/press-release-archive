@@ -7,7 +7,15 @@ WILMINGTON, NC, July 03, 2024 /24-7PressRelease/ -- Preventing domestic terroris
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512178/norman-brewers-political-thriller-blending-in-reveals-the-realities-of-domestic-terrorism-and-its-horrific-impact-on-society)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/norman-brewer-s-gripping-tale-of-domestic-terrorism/145d06b6b76f6e9f72864b6edee77f5b) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/norman-brewer-s-blending-in-sheds-light-on-domestic-terrorism/20244684)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/norman-brewer-s-blending-in-exposes-the-unsettling-reality-of-domestic-terrorism)
+
+Pickup - [advos.io](https://advos.io/en/norman-brewer-s-blending-in-sheds-light-on-the-realities-of-domestic-terrorism/20244684)
+ 
 
 
 

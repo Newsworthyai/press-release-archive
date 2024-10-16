@@ -53,7 +53,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/a-new-era-for
 [Original/Source Press Release](https://newsdirect.com/news/a-new-era-for-on-chain-airdrops-htx-liquid-restaking-your-gateway-to-effortless-airdrop-rewards-997081417)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-liquid-restaking-your-gateway-to-effortless-airdrop-rewards/fa45c97970ab95c6aed3d04848e86271) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-liquid-restaking-your-gateway-to-effortless-airdrop-rewards)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-liquid-restaking-your-gateway-to-effortless-airdrop-rewards)
+ 
 
 
 

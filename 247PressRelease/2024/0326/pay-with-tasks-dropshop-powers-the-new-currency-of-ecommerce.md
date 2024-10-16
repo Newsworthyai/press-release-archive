@@ -7,7 +7,11 @@ NEW YORK, NY, March 26, 2024 /24-7PressRelease/ -- Dropshop (www.trydropshop.com
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509500/pay-with-tasks-dropshop-powers-the-new-currency-of-ecommerce)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dropshop-earn-products-for-free-by-completing-tasks/1af900401c9092007d8973c54a841648) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/pay-with-tasks-dropshop-pioneers-new-ecommerce-currency)
+ 
 
 
 

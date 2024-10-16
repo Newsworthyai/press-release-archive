@@ -60,7 +60,15 @@ Disclaimer: The information provided in this press release is for informational 
 [Original/Source Press Release](https://blockchainwire.io/press-release/magaa-token-launches-on-ethereum---and-celebrates-trumps-birthday-with-airdrop)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/magaa-memecoin-s-explosive-growth-and-impact-on-political-discourse/b7707d40f85eba772f29b7b06ce0ffaa) 
+
+
+Pickup - [advos.io](https://advos.io/en/magaa-token-celebrates-trump-s-birthday-with-airdrop-and-groundbreaking-twitter-spaces-event/20244166)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/magaa-memecoin-s-explosive-growth-and-impact-on-political-discourse)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/magaa-memecoin-s-explosive-growth-and-impact-on-political-discourse)
+ 
 
 
 

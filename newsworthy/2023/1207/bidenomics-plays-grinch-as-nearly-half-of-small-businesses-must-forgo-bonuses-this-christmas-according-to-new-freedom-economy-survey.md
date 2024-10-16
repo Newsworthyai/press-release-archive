@@ -56,7 +56,11 @@ Founded In 2021, RedBalloon has quickly become America’s largest woke-free job
 [Original/Source Press Release](https://newsworthy.ai/news/20231207904/bidenomics-plays-grinch-as-nearly-half-of-small-businesses-must-forgo-bonuses-this-christmas-according-to-new-freedom-economy-survey)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/freedom-economy-survey-reveals-struggles-of-small-businesses-amid-economic-challenges/81649f9ccc17787d5865f8bba149bfce) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/07/small-businesses-struggle-amid-economic-woes-forced-to-cut-christmas-bonuses)
+ 
 
 
 

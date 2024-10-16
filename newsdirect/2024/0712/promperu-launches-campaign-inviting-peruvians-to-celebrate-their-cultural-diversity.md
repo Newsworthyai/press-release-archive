@@ -25,7 +25,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/promperu-laun
 [Original/Source Press Release](https://newsdirect.com/news/promperu-launches-campaign-inviting-peruvians-to-celebrate-their-cultural-diversity-407341700)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/promperu-launches-campaign-celebrating-peru-s-cultural-diversity/feb9f0342d87c855f75bb868b6e3b5d9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/promperu-unveils-peru-land-of-infinite-gifts-campaign-to-celebrate-cultural-heritage)
+
+Pickup - [fishervista.com](https://fishervista.com/en/promperu-unveils-campaign-to-celebrate-peru-s-cultural-diversity/20244928)
+
+Pickup - [advos.io](https://advos.io/en/promperu-launches-campaign-celebrating-peru-s-cultural-diversity/20244928)
+ 
 
 
 

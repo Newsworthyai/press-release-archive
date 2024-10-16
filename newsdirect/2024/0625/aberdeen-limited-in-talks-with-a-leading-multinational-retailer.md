@@ -27,7 +27,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/aberdeen-limi
 [Original/Source Press Release](https://newsdirect.com/news/aberdeen-limited-in-talks-with-a-leading-multinational-retailer-216533729)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aberdeen-ltd-in-talks-with-leading-retailer-for-bond-offerings/3c35140d453787c58cb9c27183d0331e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/aberdeen-ltd-negotiates-bond-sale-deal-with-tesco-plc/20244467)
+
+Pickup - [advos.io](https://advos.io/en/aberdeen-limited-engages-in-negotiations-with-tesco-plc-for-bond-offerings/20244467)
+ 
 
 
 

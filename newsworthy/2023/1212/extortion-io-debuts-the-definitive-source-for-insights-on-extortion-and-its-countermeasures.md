@@ -23,7 +23,11 @@ For insights on extortion and how to combat it, visit www.Extortion.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231212818/extortion-io-debuts-the-definitive-source-for-insights-on-extortion-and-its-countermeasures)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-extortion-io-platform-launches-to-provide-expert-insights-on-extortion-tactics/ba6354891258c3e81b4b136b8058bac4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/12/extortion-io-emerges-as-the-go-to-resource-for-extortion-insights)
+ 
 
 
 

@@ -7,7 +7,17 @@ PERTH, AUSTRALIA, September 11, 2024 /24-7PressRelease/ -- Shincheonji's General
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514201/shincheonji-church-of-jesus-draws-large-crowd-of-80000-in-cheongju)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-s-general-assembly-chairman-emphasises-fulfilment-of-revelation/42fbfb3480cd7c3917dfd02b6f102e7f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/shincheonji-church-of-jesus-attracts-80000-worshippers-in-cheongju-south-korea)
+
+Pickup - [fishervista.com](https://fishervista.com/en/shincheonji-church-of-jesus-attracts-80000-attendees-in-cheongju/20246684)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/shincheonji-church-of-jesus-draws-80000-attendees-in-cheongju-highlighting-growing-interest-in-biblical-revelation/20246684)
+
+Pickup - [advos.io](https://advos.io/en/shincheonji-church-of-jesus-attracts-80000-worshippers-in-cheongju/20246684)
+ 
 
 
 

@@ -7,7 +7,9 @@ NEW YORK, NY, June 05, 2024 /24-7PressRelease/ -- This press release wants to cl
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511377/they-manage-taylor-swift-and-downtown-mystic)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mistaken-identity-and-musical-success-the-robert-allen-confusion/46dad0921c2ac86f43fcd0699cc37288) 
+
+ 
 
 
 

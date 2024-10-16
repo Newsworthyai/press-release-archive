@@ -7,7 +7,11 @@ BRIDGEPORT, CT, March 28, 2024 /24-7PressRelease/ -- Total knee replacement surg
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509634/customers-review-romtechs-portableconnect-device)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/groundbreaking-portableconnect-device-enhances-knee-replacement-recovery/f01399eedce1dc7706a8ef2f00bc82cf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/romtech-s-portableconnect-revolutionizing-knee-replacement-recovery)
+ 
 
 
 

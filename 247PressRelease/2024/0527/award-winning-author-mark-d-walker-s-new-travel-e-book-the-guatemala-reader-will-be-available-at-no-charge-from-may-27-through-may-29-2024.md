@@ -7,7 +7,9 @@ WILMINGTON, NC, May 27, 2024 /24-7PressRelease/ -- In his latest travel book, Th
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511183/award-winning-author-mark-d-walkers-new-travel-e-book-the-guatemala-reader-will-be-available-at-no-charge-from-may-27-through-may-29-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-mark-d-walker-releases-the-guatemala-reader-free-ebook-available-now/c2a9c096391ad325a7641d48f441258e) 
+
+ 
 
 
 

@@ -23,7 +23,11 @@ To explore and engage with a world of Insurtech insights, visit www.InsurtechTip
 [Original/Source Press Release](https://newsworthy.ai/news/20231205828/introducing-insurtechtips-com-the-forefront-of-insurtech-knowledge-and-expertise)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/insurtechtips-com-launches-as-a-leading-platform-for-insurtech-professionals/861284b6ef26c8708a3d42c990263ef9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/05/insurtechtips-com-unveiling-a-comprehensive-insurtech-knowledge-hub)
+ 
 
 
 

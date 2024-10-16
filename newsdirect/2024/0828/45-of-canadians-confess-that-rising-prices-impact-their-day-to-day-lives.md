@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/45-of-canadia
 [Original/Source Press Release](https://newsdirect.com/news/45-of-canadians-confess-that-rising-prices-impact-their-day-to-day-lives-432910278)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rising-prices-squeeze-45-of-canadians-reveals-statistics-canada-data/c6d9636e54ce18e70421decc47585876) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/nearly-half-of-canadians-struggle-with-rising-prices-survey-reveals/20246307)
+
+Pickup - [advos.io](https://advos.io/en/rising-prices-severely-impact-45-of-canadians-day-to-day-lives/20246307)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/financial-strain-intensifies-for-nearly-half-of-canadians-amid-rising-prices)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rising-prices-significantly-impact-day-to-day-lives-of-canadians/20246307)
+ 
 
 
 

@@ -7,7 +7,9 @@ LOS ANGELES, CA, October 04, 2024 /24-7PressRelease/ -- Moving forward, major Wa
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514176/harry-potter-it-prequel-welcome-to-derry-and-other-major-warner-bros-series-to-be-branded-as-hbo-originals-instead-of-max)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/warner-bros-tentpole-projects-rebranded-as-hbo-originals/14302273775dd19bafdebf30f0a69e58) 
+
+ 
 
 
 

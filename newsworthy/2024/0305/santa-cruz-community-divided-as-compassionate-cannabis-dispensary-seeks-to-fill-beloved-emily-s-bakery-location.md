@@ -43,7 +43,9 @@ Contact: Bayley Logan bayley@hookoutlet.com
 [Original/Source Press Release](https://newsworthy.ai/news/202403051108/santa-cruz-community-divided-as-compassionate-cannabis-dispensary-seeks-to-fill-beloved-emily-s-bakery-location)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-cannabis-dispensary-faces-local-resistance-in-santa-cruz/8a4f5f4c1c4835d5f68ac4e97be05b2e) 
+
+ 
 
 
 

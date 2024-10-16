@@ -22,7 +22,11 @@ Visit [https://www.hrotoday.com/events/hro-today-forum-north-america/](https://w
 [Original/Source Press Release](https://newsworthy.ai/news/202405071160/hro-today-tackles-uncertainty-celebrates-hr-s-best-at-the-2024-hro-today-forum-north-america)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sharedxpertise-media-hosts-2024-hro-today-forum-north-america/7799fe0b78d468c3d3eff3138cb91227) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hro-today-forum-north-america-2024-addresses-hr-challenges-amid-uncertainty/20242683)
+ 
 
 
 

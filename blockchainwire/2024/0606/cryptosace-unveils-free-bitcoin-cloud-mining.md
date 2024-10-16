@@ -43,7 +43,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptosace-unveils-free-bitcoin-cloud-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptosace-launches-free-bitcoin-cloud-mining-service/b827962c0f73c2784d106876cc782676) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cryptosace-launches-free-bitcoin-cloud-mining-service)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cryptosace-launches-free-bitcoin-cloud-mining-service)
+ 
 
 
 

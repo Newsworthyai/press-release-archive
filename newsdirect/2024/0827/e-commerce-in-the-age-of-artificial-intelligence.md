@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/e-commerce-in
 [Original/Source Press Release](https://newsdirect.com/news/e-commerce-in-the-age-of-artificial-intelligence-345602586)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rezolve-introduces-ai-powered-e-commerce-platform/bc8b86ac4c70674ea73f3296142dcdb0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/rezolve-introduces-ai-powered-e-commerce-platform-lists-on-nasdaq)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rezolve-ceo-discusses-ai-powered-e-commerce-solutions-on-benzingas-all-access/20246197)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/rezolve-launches-ai-powered-e-commerce-platform-begins-nasdaq-trading/20246197)
+
+Pickup - [advos.io](https://advos.io/en/rezolve-ai-platform-set-to-transform-e-commerce/20246197)
+ 
 
 
 

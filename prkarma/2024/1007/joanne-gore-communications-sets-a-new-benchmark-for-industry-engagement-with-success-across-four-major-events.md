@@ -63,7 +63,9 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1572)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/joanne-gore-communications-makes-waves-at-industry-events/9e00e5938dde8c365ac17d4636ee1c5d) 
+
+ 
 
 
 

@@ -23,7 +23,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/jeet-announces-its-anti-jeet-initiative-empowering-individuals-to-transform-weak-hands-into-diamond-jeet-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jeet-revolutionizes-crypto-landscape-with-anti-jeet-initiative/1fb6cdd1a5ea2918854e155100169fac) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/jeet-launches-anti-jeet-initiative-to-foster-diamond-hands-in-crypto)
+ 
 
 
 

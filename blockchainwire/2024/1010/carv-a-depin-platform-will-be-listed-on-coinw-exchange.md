@@ -27,7 +27,9 @@ Previously a highly popular node-selling project, with token issuance on the 10t
 [Original/Source Press Release](https://blockchainwire.io/press-release/carv-a-depin-platform-will-be-listed-on-coinw-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-list-carv-on-depin-zone-with-5000-usdt-reward-pool/ec58cbaf2f64e8e0cfa9fdfd9f9cb6b2) 
+
+ 
 
 
 

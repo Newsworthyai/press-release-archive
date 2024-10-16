@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/edm-resources
 [Original/Source Press Release](https://newsdirect.com/news/edm-resources-inc-announces-no-atlantic-salmon-found-in-third-season-of-testing-807235214)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/edm-resources-ceo-mark-haywood-provides-update-on-scotia-mine-s-environmental-compliance-progress/ccb2b1a1fd60f12caca0222d1ea60408) 
+
+ 
 
 
 

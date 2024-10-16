@@ -7,7 +7,9 @@ ENCINITAS, CA, June 01, 2024 /24-7PressRelease/ -- Barbara Y. Martin, celebrated
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511349/barbara-y-martin-renowned-mozart-of-metaphysics-passes-away-at-94)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-metaphysical-teacher-barbara-y-martin-passes-away/784ba843219e3d257682a358be951886) 
+
+ 
 
 
 

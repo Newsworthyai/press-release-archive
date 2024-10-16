@@ -7,7 +7,11 @@ DALLAS, TX, June 06, 2024 /24-7PressRelease/ -- Accomplished Texas businesswoman
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511457/event-hosted-by-dallas-businesswoman-dr-letitia-scott-jackson-keeping-families-connected)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-scott-jackson-team-hosting-community-event-in-dallas/3f3516ad9abbde0db2e18effeb70a231) 
+
+
+Pickup - [advos.io](https://advos.io/en/dallas-businesswoman-dr-letitia-scott-jackson-hosts-community-event-to-support-youth/20243874)
+ 
 
 
 

@@ -7,7 +7,17 @@ WASHINGTON, DC, July 24, 2024 /24-7PressRelease/ -- American Medical Technology 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512802/custom-healths-unique-addiction-deterrence-solution-solving-the-opioid-crisis)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-medical-technology-coalition-launches-opioid-addiction-deterrence-task-force-to-combat-opioid-crisis/4a42c0fdb920d3b314d8de5a7d5bb46a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/american-medical-technology-coalition-launches-task-force-to-combat-opioid-crisis)
+
+Pickup - [fishervista.com](https://fishervista.com/en/american-medical-technology-coalition-launches-advanced-task-force-to-combat-opioid-crisis/20245205)
+
+Pickup - [advos.io](https://advos.io/en/american-medical-technology-coalition-forms-task-force-to-combat-opioid-crisis/20245205)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/american-medical-technology-coalition-forms-task-force-to-combat-opioid-crisis)
+ 
 
 
 

@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/gold-basin-re
 [Original/Source Press Release](https://newsdirect.com/news/gold-basin-resources-initiates-q2-drill-program-to-expand-and-delineate-resources-at-gold-basin-560885182)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-basin-resources-initiates-q2-drill-program-to-expand-and-delineate-resources-at-gold-basin/013b47ba9fa4959772195eb7c5de26b1) 
+
+ 
 
 
 

@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/vitalik-buter
 [Original/Source Press Release](https://newsdirect.com/news/vitalik-buterin-reveals-ethereum-update-litecoin-and-kangamoon-top-gainers-this-week-700923589)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vitalik-buterin-announces-ethereum-update-litecoin-and-kangamoon-top-gainers/350a52397c49e1114e28581d0e0d51aa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/07/ethereum-upgrades-litecoin-rebounds-and-kangamoon-presale-soars)
+ 
 
 
 

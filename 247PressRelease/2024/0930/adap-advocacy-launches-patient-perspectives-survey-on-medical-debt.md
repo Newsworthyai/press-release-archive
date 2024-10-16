@@ -7,7 +7,9 @@ NAGS HEAD, NC, September 30, 2024 /24-7PressRelease/ -- ADAP Advocacy today, as 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514767/adap-advocacy-launches-patient-perspectives-survey-on-medical-debt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/adap-advocacy-launches-online-survey-on-medical-debt/6b454b7c88881d1e74d4aae725e815ac) 
+
+ 
 
 
 

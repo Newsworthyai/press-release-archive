@@ -7,7 +7,11 @@ No decimal scarce Engineered scarcity. Real burn that effects the token value an
 [Original/Source Press Release](https://blockchainwire.io/press-release/engineered-scarcity-real-burn-limited-supply-the-rolex-of-projects-erc-20-token-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brolex-collection-unique-nft-project-with-engineered-scarcity-and-rolex-giveaways/6bd3bbecb5e509f81598c28c505e1198) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/30/scarce-a-revolutionary-erc-20-token-with-engineered-scarcity)
+ 
 
 
 

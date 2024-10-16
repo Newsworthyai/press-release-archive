@@ -7,7 +7,17 @@ HONOLULU, HI, September 03, 2024 /24-7PressRelease/ -- Atlantis Coin® proudly a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513968/atlantischain-whitepaper-released-ushering-in-the-next-blockchain-revolution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atlantis-coin-r-launches-atlantischain-whitepaper-revolutionizing-blockchain-technology/66394301dd949b4ff501bbb79b17cfb2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/atlantischain-unveils-groundbreaking-blockchain-technology-with-new-whitepaper)
+
+Pickup - [fishervista.com](https://fishervista.com/en/atlantischain-whitepaper-unveils-breakthrough-in-blockchain-technology/20246468)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/atlantischain-whitepaper-unveils-revolutionary-blockchain-technology/20246468)
+
+Pickup - [advos.io](https://advos.io/en/atlantischain-whitepaper-promises-unprecedented-blockchain-capabilities/20246468)
+ 
 
 
 

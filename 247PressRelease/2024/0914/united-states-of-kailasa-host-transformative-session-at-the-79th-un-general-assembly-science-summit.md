@@ -7,7 +7,17 @@ NEW YORK, NY, September 14, 2024 /24-7PressRelease/ -- Under the auspices of The
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514294/united-states-of-kailasa-host-transformative-session-at-the-79th-un-general-assembly-science-summit)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/usk-hosts-groundbreaking-virtual-session-at-un-science-summit/8680c2dbf108aa9368aa5fc2534f53d2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/14/united-states-of-kailasa-hosts-session-on-indigenous-knowledge-at-un-general-assembly-science-summit)
+
+Pickup - [fishervista.com](https://fishervista.com/en/united-states-of-kailasa-hosts-session-on-indigenous-knowledge-at-un-general-assembly-science-summit/20246828)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/united-states-of-kailasa-hosts-session-on-indigenous-knowledge-at-un-general-assembly-science-summit/20246828)
+
+Pickup - [advos.io](https://advos.io/en/united-states-of-kailasa-hosts-session-on-indigenous-knowledge-at-un-general-assembly-science-summit/20246828)
+ 
 
 
 

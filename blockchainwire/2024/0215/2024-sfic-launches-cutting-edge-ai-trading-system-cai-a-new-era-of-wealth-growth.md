@@ -38,7 +38,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/2024-sfic-launches-cutting-edge-ai-trading-system-cai-a-new-era-of-wealth-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sfic-revolutionizes-investment-industry-with-ai-driven-platform/c0b9867b0996f7067ffbe77b3ba26ba8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/15/sfic-unveils-cutting-edge-ai-trading-system-cai-empowering-investors-for-financial-success)
+ 
 
 
 

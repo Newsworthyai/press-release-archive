@@ -21,7 +21,11 @@ For more information about the Stacks Pay community-led project please visit the
 [Original/Source Press Release](https://newsworthy.ai/news/202403251126/stacks-unveils-exciting-rebrand-in-its-commitment-to-leading-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stacks-pay-unveils-game-changing-updates-and-strategic-partnerships/9091d9d29c9937899f28ef438c4e8218) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/stacks-pay-unveils-rebrand-partnerships-and-token-burn-in-crypto-innovation-push)
+ 
 
 
 

@@ -27,7 +27,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-senior-managemet-team-of-all-universe-visits-the-tobacco-plantation-base-in-kelantan-malaysia)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/all-universe-explores-tobacco-cultivation-in-kelantan-malaysia/524946577cdcf289e5f1b4255d3af862) 
+
+ 
 
 
 

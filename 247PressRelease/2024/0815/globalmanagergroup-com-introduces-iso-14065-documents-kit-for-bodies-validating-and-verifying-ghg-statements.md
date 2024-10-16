@@ -7,7 +7,17 @@ SAN FRANCISCO, CA, August 15, 2024 /24-7PressRelease/ -- Globalmanagergroup.com 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513423/globalmanagergroupcom-introduces-iso-14065-documents-kit-for-bodies-validating-and-verifying-ghg-statements)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-iso-14065-documents-kit-launched-by-globalmanagergroup-com/f01f2b5d75ecb1e8caabf7c833f04cab) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/global-manager-group-launches-iso-14065-documents-kit-for-ghg-validation-and-verification/20245743)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-iso-14065-documentation-kit-streamlines-certification-process-for-environmental-information-validators/20245743)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/new-iso-14065-documents-kit-streamlines-certification-process-for-ghg-validation-bodies)
+
+Pickup - [advos.io](https://advos.io/en/global-manager-group-launches-comprehensive-iso-14065-documents-kit-for-ghg-validation-and-verification/20245743)
+ 
 
 
 

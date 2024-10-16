@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/bacula-announ
 [Original/Source Press Release](https://newsdirect.com/news/bacula-announces-new-features-for-hpc-backup-and-recovery-810411787)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bacula-systems-announces-new-features-for-hpc-backup-and-recovery/4badc1a3347702602e55fe46020b5179) 
+
+ 
 
 
 

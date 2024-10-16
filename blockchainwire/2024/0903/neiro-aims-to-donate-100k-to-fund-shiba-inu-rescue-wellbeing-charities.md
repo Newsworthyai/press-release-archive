@@ -31,7 +31,11 @@ Disclaimer: This press release is for informational purposes only and does not c
 [Original/Source Press Release](https://blockchainwire.io/press-release/neiro-aims-to-donate-100k-to-fund-shiba-inu-rescue--wellbeing-charities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/neiro-announces-100000-initiative-to-support-shiba-inu-rescue-efforts-globally/c440c91eb072071c43be0793a31a3f17) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/neiro-launches-100000-initiative-to-support-shiba-inu-rescue-and-wellbeing/20246727)
+ 
 
 
 

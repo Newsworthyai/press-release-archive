@@ -25,7 +25,9 @@ Web: https://www.bit.cr/deep-dive
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcredit-protocol-raises-67m-pre-seed-for-bitcoin-m1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcredit-protocol-aims-to-upgrade-bitcoin-as-viable-currency/ce7743344f2db4d9184f32069d211c60) 
+
+ 
 
 
 

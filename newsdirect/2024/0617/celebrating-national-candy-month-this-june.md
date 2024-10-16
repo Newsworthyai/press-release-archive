@@ -37,7 +37,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/celebrating-n
 [Original/Source Press Release](https://newsdirect.com/news/celebrating-national-candy-month-this-june-792094522)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/national-confectioners-association-celebrates-national-candy-month/f2de28fe2d558660b558776504854cc4) 
+
+
+Pickup - [advos.io](https://advos.io/en/indulge-in-sweetness-national-candy-month-celebrates-summer-treats/20244216)
+
+Pickup - [fishervista.com](https://fishervista.com/en/national-candy-month-sweetens-the-start-of-summer/20244216)
+ 
 
 
 

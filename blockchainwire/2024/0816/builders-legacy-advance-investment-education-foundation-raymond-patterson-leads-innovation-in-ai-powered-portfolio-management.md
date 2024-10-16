@@ -25,7 +25,17 @@ Under Raymond Patterson’s leadership, Builders Legacy Advance Investment Educa
 [Original/Source Press Release](https://blockchainwire.io/press-release/builders-legacy-advance-investment-education-foundation-raymond-patterson-leads-innovation-in-ai-powered-portfolio-management)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-stock-market-surges-on-positive-economic-data-builders-legacy-introduces-ai-powered-portfolio-management-system/228180fbaff3ae68879d58b9b4f18439) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/16/builders-legacy-foundation-unveils-ai-powered-portfolio-management-system)
+
+Pickup - [fishervista.com](https://fishervista.com/en/builders-legacy-advance-investment-education-foundation-unveils-ai-powered-portfolio-management/20245789)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/builders-legacy-foundation-unveils-ai-powered-portfolio-management-system/20245789)
+
+Pickup - [advos.io](https://advos.io/en/builders-legacy-advance-investment-education-foundation-introduces-ai-powered-portfolio-management-system/20245789)
+ 
 
 
 

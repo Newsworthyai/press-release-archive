@@ -7,7 +7,11 @@ KENNEDALE, TX, April 08, 2024 /24-7PressRelease/ -- "Who would come to a city wh
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509838/kennedale-continues-to-make-it-hard-for-small-businesses-to-open-operate-in-the-city)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/challenges-for-small-businesses-in-kennedale-tx/ba018457ab7abd860056ec23eb161bb6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/kennedale-s-bureaucracy-stifles-small-business-growth)
+ 
 
 
 

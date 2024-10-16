@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/nuestro-studi
 [Original/Source Press Release](https://newsdirect.com/news/nuestro-studios-dark-fantasy-el-clavito-goes-into-production-starring-ruben-rabasa-vivian-lamolli-and-alexander-arias-462507431)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nuestro-studios-announces-production-of-dark-fantasy-el-clavito-starring-rabasa-lamolli-and-arias/fc0f40c289433362038c0f47caddcbb3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/nuestro-studios-announces-production-of-dark-fantasy-short-film-el-clavito)
+
+Pickup - [fishervista.com](https://fishervista.com/en/nuestro-studios-announces-production-of-dark-fantasy-film-el-clavito/20245740)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/nuestro-studios-begins-production-on-bilingual-dark-fantasy-film-el-clavito/20245740)
+
+Pickup - [advos.io](https://advos.io/en/nuestro-studios-announces-production-of-dark-fantasy-film-el-clavito/20245740)
+ 
 
 
 

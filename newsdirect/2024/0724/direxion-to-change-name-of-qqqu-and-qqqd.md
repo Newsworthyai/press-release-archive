@@ -39,7 +39,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/direxion-to-c
 [Original/Source Press Release](https://newsdirect.com/news/direxion-to-change-name-of-qqqu-and-qqqd-522033863)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/direxion-renames-qqqu-and-qqqd-to-magnificent-7-bull-and-bear-shares/ce94854282a4052d7f6d199b7e0c75a9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/direxion-announces-name-change-for-qqqu-and-qqqd-etfs-aligning-with-magnificent-7-focus)
+
+Pickup - [fishervista.com](https://fishervista.com/en/direxion-announces-name-change-for-qqqu-and-qqqd-etfs/20245220)
+
+Pickup - [advos.io](https://advos.io/en/direxion-announces-name-change-for-qqqu-and-qqqd-etfs/20245220)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/direxion-rebrands-etfs-to-focus-on-magnificent-7-tech-giants)
+ 
 
 
 

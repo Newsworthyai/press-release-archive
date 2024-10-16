@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitcoin-slump
 [Original/Source Press Release](https://newsdirect.com/news/bitcoin-slump-spurs-investor-rush-to-raboo-and-toncoin-a-new-crypto-safe-haven-181408234)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-slump-spurs-investor-rush-to-raboo-and-toncoin/abf3f13d968fe3852642467b82a95a2a) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitcoin-slump-drives-investors-to-toncoin-and-raboo-emerging-crypto-safe-havens/20244368)
+
+Pickup - [advos.io](https://advos.io/en/bitcoin-slump-spurs-investor-interest-in-raboo-and-toncoin/20244368)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-slump-spurs-investor-rush-to-raboo-and-toncoin)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-slump-spurs-investor-rush-to-raboo-and-toncoin)
+ 
 
 
 

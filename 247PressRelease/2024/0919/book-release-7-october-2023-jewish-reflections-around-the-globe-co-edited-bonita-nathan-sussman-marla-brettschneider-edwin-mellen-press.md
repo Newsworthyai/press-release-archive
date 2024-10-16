@@ -8,7 +8,9 @@ NEW YORK, NY, September 19, 2024 /24-7PressRelease/ -- 7 October 2023 offers a b
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514477/book-release-7-october-2023-jewish-reflections-around-the-globe-co-edited-bonita-nathan-sussman-marla-brettschneider-edwin-mellen-press)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-release-jewish-reflections-around-the-globe/0b662e5aa8851d24dddae6e1e15cc0c6) 
+
+ 
 
 
 

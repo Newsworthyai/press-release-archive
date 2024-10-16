@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-unveils-j
 [Original/Source Press Release](https://newsdirect.com/news/htx-unveils-june-performance-report-achievements-across-diverse-sectors-highlighting-a-forward-thinking-approach-508529762)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-unveils-june-performance-report-achievements-across-diverse-sectors/e607c4bb9f8594ec6394b218a842a18e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/htx-reports-strong-performance-in-june-ranks-fourth-among-top-exchanges)
+
+Pickup - [advos.io](https://advos.io/en/htx-reports-significant-june-achievements-across-multiple-sectors/20245015)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-unveils-june-performance-report-achievements-across-diverse-sectors)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-unveils-june-performance-report-achievements-across-diverse-sectors)
+ 
 
 
 

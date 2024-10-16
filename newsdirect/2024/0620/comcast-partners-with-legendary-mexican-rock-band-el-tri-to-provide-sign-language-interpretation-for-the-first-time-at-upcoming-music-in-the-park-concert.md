@@ -55,7 +55,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/comcast-partn
 [Original/Source Press Release](https://newsdirect.com/news/comcast-partners-with-legendary-mexican-rock-band-el-tri-to-provide-sign-language-interpretation-for-the-first-time-at-upcoming-music-in-the-park-concert-865057716)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-partners-with-el-tri-to-provide-sign-language-interpretation/1950e0779b666d1e1489d7353bf01b10) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/comcast-and-el-tri-collaborate-to-bring-sign-language-interpretation-to-music-in-the-park-concert/20244332)
+
+Pickup - [advos.io](https://advos.io/en/comcast-and-el-tri-collaborate-to-make-music-in-the-park-accessible-with-sign-language-interpretation/20244332)
+ 
 
 
 

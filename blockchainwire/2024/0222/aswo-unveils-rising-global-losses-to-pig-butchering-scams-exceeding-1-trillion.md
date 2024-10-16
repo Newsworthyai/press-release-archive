@@ -28,7 +28,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/aswo-unveils-rising-global-losses-to-pig-butchering-scams-exceeding-1-trillion)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aswo-unveils-1-trillion-global-scam-losses-at-anti-scam-summit/6e8576da78aca1a1efc69810e7010f43) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/22/global-losses-from-pig-butchering-scams-exceed-1-trillion-warns-anti-scam-organization)
+ 
 
 
 

@@ -35,7 +35,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/trending-and-breaking-the-grounds-of-the-digital-economy-blockdag-network-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-revolutionizing-the-digital-economy-with-transparency-and-innovation/3fea9421468232ca4a2c3e583b341194) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/blockdag-network-revolutionizes-cryptocurrency-with-innovative-approach)
+ 
 
 
 

@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/franklin-temp
 [Original/Source Press Release](https://newsdirect.com/news/franklin-templeton-launches-money-market-fund-on-polygon-why-are-tron-and-kangamoon-surging-846564474)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/franklin-templeton-launches-money-market-fund-on-polygon-tron-and-kangamoon-surge/82b2d650acdbb7d7a5aba1938ef4f953) 
+
+ 
 
 
 

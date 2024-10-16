@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/lana-digital-
 [Original/Source Press Release](https://newsdirect.com/news/lana-digital-innovatively-launches-revolving-line-of-credit-enhancing-financial-inclusion-562174863)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lana-digital-launches-innovative-revolving-line-of-credit/67e860ed102be8e3bbc0eee3a748c1de) 
+
+
+Pickup - [advos.io](https://advos.io/en/lana-digital-launches-flexible-revolving-line-of-credit-to-enhance-financial-inclusion-in-mexico/20245841)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/lana-digital-introduces-flexible-revolving-line-of-credit-in-mexico)
+
+Pickup - [fishervista.com](https://fishervista.com/en/lana-digital-launches-flexible-revolving-line-of-credit-to-boost-financial-inclusion-in-mexico/20245841)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/lana-digital-introduces-flexible-revolving-line-of-credit-in-mexico/20245841)
+ 
 
 
 

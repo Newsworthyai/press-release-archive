@@ -7,7 +7,17 @@ SAN DIEGO, CA, August 14, 2024 /24-7PressRelease/ -- Schonbrun Seplow Harris Hof
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513357/schonbrun-seplow-harris-hoffman-zeldes-llp-welcomes-amy-johnsgard-as-new-partner-spearheading-personal-injury-practice)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amy-johnsgard-joins-schonbrun-seplow-harris-hoffman-zeldes-llp-as-partner/63adfee01514f638fb14c02d8f2f6015) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/amy-johnsgard-joins-schonbrun-seplow-harris-hoffman-zeldes-as-partner-expanding-personal-injury-practice)
+
+Pickup - [fishervista.com](https://fishervista.com/en/schonbrun-seplow-harris-hoffman-zeldes-llp-welcomes-amy-johnsgard-as-new-partner-expanding-personal-injury-practice/20245723)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/schonbrun-seplow-harris-hoffman-zeldes-expands-personal-injury-practice-with-new-partner-amy-johnsgard/20245723)
+
+Pickup - [advos.io](https://advos.io/en/schonbrun-seplow-harris-hoffman-zeldes-llp-welcomes-amy-johnsgard-as-new-partner-in-personal-injury-practice/20245723)
+ 
 
 
 

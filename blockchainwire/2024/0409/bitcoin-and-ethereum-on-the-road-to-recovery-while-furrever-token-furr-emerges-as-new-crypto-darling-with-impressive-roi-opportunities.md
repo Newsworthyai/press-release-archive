@@ -41,7 +41,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-and-ethereum-on-the-road-to-recovery-while-furrever-token-furr-emerges-as-new-crypto-darling-with-impressive-roi-opportunities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/furrever-token-furr-the-new-crypto-contender-captivating-investors/adbafdc74db52318b5d8290d2cfba27a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/furrever-token-emerges-as-crypto-darling-amidst-btc-and-eth-volatility)
+ 
 
 
 

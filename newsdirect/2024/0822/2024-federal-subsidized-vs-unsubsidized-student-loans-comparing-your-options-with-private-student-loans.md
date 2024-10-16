@@ -99,7 +99,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/2024-federal-
 [Original/Source Press Release](https://newsdirect.com/news/2024-federal-subsidized-vs-unsubsidized-student-loans-comparing-your-options-with-private-student-loans-393685748)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comparing-federal-subsidized-vs-unsubsidized-student-loans-with-private-student-loans/09ef0d62a7a630d4829394fef84227df) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/navigating-the-student-loan-landscape-federal-vs-private-options-in-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/evaluating-federal-subsidized-unsubsidized-and-private-student-loans-for-2024/20245905)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/understanding-your-2024-student-loan-options-federal-vs-private/20245905)
+
+Pickup - [advos.io](https://advos.io/en/navigating-2024-student-loan-options-federal-vs-private-loans/20245905)
+ 
 
 
 

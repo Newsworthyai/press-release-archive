@@ -7,7 +7,9 @@ BOSTON, MA, May 16, 2024 /24-7PressRelease/ -- Boston's legendary used and rare 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510945/bostons-brattle-book-shop-acquires-large-collection-of-pulp-fiction-paperbacks)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boston-s-brattle-book-shop-acquires-massive-collection-of-pulp-fiction-paperbacks/d9ce3e5292fcac4709dbebb019e9574c) 
+
+ 
 
 
 

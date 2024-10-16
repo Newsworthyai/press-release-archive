@@ -39,7 +39,9 @@ Facebook: https://web.facebook.com/profile.php?id=61555498297303
 [Original/Source Press Release](https://blockchainwire.io/press-release/simpleminers-introduces-shared-cloud-mining-business)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/simpleminers-introduces-shared-cloud-mining-business-for-institutional-and-low-income-investors/23bde88c65152bbc87eb8ab3df5b4ee6) 
+
+ 
 
 
 

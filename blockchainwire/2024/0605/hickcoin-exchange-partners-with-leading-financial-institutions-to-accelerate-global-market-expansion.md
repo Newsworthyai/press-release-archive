@@ -21,7 +21,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/hickcoin-exchange-partners-with-leading-financial-institutions-to-accelerate-global-market-expansion)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hickcoin-exchange-signs-strategic-partnership-agreements-with-top-tier-financial-institutions/62e66e1cf57ced6c67dc9b6e307d3e81) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/hickcoin-exchange-signs-strategic-partnership-agreements-with-top-tier-financial-institutions)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/hickcoin-exchange-signs-strategic-partnership-agreements-with-top-tier-financial-institutions)
+ 
 
 
 

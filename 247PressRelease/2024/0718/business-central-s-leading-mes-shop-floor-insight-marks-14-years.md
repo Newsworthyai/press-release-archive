@@ -7,7 +7,15 @@ EDMONTON, AB, July 18, 2024 /24-7PressRelease/ -- Insight Works, a leading devel
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512419/business-centrals-leading-mes-shop-floor-insight-marks-14-years)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/insight-works-celebrates-14th-anniversary-of-shop-floor-insight/83e8616532b525d113f80a5cf46f1b24) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/shop-floor-insight-celebrates-14-years-as-leading-mes-for-dynamics-365-business-central)
+
+Pickup - [fishervista.com](https://fishervista.com/en/shop-floor-insight-celebrates-14-years-of-revolutionizing-manufacturing-with-advanced-mes/20245045)
+
+Pickup - [advos.io](https://advos.io/en/shop-floor-insight-celebrates-14-years-of-advancing-manufacturing-efficiency/20245045)
+ 
 
 
 

@@ -7,7 +7,11 @@ TACOMA, WA, March 18, 2024 /24-7PressRelease/ -- As strong supporters of our mil
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509311/puget-law-group-announces-2024-scholarship)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/puget-law-group-offers-2500-scholarship-for-military-family-background/1483a5678cb76119226dd4b4143dc033) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/puget-law-group-opens-military-family-scholarship-for-2024-2025-academic-year)
+ 
 
 
 

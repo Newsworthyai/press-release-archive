@@ -95,7 +95,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/fide-announce
 [Original/Source Press Release](https://newsdirect.com/news/fide-announces-finalists-for-the-2024-world-corporate-chess-championship-484420767)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fide-announces-finalists-for-2024-world-corporate-chess-championship/345e5f299ab9cd8d673b37cb7b5cd12b) 
+
+ 
 
 
 

@@ -30,7 +30,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestechs-nasdaq-snes-evolvetm-offering-sustainable-and-humane-solution-to-nycs-rat-problem/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/senestech-s-evolve-tm-offers-sustainable-solution-to-nyc-s-rat-problem/475c85afddfcd1e49113ba95d87810e6) 
+
+ 
 
 
 

@@ -33,7 +33,11 @@ Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/pandoshis-presale-nears-finish-line-attracting-9000-holders-within-a-month)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pandoshi-pambo-the-next-big-defi-ecosystem/7a4cafc1dd9d38d4606a2db6933f2089) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/12/pandoshi-s-presale-nears-finish-line-attracting-9000-holders-within-a-month)
+ 
 
 
 

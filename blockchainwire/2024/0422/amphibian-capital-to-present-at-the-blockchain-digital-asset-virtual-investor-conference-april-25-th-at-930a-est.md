@@ -36,7 +36,11 @@ todd@amphibiancapital.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/amphibian-capital-to-present-at-the-blockchain--digital-asset-virtual-investor-conference-april-25-th-at-930a-est)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amphibian-capital-co-founder-and-coo-to-present-at-virtual-investor-conference/fae6c6d4906a36fc009f6805f5c594e0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/amphibian-capital-to-present-at-the-blockchain-digital-asset-virtual-investor-conference)
+ 
 
 
 

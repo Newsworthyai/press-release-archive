@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/diamond-lake-
 [Original/Source Press Release](https://newsdirect.com/news/diamond-lake-minerals-otcpk-dlmi-brings-douglas-borthwick-on-board-as-chief-token-strategist-786451051)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/diamond-lake-minerals-bolsters-leadership-position-with-new-chief-token-strategist/36676003cbb3b98b940a2f1aaf9b059f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/diamond-lake-minerals-bolsters-tokenization-strategy-with-seasoned-finance-veteran)
+ 
 
 
 

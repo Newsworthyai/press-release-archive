@@ -31,7 +31,17 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/why-furrever-token-is-poised-to-benefit-from-bitcoin-btcs-endurance-and-ethereum-eths-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/furrever-token-positioned-for-growth-amid-bitcoin-and-ethereum-trends/b695e6bcd300055ed8b51c0a9f896176) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/furrever-token-set-to-capitalize-on-bitcoin-s-stability-and-ethereum-s-growth/20244259)
+
+Pickup - [advos.io](https://advos.io/en/furrever-token-poised-to-benefit-from-bitcoin-s-endurance-and-ethereum-s-growth/20244259)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/furrever-token-positioned-for-growth-amid-bitcoin-and-ethereum-trends)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/furrever-token-positioned-for-growth-amid-bitcoin-and-ethereum-trends)
+ 
 
 
 

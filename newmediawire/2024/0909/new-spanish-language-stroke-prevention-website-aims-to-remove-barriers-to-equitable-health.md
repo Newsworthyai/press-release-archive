@@ -66,7 +66,17 @@
 [Original/Source Press Release](https://www.newmediawire.com/news/new-spanish-language-stroke-prevention-website-aims-to-remove-barriers-to-equitable-health-7076025)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-stroke-association-launches-culturally-relevant-spanish-language-website-to-address-disproportionate-impact-of-stroke-on-hispanic-community/ca0ea192b101de731dd0a6b8278ebea0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/american-stroke-association-launches-spanish-language-website-to-address-stroke-disparities-in-hispanic-community)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-spanish-language-website-aims-to-reduce-stroke-disparities-among-hispanic-communities/20246625)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/american-stroke-association-launches-spanish-language-website-to-address-hispanic-health-disparities/20246625)
+
+Pickup - [advos.io](https://advos.io/en/american-stroke-association-launches-spanish-language-stroke-prevention-website/20246625)
+ 
 
 
 

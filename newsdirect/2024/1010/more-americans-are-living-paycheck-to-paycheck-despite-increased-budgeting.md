@@ -48,7 +48,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/more-american
 [Original/Source Press Release](https://newsdirect.com/news/more-americans-are-living-paycheck-to-paycheck-despite-increased-budgeting-669973436)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/more-americans-living-paycheck-to-paycheck-despite-increased-budgeting/85ec387d4e8989ac9f217c3f8dc6911f) 
+
+ 
 
 
 

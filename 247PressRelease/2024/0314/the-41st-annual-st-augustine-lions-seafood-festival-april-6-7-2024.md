@@ -7,7 +7,11 @@ ST. AUGUSTINE, FL, March 14, 2024 /24-7PressRelease/ -- The Saint Augustine Lion
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509211/the-41st-annual-st-augustine-lions-seafood-festival-april-6-7-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/saint-augustine-lions-seafood-festival-a-gastronomical-and-cultural-delight/e0f0f8382a5776e5c68b29c3e668f25e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/savoring-the-flavors-of-st-augustine-the-annual-lions-seafood-festival)
+ 
 
 
 

@@ -7,7 +7,17 @@ COLUMBIA, MD, September 14, 2024 /24-7PressRelease/ -- The new location, now ope
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514322/regenerative-orthopedics-sports-medicine-relocates-columbia-md-office-to-new-expanded-facility)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rosm-opens-new-facility-in-columbia-md-to-enhance-patient-care/10956e2611a240b80df1cb656235f2f9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/14/rosm-expands-columbia-md-office-to-enhance-patient-care-in-regenerative-medicine)
+
+Pickup - [fishervista.com](https://fishervista.com/en/regenerative-orthopedics-sports-medicine-expands-columbia-md-facility-to-enhance-patient-care/20246829)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/rosm-expands-columbia-md-office-to-enhance-regenerative-medicine-services/20246829)
+
+Pickup - [advos.io](https://advos.io/en/rosm-expands-columbia-md-office-to-enhance-regenerative-medicine-services/20246829)
+ 
 
 
 

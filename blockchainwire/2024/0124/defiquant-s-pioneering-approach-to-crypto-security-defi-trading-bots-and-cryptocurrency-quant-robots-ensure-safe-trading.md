@@ -61,7 +61,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquants-pioneering-approach-to-crypto-security-defi-trading-bots-and-cryptocurrency-quant-robots-ensure-safe-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-launches-innovative-security-features-for-secure-crypto-trading/193035a9e3d77e9124fc7d5499689a14) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/24/defiquant-pioneers-secure-crypto-trading-with-defi-bots-and-quant-robots)
+ 
 
 
 

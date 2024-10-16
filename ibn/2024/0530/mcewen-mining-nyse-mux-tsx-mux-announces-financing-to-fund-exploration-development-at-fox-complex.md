@@ -25,7 +25,9 @@ McEwen Mining Inc. (NYSE: MUX) (TSX: MUX) has announced that it priced a public
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-announces-financing-to-fund-exploration-development-at-fox-complex/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-mining-inc-announces-public-financing-for-fox-complex-development/09dede3ced7a1a43489557228d2d4140) 
+
+ 
 
 
 

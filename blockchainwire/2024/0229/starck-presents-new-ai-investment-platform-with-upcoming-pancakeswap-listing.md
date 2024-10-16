@@ -35,7 +35,11 @@ X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/starck-presents-new-ai-investment-platform-with-upcoming-pancakeswap-listing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/starck-announces-launch-of-stk-token-on-pancakeswap-and-ai-investment-platform/012266b72fc86ef8528777848ff93f7d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/29/starck-unveils-ai-powered-investment-platform-and-pancakeswap-listing)
+ 
 
 
 

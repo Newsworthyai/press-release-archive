@@ -95,7 +95,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/unos-fires-ba
 [Original/Source Press Release](https://newsdirect.com/news/unos-fires-back-at-defamatory-statements-that-it-has-acted-unlawfully-990329133)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unos-fires-back-at-defamatory-statements/e4866eae596b6147f87e7595a90dcae7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/unos-refutes-allegations-of-unlawful-behavior-in-organ-donation-and-transplant-system)
+
+Pickup - [fishervista.com](https://fishervista.com/en/unos-refutes-allegations-of-unlawful-behavior-in-organ-donation-system/20246823)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/unos-refutes-allegations-of-unlawful-behavior-in-organ-transplant-system/20246823)
+
+Pickup - [advos.io](https://advos.io/en/unos-refutes-allegations-of-unlawful-behavior-in-organ-donation-system/20246823)
+ 
 
 
 

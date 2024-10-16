@@ -32,7 +32,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-announces-new-executive-team-members/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annovis-bio-welcomes-new-executive-team-members/894f44f4c7af32edcc128f92d5d8dcab) 
+
+ 
 
 
 

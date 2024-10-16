@@ -51,7 +51,19 @@ X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/themoonmemes-project-presents-a-new-utility-packed-meme-token)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/themoonmemes-introduces-tmm-token-with-robust-staking-system-and-exciting-roadmap/937c220e0f7531e267ba7501659efe54) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/themoonmemes-introduces-utility-packed-meme-token-tmm-with-robust-staking-rewards/20244620)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/themoonmemes-launches-utility-rich-meme-token-with-staking-rewards)
+
+Pickup - [advos.io](https://advos.io/en/themoonmemes-project-launches-utility-packed-meme-token-tmm/20244620)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/themoonmemes-introduces-tmm-token-with-robust-staking-system-and-exciting-roadmap)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/themoonmemes-introduces-tmm-token-with-robust-staking-system-and-exciting-roadmap)
+ 
 
 
 

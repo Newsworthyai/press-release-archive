@@ -40,7 +40,11 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202405231175/hr-com-announces-the-state-of-people-analytics-2024-study-and-advisory-board)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-announces-state-of-people-analytics-2024-advisory-board/e46f733c02c4ba7bf0aa3082c75893c2) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-com-launches-state-of-people-analytics-2024-study-with-expert-advisory-board/20243360)
+ 
 
 
 

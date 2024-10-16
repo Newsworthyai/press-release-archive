@@ -31,7 +31,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/ready-to-fight-goes-for-1-2-punch-mike-tyson-joins-as-ambassador-with-rtf-token-landing-4-major-exchange-listings)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mike-tyson-joins-ready-to-fight-as-ambassador-rtf-token-set-for-premier-exchange-listings/4e6670b64a60152ad64e846bf839d435) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/ready-to-fight-goes-for-1-2-punch-mike-tyson-joins-as-ambassador-with-rtf-token-landing-4-major-exchange-listings)
+ 
 
 
 

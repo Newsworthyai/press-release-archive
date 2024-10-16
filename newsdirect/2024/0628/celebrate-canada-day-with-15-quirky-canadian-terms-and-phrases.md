@@ -115,7 +115,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/celebrate-can
 [Original/Source Press Release](https://newsdirect.com/news/celebrate-canada-day-with-15-quirky-canadian-terms-and-phrases-325122044)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/celebrate-canada-day-with-15-quirky-canadian-terms-and-phrases/f4d80e011ea6abbb16a40d7ea255a8bc) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/celebrating-canada-day-understanding-15-unique-canadian-terms-and-phrases/20244580)
+
+Pickup - [advos.io](https://advos.io/en/celebrate-canada-day-with-unique-canadian-terms-and-phrases/20244580)
+ 
 
 
 

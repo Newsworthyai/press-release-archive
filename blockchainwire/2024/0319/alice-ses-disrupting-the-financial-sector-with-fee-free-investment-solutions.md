@@ -25,7 +25,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/alice-ses-disrupting-the-financial-sector-with-fee-free-investment-solutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alice-ses-revolutionizes-financial-landscape-with-fee-free-investment-model/18d44c0d312a465421f044aa4d70637f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/alice-ses-pioneers-fee-free-investment-platform-disrupting-financial-services)
+ 
 
 
 

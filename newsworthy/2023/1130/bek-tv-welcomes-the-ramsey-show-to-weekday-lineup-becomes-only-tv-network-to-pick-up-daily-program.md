@@ -19,7 +19,11 @@ The concept behind BEK’s news programming is to provide a media service platfo
 [Original/Source Press Release](https://newsworthy.ai/news/20231130902/bek-tv-welcomes-the-ramsey-show-to-weekday-lineup-becomes-only-tv-network-to-pick-up-daily-program)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bek-tv-adds-the-ramsey-show-to-weekday-lineup/a5273f5980c560614d1e10bd981f45a4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/30/bek-tv-brings-dave-ramsey-s-financial-wisdom-to-north-dakota-viewers)
+ 
 
 
 

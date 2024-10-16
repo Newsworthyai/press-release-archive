@@ -33,7 +33,11 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202405161169/expensive-healthcare-and-specialty-drugs-are-putting-the-pressure-on-new-study-by-aimed-alliance-and-hr-coms-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-study-reveals-hr-concerns-about-rising-prescription-drug-costs/316e540679998d9dafc5e78bc8586395) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rising-healthcare-costs-and-specialty-drugs-pose-challenges-for-hr-professionals/20243106)
+ 
 
 
 

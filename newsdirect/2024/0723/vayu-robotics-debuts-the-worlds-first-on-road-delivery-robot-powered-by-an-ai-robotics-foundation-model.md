@@ -43,7 +43,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/vayu-robotics
 [Original/Source Press Release](https://newsdirect.com/news/vayu-robotics-debuts-the-worlds-first-on-road-delivery-robot-powered-by-an-ai-robotics-foundation-model-794444391)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vayu-robotics-unveils-groundbreaking-delivery-robot-with-ai-foundation-model/603e618893d436e2df44b7f82a5bc8d2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/vayu-robotics-unveils-revolutionary-ai-powered-delivery-robot)
+
+Pickup - [fishervista.com](https://fishervista.com/en/vayu-robotics-introduces-breakthrough-ai-powered-delivery-robot/20245190)
+
+Pickup - [advos.io](https://advos.io/en/vayu-robotics-unveils-groundbreaking-ai-powered-delivery-robot/20245190)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/vayu-robotics-unveils-revolutionary-ai-powered-delivery-robot)
+ 
 
 
 

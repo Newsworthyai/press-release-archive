@@ -31,7 +31,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/aberdeen-limi
 [Original/Source Press Release](https://newsdirect.com/news/aberdeen-limited-explores-potential-partnership-with-ryanair-for-strategic-bond-allocation-820159630)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aberdeen-limited-explores-potential-partnership-with-ryanair-for-strategic-bond-allocation/80dbda018193bf270c0b672faf0dd605) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/aberdeen-limited-explores-strategic-bond-partnership-with-ryanair/20244635)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/aberdeen-limited-and-ryanair-consider-strategic-bond-allocation-partnership)
+
+Pickup - [advos.io](https://advos.io/en/aberdeen-limited-and-ryanair-explore-strategic-bond-allocation-partnership/20244635)
+ 
 
 
 

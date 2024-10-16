@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/apple-rush-co
 [Original/Source Press Release](https://newsdirect.com/news/apple-rush-company-inc-announces-addition-of-packing-equipment-to-lena-brewery-equipment-will-expand-capacity-at-lena-to-our-announced-500-000-can-month-projection-265253737)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/apple-rush-company-inc-expands-brewing-operations-with-new-equipment/f46e1613c010180bcad8ee1ad0a10cac) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/apple-rush-company-expands-production-capacity-with-new-equipment-at-lena-brewery)
+
+Pickup - [fishervista.com](https://fishervista.com/en/apple-rush-company-inc-expands-production-capacity-with-new-equipment-at-lena-brewery/20245763)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/apple-rush-company-expands-brewing-capacity-with-new-equipment-at-lena-facility/20245763)
+
+Pickup - [advos.io](https://advos.io/en/apple-rush-company-expands-lena-brewery-with-new-packing-equipment/20245763)
+ 
 
 
 

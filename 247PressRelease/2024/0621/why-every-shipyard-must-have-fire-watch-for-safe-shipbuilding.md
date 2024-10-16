@@ -7,7 +7,13 @@ CHARLOTTE, NC, June 21, 2024 /24-7PressRelease/ -- In the dynamic and potentiall
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511900/why-every-shipyard-must-have-fire-watch-for-safe-shipbuilding)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-vital-role-of-fire-watch-in-shipbuilding/2ddbca0ecfabd924530eba0ad3753c17) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/importance-of-fire-watch-in-shipyards-for-safe-shipbuilding/20244354)
+
+Pickup - [advos.io](https://advos.io/en/essential-role-of-fire-watch-in-shipyard-safety/20244354)
+ 
 
 
 

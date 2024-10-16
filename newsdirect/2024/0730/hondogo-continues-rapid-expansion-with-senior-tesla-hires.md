@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/hondogo-conti
 [Original/Source Press Release](https://newsdirect.com/news/hondogo-continues-rapid-expansion-with-senior-tesla-hires-751197984)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hondogo-continues-rapid-expansion-with-senior-tesla-hires/3c2a69faf3ebf14714d3a9fe90f4acbd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/hondogo-accelerates-ev-charging-network-expansion-with-key-tesla-hires)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hondogo-strengthens-position-in-ev-infrastructure-with-key-tesla-hires/20245355)
+
+Pickup - [advos.io](https://advos.io/en/hondogo-expands-with-key-tesla-hires-to-revolutionize-ev-infrastructure/20245355)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hondogo-accelerates-ev-charging-network-expansion-with-key-tesla-hires)
+ 
 
 
 

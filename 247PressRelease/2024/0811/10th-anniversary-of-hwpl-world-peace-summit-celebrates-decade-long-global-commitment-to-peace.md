@@ -7,7 +7,17 @@ NEW YORK, NY, August 11, 2024 /24-7PressRelease/ -- Heavenly Culture, World Peac
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513306/10th-anniversary-of-hwpl-world-peace-summit-celebrates-decade-long-global-commitment-to-peace)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hwpl-to-commemorate-10th-anniversary-of-world-peace-summit/629aac374affa773ae004b6cfa9513f2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/11/hwpl-marks-10-years-of-global-peace-efforts-with-worldwide-commemoration)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hwpl-marks-10th-anniversary-of-world-peace-summit-with-global-events/20245638)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hwpl-marks-10-years-of-global-peace-efforts-with-worldwide-celebrations/20245638)
+
+Pickup - [advos.io](https://advos.io/en/hwpl-marks-10-years-of-global-peace-efforts-with-worldwide-commemoration/20245638)
+ 
 
 
 

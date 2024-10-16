@@ -50,7 +50,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/okaycoin-staking-platform-sees-surge-in-activity-amid-ethereums-bullish-market-trends)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/okaycoin-experiences-unprecedented-growth-as-ethereum-surges/22e32cea22660e7b5469bb36702262bb) 
+
+
+Pickup - [advos.io](https://advos.io/en/okaycoin-staking-platform-experiences-unprecedented-growth-amid-ethereum-s-bullish-trends/20244116)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/okaycoin-experiences-unprecedented-growth-as-ethereum-surges)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/okaycoin-experiences-unprecedented-growth-as-ethereum-surges)
+ 
 
 
 

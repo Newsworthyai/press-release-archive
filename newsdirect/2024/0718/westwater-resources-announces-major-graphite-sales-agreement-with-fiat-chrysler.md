@@ -23,7 +23,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/westwater-res
 [Original/Source Press Release](https://newsdirect.com/news/westwater-resources-announces-major-graphite-sales-agreement-with-fiat-chrysler-226437041)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/westwater-resources-secures-major-sales-agreement-with-fiat-chrysler/24a378a6584d6456fc3de527692325d2) 
+
+
+Pickup - [advos.io](https://advos.io/en/westwater-resources-announces-major-graphite-sales-agreement-with-fiat-chrysler/20245079)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/westwater-resources-secures-major-graphite-supply-deal-with-fiat-chrysler)
+
+Pickup - [fishervista.com](https://fishervista.com/en/westwater-resources-secures-major-graphite-sales-agreement-with-fiat-chrysler/20245079)
+ 
 
 
 

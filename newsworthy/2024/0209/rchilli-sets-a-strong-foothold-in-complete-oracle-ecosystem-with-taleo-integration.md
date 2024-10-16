@@ -27,7 +27,13 @@ RChilli is the trusted partner for parsing, matching, and data enrichment, provi
 [Original/Source Press Release](https://newsworthy.ai/news/202402091057/rchilli-sets-a-strong-foothold-in-complete-oracle-ecosystem-with-taleo-integration)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-achieves-milestone-by-adding-taleo-to-oracle-integrations/b91f162776ebab71aab5b2a033f94d79) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-expands-oracle-integration-with-taleo-solidifying-position-in-hr-tech/20241)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/09/rchilli-cements-position-as-oracle-ecosystem-leader-with-taleo-integration)
+ 
 
 
 

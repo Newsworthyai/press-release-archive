@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/helix-explora
 [Original/Source Press Release](https://newsdirect.com/news/helix-exploration-secures-crucial-drilling-rig-for-montana-project-734808987)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/helix-exploration-secures-crucial-drilling-rig-for-montana-project/b9c5e2f70afccebf86522d20ddc0a096) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/helix-exploration-secures-crucial-drilling-rig-for-montana-project)
+ 
 
 
 

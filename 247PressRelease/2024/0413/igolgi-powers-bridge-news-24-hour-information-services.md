@@ -7,7 +7,9 @@ PRINCETON, NJ, April 13, 2024 /24-7PressRelease/ -- igolgi, inc., a leading inno
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510034/igolgi-powers-bridge-news-24-hour-information-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/igolgi-inc-and-bridge-news-llc-collaborate-on-nationwide-ota-distribution-project/012f658a828e9112863c579e357f7612) 
+
+ 
 
 
 

@@ -53,7 +53,9 @@ For more information, visit HyroTrader’s website.
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-proprietary-trading-firm-hyrotrader-experiences-rapid-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hyrotrader-achieves-51-month-on-month-revenue-increase-and-expands-services/514d9923c5eda88cd13d28c48a57fd08) 
+
+ 
 
 
 

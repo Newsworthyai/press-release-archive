@@ -7,7 +7,9 @@ OTTAWA, ON, September 26, 2024 /24-7PressRelease/ -- Alexander Fraser, a renowne
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514658/alexander-fraser-to-represent-canada-at-the-international-stock-return-competition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-stock-analyst-to-represent-canada-in-international-stock-return-competition/da00578c3ea9dee75afb7268120b15b2) 
+
+ 
 
 
 

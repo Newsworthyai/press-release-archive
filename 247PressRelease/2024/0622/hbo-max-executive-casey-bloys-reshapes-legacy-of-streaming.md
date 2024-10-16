@@ -7,7 +7,13 @@ LOS ANGELES, CA, June 22, 2024 /24-7PressRelease/ -- HBO Max, the renowned strea
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511911/hbo-max-executive-casey-bloys-reshapes-legacy-of-streaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hbo-max-names-casey-bloys-as-ceo-ushering-in-a-new-era-of-creative-leadership/e2ac392670822cae4494a4a13818b843) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/casey-bloys-ascends-to-ceo-of-hbo-max-paving-the-way-for-future-innovations-in-streaming/20244391)
+
+Pickup - [advos.io](https://advos.io/en/casey-bloys-elevates-hbo-max-amid-intensifying-streaming-wars/20244391)
+ 
 
 
 

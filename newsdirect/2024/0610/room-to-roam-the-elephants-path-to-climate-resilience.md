@@ -15,7 +15,11 @@ View original content to download multimedia: https://newsdirect.com/news/room-t
 [Original/Source Press Release](https://newsdirect.com/news/room-to-roam-the-elephants-path-to-climate-resilience-468836318)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/initiative-creates-path-for-elephants-climate-resilience/8ecbc20c9055df1a4f2b47f4a72390c2) 
+
+
+Pickup - [advos.io](https://advos.io/en/the-elephants-path-to-climate-resilience-a-story-of-room-to-roam/20243968)
+ 
 
 
 

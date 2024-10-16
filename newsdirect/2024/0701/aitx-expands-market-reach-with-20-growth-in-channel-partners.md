@@ -49,7 +49,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/aitx-expands-
 [Original/Source Press Release](https://newsdirect.com/news/aitx-expands-market-reach-with-20-growth-in-channel-partners-802348803)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aitx-expands-market-reach-with-20-growth-in-channel-partners/3f154348b30bbba76fbcbc5a530ec76e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/aitx-expands-market-reach-with-20-growth-in-channel-partners/20244603)
+
+Pickup - [advos.io](https://advos.io/en/aitx-announces-20-expansion-in-channel-partners-highlights-strong-market-growth/20244603)
+ 
 
 
 

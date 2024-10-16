@@ -75,7 +75,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/consumer-disc
 [Original/Source Press Release](https://newsdirect.com/news/consumer-discretionary-sector-spdr-fund-xly-tapping-into-the-luxury-consumer-market-687887773)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/invest-in-the-high-end-retail-market-with-xly-fund/43eb076eeda40f0fa313092db1694354) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/investing-in-the-high-end-retail-market-with-xly)
+ 
 
 
 

@@ -65,7 +65,11 @@ Official Website https://www.web3techweek.hk/
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcoming-hong-kong-web-30-spring-summit-exclusive-reveal-of-guest-speakers-conference-agenda-and-partnerships)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-web3-0-spring-summit-industry-leaders-converge-for-innovation/e04cdf952d4897c193d102697e8e6a6d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/hong-kong-gears-up-for-groundbreaking-web-3-0-summit)
+ 
 
 
 

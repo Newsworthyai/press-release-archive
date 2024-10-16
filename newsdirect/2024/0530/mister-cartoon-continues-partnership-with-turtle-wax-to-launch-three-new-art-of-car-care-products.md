@@ -59,7 +59,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/mister-cartoo
 [Original/Source Press Release](https://newsdirect.com/news/mister-cartoon-continues-partnership-with-turtle-wax-to-launch-three-new-art-of-car-care-products-315253689)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/turtle-wax-and-mister-cartoon-launch-new-art-of-car-caretm-products/a0f4fdc5389ed29edd2376f9da1d8cad) 
+
+ 
 
 
 

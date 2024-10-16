@@ -25,7 +25,9 @@ Syed Sameer, Sameer Group CEO’s official X / Twitter
 [Original/Source Press Release](https://blockchainwire.io/press-release/ansem-who-rose-to-fame-with-wif-success-leads-community-takeover-of-solanas-michi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trader-ansem-spearheads-community-takeover-of-michi-on-solana-backed-by-30m-investment/cb72312345e00e2320c9b2e029c95eba) 
+
+ 
 
 
 

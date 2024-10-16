@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ilika-plc-adv
 [Original/Source Press Release](https://newsdirect.com/news/ilika-plc-advances-goliath-ev-battery-testing-with-customer-sponsored-program-617331262)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ilika-plc-advances-goliath-ev-battery-testing-with-customer-sponsored-program/c3f2eb98e6aaa046d2227fb9843bb97b) 
+
+ 
 
 
 

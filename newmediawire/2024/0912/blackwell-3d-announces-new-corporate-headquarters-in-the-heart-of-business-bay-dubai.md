@@ -29,7 +29,17 @@ IR@BLACKWELL3D.COM
 [Original/Source Press Release](https://www.newmediawire.com/news/blackwell-3d-announces-new-corporate-headquarters-in-the-heart-of-business-bay-dubai-7076045)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blackwell-3d-construction-corp-secures-new-corporate-headquarters-in-business-bay-dubai/b8c31166737fa72f7b2e1842c80d3e9b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/blackwell-3d-establishes-new-corporate-headquarters-in-dubai-s-business-bay)
+
+Pickup - [fishervista.com](https://fishervista.com/en/blackwell-3d-establishes-new-headquarters-in-dubai-s-business-bay/20246779)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/blackwell-3d-establishes-new-corporate-headquarters-in-dubai-s-business-bay/20246779)
+
+Pickup - [advos.io](https://advos.io/en/blackwell-3d-establishes-new-corporate-headquarters-in-dubai-s-business-bay/20246779)
+ 
 
 
 

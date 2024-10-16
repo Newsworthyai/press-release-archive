@@ -26,7 +26,11 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/mcewen-mining-nyse-mux-tsx-mux-releases-q2-results-update-on-argentinian-mining-project/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-mining-reports-most-profitable-quarter-in-eight-years/7d68c3492022f1cb20c9a9ce2373b802) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mcewen-mining-reports-strong-q2-results-and-progress-on-los-azules-copper-project/20246119)
+ 
 
 
 

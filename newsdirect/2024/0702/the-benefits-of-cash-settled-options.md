@@ -39,7 +39,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-benefits-
 [Original/Source Press Release](https://newsdirect.com/news/the-benefits-of-cash-settled-options-770811217)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/understanding-cash-settled-options-and-their-benefits/5e3969068b08c9348e8125d6d6c7ff0f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cboe-highlights-benefits-of-cash-settled-options-for-modern-traders/20244625)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/cash-settled-options-a-simplified-approach-to-options-trading)
+
+Pickup - [advos.io](https://advos.io/en/understanding-the-benefits-of-cash-settled-options-in-trading/20244625)
+ 
 
 
 

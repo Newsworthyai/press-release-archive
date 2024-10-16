@@ -37,7 +37,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-
 [Original/Source Press Release](https://newsdirect.com/news/htx-ventures-invests-in-redstone-oracles-to-expand-modular-defi-infrastructure-944755202)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-ventures-invests-in-redstone-oracles-to-expand-modular-defi-infrastructure/6dc84675d01c1606d712df9eb5d647fd) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/htx-ventures-invests-in-redstone-oracles-to-boost-defi-infrastructure/20244634)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/htx-ventures-backs-redstone-oracles-to-enhance-defi-infrastructure)
+
+Pickup - [advos.io](https://advos.io/en/htx-ventures-invests-in-redstone-oracles-to-expand-modular-defi-infrastructure/20244634)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-ventures-invests-in-redstone-oracles-to-expand-modular-defi-infrastructure)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-ventures-invests-in-redstone-oracles-to-expand-modular-defi-infrastructure)
+ 
 
 
 

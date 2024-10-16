@@ -7,7 +7,11 @@ JOHNS CREEK, GA, June 13, 2024 /24-7PressRelease/ -- As a lawyer and entrepreneu
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511686/award-winning-georgia-entrepreneur-launches-sagedox)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/entrepreneur-launches-sagedox-for-small-business-legal-needs/801b169cc064efbd659620bb81e98e92) 
+
+
+Pickup - [advos.io](https://advos.io/en/georgia-entrepreneur-danielle-hudson-laughlin-launches-sagedox-to-aid-small-businesses-with-legal-compliance/20244101)
+ 
 
 
 

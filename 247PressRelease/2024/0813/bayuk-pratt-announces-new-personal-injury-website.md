@@ -7,7 +7,17 @@ ATLANTA, GA, August 13, 2024 /24-7PressRelease/ -- The personal injury and civil
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513334/bayuk-pratt-announces-new-personal-injury-website)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bayuk-pratt-launches-enhanced-client-experience-with-new-website/ef56616020b715327b83c527cf9e21f2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/bayuk-pratt-law-firm-launches-new-website-to-enhance-client-experience)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bayuk-pratt-launches-new-website-to-enhance-client-experience/20245680)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bayuk-pratt-law-firm-launches-new-website-to-better-serve-personal-injury-clients/20245680)
+
+Pickup - [advos.io](https://advos.io/en/bayuk-pratt-unveils-new-client-centric-personal-injury-website/20245680)
+ 
 
 
 

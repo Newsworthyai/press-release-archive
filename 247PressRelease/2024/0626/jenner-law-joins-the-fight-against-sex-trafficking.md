@@ -7,7 +7,13 @@ BALTIMORE, MD, June 26, 2024 /24-7PressRelease/ -- Sex trafficking is a grave vi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512025/jenner-law-joins-the-fight-against-sex-trafficking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jenner-law-takes-legal-action-against-sex-trafficking/5f87770bc5cf4980352ee1c448bd432e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/jenner-law-takes-legal-action-against-choice-hotels-for-alleged-role-in-sex-trafficking/20244476)
+
+Pickup - [advos.io](https://advos.io/en/jenner-law-sues-choice-hotels-for-alleged-role-in-facilitating-sex-trafficking/20244476)
+ 
 
 
 

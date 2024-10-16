@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/pyxis-tankers
 [Original/Source Press Release](https://newsdirect.com/news/pyxis-tankers-chairman-and-ceo-on-market-outlook-and-growth-strategies-638931011)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pyxis-tankers-ceo-discusses-market-outlook-and-growth-strategies-at-posidonia-shipping-event/d10111af3e54409b03887f5ede15e6e6) 
+
+
+Pickup - [advos.io](https://advos.io/en/pyxis-tankers-ceo-valentis-discusses-market-outlook-and-strategic-growth-at-posidonia-event/20244038)
+ 
 
 
 

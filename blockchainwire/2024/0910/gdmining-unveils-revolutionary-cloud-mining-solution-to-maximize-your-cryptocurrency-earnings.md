@@ -27,7 +27,21 @@ For more information, Please visit their official website: https://gdmining.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-unveils-revolutionary-cloud-mining-solution-to-maximize-your-cryptocurrency-earnings)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gdmining-launches-groundbreaking-cloud-mining-solution/e0bb13abefc7fc5695a9760103acf2e4) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gdmining-launches-groundbreaking-cloud-mining-solution)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gdmining-launches-groundbreaking-cloud-mining-solution)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gdmining-launches-innovative-cloud-mining-platform-to-enhance-cryptocurrency-earnings/20246691)
+
+Pickup - [advos.io](https://advos.io/en/gdmining-launches-user-friendly-cloud-mining-platform-to-boost-cryptocurrency-earnings/20246691)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gdmining-launches-innovative-cloud-mining-platform-for-accessible-cryptocurrency-earnings/20246691)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/gdmining-launches-innovative-cloud-mining-platform-for-accessible-cryptocurrency-earnings)
+ 
 
 
 

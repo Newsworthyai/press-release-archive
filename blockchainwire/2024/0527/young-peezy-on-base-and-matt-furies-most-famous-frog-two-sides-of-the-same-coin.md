@@ -9,7 +9,13 @@ The Young Peezy Community: Active and GrowingEvery good memecoin has a supportiv
 [Original/Source Press Release](https://blockchainwire.io/press-release/young-peezy-on-base-and-matt-furies-most-famous-frog-two-sides-of-the-same-coin)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/young-peezy-coin-on-base-leading-the-memecoin-revolution/54a628df024be5d1a8e1b9e8a9fcc4bf) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/young-peezy-coin-on-base-leading-the-memecoin-revolution)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/young-peezy-coin-on-base-leading-the-memecoin-revolution)
+ 
 
 
 

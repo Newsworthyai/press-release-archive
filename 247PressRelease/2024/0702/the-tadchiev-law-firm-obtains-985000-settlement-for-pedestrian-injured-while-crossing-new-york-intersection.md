@@ -7,7 +7,15 @@ NEW YORK, NY, July 02, 2024 /24-7PressRelease/ -- The Tadchiev Law Firm is pleas
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512197/the-tadchiev-law-firm-obtains-985000-settlement-for-pedestrian-injured-while-crossing-new-york-intersection)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tadchiev-law-firm-secures-985000-settlement-for-injured-pedestrian/257d770f14229edd30446e6a7fd2a580) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/tadchiev-law-firm-secures-985000-settlement-for-pedestrian-injured-in-new-york/20244646)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/pedestrian-accident-victim-awarded-985000-settlement-in-new-york)
+
+Pickup - [advos.io](https://advos.io/en/the-tadchiev-law-firm-secures-985000-settlement-for-injured-pedestrian-in-new-york/20244646)
+ 
 
 
 

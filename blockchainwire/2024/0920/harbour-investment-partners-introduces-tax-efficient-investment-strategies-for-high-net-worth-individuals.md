@@ -51,7 +51,9 @@ High-net-worth individuals and families seeking to reduce their tax liabilities 
 [Original/Source Press Release](https://blockchainwire.io/press-release/harbour-investment-partners-introduces-tax-efficient-investment-strategies-for-high-net-worth-individuals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/harbour-investment-partners-launches-tax-efficient-investment-strategies-for-high-net-worth-clients/3a7e56c0d030f2773eb40af1e074cd22) 
+
+ 
 
 
 

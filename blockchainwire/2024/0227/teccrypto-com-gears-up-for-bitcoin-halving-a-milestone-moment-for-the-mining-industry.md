@@ -48,7 +48,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/teccryptocom-gears-up-for-bitcoin-halving---a-milestone-moment-for-the-mining-industry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teccrypto-com-unveils-comprehensive-strategy-for-bitcoin-halving-event/d3c2e49dd3017a058fe35c1164c49576) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/27/teccrypto-com-unveils-comprehensive-strategy-for-bitcoin-halving)
+ 
 
 
 

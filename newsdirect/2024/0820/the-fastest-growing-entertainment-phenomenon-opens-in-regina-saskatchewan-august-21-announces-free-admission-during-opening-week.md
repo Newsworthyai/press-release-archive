@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-fastest-g
 [Original/Source Press Release](https://newsdirect.com/news/the-fastest-growing-entertainment-phenomenon-opens-in-regina-saskatchewan-august-21-announces-free-admission-during-opening-week-382016404)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/activate-opens-world-s-first-active-gaming-facility-in-regina-saskatchewan/d5a4c16e73f6be6ecd64220eaaa9a27e) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/activate-games-expands-to-regina-offering-free-admission-for-opening-week/20245837)
+
+Pickup - [advos.io](https://advos.io/en/activate-opens-first-regina-location-with-free-admission-for-opening-week/20245837)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/activate-games-expands-to-regina-offering-free-admission-for-opening-week)
+
+Pickup - [fishervista.com](https://fishervista.com/en/activate-gaming-facility-opens-in-regina-with-free-admission-during-opening-week/20245837)
+ 
 
 
 

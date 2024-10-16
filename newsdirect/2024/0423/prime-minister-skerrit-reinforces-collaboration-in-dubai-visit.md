@@ -85,7 +85,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/prime-ministe
 [Original/Source Press Release](https://newsdirect.com/news/prime-minister-skerrit-reinforces-collaboration-in-dubai-visit-371065749)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prime-minister-skerrit-emphasizes-significance-of-cbi-programme-in-dubai-visit/0e81fcea6ebdd7bd948b1f2448ab3772) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/prime-minister-skerrit-reinforces-collaboration-in-dubai-visit)
+ 
 
 
 

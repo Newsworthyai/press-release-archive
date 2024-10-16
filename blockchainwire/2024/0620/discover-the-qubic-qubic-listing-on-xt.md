@@ -51,7 +51,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-discover-the-qubic-qubic-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-lists-qubic-qubic-on-trading-platform/4b451d98e12ae5e5020391c1468c0f47) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/xt-announces-listing-of-qubic-qubic-on-its-platform/20244349)
+
+Pickup - [advos.io](https://advos.io/en/xt-announces-listing-of-qubic-on-its-socially-infused-trading-platform/20244349)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/xt-lists-qubic-qubic-on-trading-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/xt-lists-qubic-qubic-on-trading-platform)
+ 
 
 
 

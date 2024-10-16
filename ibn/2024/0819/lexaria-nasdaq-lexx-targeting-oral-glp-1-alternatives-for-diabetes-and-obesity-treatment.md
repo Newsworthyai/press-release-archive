@@ -34,7 +34,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-nasdaq-lexx-targeting-oral-glp-1-alternatives-for-diabetes-and-obesity-treatment/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lexaria-explores-oral-glp-1-alternatives-for-diabetes-and-obesity-treatment/fb82ae4531a654fda92d754ce3704915) 
+
+ 
 
 
 

@@ -43,7 +43,17 @@ Immunefi is the largest onchain crowdsourced security platform. Immunefi guards 
 [Original/Source Press Release](https://blockchainwire.io/press-release/immunefi-reports-over-100-million-paid-to-ethical-hackers-in-3-years)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/immunefi-pays-over-100-million-in-bug-bounty-rewards/d639947cc9a8682c3515361f8412b87a) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/immunefi-celebrates-100-million-in-bug-bounty-payouts-transforming-web3-security/20244322)
+
+Pickup - [advos.io](https://advos.io/en/immunefi-pays-over-100-million-to-ethical-hackers-safeguarding-190-billion-in-user-funds/20244322)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/immunefi-pays-over-100-million-in-bug-bounty-rewards)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/immunefi-pays-over-100-million-in-bug-bounty-rewards)
+ 
 
 
 

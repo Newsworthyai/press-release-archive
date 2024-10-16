@@ -19,7 +19,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/doubleview-go
 [Original/Source Press Release](https://newsdirect.com/news/doubleview-gold-corp-releases-maiden-mineral-resource-estimate-for-hat-project-716393707)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/doubleview-gold-corp-announces-maiden-mineral-resource-estimate-for-hat-project/25f6cf6b2b0f0c198ad7cb4bfed33888) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/doubleview-gold-corp-announces-significant-mineral-resource-estimate-for-hat-project)
+
+Pickup - [fishervista.com](https://fishervista.com/en/doubleview-gold-corp-unveils-maiden-mineral-resource-estimate-for-hat-project/20245266)
+
+Pickup - [advos.io](https://advos.io/en/doubleview-gold-corp-unveils-maiden-mineral-resource-estimate-for-hat-project/20245266)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/doubleview-gold-corp-announces-significant-mineral-resources-at-hat-project)
+ 
 
 
 

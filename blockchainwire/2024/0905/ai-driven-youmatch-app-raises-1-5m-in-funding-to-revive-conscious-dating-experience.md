@@ -25,7 +25,13 @@ partners@youmatch.ai
 [Original/Source Press Release](https://blockchainwire.io/press-release/ai-driven-youmatch-app-raises-15m-in-funding-to-revive-conscious-dating-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/youmatch-secures-1-5m-investment-for-ai-driven-dating-app-in-telegram-ecosystem/4449771c592406d5fe136a36b9a1e667) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/ai-powered-dating-app-youmatch-secures-1-5m-in-seed-funding)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/youmatch-secures-1-5m-seed-funding-to-revolutionize-ai-driven-dating-on-telegram/20246716)
+ 
 
 
 

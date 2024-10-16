@@ -189,7 +189,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-beachbody
 [Original/Source Press Release](https://newsdirect.com/news/the-beachbody-company-nyse-bodi-reports-achieving-positive-turnaround-in-revenue-ebitda-and-cash-flow-in-q1-2024-631979198)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-beachbody-company-reports-positive-turnaround-in-revenue-ebitda-and-cash-flow-in-q1-2024/5a4f811c639c5fc2ca84f0ca04b16ad7) 
+
+
+Pickup - [advos.io](https://advos.io/en/the-beachbody-company-reports-positive-turnaround-in-revenue-ebitda-and-cash-flow-in-q1-2024/20243630)
+ 
 
 
 

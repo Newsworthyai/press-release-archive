@@ -69,7 +69,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/wolfpack-the-
 [Original/Source Press Release](https://newsdirect.com/news/wolfpack-the-financial-services-company-designed-for-millennial-and-gen-z-investors-690070140)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wolfpack-financial-empowering-new-and-inexperienced-investors-with-innovative-financial-products-and-services/9009206da466f09b31069e57d2fc76ab) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/wolfpack-financial-launches-innovative-trading-platform-for-millennial-and-gen-z-investors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/wolfpack-financial-introduces-innovative-investment-platform-for-millennials-and-gen-z/20245874)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/wolfpack-financial-introduces-innovative-trading-platform-for-young-investors/20245874)
+
+Pickup - [advos.io](https://advos.io/en/wolfpack-financial-aims-to-empower-millennial-and-gen-z-investors-with-innovative-solutions/20245874)
+ 
 
 
 

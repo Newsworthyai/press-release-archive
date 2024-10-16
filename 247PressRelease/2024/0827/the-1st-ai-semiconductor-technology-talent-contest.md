@@ -7,7 +7,17 @@ SAN FRANCISCO, CA, August 27, 2024 /24-7PressRelease/ -- The National IT Industr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513768/the-1st-ai-semiconductor-technology-talent-contest)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/1st-ai-semiconductor-technology-talent-contest-to-address-manpower-shortage-in-south-korea/815523c4ee3f9e5e8d6efceefdf39389) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/1st-ai-semiconductor-technology-talent-contest-launched-to-address-manpower-shortage/20245972)
+
+Pickup - [advos.io](https://advos.io/en/south-korea-launches-1st-ai-semiconductor-technology-talent-contest/20245972)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/south-korea-launches-inaugural-ai-semiconductor-technology-talent-contest-to-address-industry-skills-gap)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/south-korea-launches-inaugural-ai-semiconductor-technology-talent-contest/20245972)
+ 
 
 
 

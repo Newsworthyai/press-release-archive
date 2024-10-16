@@ -9,7 +9,17 @@ NFMart Overview:Unlike traditional NFT marketplaces, NFMart provides creators wi
 [Original/Source Press Release](https://blockchainwire.io/press-release/nfmart-allows-anyone-to-build-custom-nft-marketplaces-without-any-code-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nfmart-the-squarespace-of-nft-marketplaces/12dbaa1c9d52870c3bf66521508e7080) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/nfmart-empowers-creators-with-code-free-custom-nft-marketplaces/20244351)
+
+Pickup - [advos.io](https://advos.io/en/nfmart-revolutionizes-nft-marketplaces-with-no-code-platform/20244351)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/nfmart-the-squarespace-of-nft-marketplaces)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/nfmart-the-squarespace-of-nft-marketplaces)
+ 
 
 
 

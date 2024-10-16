@@ -7,7 +7,9 @@ ATLANTA, GA, June 04, 2024 /24-7PressRelease/ -- The ISO 14001 EMS Gap Assessor 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511378/punyam-academy-is-happy-to-launch-the-new-e-learning-course-on-iso-14001-ems-gap-assessor-training-at-low-price)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/online-iso-14001-ems-gap-assessor-training-course-now-available/14ddae18c17592c403e65898e72fcaba) 
+
+ 
 
 
 

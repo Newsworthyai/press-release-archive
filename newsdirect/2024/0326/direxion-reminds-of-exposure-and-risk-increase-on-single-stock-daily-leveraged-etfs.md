@@ -109,7 +109,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/direxion-remi
 [Original/Source Press Release](https://newsdirect.com/news/direxion-reminds-of-exposure-and-risk-increase-on-single-stock-daily-leveraged-etfs-208783309)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/direxion-increases-leverage-and-risk-level-of-single-stock-etfs/b8968a64818063b341cdf8de0cbd21c7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/direxion-increases-leverage-on-single-stock-daily-leveraged-etfs)
+ 
 
 
 

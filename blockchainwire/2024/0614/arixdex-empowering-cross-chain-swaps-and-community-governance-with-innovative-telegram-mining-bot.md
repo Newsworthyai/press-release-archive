@@ -43,7 +43,15 @@ Website: [https://arix.exchange/](https://arix.exchange/)Twitter X: [https://x.c
 [Original/Source Press Release](https://blockchainwire.io/press-release/arixdex-empowering-cross-chain-swaps-and-community-governance-with-innovative-telegram-mining-bot)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arixdex-unveils-cross-chain-solution-telegram-mining-bot/07d0e915f729e718de9a48d0396981db) 
+
+
+Pickup - [advos.io](https://advos.io/en/arixdex-revolutionizing-cross-chain-swaps-with-innovative-telegram-mining-bot-and-community-governance/20244167)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/arixdex-unveils-cross-chain-solution-telegram-mining-bot)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/arixdex-unveils-cross-chain-solution-telegram-mining-bot)
+ 
 
 
 

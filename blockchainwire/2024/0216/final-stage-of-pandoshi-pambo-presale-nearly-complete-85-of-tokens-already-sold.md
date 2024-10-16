@@ -33,7 +33,11 @@ Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/final-stage-of-pandoshi-pambo-presale-nearly-complete-85-of-tokens-already-sold)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pandoshi-pambo-presale-nears-completion-with-85-tokens-claimed/763da27d97ab960493c7f0fe7e7f5e07) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/16/pandoshi-presale-nears-completion-unveiling-innovative-defi-ecosystem)
+ 
 
 
 

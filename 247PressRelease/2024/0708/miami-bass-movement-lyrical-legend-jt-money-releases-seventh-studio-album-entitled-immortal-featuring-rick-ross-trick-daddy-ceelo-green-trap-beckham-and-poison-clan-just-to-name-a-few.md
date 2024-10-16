@@ -7,7 +7,15 @@ MIAMI, FL, July 08, 2024 /24-7PressRelease/ -- JT Money released his seventh stu
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512308/miami-bass-movement-lyrical-legend-jt-money-releases-seventh-studio-album-entitled-immortal-featuring-rick-ross-trick-daddy-ceelo-green-trap-beckham-and-poison-clan-just-to-name-a-few)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jt-money-releases-seventh-studio-album-immortal-after-hiatus/045d81a0f3039825ee40e11165754106) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/jt-money-releases-seventh-studio-album-immortal-featuring-high-profile-collaborations/20244748)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/jt-money-returns-with-star-studded-album-immortal-bridging-old-and-new-hip-hop)
+
+Pickup - [advos.io](https://advos.io/en/jt-money-releases-seventh-studio-album-immortal-featuring-hip-hop-legends/20244748)
+ 
 
 
 

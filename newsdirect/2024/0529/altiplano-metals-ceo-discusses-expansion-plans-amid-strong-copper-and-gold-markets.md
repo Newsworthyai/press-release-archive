@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/altiplano-met
 [Original/Source Press Release](https://newsdirect.com/news/altiplano-metals-ceo-discusses-expansion-plans-amid-strong-copper-and-gold-markets-365432950)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/altiplano-metals-ceo-discusses-expansion-plans-amid-strong-copper-and-gold-markets/b9bab5c1851195cbcb2b6f49ab9526a7) 
+
+ 
 
 
 

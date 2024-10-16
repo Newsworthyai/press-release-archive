@@ -29,7 +29,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/dolki-inu--the-next-generation-meme-coin-announces-its-pre-sale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dolki-inu-enters-presale-phase-and-aims-to-disrupt-meme-coin-market/4862173e24defaaf0bd0e8d3dfd85160) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/dolki-inu-enters-presale-phase-and-aims-to-disrupt-meme-coin-market)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/dolki-inu-enters-presale-phase-and-aims-to-disrupt-meme-coin-market)
+ 
 
 
 

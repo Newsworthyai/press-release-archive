@@ -23,7 +23,11 @@ Discover insights about mortgages at www.MortgageTrends.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231124850/mortgagetrends-io-the-new-pulse-of-mortgage-insights-and-analysis)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mortgagetrends-io-launches-as-a-centralized-resource-for-mortgage-industry-insights/fa3c5d56d24088f036c8b96900b6b3d9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/24/mortgagetrends-io-emerges-as-the-premier-source-for-mortgage-industry-insights)
+ 
 
 
 

@@ -7,7 +7,13 @@ NEW YORK, NY, June 18, 2024 /24-7PressRelease/ -- On June 15th, Shincheonji New 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511795/laying-the-foundation-for-the-revival-of-christianity-in-europe)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-church-hosts-bible-seminar-in-paris-to-revive-christianity-in-europe/31ac4b6b761493502b48ead84a0471e4) 
+
+
+Pickup - [advos.io](https://advos.io/en/shincheonji-church-hosts-bible-seminar-in-paris-to-revive-christianity-in-europe/20244225)
+
+Pickup - [fishervista.com](https://fishervista.com/en/shincheonji-new-heaven-new-earth-church-hosts-landmark-bible-seminar-in-paris/20244225)
+ 
 
 
 

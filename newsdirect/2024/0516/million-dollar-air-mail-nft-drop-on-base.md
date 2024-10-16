@@ -31,7 +31,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/million-dolla
 [Original/Source Press Release](https://newsdirect.com/news/million-dollar-air-mail-nft-drop-on-base-324675782)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/million-dollar-air-mail-nft-drop-on-base/9eac164b48a613d927801c6713c303e1) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/million-dollar-air-mail-nft-drop-on-base)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/million-dollar-air-mail-nft-drop-on-base)
+ 
 
 
 

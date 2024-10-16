@@ -61,7 +61,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-launches-tailored-support-for-new-automated-trading-users)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-offers-personalized-support-for-new-crypto-traders/128c9f88f91edcab444716c9e4f7ea03) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/06/defiquant-empowers-new-crypto-traders-with-personalized-support)
+ 
 
 
 

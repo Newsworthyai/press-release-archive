@@ -29,7 +29,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/linkpay-launc
 [Original/Source Press Release](https://newsdirect.com/news/linkpay-launches-virtual-cards-revolutionizing-financial-flexibility-and-simplifying-user-experience-295007574)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/linkpay-launches-virtual-cards-revolutionizing-financial-flexibility/3f8f0a3e4954f7fa1fcc8279463f0274) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/linkpay-introduces-virtual-cards-to-transform-digital-payments-for-individuals-and-businesses)
+
+Pickup - [fishervista.com](https://fishervista.com/en/linkpay-introduces-virtual-cards-to-transform-financial-management/20246497)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/linkpay-introduces-virtual-cards-for-enhanced-personal-and-business-transactions/20246497)
+
+Pickup - [advos.io](https://advos.io/en/linkpay-introduces-virtual-cards-to-enhance-financial-flexibility/20246497)
+ 
 
 
 

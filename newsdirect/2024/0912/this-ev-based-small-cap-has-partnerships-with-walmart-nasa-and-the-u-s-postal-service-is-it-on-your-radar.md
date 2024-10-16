@@ -47,7 +47,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/this-ev-based
 [Original/Source Press Release](https://newsdirect.com/news/this-ev-based-small-cap-has-partnerships-with-walmart-nasa-and-the-u-s-postal-service-is-it-on-your-radar-676734621)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/canoo-inc-partners-with-walmart-nasa-and-u-s-postal-service-for-ev-deployment/f267ee5bc832607a2217959ccd4b7991) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/canoo-inc-secures-partnerships-with-walmart-nasa-and-u-s-postal-service-for-electric-vehicle-fleet)
+
+Pickup - [fishervista.com](https://fishervista.com/en/canoo-inc-emerges-as-key-player-in-electric-vehicle-market-with-major-partnerships/20246787)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/canoo-inc-gains-traction-with-major-partnerships-in-ev-commercial-fleet-market/20246787)
+
+Pickup - [advos.io](https://advos.io/en/canoo-inc-secures-partnerships-with-walmart-nasa-and-u-s-postal-service-for-electric-vehicle-fleet/20246787)
+ 
 
 
 

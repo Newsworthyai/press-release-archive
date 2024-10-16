@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/kodal-mineral
 [Original/Source Press Release](https://newsdirect.com/news/kodal-minerals-ceo-provides-update-on-bougouni-lithium-project-development-222589985)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kodal-minerals-ceo-updates-on-bougouni-lithium-project-development/c53584aab5f47c805a1c82fe222f2d4a) 
+
+ 
 
 
 

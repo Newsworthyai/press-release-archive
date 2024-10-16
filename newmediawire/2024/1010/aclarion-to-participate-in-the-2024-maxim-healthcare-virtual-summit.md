@@ -37,7 +37,9 @@ jodi@sprigconsulting.com
 [Original/Source Press Release](https://www.newmediawire.com/news/aclarion-to-participate-in-the-2024-maxim-healthcare-virtual-summit-7076177)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aclarion-ceo-to-present-at-maxim-healthcare-virtual-summit/07acc39dbfe5b7d37c82da5439cbd8c1) 
+
+ 
 
 
 

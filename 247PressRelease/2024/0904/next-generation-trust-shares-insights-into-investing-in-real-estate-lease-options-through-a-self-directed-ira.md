@@ -7,7 +7,17 @@ ROSELAND, NJ, September 04, 2024 /24-7PressRelease/ -- Savvy investors who under
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513977/next-generation-trust-shares-insights-into-investing-in-real-estate-lease-options-through-a-self-directed-ira)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investing-in-real-estate-lease-options-in-a-self-directed-ira/2b54cc6f0720440d27b244189b7501e8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/real-estate-lease-options-a-new-frontier-for-self-directed-ira-investors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/next-generation-trust-highlights-real-estate-lease-options-in-self-directed-iras/20246507)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/self-directed-iras-open-door-to-real-estate-lease-option-investments/20246507)
+
+Pickup - [advos.io](https://advos.io/en/next-generation-trust-explores-real-estate-lease-options-in-self-directed-iras/20246507)
+ 
 
 
 

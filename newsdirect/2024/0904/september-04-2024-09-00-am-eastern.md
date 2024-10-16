@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/september-04-
 [Original/Source Press Release](https://newsdirect.com/news/september-04-2024-09-00-am-eastern-340642620)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cingulate-s-breakthrough-technology-revolutionizes-drug-delivery/ac9dce6aa27538d5ab417acb30a65ff4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/cingulate-s-innovative-drug-delivery-technology-aims-to-reduce-pill-burden-for-chronic-conditions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cingulate-to-submit-new-drug-application-using-precision-timed-release-technology/20246525)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/cingulate-s-innovative-drug-delivery-technology-aims-to-reduce-pill-burden-for-chronic-conditions/20246525)
+
+Pickup - [advos.io](https://advos.io/en/cingulate-to-submit-new-drug-application-leveraging-precision-timed-release-technology/20246525)
+ 
 
 
 

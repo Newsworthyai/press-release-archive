@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/delivra-healt
 [Original/Source Press Release](https://newsdirect.com/news/delivra-health-brands-set-to-launch-dream-water-immunity-sleep-shots-into-canadian-market-656408656)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/delivra-health-brands-launches-dream-water-immunity-sleep-shots-in-canada/9ddd002bcf1c46df7a3d93201f3f20a2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/delivra-health-brands-launches-dream-water-immunity-sleep-shots-in-canadian-market)
+ 
 
 
 

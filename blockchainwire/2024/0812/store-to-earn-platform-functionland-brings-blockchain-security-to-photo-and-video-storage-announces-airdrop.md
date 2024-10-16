@@ -39,7 +39,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/store-to-earn-platform-functionland-brings-blockchain-security-to-photo-and-video-storage-announces-airdrop)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/functionland-launches-fula-token-and-airdrop-campaign/a8ad79b973b88981830e66b3aa8b1826) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/functionland-launches-fula-token-and-airdrop-campaign)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/functionland-launches-fula-token-and-airdrop-campaign)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/functionland-launches-store-to-earn-platform-with-fula-token-and-airdrop)
+
+Pickup - [fishervista.com](https://fishervista.com/en/functionland-introduces-secure-blockchain-storage-with-fula-token-airdrop/20245659)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/functionland-launches-fula-token-revolutionizing-decentralized-data-storage/20245659)
+
+Pickup - [advos.io](https://advos.io/en/functionland-introduces-fula-token-and-airdrop-campaign-revolutionizes-data-storage-with-blockchain-technology/20245659)
+ 
 
 
 

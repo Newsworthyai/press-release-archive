@@ -32,7 +32,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-bioscience-nasdaq-lexx-releases-q3-2024-results-offers-roadmap-for-glp-1-study/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lexaria-bioscience-nasdaq-lexx-releases-q3-2024-financial-results-and-glp-1-study-program-roadmap/f902fdab4fa9e7294b5fa61f4c1fab17) 
+
+ 
 
 
 

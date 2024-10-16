@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/goodway-cares
 [Original/Source Press Release](https://newsdirect.com/news/goodway-cares-donates-over-27k-to-local-washington-d-c-charities-during-bi-annual-off-site-841309667)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/goodway-cares-donates-27k-to-local-charities/fc9e8bfb931c170e033cbe74bbb9a9df) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/goodway-cares-contributes-27285-to-dc-area-charities-during-company-summit)
+
+Pickup - [fishervista.com](https://fishervista.com/en/goodway-cares-donates-over-27k-to-local-washington-d-c-charities/20245656)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/goodway-cares-contributes-over-27000-to-d-c-area-charities-at-company-summit/20245656)
+
+Pickup - [advos.io](https://advos.io/en/goodway-cares-donates-over-27k-to-washington-d-c-charities/20245656)
+ 
 
 
 

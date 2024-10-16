@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/atha-energy-c
 [Original/Source Press Release](https://newsdirect.com/news/atha-energy-corp-announces-major-2024-exploration-and-drilling-plans-641281448)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atha-energy-corp-announces-major-2024-exploration-and-drilling-plans/d995a4c789b927b198d05f90712e55d9) 
+
+ 
 
 
 

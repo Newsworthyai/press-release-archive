@@ -9,7 +9,11 @@ SafeMars emerged on the DeFi scene in 2021, swiftly capturing the attention of i
 [Original/Source Press Release](https://blockchainwire.io/press-release/safemars-expands-to-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/safemars-expands-to-solana-aiming-to-redefine-defi-landscape/e5fdbf15d5beb1799d4453e6586f1e4f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/safemars-expands-to-solana-igniting-new-opportunities-in-decentralized-finance)
+ 
 
 
 

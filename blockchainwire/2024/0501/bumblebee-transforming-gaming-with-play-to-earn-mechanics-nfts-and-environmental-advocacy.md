@@ -42,7 +42,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bumblebee-transforming-gaming-with-play-to-earn-mechanics-nfts-and-environmental-advocacy-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bumblebee-revolutionizing-gaming-with-play-to-earn-model-and-nft-technology/ba0c181f0c6436ce2422e3d2259dd377) 
+
+ 
 
 
 

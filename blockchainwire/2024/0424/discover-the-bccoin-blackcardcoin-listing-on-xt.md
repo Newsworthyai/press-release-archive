@@ -51,7 +51,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-bccoin-blackcardcoin-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-announces-listing-of-bccoin-and-bccoin-usdt-trading-pair-on-its-platform/706b7c5eb00a871c33ae8e998193b225) 
+
+ 
 
 
 

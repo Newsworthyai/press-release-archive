@@ -47,7 +47,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/openstamp-hits-50-million-valuation-in-seed-round-led-by-animoca-ventures-and-kucoin-ventures)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/openstamp-completes-50m-seed-round-with-animoca-ventures-and-kucoin-ventures/8638e744090a81e96298d9b34c50ef5c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/openstamp-secures-50-million-valuation-in-seed-round-led-by-animoca-ventures-and-kucoin-ventures)
+ 
 
 
 

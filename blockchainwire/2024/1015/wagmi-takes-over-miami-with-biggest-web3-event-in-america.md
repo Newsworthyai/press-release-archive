@@ -29,7 +29,9 @@ About Cointelegraph:Founded in 2013, Cointelegraph is the leading independent di
 [Original/Source Press Release](https://blockchainwire.io/press-release/wagmi-takes-over-miami-with-biggest-web3-event-in-america)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wagmi-2025-miami-conference-partners-with-cointelegraph-for-unprecedented-web3-and-blockchain-event/f0461f5855f9dfaf4cffdb6edba476fd) 
+
+ 
 
 
 

@@ -7,7 +7,13 @@ BRISBANE, AUSTRALIA, June 18, 2024 /24-7PressRelease/ -- "The teachings that exp
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511761/foundation-laid-for-christian-revival-in-europe-successful-conclusion-of-the-bible-seminar-in-france)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-church-s-bible-seminar-addresses-urgent-need-for-revival-in-europe/0967ddd3bd25f8042d975c0401bbdcdc) 
+
+
+Pickup - [advos.io](https://advos.io/en/foundation-laid-for-christian-revival-in-europe-successful-conclusion-of-bible-seminar-in-france/20244233)
+
+Pickup - [fishervista.com](https://fishervista.com/en/foundation-laid-for-christian-revival-in-europe-successful-conclusion-of-the-bible-seminar-in-france/20244233)
+ 
 
 
 

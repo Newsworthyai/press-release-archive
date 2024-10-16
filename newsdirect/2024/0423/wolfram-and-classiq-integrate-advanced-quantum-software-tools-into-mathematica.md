@@ -57,7 +57,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/wolfram-and-c
 [Original/Source Press Release](https://newsdirect.com/news/wolfram-and-classiq-integrate-advanced-quantum-software-tools-into-mathematica-305197254)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/classiq-and-wolfram-partner-to-integrate-quantum-software-tools-into-mathematica/402b91dd7998429b66fa516aace06cc5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/wolfram-and-classiq-integrate-advanced-quantum-software-tools-into-mathematica)
+ 
 
 
 

@@ -31,7 +31,11 @@ Cepton (NASDAQ: CPTN), a Silicon Valley innovator and leader in high-performanc
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/cepton-nasdaq-cptn-releases-results-of-q2-2024-financial-business-operations/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cepton-reports-q2-results-and-koito-acquisition-agreement/36c9b538073f73c1c9f70e09dea46c93) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cepton-reports-strong-q2-2024-results-progresses-in-automotive-lidar-market/20246116)
+ 
 
 
 

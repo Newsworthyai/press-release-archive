@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitgets-prote
 [Original/Source Press Release](https://newsdirect.com/news/bitgets-protection-fund-report-in-march-2024-758539649)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-achieves-unprecedented-valuation-of-over-612-million-in-protection-fund-report/5806064efd755c86b2a1978a897dc218) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/bitget-s-protection-fund-reaches-record-valuation-ensuring-user-asset-security)
+ 
 
 
 

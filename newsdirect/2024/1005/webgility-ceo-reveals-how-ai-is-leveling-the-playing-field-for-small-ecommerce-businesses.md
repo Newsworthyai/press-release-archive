@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/webgility-ceo
 [Original/Source Press Release](https://newsdirect.com/news/webgility-ceo-reveals-how-ai-is-leveling-the-playing-field-for-small-ecommerce-businesses-629756896)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/webgility-ceo-reveals-how-ai-is-leveling-the-playing-field-for-small-ecommerce-businesses/00b20dd891e26dc4cfa2065c48484b65) 
+
+ 
 
 
 

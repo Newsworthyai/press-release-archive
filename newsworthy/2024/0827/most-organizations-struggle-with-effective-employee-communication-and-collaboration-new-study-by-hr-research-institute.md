@@ -34,7 +34,19 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202408271247/most-organizations-struggle-with-effective-employee-communication-and-collaboration-new-study-by-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-study-reveals-widespread-dissatisfaction-with-employee-communication-practices/2fb92d070faa971d1cbded59b37f4f0a) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/new-study-reveals-widespread-ineffectiveness-in-employee-communication/20246193)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/new-study-reveals-widespread-ineffective-employee-communication-in-organizations)
+
+Pickup - [fishervista.com](https://fishervista.com/en/study-reveals-widespread-ineffectiveness-in-employee-communication-and-collaboration/20246193)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/study-reveals-major-gaps-in-employee-communication-across-organizations/20246193)
+
+Pickup - [advos.io](https://advos.io/en/study-reveals-widespread-challenges-in-employee-communication-and-collaboration/20246193)
+ 
 
 
 

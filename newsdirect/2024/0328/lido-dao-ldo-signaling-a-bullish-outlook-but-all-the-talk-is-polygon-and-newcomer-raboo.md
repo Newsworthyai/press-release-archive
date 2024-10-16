@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/lido-dao-ldo-
 [Original/Source Press Release](https://newsdirect.com/news/lido-dao-ldo-signaling-a-bullish-outlook-but-all-the-talk-is-polygon-and-newcomer-raboo-904291579)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bull-market-buzz-lido-dao-ldo-signals-a-bullish-outlook-but-all-the-talk-is-polygon-and-newcomer-raboo/f9318dd95aeda4a0cc5862fbdead4960) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/raboo-crypto-presale-steals-the-spotlight-from-lido-dao-and-polygon)
+ 
 
 
 

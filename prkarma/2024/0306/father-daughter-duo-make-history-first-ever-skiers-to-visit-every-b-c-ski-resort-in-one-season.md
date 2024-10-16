@@ -48,7 +48,11 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/tidbitsofchange/news_release/1419)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/skadi-tour-nears-historic-feat-44-ski-areas-in-42-days/59e6a3923055d97cd4db1862fa43ac4d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/06/father-daughter-duo-ski-all-44-b-c-resorts-in-42-days-for-charity)
+ 
 
 
 

@@ -37,7 +37,9 @@ Twitter: @GaiaNet_AI
 [Original/Source Press Release](https://blockchainwire.io/press-release/gaianet-secures-10m-to-build-a-decentralized-network-for-open-source-llm-and-ai-agent-challenging-centralized-ai-giants)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gaianet-raises-10m-funding-for-decentralized-ai-infrastructure-project/240914ecf1eab909c5e9b283f0a0359b) 
+
+ 
 
 
 

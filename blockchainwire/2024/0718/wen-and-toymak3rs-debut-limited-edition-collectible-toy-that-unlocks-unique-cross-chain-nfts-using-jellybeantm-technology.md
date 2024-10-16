@@ -37,7 +37,19 @@ hello@toymak3rs.com | jellybean.xyz | toymak3rs.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/wen-and-toymak3rs-debut-limited-edition-collectible-toy-that-unlocks-unique-cross-chain-nfts-using-jellybean-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/toymak3rstm-and-wen-partner-to-revolutionize-the-collectible-toy-industry/28e07825f2c9b8df326ffcd99ac1c71a) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/toymak3rstm-and-wen-partner-to-revolutionize-the-collectible-toy-industry)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/toymak3rstm-and-wen-partner-to-revolutionize-the-collectible-toy-industry)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/toymak3rs-and-wen-launch-innovative-collectible-toy-with-cross-chain-nft-integration)
+
+Pickup - [fishervista.com](https://fishervista.com/en/wen-and-toymak3rs-introduce-limited-edition-collectible-toy-with-cross-chain-nft-integration/20245053)
+
+Pickup - [advos.io](https://advos.io/en/wen-and-toymak3rs-collaborate-on-limited-edition-collectible-toy-with-cross-chain-nft-integration/20245053)
+ 
 
 
 

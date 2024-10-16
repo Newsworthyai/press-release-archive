@@ -15,7 +15,21 @@ Asia plays a pivotal role in driving the resurgence of the crypto market. Accord
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-and-solana-superteam-to-collaborate-for-debut-at-coinfest-asia-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-team-to-unveil-new-product-propw-at-coinfest-asia-in-bali/1300dc445a4f5e7578bc39456671b100) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/16/coinw-and-solana-superteam-join-forces-for-coinfest-asia-2024-debut)
+
+Pickup - [fishervista.com](https://fishervista.com/en/coinw-and-solana-superteam-to-unveil-new-product-at-coinfest-asia-2024/20245781)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/coinw-and-solana-superteam-join-forces-for-coinfest-asia-2024-debut/20245781)
+
+Pickup - [advos.io](https://advos.io/en/coinw-and-solana-superteam-to-unveil-new-product-at-coinfest-asia-2024/20245781)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-team-to-unveil-new-product-propw-at-coinfest-asia-in-bali)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-team-to-unveil-new-product-propw-at-coinfest-asia-in-bali)
+ 
 
 
 

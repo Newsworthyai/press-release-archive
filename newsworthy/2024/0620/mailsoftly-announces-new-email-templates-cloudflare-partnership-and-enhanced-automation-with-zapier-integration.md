@@ -33,7 +33,13 @@ To learn more about Mailsoftly's new email templates, CloudFlare partnership for
 [Original/Source Press Release](https://newsworthy.ai/news/202406201199/mailsoftly-announces-new-email-templates-cloudflare-partnership-and-enhanced-automation-with-zapier-integration)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mailsoftly-unveils-new-developments-to-empower-businesses-with-enhanced-email-marketing-capabilities/f694277b062732065919ef89654d9d66) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/mailsoftly-enhances-email-marketing-with-new-templates-cloudflare-partnership-and-zapier-integration/20244340)
+
+Pickup - [advos.io](https://advos.io/en/mailsoftly-introduces-new-email-templates-cloudflare-partnership-and-enhanced-automation-with-zapier/20244340)
+ 
 
 
 

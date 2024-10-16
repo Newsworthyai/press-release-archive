@@ -73,7 +73,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/smce-otc-smce
 [Original/Source Press Release](https://newsdirect.com/news/smce-otc-smce-announces-launch-of-chaintrade-its-ai-powered-platform-revolutionizing-data-intelligence-in-capital-markets-196551829)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/smce-announces-launch-of-chaintrade-ai-an-ai-powered-platform-revolutionizing-data-intelligence-in-capital-markets/fb8a04bc5179c4efc5b3a499bae606d3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/smce-launches-chaintrade-ai-powered-platform-set-to-transform-capital-markets-intelligence)
+
+Pickup - [fishervista.com](https://fishervista.com/en/smce-launches-chaintrade-ai-powered-platform-to-transform-capital-markets-data-intelligence/20245853)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/smce-unveils-chaintrade-ai-driven-platform-set-to-transform-capital-markets-intelligence/20245853)
+
+Pickup - [advos.io](https://advos.io/en/smce-unveils-ai-powered-chaintrade-platform-for-capital-markets/20245853)
+ 
 
 
 

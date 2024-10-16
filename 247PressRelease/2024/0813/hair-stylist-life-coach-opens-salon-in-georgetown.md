@@ -7,7 +7,17 @@ GEORGETOWN, TX, August 13, 2024 /24-7PressRelease/ -- Susana Guerra is not your 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513343/hair-stylistlife-coach-opens-salon-in-georgetown)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/experienced-stylist-offers-unique-beauty-and-wellness-experience-at-therhairapy-1-1/e7c603a67a51491850eba5cbf6df43ba) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/innovative-hair-stylist-combines-beauty-and-life-coaching-in-new-georgetown-salon)
+
+Pickup - [fishervista.com](https://fishervista.com/en/veteran-hair-stylist-and-life-coach-opens-transformative-salon-in-georgetown/20245677)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/innovative-hair-stylist-combines-beauty-and-life-coaching-in-new-georgetown-salon/20245677)
+
+Pickup - [advos.io](https://advos.io/en/susana-guerra-opens-therhairapy-1-1-salon-in-georgetown-combining-hair-styling-with-life-coaching/20245677)
+ 
 
 
 

@@ -42,7 +42,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-survey-fi
 [Original/Source Press Release](https://newsdirect.com/news/new-survey-finds-1-in-10-us-workers-are-digital-nomads-social-contract-and-policy-response-are-needed-by-regulators-and-corporations-alike-620043512)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-research-shows-1-in-10-us-workers-are-digital-nomads/e6baad290ac76bbd4c7e7c31c27b95a7) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/digital-nomadism-surges-to-11-of-us-workforce-challenges-corporate-policies/20245838)
+
+Pickup - [advos.io](https://advos.io/en/new-survey-reveals-1-in-10-us-workers-are-digital-nomads-urging-policy-overhaul/20245838)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/digital-nomadism-surges-1-in-10-us-workers-embrace-remote-lifestyle-challenging-corporate-policies)
+
+Pickup - [fishervista.com](https://fishervista.com/en/survey-reveals-1-in-10-us-workers-are-digital-nomads-urges-policy-reform/20245838)
+ 
 
 
 

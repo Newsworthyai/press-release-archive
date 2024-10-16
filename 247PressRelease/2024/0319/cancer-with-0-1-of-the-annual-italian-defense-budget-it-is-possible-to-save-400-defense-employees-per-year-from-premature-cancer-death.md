@@ -7,7 +7,11 @@ ROME, ITALY, March 19, 2024 /24-7PressRelease/ -- Saving millions of human lives
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509372/cancer-with-01-of-the-annual-italian-defense-budget-it-is-possible-to-save-400-defense-employees-per-year-from-premature-cancer-death)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scientist-pushes-for-3d-cbs-devices-to-prevent-premature-cancer-death/e9efccc145ab7ca0be53c11477c99b2a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/innovative-3d-cbs-technology-promises-to-halve-cancer-deaths-in-italy)
+ 
 
 
 

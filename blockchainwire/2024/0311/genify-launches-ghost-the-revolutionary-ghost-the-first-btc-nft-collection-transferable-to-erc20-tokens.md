@@ -35,7 +35,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/genify-launches-ghost-the-revolutionary-ghost---the-first-btc-nft-collection-transferable-to-erc20-tokens)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/genify-launches-ghost-collection-of-bitcoin-nfts-transferable-to-erc20-tokens/66a012ce7f22d6dad22e59a8f2a610c6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/genify-unveils-ghost-pioneering-btc-nft-collection-transferable-to-erc20-tokens)
+ 
 
 
 

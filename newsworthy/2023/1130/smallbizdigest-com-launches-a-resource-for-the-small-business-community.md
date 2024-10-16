@@ -23,7 +23,11 @@ Embark on a voyage of small business empowerment at www.SmallBizDigest.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231130876/smallbizdigest-com-launches-a-resource-for-the-small-business-community)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-platform-smallbizdigest-com-launched-to-empower-small-businesses/3138360660916bd7b3efafc50657e599) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/30/smallbizdigest-com-emerges-as-a-comprehensive-resource-for-small-business-owners)
+ 
 
 
 

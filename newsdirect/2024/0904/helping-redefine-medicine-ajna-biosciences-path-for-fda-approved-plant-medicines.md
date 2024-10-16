@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/helping-redef
 [Original/Source Press Release](https://newsdirect.com/news/helping-redefine-medicine-ajna-biosciences-path-for-fda-approved-plant-medicines-677259803)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ajna-biosciences-working-to-bring-natural-solutions-to-market/193c3f0fcc1a5bc392718a0d42f313d1) 
+
+ 
 
 
 

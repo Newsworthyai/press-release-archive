@@ -11,7 +11,13 @@ Verity One Ltd.TRUTH MATTERS™Verity One Ltd, operating under the ethos of 'TRU
 [Original/Source Press Release](https://blockchainwire.io/press-release/a-game-changing-experience-at-consensus-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/verity-one-ltd-announces-adoption-of-ripple-xrp-evm-erc-platform/d3972ec4e7869d868b0367c859c63bed) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/verity-one-ltd-announces-adoption-of-ripple-xrp-evm-erc-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/verity-one-ltd-announces-adoption-of-ripple-xrp-evm-erc-platform)
+ 
 
 
 

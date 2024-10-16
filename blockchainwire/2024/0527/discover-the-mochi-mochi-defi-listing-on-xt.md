@@ -53,7 +53,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-mochi-mochi-defi-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-announces-listing-of-mochi-token-on-socially-infused-trading-platform/83fa1f260fc29c4ca2d2fa50a2de1dc0) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/xt-announces-listing-of-mochi-token-on-socially-infused-trading-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/xt-announces-listing-of-mochi-token-on-socially-infused-trading-platform)
+ 
 
 
 

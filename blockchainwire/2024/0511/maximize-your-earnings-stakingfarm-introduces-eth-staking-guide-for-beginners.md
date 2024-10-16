@@ -66,7 +66,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/maximize-your-earnings-stakingfarm-introduces-eth-staking-guide-for-beginners)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-releases-beginner-s-guide-to-earning-passive-income-from-eth-staking-platforms/6fddbd3f2c83d1392ebdf59a752ff7bf) 
+
+ 
 
 
 

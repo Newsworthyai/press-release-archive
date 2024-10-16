@@ -73,7 +73,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/nvidia-is-up-
 [Original/Source Press Release](https://newsdirect.com/news/nvidia-is-up-over-150-ytd-but-some-are-flagging-risks-trade-your-expectation-either-way-with-rex-shares-leveraged-etfs-771149912)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nvidia-set-to-report-earnings-trade-your-expectation-with-rex-shares-leveraged-etfs/03be1e6962ea711a74b53527dd24c6b7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/nvidia-s-soaring-stock-and-upcoming-earnings-leveraged-etfs-offer-trading-opportunities)
+
+Pickup - [fishervista.com](https://fishervista.com/en/nvidia-s-meteoric-rise-and-the-growing-interest-in-leveraged-etfs/20246203)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/rex-shares-offers-leveraged-etfs-for-nvidia-trading-as-earnings-approach/20246203)
+
+Pickup - [advos.io](https://advos.io/en/nvidia-s-meteoric-rise-and-potential-risks-leveraged-etfs-offer-strategic-play/20246203)
+ 
 
 
 

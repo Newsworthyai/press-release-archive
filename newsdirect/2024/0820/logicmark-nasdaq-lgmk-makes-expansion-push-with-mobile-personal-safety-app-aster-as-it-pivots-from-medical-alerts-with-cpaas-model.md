@@ -53,7 +53,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/logicmark-nas
 [Original/Source Press Release](https://newsdirect.com/news/logicmark-nasdaq-lgmk-makes-expansion-push-with-mobile-personal-safety-app-aster-as-it-pivots-from-medical-alerts-with-cpaas-model-286561384)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/logicmark-launches-safety-app-aster/296dd1f5dc28819654250145cbcdbdc7) 
+
+
+Pickup - [advos.io](https://advos.io/en/logicmark-expands-into-personal-safety-with-new-aster-mobile-app/20245835)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/logicmark-expands-into-personal-safety-market-with-aster-mobile-app/20245835)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/logicmark-expands-into-personal-safety-market-with-aster-mobile-app)
+
+Pickup - [fishervista.com](https://fishervista.com/en/logicmark-strengthens-personal-safety-market-presence-with-aster-mobile-app-launch/20245835)
+ 
 
 
 

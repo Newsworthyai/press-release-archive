@@ -7,7 +7,17 @@ HUNTINGTON BEACH, CA, July 27, 2024 /24-7PressRelease/ -- Key Housing, a top-rat
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512900/key-housing-announces-featured-socal-listing-for-short-term-rentals-for-august-2024-the-residences-at-bella-terra)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/key-housing-announces-luxury-short-term-housing-in-huntington-beach-for-august-2024/4f398989b6aa84356e2e739f5a9a4514) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/27/key-housing-unveils-luxury-short-term-rentals-in-huntington-beach-for-corporate-travelers)
+
+Pickup - [fishervista.com](https://fishervista.com/en/key-housing-announces-featured-socal-listing-for-august-2024-the-residences-at-bella-terra/20245304)
+
+Pickup - [advos.io](https://advos.io/en/key-housing-highlights-the-residences-at-bella-terra-as-premier-short-term-rental-for-august-2024/20245304)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/key-housing-unveils-premier-short-term-rental-in-huntington-beach-for-august-2024)
+ 
 
 
 

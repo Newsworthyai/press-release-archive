@@ -35,7 +35,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/gateios-proof-of-reserves-report-reveals-43b-in-assets-with-115-reserve-ratio-for-171-assets)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gate-io-releases-january-2024-proof-of-reserves-report/cc38708baf246e289f7720d16280fa4d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/24/gate-io-proves-reserves-of-4-3b-with-115-ratio-for-171-assets)
+ 
 
 
 

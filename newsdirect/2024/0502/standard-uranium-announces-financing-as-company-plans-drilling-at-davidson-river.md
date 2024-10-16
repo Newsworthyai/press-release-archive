@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/standard-uran
 [Original/Source Press Release](https://newsdirect.com/news/standard-uranium-announces-financing-as-company-plans-drilling-at-davidson-river-829059604)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/standard-uranium-ceo-announces-3m-financing-for-davidson-river-drilling/94dec4ff22e95784b300739c37e832f0) 
+
+ 
 
 
 

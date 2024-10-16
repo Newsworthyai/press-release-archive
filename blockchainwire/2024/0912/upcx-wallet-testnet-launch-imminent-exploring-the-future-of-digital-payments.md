@@ -99,7 +99,21 @@ Website: https://upcx.io/
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcx-wallet-testnet-launch-imminent-exploring-the-future-of-digital-payments)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/upcx-wallet-launches-public-testnet-redefining-digital-payments/31f03349f530359dd742f76ab7e7794b) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/upcx-wallet-launches-public-testnet-redefining-digital-payments)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/upcx-wallet-launches-public-testnet-redefining-digital-payments)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/upcx-wallet-testnet-launch-set-to-revolutionize-digital-payments)
+
+Pickup - [fishervista.com](https://fishervista.com/en/upcx-wallet-testnet-launch-set-to-revolutionize-digital-payments/20246788)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/upcx-wallet-testnet-launch-set-to-revolutionize-digital-payments/20246788)
+
+Pickup - [advos.io](https://advos.io/en/upcx-wallet-testnet-launch-set-to-revolutionize-digital-payments/20246788)
+ 
 
 
 

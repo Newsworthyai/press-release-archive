@@ -7,7 +7,15 @@ BIRMINGHAM, AL, July 18, 2024 /24-7PressRelease/ -- A 501(c)(3) organization ref
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512612/zenith-asset-investment-education-foundation-arthur-franks-vision-for-financial-empowerment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zenith-asset-investment-education-foundation-empowering-investors-for-secure-wealth-growth/173693f3192a328de785626c325aa8da) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/zenith-asset-investment-education-foundation-aims-to-empower-100000-investors-in-one-year)
+
+Pickup - [fishervista.com](https://fishervista.com/en/zenith-asset-investment-education-foundation-arthur-frank-s-vision-for-financial-empowerment/20245040)
+
+Pickup - [advos.io](https://advos.io/en/zenith-asset-investment-education-foundation-arthur-frank-s-vision-for-financial-empowerment/20245040)
+ 
 
 
 

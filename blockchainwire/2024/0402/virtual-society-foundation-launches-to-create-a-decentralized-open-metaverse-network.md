@@ -32,7 +32,11 @@ For more information, visit https://virtualsociety.foundation/
 [Original/Source Press Release](https://blockchainwire.io/press-release/virtual-society-foundation-launches-to-create-a-decentralized-open-metaverse-network)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/virtual-society-foundation-launches-to-create-open-and-unified-metaverse/9a28cf1f449e5de3c3ed4b6311f7ab1e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/virtual-society-foundation-pioneers-open-metaverse-network)
+ 
 
 
 

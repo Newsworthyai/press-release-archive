@@ -107,7 +107,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/norque-univer
 [Original/Source Press Release](https://newsdirect.com/news/norque-universe-offers-first-ai-powered-blockchain-system-predicted-to-replace-ai-btc-and-eth-for-a-more-stable-crypto-future-937491591)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/norque-universe-pioneering-ai-powered-blockchain-system/dbd127cd0b4671edfd8ec78a485d105b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/norque-universe-offers-first-ai-powered-blockchain-system-predicted-to-replace-ai-btc-and-eth-for-a-more-stable-crypto-future)
+ 
 
 
 

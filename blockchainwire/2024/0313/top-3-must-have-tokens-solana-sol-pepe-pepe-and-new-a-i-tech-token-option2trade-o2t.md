@@ -49,7 +49,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/top-3-must-have-tokens-solana-sol-pepe-pepe-and-new-ai-tech-token-option2trade-o2t)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/essential-cryptocurrency-tokens-solana-sol-pepe-pepe-and-option2trade-o2t/c48c9698efd4c235bbc3144b79d9c314) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/13/unlock-unparalleled-opportunities-with-solana-sol-pepe-pepe-and-option2trade-o2t)
+ 
 
 
 

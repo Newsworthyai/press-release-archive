@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/correcting-an
 [Original/Source Press Release](https://newsdirect.com/news/correcting-and-replacing-american-outdoor-brands-to-present-at-share-series-event-549307675)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-outdoor-brands-inc-to-participate-in-share-series-event/c6da6f7a1db749168d9627aa9b25f27c) 
+
+ 
 
 
 

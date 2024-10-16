@@ -19,7 +19,17 @@ For more information, visit the Hit Zone Whitepaper and CryptoHub’s website.
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptohub-announced-the-incubation-of-hit-zone-pre-seed--the-new-frontier-in-pvp-play-to-earn-gaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptohub-announces-incubation-of-hit-zone-a-new-twist-in-blockchain-gaming/61a08694363f7fea73cb6927fd68e673) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cryptohub-incubates-hit-zone-a-new-era-in-pvp-play-to-earn-gaming/20244268)
+
+Pickup - [advos.io](https://advos.io/en/cryptohub-incubates-hit-zone-pre-seed-transforming-pvp-play-to-earn-gaming/20244268)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cryptohub-announces-incubation-of-hit-zone-a-new-twist-in-blockchain-gaming)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cryptohub-announces-incubation-of-hit-zone-a-new-twist-in-blockchain-gaming)
+ 
 
 
 

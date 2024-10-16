@@ -65,7 +65,19 @@ Twitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Teleg
 [Original/Source Press Release](https://blockchainwire.io/press-release/dasia---your-preferred-ai-based-marketing-ecology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dasia-project-creating-a-sustainable-ai-media-ecosystem/6bb54f159ef89482bbbc997fbe24954f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dasia-introduces-ai-powered-marketing-ecosystem-to-revolutionize-digital-advertising/20244699)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/dasia-launches-ai-powered-marketing-ecosystem-to-revolutionize-digital-advertising)
+
+Pickup - [advos.io](https://advos.io/en/dasia-unveils-ai-based-marketing-ecosystem-to-revolutionize-digital-advertising/20244699)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/dasia-project-creating-a-sustainable-ai-media-ecosystem)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/dasia-project-creating-a-sustainable-ai-media-ecosystem)
+ 
 
 
 

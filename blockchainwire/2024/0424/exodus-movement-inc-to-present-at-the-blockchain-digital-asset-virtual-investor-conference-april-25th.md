@@ -57,7 +57,11 @@ johnv@otcmarkets.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/exodus-movement-inc-to-present-at-the-blockchain--digital-asset-virtual-investor-conference-april-25th)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exodus-movement-inc-to-present-at-blockchain-digital-asset-virtual-investor-conference/30f1639d059a081962b5c1848c3ab328) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/exodus-movement-inc-to-present-at-the-blockchain-digital-asset-virtual-investor-conference-april-25th)
+ 
 
 
 

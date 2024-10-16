@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/rezolve-ai-in
 [Original/Source Press Release](https://newsdirect.com/news/rezolve-ai-inks-three-key-partnerships-expanding-the-customer-base-for-its-ai-powered-platform-for-e-commerce-businesses-336379372)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rezolve-ai-inks-three-key-partnerships-expanding-the-customer-base-for-its-ai-powered-platform-for-e-commerce-businesses/f93edff0538032fbb7b93a31ef2d6675) 
+
+ 
 
 
 

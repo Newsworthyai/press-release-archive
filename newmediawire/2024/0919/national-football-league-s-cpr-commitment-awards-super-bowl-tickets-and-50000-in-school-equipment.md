@@ -75,7 +75,9 @@
 [Original/Source Press Release](https://www.newmediawire.com/news/national-football-league-s-cpr-commitment-awards-super-bowl-tickets-and-50-000-in-school-equipment-7076069)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-heart-association-and-nfl-foundation-incentivize-students-to-learn-cpr/a22bbf727e30bbef69f056896536349b) 
+
+ 
 
 
 

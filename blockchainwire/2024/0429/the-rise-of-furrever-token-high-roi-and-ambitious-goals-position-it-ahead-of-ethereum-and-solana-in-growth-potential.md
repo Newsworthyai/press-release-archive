@@ -45,7 +45,9 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-rise-of-furrever-token-high-roi-and-ambitious-goals-position-it-ahead-of-ethereum-and-solana-in-growth-potential)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-eth-and-solana-sol-show-recovery-furrever-token-furr-presale-exceeds-1m/25a5d9b4a117ec058eb09302a4731039) 
+
+ 
 
 
 

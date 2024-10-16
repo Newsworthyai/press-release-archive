@@ -7,7 +7,11 @@ SAN RAMON, CA, June 14, 2024 /24-7PressRelease/ -- Heller Jewelers unveiled the 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511714/luminous-by-brooke-at-heller-jewelers-celebrating-the-full-flower-moon)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heller-jewelers-unveils-luminous-collection-by-brooke-shields-and-robert-procop/da4bf1c5591132102c2f79af32f1cbc2) 
+
+
+Pickup - [advos.io](https://advos.io/en/luminous-by-brooke-shields-and-robert-procop-a-celestial-collection-unveiled-at-heller-jewelers/20244149)
+ 
 
 
 

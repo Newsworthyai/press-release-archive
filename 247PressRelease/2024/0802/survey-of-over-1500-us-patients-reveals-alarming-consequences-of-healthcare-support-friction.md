@@ -7,7 +7,17 @@ NEW YORK, NY, August 02, 2024 /24-7PressRelease/ -- A comprehensive new survey t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513042/survey-of-over-1500-us-patients-reveals-alarming-consequences-of-healthcare-support-friction)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/survey-reveals-patient-frustration-with-provider-support-and-health-setbacks/f0f22d1f3ef75baed8d127b1991fec96) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/healthcare-support-friction-leads-to-alarming-health-consequences-survey-finds)
+
+Pickup - [fishervista.com](https://fishervista.com/en/survey-reveals-critical-healthcare-support-gaps-impacting-patient-health/20245449)
+
+Pickup - [advos.io](https://advos.io/en/survey-reveals-critical-gaps-in-us-healthcare-support-calls-for-ai-integration/20245449)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/healthcare-support-friction-leads-to-alarming-patient-outcomes-survey-finds)
+ 
 
 
 

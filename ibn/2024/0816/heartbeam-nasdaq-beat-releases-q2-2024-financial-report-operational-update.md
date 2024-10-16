@@ -35,7 +35,11 @@ HeartBeam (NASDAQ: BEAT), a medical technology company focused on transforming 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/heartbeam-nasdaq-beat-releases-q2-2024-financial-report-operational-update/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heartbeam-reports-q2-2024-financial-and-operations-results/07aafcdbf0641618d8e0df75e5bada7f) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/heartbeam-reports-progress-on-aimigo-system-and-ai-technology-in-q2-2024-financial-results/20246111)
+ 
 
 
 

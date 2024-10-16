@@ -35,7 +35,13 @@ Twitter: @TexasMineralRes
 [Original/Source Press Release](https://www.newmediawire.com/news/tmrc-round-top-project-joint-venture-operating-partner-usa-rare-earth-a-domestic-rare-earth-mining-magnet-co-announces-its-plan-to-become-a-publicly-traded-company-via-a-business-combination-with-inflection-point-acquisition-corp-ii-7075971)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/usa-rare-earth-plans-public-listing-through-business-combination/4584c1373b90dfa22ac97c996ef2f8dc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/usa-rare-earth-plans-public-listing-via-merger-with-inflection-point-acquisition-corp-ii)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/usa-rare-earth-announces-plans-to-go-public-through-merger-with-inflection-point-acquisition-corp-ii/20246453)
+ 
 
 
 

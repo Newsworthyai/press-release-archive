@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/tesla-seems-t
 [Original/Source Press Release](https://newsdirect.com/news/tesla-seems-to-be-having-trouble-building-a-better-battery-could-this-company-solve-the-problem-710058371)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dragonfly-energy-ceo-discusses-green-energy-solutions-and-potential-partnership-with-tesla/e3ac5e1e1b241c999fe0076e92fb97a1) 
+
+ 
 
 
 

@@ -42,7 +42,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/osls-new-era-visionary-global-expansion-and-strategic-realignment-for-2024-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/osl-group-unveils-global-expansion-strategy-for-2024/cf971ebbe72a4573dcc00a34a58f9969) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/17/osl-unveils-visionary-global-expansion-and-strategic-realignment-for-2024)
+ 
 
 
 

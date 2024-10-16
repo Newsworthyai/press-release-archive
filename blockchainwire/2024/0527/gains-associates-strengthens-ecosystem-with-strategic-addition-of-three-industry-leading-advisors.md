@@ -45,7 +45,9 @@ Medium: https://medium.com/gains-associates
 [Original/Source Press Release](https://blockchainwire.io/press-release/gains-associates-strengthens-ecosystem-with-strategic-addition-of-three-industry-leading-advisors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gains-associates-welcomes-three-new-advisors-to-bolster-decentralized-venture-capital/7598e697b3d5c7a3dc75d5f32d0a5cca) 
+
+ 
 
 
 

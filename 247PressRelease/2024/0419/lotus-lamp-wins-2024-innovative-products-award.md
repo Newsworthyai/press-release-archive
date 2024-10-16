@@ -7,7 +7,11 @@ CHARLOTTE, NC, April 19, 2024 /24-7PressRelease/ -- Selected by the readers of S
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510129/lotus-lamp-wins-2024-innovative-products-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/100w-lotus-lamp-triumphs-at-2024-innovative-product-awards/354bcc61acb67a9c394ce7c98fe09e5b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/lotus-lamp-wins-2024-innovative-products-award)
+ 
 
 
 

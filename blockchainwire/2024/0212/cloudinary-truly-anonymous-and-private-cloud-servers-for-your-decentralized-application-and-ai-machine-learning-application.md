@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cloudinary---truly-anonymous-and-private-cloud-servers-for-your-decentralized-application-and-ai-machine-learning-application)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloudinary-server-offering-anonymous-cloud-servers-and-cdy-token/b5ac0a49bf03605ea3ffd01ab5d8a40d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/12/cloudinary-offers-anonymous-cloud-servers-for-decentralized-apps-and-ai)
+ 
 
 
 

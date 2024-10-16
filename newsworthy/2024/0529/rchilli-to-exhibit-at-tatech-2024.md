@@ -29,7 +29,11 @@ RChilli is the trusted partner for parsing, matching, and data enrichment, provi
 [Original/Source Press Release](https://newsworthy.ai/news/202405291183/rchilli-to-exhibit-at-tatech-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-to-showcase-next-generation-hr-solutions-at-tatech-2024/1e86d023e83e6f6b4849b655cb2f1061) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-to-showcase-advanced-hr-technology-solutions-at-tatech-2024/20243525)
+ 
 
 
 

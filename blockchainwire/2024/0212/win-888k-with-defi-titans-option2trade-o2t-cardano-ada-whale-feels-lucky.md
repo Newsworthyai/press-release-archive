@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/win-888k-with-defi-titans-option2trade-o2t-cardano-ada-whale-feels-lucky)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defi-bonanza-option2trade-s-888k-challenge-captivates-crypto-giants/60f59008b5bc04b1a8e903c107338d71) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/12/cardano-whale-rides-waves-toward-888k-defi-bonanza-with-option2trade)
+ 
 
 
 

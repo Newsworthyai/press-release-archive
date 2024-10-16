@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/aigold-goes-l
 [Original/Source Press Release](https://newsdirect.com/news/aigold-goes-live-introducing-the-first-gold-backed-crypto-project-288708907)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aigold-launches-gold-backed-cryptocurrency-project-with-innovative-tokenomics-and-nft-mining-permits/779aa5fda433bb84cbc810ebade3838e) 
+
+ 
 
 
 

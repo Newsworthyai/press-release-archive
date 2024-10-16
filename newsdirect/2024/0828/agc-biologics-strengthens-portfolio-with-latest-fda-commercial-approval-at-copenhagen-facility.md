@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/agc-biologics
 [Original/Source Press Release](https://newsdirect.com/news/agc-biologics-strengthens-portfolio-with-latest-fda-commercial-approval-at-copenhagen-facility-855105286)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/agc-biologics-achieves-fda-approval-for-biosimilar-in-copenhagen/8bb1bcfbe3405b801f21723ca2d77e5e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/agc-biologics-receives-fda-approval-for-biosimilar-at-copenhagen-facility)
+
+Pickup - [fishervista.com](https://fishervista.com/en/agc-biologics-expands-biosimilar-market-reach-with-fda-approval-at-copenhagen-facility/20246309)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/agc-biologics-achieves-fda-approval-for-biosimilar-at-copenhagen-facility/20246309)
+
+Pickup - [advos.io](https://advos.io/en/agc-biologics-achieves-fda-approval-for-biosimilar-at-copenhagen-facility/20246309)
+ 
 
 
 

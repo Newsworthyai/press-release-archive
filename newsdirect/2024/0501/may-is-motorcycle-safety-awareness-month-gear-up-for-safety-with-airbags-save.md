@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/may-is-motorc
 [Original/Source Press Release](https://newsdirect.com/news/may-is-motorcycle-safety-awareness-month-gear-up-for-safety-with-airbags-save-514191078)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cycle-gear-president-promotes-airbags-save-campaign-for-motorcycle-safety/f36170c14aecb8df2f11d3c090bbd7a4) 
+
+ 
 
 
 

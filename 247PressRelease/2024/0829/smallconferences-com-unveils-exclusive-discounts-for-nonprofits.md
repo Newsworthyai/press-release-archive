@@ -7,7 +7,17 @@ MIAMI, FL, August 29, 2024 /24-7PressRelease/ -- SmallConferences.com, the leadi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513882/smallconferencescom-unveils-exclusive-discounts-for-nonprofits)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/smallconferences-com-launches-exclusive-nonprofit-discount-program/9c4c2393003ad9357bc009c30480539e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/smallconferences-com-launches-exclusive-discount-program-for-nonprofit-events)
+
+Pickup - [fishervista.com](https://fishervista.com/en/smallconferences-com-introduces-cost-saving-program-for-nonprofits/20246366)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/smallconferences-com-launches-nonprofit-discount-program-offering-25-savings-on-event-costs/20246366)
+
+Pickup - [advos.io](https://advos.io/en/smallconferences-com-introduces-cost-saving-program-for-nonprofits/20246366)
+ 
 
 
 

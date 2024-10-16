@@ -7,7 +7,11 @@ LOS ANGELES, CA, April 22, 2024 /24-7PressRelease/ -- Author Kay A. Oliver, the 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510237/award-winning-author-kay-a-oliver-unveils-disturbing-remains-the-highly-anticipated-third-installment-in-the-award-winning-dr-kaili-worthy-series)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kay-a-oliver-releases-gripping-new-thriller-disturbing-remains/bff569d8a6ea398a6f829112de5d9490) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/award-winning-author-kay-a-oliver-unveils-disturbing-remains-the-highly-anticipated-third-installment-in-the-award-winning-dr-kaili-worthy-series)
+ 
 
 
 

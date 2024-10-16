@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitwise-appli
 [Original/Source Press Release](https://newsdirect.com/news/bitwise-applies-for-ethereum-eth-etf-maker-mkr-and-kangamoon-kang-display-bullish-metrics-880173933)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-etf-application-sparks-bullish-growth-for-maker-mkr-and-kangamoon-kang/1d9a6ac468374217108a8eae2c5464e9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/07/crypto-market-heats-up-ethereum-etf-maker-and-kangamoon-steal-the-spotlight)
+ 
 
 
 

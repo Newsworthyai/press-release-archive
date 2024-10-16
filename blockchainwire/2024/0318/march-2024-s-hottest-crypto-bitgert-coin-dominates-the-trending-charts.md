@@ -31,7 +31,11 @@ Buy on Uniswap
 [Original/Source Press Release](https://blockchainwire.io/press-release/march-2024s-hottest-crypto-bitgert-coin-dominates-the-trending-charts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitgert-the-next-generation-of-blockchain-systems/24a4df036f524ae6f785280913c37a76) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/bitgert-coin-surges-as-crypto-s-next-big-thing)
+ 
 
 
 

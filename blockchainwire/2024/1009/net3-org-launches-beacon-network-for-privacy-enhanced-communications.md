@@ -35,7 +35,9 @@ Disclaimer: This press release may contain forward-looking statements. Forward-l
 [Original/Source Press Release](https://blockchainwire.io/press-release/net3org-launches-beacon-network-for-privacy-enhanced-communications)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/net3-org-launches-beacon-network-for-global-privacy-communications/accd98f577b1eac639b39090abc709e7) 
+
+ 
 
 
 

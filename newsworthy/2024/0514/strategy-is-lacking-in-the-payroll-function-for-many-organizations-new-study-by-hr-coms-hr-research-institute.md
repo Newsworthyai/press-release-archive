@@ -27,7 +27,11 @@ Become a part of HR.com’s HR Research Influencer panel today. Participate in s
 [Original/Source Press Release](https://newsworthy.ai/news/202405141167/strategy-is-lacking-in-the-payroll-function-for-many-organizations-new-study-by-hr-coms-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-research-report-reveals-challenges-and-opportunities-in-payroll-strategy-for-2024/667ee2d998715544fc686c71f7dfd589) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-com-study-reveals-lack-of-strategic-focus-in-organizational-payroll-functions/20242984)
+ 
 
 
 

@@ -7,7 +7,15 @@ NEW YORK, NY, July 14, 2024 /24-7PressRelease/ -- The Michael DiPascali Scholars
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512503/michael-dipascali-announces-prestigious-scholarship-to-nurture-future-leaders-in-finance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/michael-dipascali-scholarship-now-accepting-applications-for-1000-award/d57062f851d268434e6dacd87f0cd973) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/14/michael-dipascali-launches-1000-scholarship-for-aspiring-finance-leaders)
+
+Pickup - [fishervista.com](https://fishervista.com/en/michael-dipascali-announces-scholarship-to-support-future-finance-leaders/20244940)
+
+Pickup - [advos.io](https://advos.io/en/michael-dipascali-announces-1000-scholarship-to-foster-future-leaders-in-finance/20244940)
+ 
 
 
 

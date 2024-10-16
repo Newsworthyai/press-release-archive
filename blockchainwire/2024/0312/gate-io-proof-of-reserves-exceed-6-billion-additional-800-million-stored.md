@@ -27,7 +27,11 @@ Gate.io's latest reserve value in March 2024 reached a new high, highlighting it
 [Original/Source Press Release](https://blockchainwire.io/press-release/gateio-proof-of-reserves-exceed-6-billion-additional-800-million-stored)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gate-io-releases-record-breaking-proof-of-reserve-report/9c913789f4195a4f121eab638d46fb4a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/gate-io-s-proof-of-reserves-exceeds-6-billion-showcasing-robust-growth)
+ 
 
 
 

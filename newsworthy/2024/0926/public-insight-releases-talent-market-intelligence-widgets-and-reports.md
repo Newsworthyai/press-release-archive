@@ -25,7 +25,9 @@ Public Insight develops market intelligence solutions that transform talent, lab
 [Original/Source Press Release](https://newsworthy.ai/news/202409261284/public-insight-releases-talent-market-intelligence-widgets-and-reports)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/public-insight-releases-new-talentview-widgets-and-reports-for-instant-access-to-market-intelligence/b0edf0a7ba92881965c40d8862d81c99) 
+
+ 
 
 
 

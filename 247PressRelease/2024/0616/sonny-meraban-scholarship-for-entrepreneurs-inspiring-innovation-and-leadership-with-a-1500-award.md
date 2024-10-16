@@ -7,7 +7,11 @@ MIAMI, FL, June 16, 2024 /24-7PressRelease/ -- The prestigious Sonny Meraban Sch
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511749/sonny-meraban-scholarship-for-entrepreneurs-inspiring-innovation-and-leadership-with-a-1500-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sonny-meraban-scholarship-opportunity-for-future-entrepreneurs/d14a35fd985a93fb43d97399fbbd4ed0) 
+
+
+Pickup - [advos.io](https://advos.io/en/sonny-meraban-scholarship-empowers-entrepreneurial-excellence-with-1500-award/20244185)
+ 
 
 
 

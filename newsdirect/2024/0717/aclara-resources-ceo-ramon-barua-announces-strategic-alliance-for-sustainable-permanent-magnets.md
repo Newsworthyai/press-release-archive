@@ -25,7 +25,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/aclara-resour
 [Original/Source Press Release](https://newsdirect.com/news/aclara-resources-ceo-ramon-barua-announces-strategic-alliance-for-sustainable-permanent-magnets-561128618)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aclara-resources-ceo-announces-strategic-alliance-for-sustainable-permanent-magnets/0fc5ee174a5900f0c24f540ef2f54de0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/aclara-resources-and-vacuumschmelze-form-strategic-alliance-for-sustainable-rare-earth-magnets)
+
+Pickup - [fishervista.com](https://fishervista.com/en/aclara-resources-announces-strategic-alliance-for-esg-compliant-permanent-magnets/20245028)
+
+Pickup - [advos.io](https://advos.io/en/aclara-resources-forms-strategic-alliance-with-vac-for-sustainable-permanent-magnets/20245028)
+ 
 
 
 

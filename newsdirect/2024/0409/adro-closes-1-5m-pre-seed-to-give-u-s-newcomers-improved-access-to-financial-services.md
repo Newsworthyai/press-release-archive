@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/adro-closes-1
 [Original/Source Press Release](https://newsdirect.com/news/adro-closes-1-5m-pre-seed-to-give-u-s-newcomers-improved-access-to-financial-services-878029824)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/adro-secures-1-5m-pre-seed-funding-to-improve-access-to-financial-services-for-u-s-newcomers/49bc5568b6f04195de7d788395638c8b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/adro-secures-1-5m-to-empower-financial-access-for-international-students-and-workers)
+ 
 
 
 

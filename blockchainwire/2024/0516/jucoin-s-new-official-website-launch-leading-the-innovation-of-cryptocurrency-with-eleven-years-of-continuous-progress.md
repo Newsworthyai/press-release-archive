@@ -37,7 +37,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/jucoins-new-official-website-launch-leading-the-innovation-of-cryptocurrency-with-eleven-years-of-continuous-progress)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jucoin-launches-new-website-and-embarks-on-innovative-development-journey/33faa62ab02be9669488bcb10e034452) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/jucoin-launches-new-website-and-embarks-on-innovative-development-journey)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/jucoin-launches-new-website-and-embarks-on-innovative-development-journey)
+ 
 
 
 

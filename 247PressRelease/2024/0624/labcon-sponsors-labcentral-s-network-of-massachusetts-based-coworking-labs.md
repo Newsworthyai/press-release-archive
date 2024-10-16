@@ -7,7 +7,13 @@ PETALUMA, CA, June 24, 2024 /24-7PressRelease/ -- Labcon North America (www.labc
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511850/labcon-sponsors-labcentrals-network-of-massachusetts-based-coworking-labs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/labcon-sponsors-labcentral-to-accelerate-biotech-startups/2221a8597f821c5003e79d5d40b3ea4b) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/labcon-partners-with-labcentral-to-accelerate-biotech-startups-and-drive-sustainability/20244399)
+
+Pickup - [advos.io](https://advos.io/en/labcon-sponsors-labcentral-s-network-of-massachusetts-based-coworking-labs/20244399)
+ 
 
 
 

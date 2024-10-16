@@ -7,7 +7,17 @@ HALTOM CITY, TX, September 17, 2024 /24-7PressRelease/ -- For years, the members
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511368/to-encourage-urban-renewal-in-older-neighborhoods-cities-should-evaluate-barriers-lower-the-bar-to-entry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/haltom-united-business-alliance-advocates-for-code-and-policy-changes-to-spur-revitalization-in-haltom-city/959a088ca27b2442c888d63aef11ebb7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/haltom-city-business-alliance-advocates-for-urban-renewal-through-code-reform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/haltom-united-business-alliance-urges-city-to-lower-barriers-for-urban-renewal/20246877)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/haltom-city-business-alliance-calls-for-urban-renewal-strategies-to-revitalize-older-neighborhoods/20246877)
+
+Pickup - [advos.io](https://advos.io/en/haltom-city-business-alliance-calls-for-urban-renewal-strategies/20246877)
+ 
 
 
 

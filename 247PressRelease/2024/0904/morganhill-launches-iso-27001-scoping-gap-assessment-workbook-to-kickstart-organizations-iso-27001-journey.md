@@ -7,7 +7,17 @@ DALLAS, TX, September 04, 2024 /24-7PressRelease/ -- MorganHill, a leading provi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513973/morganhill-launches-iso-27001-scoping-gap-assessment-workbook-to-kickstart-organizations-iso-27001-journey)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/morganhill-launches-iso-27001-scoping-gap-assessment-workbook-for-information-security-management/62463f8f925d8e6fb8163cab469ad5bb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/morganhill-releases-new-iso-27001-workbook-to-streamline-certification-process)
+
+Pickup - [fishervista.com](https://fishervista.com/en/morganhill-unveils-iso-27001-scoping-gap-assessment-workbook-to-aid-organizations-in-achieving-iso-27001-certification/20246505)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/morganhill-releases-iso-27001-workbook-to-streamline-certification-process/20246505)
+
+Pickup - [advos.io](https://advos.io/en/morganhill-unveils-iso-27001-scoping-gap-assessment-workbook-to-aid-organizations-in-achieving-certification/20246505)
+ 
 
 
 

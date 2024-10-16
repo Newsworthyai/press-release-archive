@@ -7,7 +7,17 @@ PASADENA, CA, August 05, 2024 /24-7PressRelease/ -- Landing Rock Group LLC ("Lan
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513080/landing-rock-cash-management-introduces-special-certificates-of-deposit)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/landing-rock-group-llc-announces-success-of-pilot-program-for-special-cds-and-odd-term-cds/e3b8069210bc2144c9c11c15acc432e7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/landing-rock-cash-management-expands-cd-offerings-with-successful-pilot-program)
+
+Pickup - [fishervista.com](https://fishervista.com/en/landing-rock-cash-management-expands-cd-offerings-with-special-and-odd-term-options/20245478)
+
+Pickup - [advos.io](https://advos.io/en/landing-rock-cash-management-expands-cd-offerings-with-special-and-odd-term-options/20245478)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/landing-rock-cash-management-expands-cd-offerings-with-special-and-odd-term-options)
+ 
 
 
 

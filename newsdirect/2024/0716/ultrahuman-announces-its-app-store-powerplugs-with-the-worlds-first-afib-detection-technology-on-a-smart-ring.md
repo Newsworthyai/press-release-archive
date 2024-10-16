@@ -81,7 +81,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ultrahuman-an
 [Original/Source Press Release](https://newsdirect.com/news/ultrahuman-announces-its-app-store-powerplugs-with-the-worlds-first-afib-detection-technology-on-a-smart-ring-214542345)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ultrahuman-launches-powerplugs-with-world-s-first-afib-detection-on-smart-ring/d0e67f280bdab483eafb8305c5412910) 
+
+ 
 
 
 

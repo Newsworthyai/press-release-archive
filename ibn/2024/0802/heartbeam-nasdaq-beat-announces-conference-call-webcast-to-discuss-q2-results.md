@@ -35,7 +35,9 @@ HeartBeam(NASDAQ: BEAT), a medical technology company focused on transforming c
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/heartbeam-nasdaq-beat-announces-conference-call-webcast-to-discuss-q2-results-2/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heartbeam-to-host-conference-call-and-webcast-to-discuss-q2-2024-results/7321d4e384998b72d1dea587a4b40efa) 
+
+ 
 
 
 

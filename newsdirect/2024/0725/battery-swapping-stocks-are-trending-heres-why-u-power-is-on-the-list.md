@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/battery-swapp
 [Original/Source Press Release](https://newsdirect.com/news/battery-swapping-stocks-are-trending-heres-why-u-power-is-on-the-list-908924923)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-power-revolutionizes-ev-battery-swapping-services/3d3507c21265f088836986545f04f438) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/u-power-emerges-as-key-player-in-growing-ev-battery-swapping-market)
+
+Pickup - [fishervista.com](https://fishervista.com/en/u-power-ltd-a-rising-star-in-ev-battery-swapping-industry/20245247)
+
+Pickup - [advos.io](https://advos.io/en/u-power-ltd-emerges-as-a-key-player-in-ev-battery-swapping-market/20245247)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/u-power-emerges-as-key-player-in-growing-ev-battery-swapping-market)
+ 
 
 
 

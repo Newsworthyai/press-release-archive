@@ -7,7 +7,17 @@ MILFORD & BRIGHTON, MI, July 31, 2024 /24-7PressRelease/ -- The weekend of Augus
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512980/loose-diamond-weekend-at-rottermond-jewelers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/discover-exquisite-jewelry-at-rottermond-jewelers-exclusive-michigan-event/a564157bfd166e13980f489baa0849c2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/rottermond-jewelers-hosts-million-dollar-loose-diamond-event-in-michigan)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rottermond-jewelers-hosts-1-million-loose-diamond-weekend/20245382)
+
+Pickup - [advos.io](https://advos.io/en/rottermond-jewelers-to-host-loose-diamond-weekend-in-michigan/20245382)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/rottermond-jewelers-hosts-million-dollar-diamond-event-in-michigan)
+ 
 
 
 

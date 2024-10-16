@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-rise-of-a
 [Original/Source Press Release](https://newsdirect.com/news/the-rise-of-alternative-investments-how-arta-finance-is-bringing-private-investing-to-10x-more-people-895284521)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arta-finance-opening-the-door-to-private-investing-for-everyday-investors/ce0feb07416449ee9a58190046f99e1d) 
+
+ 
 
 
 

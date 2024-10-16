@@ -7,7 +7,11 @@ VICTORIA, BC, June 17, 2024 /24-7PressRelease/ -- Renowned author and thought le
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511753/dan-pontefracts-work-life-bloom-selected-as-a-thinkers50-best-new-management-book-for-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-author-dan-pontefract-s-work-life-bloom-makes-thinkers50-2024-best-new-management-books-list/d1abb6d6588241f8e83c382a797903d0) 
+
+
+Pickup - [advos.io](https://advos.io/en/dan-pontefract-s-work-life-bloom-recognized-as-a-thinkers50-best-new-management-book-for-2024/20244188)
+ 
 
 
 

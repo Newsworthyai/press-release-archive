@@ -35,7 +35,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/bda-to-hold-s
 [Original/Source Press Release](https://newsdirect.com/news/bda-to-hold-second-bermuda-reception-at-consensus-244613098)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bda-to-host-second-bermuda-reception-at-consensus-in-austin-texas/9ee5a94515b3ee0809defe7ae4d480e6) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bda-to-host-second-bermuda-reception-at-consensus-in-austin-texas)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bda-to-host-second-bermuda-reception-at-consensus-in-austin-texas)
+ 
 
 
 

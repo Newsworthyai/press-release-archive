@@ -7,7 +7,11 @@ ROSELAND, NJ, March 27, 2024 /24-7PressRelease/ -- Next Generation, a full-servi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509545/next-generation-trust-company-provides-guidance-and-information-for-financial-advisors-about-self-directed-retirement-plans)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/next-generation-launches-new-web-page-to-educate-financial-planners-on-self-directed-iras/a4e7505d0427ac56421428e360f602f3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/next-generation-provides-guidance-for-financial-advisors-on-self-directed-retirement-plans)
+ 
 
 
 

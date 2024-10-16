@@ -43,7 +43,21 @@ The information provided in this release is based on publicly available sources.
 [Original/Source Press Release](https://blockchainwire.io/press-release/tide-capital-market-flash-crash-ends-btc-poised-for-recovery)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-market-flash-crash-ends-and-recovery-begins/1d6e009a80486c9a5c530021c8ad2aab) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/19/global-market-flash-crash-concludes-bitcoin-poised-for-recovery-amid-election-uncertainty)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tide-capital-market-flash-crash-ends-btc-anticipated-to-recover-amid-election-uncertainty/20245814)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/global-market-flash-crash-subsides-crypto-poised-for-recovery-amid-election-uncertainty/20245814)
+
+Pickup - [advos.io](https://advos.io/en/tide-capital-global-market-flash-crash-ends-btc-set-for-recovery/20245814)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/global-market-flash-crash-ends-and-recovery-begins)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/global-market-flash-crash-ends-and-recovery-begins)
+ 
 
 
 

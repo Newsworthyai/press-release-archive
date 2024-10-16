@@ -7,7 +7,9 @@ WILMINGTON, NC, September 29, 2024 /24-7PressRelease/ -- Bijou Entertainment has
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514791/bestselling-authors-j-bartell-and-ginger-marin-of-bijou-entertainment-announce-literary-fiction-novella-the-coupe-will-be-available-at-no-charge-in-ebook-format-october-1-through-october-3-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/action-adventure-novella-the-coupe-available-for-free-on-amazon/5481d91ababdb2b366510507fe888cad) 
+
+ 
 
 
 

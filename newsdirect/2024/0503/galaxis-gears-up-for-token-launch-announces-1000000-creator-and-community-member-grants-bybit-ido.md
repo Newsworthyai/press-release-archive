@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/galaxis-gears
 [Original/Source Press Release](https://newsdirect.com/news/galaxis-gears-up-for-token-launch-announces-1-000-000-creator-and-community-member-grants-and-bybit-ido-518473318)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/galaxis-prepares-for-token-launch-announces-1m-grants-and-bybit-ido/ba26ede7ee22adbba6e1014773beaf3b) 
+
+ 
 
 
 

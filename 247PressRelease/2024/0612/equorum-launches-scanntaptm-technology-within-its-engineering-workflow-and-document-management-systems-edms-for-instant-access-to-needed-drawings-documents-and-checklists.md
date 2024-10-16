@@ -7,7 +7,11 @@ ATLANTA, GA, June 12, 2024 /24-7PressRelease/ -- eQuorum, a leading provider of 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511636/equorum-launches-scanntap-technology-within-its-engineering-workflow-and-document-management-systems-edms-for-instant-access-to-needed-drawings-documents-and-checklists)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/equorum-launches-innovative-scanntap-technology-to-enhance-workflow-and-maintenance-management/a651e76db83385aa082a2d63337bac49) 
+
+
+Pickup - [advos.io](https://advos.io/en/equorum-introduces-scanntaptm-for-instant-access-to-critical-engineering-documents/20244056)
+ 
 
 
 

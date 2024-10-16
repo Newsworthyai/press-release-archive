@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/truchoice-ach
 [Original/Source Press Release](https://newsdirect.com/news/truchoice-achieves-great-place-to-work-certification-for-second-year-312537858)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/truchoice-financial-group-llc-earns-great-place-to-work-certifiedtm-status-for-second-consecutive-year/7a89610d510b8541ee0367daf4172dcd) 
+
+ 
 
 
 

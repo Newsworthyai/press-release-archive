@@ -7,7 +7,9 @@ SOUTH SURREY - WHITE ROCK, BC, April 13, 2024 -- Nestled in the heart of South S
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510033/unveiling-south-surreys-hidden-gem-nha-toi-boutique-cafe)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nha-toi-boutique-cafe-partners-with-truedan-to-bring-authentic-vietnamese-cuisine-to-south-surrey-bc/ac0fdbbc3cc902690b98a109e65b6b47) 
+
+ 
 
 
 

@@ -63,7 +63,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/heres-what-ec
 [Original/Source Press Release](https://newsdirect.com/news/heres-what-ecoai-coin-has-in-store-for-2024-and-beyond-300285950)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sec-green-lights-ethereum-etfs-ecoai-coin-gears-up-for-ico/bcc50c1ed439ef43a36a0068d6ce1acf) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/ecoai-coin-poised-for-major-developments-amidst-ethereum-etf-approval/20245149)
+
+Pickup - [advos.io](https://advos.io/en/ecoai-coin-prepares-for-2024-ico-amid-renewed-cryptocurrency-excitement/20245149)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/sec-green-lights-ethereum-etfs-ecoai-coin-gears-up-for-ico)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/sec-green-lights-ethereum-etfs-ecoai-coin-gears-up-for-ico)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/ecoai-coin-bridging-cryptocurrency-and-environmental-sustainability)
+ 
 
 
 

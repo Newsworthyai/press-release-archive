@@ -57,7 +57,13 @@ Reported by Rachel Phares, Rights Manager, BenBella Books: “Translation Rights
 [Original/Source Press Release](https://www.newmediawire.com/news/announcing-translation-rights-for-dr-lufkin-s-lies-i-taught-in-medical-school-sold-throughout-europe-and-asia-7075968)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-robert-lufkin-s-lies-i-taught-in-medical-school-goes-global/46f284c89298e2653f36d0cdab931980) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/dr-robert-lufkin-s-lies-i-taught-in-medical-school-gains-international-traction-with-multiple-translation-rights-sold)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/dr-robert-lufkin-s-lies-i-taught-in-medical-school-gains-international-traction/20246455)
+ 
 
 
 

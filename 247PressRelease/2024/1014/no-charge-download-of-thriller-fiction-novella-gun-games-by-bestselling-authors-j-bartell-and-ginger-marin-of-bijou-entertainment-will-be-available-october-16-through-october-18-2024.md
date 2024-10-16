@@ -7,7 +7,9 @@ WILMINGTON, NC, October 14, 2024 /24-7PressRelease/ -- Bijou Entertainment has a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515228/no-charge-download-of-thriller-fiction-novella-gun-games-by-bestselling-authors-j-bartell-and-ginger-marin-of-bijou-entertainment-will-be-available-october-16-through-october-18-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/free-ebook-release-gun-games-by-bijou-entertainment/e18b8ad41d9886f58890eb3c325a581b) 
+
+ 
 
 
 

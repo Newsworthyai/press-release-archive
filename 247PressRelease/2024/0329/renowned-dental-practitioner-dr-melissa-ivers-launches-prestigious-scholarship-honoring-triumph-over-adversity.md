@@ -7,7 +7,11 @@ ALBUQUERQUE, NM, March 29, 2024 /24-7PressRelease/ -- Dr. Melissa Ivers, a promi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509655/renowned-dental-practitioner-dr-melissa-ivers-launches-prestigious-scholarship-honoring-triumph-over-adversity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-melissa-ivers-introduces-scholarship-for-overcoming-adversity/c29e277d4a6782a1d4282b959b876c53) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/dr-melissa-ivers-launches-scholarship-honoring-resilience-and-triumph)
+ 
 
 
 

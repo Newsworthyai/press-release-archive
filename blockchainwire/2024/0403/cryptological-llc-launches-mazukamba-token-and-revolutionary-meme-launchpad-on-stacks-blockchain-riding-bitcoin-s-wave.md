@@ -25,7 +25,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptological-llc-launches-mazukamba-token-and-revolutionary-meme-launchpad-on-stacks-blockchain-riding-bitcoins-wave)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptological-announces-private-sale-and-launch-of-meme-launchpad-on-stacks-blockchain/cd7b7a4a07de0663406d19ca1699af94) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/cryptological-launches-mazukamba-token-and-meme-launchpad-on-stacks-blockchain)
+ 
 
 
 

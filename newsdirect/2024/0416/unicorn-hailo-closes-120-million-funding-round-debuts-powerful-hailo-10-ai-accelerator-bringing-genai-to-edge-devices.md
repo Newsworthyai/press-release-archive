@@ -67,7 +67,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/unicorn-hailo
 [Original/Source Press Release](https://newsdirect.com/news/unicorn-hailo-closes-120-million-funding-round-debuts-powerful-hailo-10-ai-accelerator-bringing-genai-to-edge-devices-743865891)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hailo-raises-120m-and-introduces-hailo-10-ai-accelerator-to-bring-genai-to-edge-devices/bd826460dca29388f93605eb89ab31d3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/hailo-raises-120-million-unveils-hailo-10-genai-accelerator-for-edge-devices)
+ 
 
 
 

@@ -31,7 +31,11 @@ Disclaimer:The information provided in this release is not investment advice, fi
 [Original/Source Press Release](https://blockchainwire.io/press-release/massive-gains-ahead-befe-coin-march-2024s-ultimate-meme-crypto-trendsetter)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meme-coins-are-the-trendsetter-for-march-2024/5c07d2fb4d2584ff6f4dfa69813a957e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/befe-coin-the-meme-crypto-trendsetter-for-march-2024)
+ 
 
 
 

@@ -57,7 +57,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/tennr-puts-fa
 [Original/Source Press Release](https://newsdirect.com/news/tennr-puts-fax-machines-back-in-vogue-for-healthcare-organizations-using-ai-as-it-secures-18m-from-a16z-450162029)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tennr-raises-18m-to-revolutionize-healthcare-workflow-with-ai-and-fax-integration/c55f8a0775afa075cea403264bf3c7b4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/tennr-bridges-healthcare-s-fax-gap-with-ai-powered-automation)
+ 
 
 
 

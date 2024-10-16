@@ -33,7 +33,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/immersive-eng
 [Original/Source Press Release](https://newsdirect.com/news/immersive-engagement-is-the-future-ceo-speaks-about-companys-innovations-that-keep-pushing-whats-possible-952626146)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/super-league-ceo-discusses-innovations-in-reaching-gen-z-and-gen-alpha/f17d5aaa339e824e59400d0d4c9b256f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/19/super-league-enterprise-ceo-discusses-innovations-in-immersive-marketing-for-gen-z-and-gen-alpha)
+
+Pickup - [fishervista.com](https://fishervista.com/en/super-league-enterprise-inc-ceo-discusses-innovations-in-immersive-engagement/20245116)
+
+Pickup - [advos.io](https://advos.io/en/super-league-enterprise-ceo-discusses-innovations-in-immersive-engagement/20245116)
+ 
 
 
 

@@ -32,7 +32,17 @@ sales@mybikebits.co.uk
 [Original/Source Press Release](https://newsworthy.ai/news/202408061221/mybikebits-launches-one-man-s-passion-becomes-the-uk-s-new-destination-for-motorcycle-parts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-soldier-turned-amazon-engineer-launches-mybikebits-online-store-for-motorcycle-parts-and-accessories/4791e85fffed52c2dd7458dcc03eb2e3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/mybikebits-launches-as-uk-s-new-premier-motorcycle-parts-destination)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mybikebits-launches-as-uk-s-premier-destination-for-motorcycle-parts/20245513)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-online-store-mybikebits-revolutionizes-motorcycle-parts-shopping-in-uk)
+
+Pickup - [advos.io](https://advos.io/en/mybikebits-new-online-store-for-motorcycle-parts-launches-in-the-uk/20245513)
+ 
 
 
 

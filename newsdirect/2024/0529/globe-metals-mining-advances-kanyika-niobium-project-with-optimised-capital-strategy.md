@@ -17,7 +17,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/globe-metals-
 [Original/Source Press Release](https://newsdirect.com/news/globe-metals-and-mining-advances-kanyika-niobium-project-with-optimised-capital-strategy-514740003)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/globe-metals-mining-advances-kanyika-niobium-project-with-optimised-capital-strategy/8ecdfd4a4417401be586d47c390610c6) 
+
+ 
 
 
 

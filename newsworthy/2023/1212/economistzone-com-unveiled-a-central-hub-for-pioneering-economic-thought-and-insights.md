@@ -23,7 +23,11 @@ Discover the world of economics anew with www.EconomistZone.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231212812/economistzone-com-unveiled-a-central-hub-for-pioneering-economic-thought-and-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/economistzone-com-your-premier-destination-for-economic-insights-and-expert-interviews/e1826a929f441dd20894038c7ccfd2f7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/12/economistzone-com-unveiling-a-premier-hub-for-economic-insights-and-expertise)
+ 
 
 
 

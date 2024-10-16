@@ -7,7 +7,9 @@ RALEIGH, NC, May 23, 2024 /24-7PressRelease/ -- The law firm of Younce, Vtipil, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511130/younce-vtipil-baznik-banks-pa-announces-2024-scholarship-contest)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/younce-vtipil-baznik-banks-p-a-announces-2024-scholarship-contest-for-north-carolina-students/b6c7147528501ff371d3689a4545d9f3) 
+
+ 
 
 
 

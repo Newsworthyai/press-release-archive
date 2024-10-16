@@ -43,7 +43,11 @@ Facebook - https://www.facebook.com/fuzuki.inu/
 [Original/Source Press Release](https://blockchainwire.io/press-release/announcing-fuzuki-inu---the-shiba-kanji-pre-sale-dont-miss-the-opportunity-be-an-early-investor)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/get-ready-for-the-fuzuki-inu-token-your-ticket-to-the-digital-currency-world/752dd709a0c8f56bd360b462810cf910) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/fuzuki-inu-the-shiba-kanji-redefining-meme-tokens)
+ 
 
 
 

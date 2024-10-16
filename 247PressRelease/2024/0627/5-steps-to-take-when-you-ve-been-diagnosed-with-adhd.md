@@ -7,7 +7,13 @@ BALSAM, NC, June 27, 2024 /24-7PressRelease/ -- ADHD is among the most commonly 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512050/5-steps-to-take-when-youve-been-diagnosed-with-adhd)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/soar-offers-support-for-youth-with-adhd-and-learning-disabilities/1eecaaf5bc006cd14f609d0cfbe28ce2) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/navigating-life-with-adhd-expert-advice-on-managing-the-journey/20244522)
+
+Pickup - [advos.io](https://advos.io/en/executive-director-of-soar-shares-essential-steps-for-managing-adhd-diagnosis/20244522)
+ 
 
 
 

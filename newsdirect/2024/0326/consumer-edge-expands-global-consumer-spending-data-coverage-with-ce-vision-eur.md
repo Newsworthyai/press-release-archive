@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/consumer-edge
 [Original/Source Press Release](https://newsdirect.com/news/consumer-edge-expands-global-consumer-spending-data-coverage-with-ce-vision-eur-343054188)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/consumer-edge-expands-data-coverage-to-europe-with-ce-vision-eur/ecc1ddc9aa2932959e60929bcff0de3b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/consumer-edge-expands-global-consumer-spending-insights-with-european-data)
+ 
 
 
 

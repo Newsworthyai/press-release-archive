@@ -47,7 +47,15 @@ CoinW has also achieved compliance milestones, such as obtaining the digital cur
 [Original/Source Press Release](https://blockchainwire.io/press-release/strengthening-crypto-security-coinws-response-to-recent-industry-breaches)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rising-crypto-security-threats-and-coinw-s-advanced-security-measures/3dd57aee77906b14097772b8fe326bf2) 
+
+
+Pickup - [advos.io](https://advos.io/en/coinw-fortifies-crypto-security-amid-industry-breaches/20244194)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/rising-crypto-security-threats-and-coinw-s-advanced-security-measures)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/rising-crypto-security-threats-and-coinw-s-advanced-security-measures)
+ 
 
 
 

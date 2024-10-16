@@ -7,7 +7,15 @@ NEW YORK, NY, July 16, 2024 /24-7PressRelease/ -- Ken Honda is a Japanese bestse
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512548/bestselling-author-ken-honda-publishes-new-novel-true-wealth-9-lessons-from-a-grandfather-on-happiness-and-abundance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-ken-honda-releases-true-wealth-novel/a3e672211c900238f3c080fed5e80765) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/ken-honda-s-new-novel-true-wealth-explores-lessons-on-happiness-and-abundance)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ken-honda-s-new-novel-explores-true-wealth-beyond-financial-abundance/20244977)
+
+Pickup - [advos.io](https://advos.io/en/ken-honda-releases-new-novel-exploring-true-wealth-beyond-financial-abundance/20244977)
+ 
 
 
 

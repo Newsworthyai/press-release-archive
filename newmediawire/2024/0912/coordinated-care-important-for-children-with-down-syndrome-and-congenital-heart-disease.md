@@ -58,7 +58,17 @@ Embargoed until 4:00 a.m. CT/5:00 a.m. ET Thursday, September 12, 2024
 [Original/Source Press Release](https://www.newmediawire.com/news/coordinated-care-important-for-children-with-down-syndrome-and-congenital-heart-disease-7076039)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-aha-statement-emphasizes-coordinated-care-for-children-with-trisomy-21-and-congenital-heart-disease/795863c865d65353d6b78c639d4619ce) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/coordinated-care-essential-for-children-with-down-syndrome-and-congenital-heart-disease-aha-states)
+
+Pickup - [fishervista.com](https://fishervista.com/en/coordinated-care-essential-for-children-with-down-syndrome-and-congenital-heart-disease/20246767)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/coordinated-care-critical-for-children-with-down-syndrome-and-congenital-heart-disease/20246767)
+
+Pickup - [advos.io](https://advos.io/en/coordinated-care-crucial-for-children-with-down-syndrome-and-congenital-heart-disease/20246767)
+ 
 
 
 

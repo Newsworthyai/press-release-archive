@@ -47,7 +47,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/dexfly-collaborates-with-top-global-banks-to-launch-digital-asset-custody-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dexfly-exchange-launches-secure-digital-asset-custody-services-with-global-banks/50ffcda248a14cd331b507742e751be2) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/dexfly-exchange-launches-secure-digital-asset-custody-services-with-global-banks)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/dexfly-exchange-launches-secure-digital-asset-custody-services-with-global-banks)
+ 
 
 
 

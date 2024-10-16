@@ -21,7 +21,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/copper-lake-r
 [Original/Source Press Release](https://newsdirect.com/news/copper-lake-resources-announces-plans-for-summer-exploration-plans-at-marshall-lake-property-625770898)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/copper-lake-resources-ceo-terry-macdonald-shares-insights-into-summer-exploration-program-at-marshall-lake-property/2dc787cc0398086eff7299ce8272114e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/copper-lake-resources-unveils-summer-exploration-plans-at-marshall-lake-property/20244287)
+
+Pickup - [advos.io](https://advos.io/en/copper-lake-resources-unveils-summer-exploration-plans-for-marshall-lake-property/20244287)
+ 
 
 
 

@@ -7,7 +7,11 @@ CHICAGO, IL, April 02, 2024 /24-7PressRelease/ -- Chicago Music Award Nominee an
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509688/chicago-music-award-nominee-dant%C3%A8s-alexander-the-prince-regent-of-edm-reveals-they-wont-go-when-i-go-his-latest-single-album-featuring-captivating-remixes-by-dj-aaron-chase-more)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/edm-artist-dantes-alexander-unveils-highly-anticipated-album-and-single/1331e18fbc309692538a2d07d1060708) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/dantes-alexander-unveils-they-won-t-go-when-i-go-a-genre-defying-musical-odyssey)
+ 
 
 
 

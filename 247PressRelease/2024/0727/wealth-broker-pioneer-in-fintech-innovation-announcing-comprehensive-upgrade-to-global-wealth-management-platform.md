@@ -7,7 +7,17 @@ SINGAPORE, July 27, 2024 /24-7PressRelease/ -- Wealth Broker ("Wealth Guardian I
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512891/wealth-broker-pioneer-in-fintech-innovation-announcing-comprehensive-upgrade-to-global-wealth-management-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wealth-broker-announces-major-upgrade-to-stock-trading-app/40a4d439ba810db1132cc076166db1a2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/27/wealth-broker-set-to-launch-comprehensive-upgrade-to-global-investment-platform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/wealth-broker-announces-comprehensive-upgrade-to-global-wealth-management-platform/20245303)
+
+Pickup - [advos.io](https://advos.io/en/wealth-broker-announces-major-upgrade-to-global-wealth-management-platform/20245303)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/wealth-broker-set-to-launch-comprehensive-upgrade-to-global-investment-platform)
+ 
 
 
 

@@ -47,7 +47,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-to-boost-
 [Original/Source Press Release](https://newsdirect.com/news/htx-to-boost-liquid-restaking-quota-totaling-150-million-with-upgraded-point-system-613405027)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-to-boost-liquid-restaking-quota-totaling-150-million-with-upgraded-point-system/4c404168f5b022a734906a02d9512403) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-to-boost-liquid-restaking-quota-totaling-150-million-with-upgraded-point-system)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-to-boost-liquid-restaking-quota-totaling-150-million-with-upgraded-point-system)
+ 
 
 
 

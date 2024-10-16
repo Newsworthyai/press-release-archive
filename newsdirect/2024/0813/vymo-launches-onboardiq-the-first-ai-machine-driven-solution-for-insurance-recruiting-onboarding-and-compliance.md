@@ -71,7 +71,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/vymo-launches
 [Original/Source Press Release](https://newsdirect.com/news/vymo-launches-onboardiq-the-first-ai-machine-driven-solution-for-insurance-recruiting-onboarding-and-compliance-701491384)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vymo-launches-onboardiq-the-first-ai-machine-driven-solution-for-insurance-recruiting-onboarding-and-compliance/19f3d9c59f4e728fa7cc0c232a6ddd6e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/vymo-introduces-ai-powered-onboardiq-to-revolutionize-insurance-recruitment-and-compliance)
+
+Pickup - [fishervista.com](https://fishervista.com/en/vymo-introduces-onboardiq-ai-powered-solution-for-insurance-recruiting-and-compliance/20245684)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/vymo-introduces-ai-powered-onboardiq-to-revolutionize-insurance-industry-recruitment-and-compliance/20245684)
+
+Pickup - [advos.io](https://advos.io/en/vymo-unveils-onboardiq-ai-driven-solution-for-insurance-recruiting-and-compliance/20245684)
+ 
 
 
 

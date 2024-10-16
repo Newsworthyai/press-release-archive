@@ -21,7 +21,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/global-energy
 [Original/Source Press Release](https://newsdirect.com/news/global-energy-metals-planning-extensive-field-work-in-2024-with-at-monument-peak-project-in-idaho-564399012)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-energy-metals-unveils-ambitious-exploration-strategy-for-monument-peak-project-in-idaho/b02b622b5384f453667176e9e51484d0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/global-energy-metals-unveils-ambitious-exploration-plans-for-monument-peak-project-in-idaho)
+ 
 
 
 

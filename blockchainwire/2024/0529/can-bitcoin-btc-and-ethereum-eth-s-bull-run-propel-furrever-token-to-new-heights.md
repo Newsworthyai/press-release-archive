@@ -33,7 +33,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/can-bitcoin-btc-and-ethereum-eths-bull-run-propel-furrever-token-to-new-heights-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-and-ethereum-bull-run-positive-impact-on-furrever-token-expected/81390fb8b3f5229265d9523a09212251) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-and-ethereum-bull-run-positive-impact-on-furrever-token-expected)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-and-ethereum-bull-run-positive-impact-on-furrever-token-expected)
+ 
 
 
 

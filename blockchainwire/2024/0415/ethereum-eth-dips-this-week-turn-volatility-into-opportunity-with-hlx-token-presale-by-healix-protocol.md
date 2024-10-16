@@ -39,7 +39,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/ethereum-eth-dips-this-week-turn-volatility-into-opportunity-with-hlx-token-presale-by-healix-protocol)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/healix-protocol-s-hlx-token-presale-embracing-volatility-for-opportunity/c2b4a816fdf0361a68b65b4275528348) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/ethereum-volatility-presents-opportunity-with-healix-protocol-s-hlx-token-presale)
+ 
 
 
 

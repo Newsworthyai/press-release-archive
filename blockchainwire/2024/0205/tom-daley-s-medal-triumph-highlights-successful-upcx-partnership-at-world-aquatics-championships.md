@@ -41,7 +41,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/tom-daleys-medal-triumph-highlights-successful-upcx-partnership-at-world-aquatics-championships)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tom-daley-wins-first-medal-at-world-aquatics-championships-with-upcx/c9900d33178a1756be0f10a9ba9e63f5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/05/daley-s-diving-success-spotlights-upcx-s-innovative-payment-solutions)
+ 
 
 
 

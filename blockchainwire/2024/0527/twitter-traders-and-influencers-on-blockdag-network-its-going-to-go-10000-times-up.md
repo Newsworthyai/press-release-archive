@@ -57,7 +57,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/twitter-traders-and-influencers-on-blockdag-network-its-going-to-go-10000-times-up)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-shaping-cryptocurrency-market-sentiment-on-twitter/1d2967bf4bb35f5d1f7dfe05574bba66) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blockdag-network-shaping-cryptocurrency-market-sentiment-on-twitter)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blockdag-network-shaping-cryptocurrency-market-sentiment-on-twitter)
+ 
 
 
 

@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/copper-proper
 [Original/Source Press Release](https://newsdirect.com/news/copper-property-ctl-pass-through-trust-schedules-live-call-to-discuss-recent-financial-and-operating-results-117603984)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/copper-property-ctl-trust-to-host-live-call-on-recent-financial-results/102a5cf944af9b024c0e7aa715e9298f) 
+
+ 
 
 
 

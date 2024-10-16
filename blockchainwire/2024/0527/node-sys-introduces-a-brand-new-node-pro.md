@@ -37,7 +37,13 @@ Website | X | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/nodesys-introduces-a-brand-new-node-pro)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-node-pro-the-revolutionary-blockchain-hardware-from-node-sys/88f1eac86cb32422b495bf8d2fb0bd96) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/introducing-node-pro-the-revolutionary-blockchain-hardware-from-node-sys)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/introducing-node-pro-the-revolutionary-blockchain-hardware-from-node-sys)
+ 
 
 
 

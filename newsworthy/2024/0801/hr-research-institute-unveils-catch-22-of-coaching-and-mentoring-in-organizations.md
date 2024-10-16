@@ -31,7 +31,19 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202408011223/hr-research-institute-unveils-catch-22-of-coaching-and-mentoring-in-organizations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-report-reveals-challenges-in-developing-effective-coaches/c7f07a42ecf02876d9da17387975baf8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/hr-research-institute-report-reveals-coaching-paradox-in-organizations)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-research-institute-report-reveals-coaching-and-mentoring-paradox-in-organizations/20245435)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hr-research-institute-identifies-major-challenges-in-developing-effective-coaches/20245435)
+
+Pickup - [advos.io](https://advos.io/en/hr-research-institute-unveils-critical-coaching-and-mentoring-challenge-in-organizations/20245435)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hr-research-institute-report-reveals-coaching-conundrum-in-organizations)
+ 
 
 
 

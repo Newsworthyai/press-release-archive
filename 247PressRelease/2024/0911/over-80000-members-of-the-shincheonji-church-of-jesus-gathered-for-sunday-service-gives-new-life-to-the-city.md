@@ -7,7 +7,17 @@ CHEONGJU, KOREA, September 11, 2024 /24-7PressRelease/ -- On the morning of Sept
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514220/over-80000-members-of-the-shincheonji-church-of-jesus-gathered-for-sunday-service-gives-new-life-to-the-city)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chairman-lee-man-hee-draws-80000-at-cheongju-church-anniversary-service/94de2c89953aa18c4fe7c3257937f1bb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/shincheonji-church-of-jesus-draws-over-80000-for-sunday-service-in-cheongju)
+
+Pickup - [fishervista.com](https://fishervista.com/en/80000-shincheonji-church-members-gather-in-cheongju-for-landmark-sunday-service/20246680)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/massive-gathering-at-shincheonji-church-signals-shift-in-south-korean-religious-landscape/20246680)
+
+Pickup - [advos.io](https://advos.io/en/over-80000-gather-for-shincheonji-church-service-in-cheongju/20246680)
+ 
 
 
 

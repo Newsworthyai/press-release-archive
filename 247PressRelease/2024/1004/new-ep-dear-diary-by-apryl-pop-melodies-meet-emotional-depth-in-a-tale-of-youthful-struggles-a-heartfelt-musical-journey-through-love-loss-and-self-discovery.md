@@ -7,7 +7,9 @@ PARADISO, SWITZERLAND, October 04, 2024 /24-7PressRelease/ -- "Dear Diary" by Ap
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514968/new-ep-dear-diary-by-apryl-pop-melodies-meet-emotional-depth-in-a-tale-of-youthful-struggles-a-heartfelt-musical-journey-through-love-loss-and-self-discovery)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/apryl-s-debut-ep-dear-diary-a-journey-through-youth-and-emotions/b9b43ceb220cd40b22750caba0317ee8) 
+
+ 
 
 
 

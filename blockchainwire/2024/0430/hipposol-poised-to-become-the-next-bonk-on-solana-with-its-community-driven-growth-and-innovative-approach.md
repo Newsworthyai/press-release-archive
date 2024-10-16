@@ -11,7 +11,9 @@ How to Participate: Visit https://hipposol.xyz/presale to purchase $HIPPOS token
 [Original/Source Press Release](https://blockchainwire.io/press-release/hipposol-poised-to-become-the-next-bonk-on-solana-with-its-community-driven-growth-and-innovative-approach)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hipposol-a-new-memecoin-contender-gaining-traction-with-hippos-token-presale/574a49cc38c7c6065b6db2774a381b69) 
+
+ 
 
 
 

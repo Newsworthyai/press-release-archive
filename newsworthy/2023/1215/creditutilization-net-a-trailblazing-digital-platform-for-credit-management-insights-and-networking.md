@@ -23,7 +23,11 @@ Embark on your journey towards credit management excellence at www.CreditUtiliza
 [Original/Source Press Release](https://newsworthy.ai/news/20231215802/creditutilization-net-a-trailblazing-digital-platform-for-credit-management-insights-and-networking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-creditutilization-net-a-new-digital-hub-for-credit-management/98498678ed655da75680019cddc5f4f6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/15/creditutilization-net-pioneering-a-new-era-of-credit-knowledge-sharing)
+ 
 
 
 

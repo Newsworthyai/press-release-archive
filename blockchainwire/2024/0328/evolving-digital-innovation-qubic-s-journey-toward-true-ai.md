@@ -31,7 +31,11 @@ Disclaimer: This content is for informational purposes only and is not an offer 
 [Original/Source Press Release](https://blockchainwire.io/press-release/evolving-digital-innovation-qubics-journey-toward-true-ai)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/qubic-leverages-true-ai-and-quorum-consensus-for-next-gen-blockchain-technology/5ac8c274514be13409ffddc98cbc97ec) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/qubic-pioneers-true-ai-revolution-with-decentralized-network)
+ 
 
 
 

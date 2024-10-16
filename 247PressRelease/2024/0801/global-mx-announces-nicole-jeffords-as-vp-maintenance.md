@@ -7,7 +7,17 @@ HAZLETON, PA, August 01, 2024 /24-7PressRelease/ -- Global MX, a growing Part 14
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512986/global-mx-announces-nicole-jeffords-as-vp-maintenance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-mx-promotes-nicole-jeffords-to-vp-maintenance-role/57d1945970d1bbd519557cfcfebc9d30) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/global-mx-promotes-nicole-jeffords-to-vp-maintenance-strengthening-leadership-in-aviation-repair)
+
+Pickup - [fishervista.com](https://fishervista.com/en/global-mx-appoints-nicole-jeffords-as-vp-maintenance/20245406)
+
+Pickup - [advos.io](https://advos.io/en/global-mx-promotes-nicole-jeffords-to-vp-maintenance/20245406)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/global-mx-elevates-nicole-jeffords-to-vp-maintenance-role)
+ 
 
 
 

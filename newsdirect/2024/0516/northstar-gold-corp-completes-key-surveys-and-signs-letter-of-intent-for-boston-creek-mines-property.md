@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/northstar-gol
 [Original/Source Press Release](https://newsdirect.com/news/northstar-gold-corp-completes-key-surveys-and-signs-letter-of-intent-for-boston-creek-mines-property-750797666)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/northstar-gold-corp-makes-strides-in-exploration-efforts-and-signs-letter-of-intent/e652327cb7ba8773f3a89398cd0e25d6) 
+
+ 
 
 
 

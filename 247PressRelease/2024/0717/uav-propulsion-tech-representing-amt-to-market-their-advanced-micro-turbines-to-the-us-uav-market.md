@@ -7,7 +7,15 @@ TAMPA, FL, July 17, 2024 /24-7PressRelease/ -- UAV Propulsion Tech has signed a 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512574/uav-propulsion-tech-representing-amt-to-market-their-advanced-micro-turbines-to-the-us-uav-market)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uav-propulsion-tech-signs-agreement-with-amt-advanced-micro-turbines-to-enter-us-uav-market/e028da9ee05c8e3df9e0afe6366fb521) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/uav-propulsion-tech-partners-with-amt-to-bring-advanced-micro-turbines-to-us-uav-market)
+
+Pickup - [fishervista.com](https://fishervista.com/en/uav-propulsion-tech-partners-with-amt-to-bring-advanced-micro-turbines-to-us-uav-market/20245005)
+
+Pickup - [advos.io](https://advos.io/en/uav-propulsion-tech-to-market-amt-s-advanced-micro-turbines-in-the-us/20245005)
+ 
 
 
 

@@ -7,7 +7,9 @@ LOS ANGELES, CA, April 26, 2024 /24-7PressRelease/ -- Red Frog Publishing proudl
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510335/heartbreak-to-hilarity-rebecca-c-smiths-rom-com-novel-explores-love-after-divorce-documented-on-youtube)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/author-rebecca-c-smith-shares-heartwarming-tale-of-love-and-laughter-in-new-book/39363714b93e65727de6a75a75a853c7) 
+
+ 
 
 
 

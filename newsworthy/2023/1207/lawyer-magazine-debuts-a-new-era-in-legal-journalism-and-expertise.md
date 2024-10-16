@@ -23,7 +23,11 @@ Stay updated with the latest in legal trends and insights at www.LawyerMagazine.
 [Original/Source Press Release](https://newsworthy.ai/news/20231207837/lawyer-magazine-debuts-a-new-era-in-legal-journalism-and-expertise)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-lawyer-magazine-launches-to-demystify-legal-realm/7cca9475861625c74b552bd6f372e35c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/07/lawyer-magazine-unveils-pioneering-legal-insights-platform)
+ 
 
 
 

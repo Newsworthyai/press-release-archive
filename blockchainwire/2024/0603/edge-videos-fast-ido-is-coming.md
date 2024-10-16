@@ -39,7 +39,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/edge-videos-fast-ido-is-coming-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/edge-video-ai-launches-fast-token-ido-redefining-tv-industry-with-ai-technology/28042d3f9e65d8f78e67e7cd355909a6) 
+
+ 
 
 
 

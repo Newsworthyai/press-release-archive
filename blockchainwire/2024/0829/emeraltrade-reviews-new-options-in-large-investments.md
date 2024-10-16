@@ -33,7 +33,17 @@ Address: Tuchlauben 7A, 1010, Vienna, Austria
 [Original/Source Press Release](https://blockchainwire.io/press-release/emeraltrade-reviews-new-options-in-large-investments)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/emeraltrade-rapidly-expands-reach-and-offerings-attracting-17000-customers-and-facilitating-over-60000-transactions-monthly/9c9c0f5a387f9ce5843dae3901c5c0e3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/emeraltrade-expands-operations-and-enhances-trading-capabilities)
+
+Pickup - [fishervista.com](https://fishervista.com/en/emeraltrade-expands-market-reach-and-enhances-trading-capabilities/20246388)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/emeraltrade-expands-operations-and-enhances-trading-capabilities/20246388)
+
+Pickup - [advos.io](https://advos.io/en/emeraltrade-announces-market-expansion-and-technological-innovations/20246388)
+ 
 
 
 

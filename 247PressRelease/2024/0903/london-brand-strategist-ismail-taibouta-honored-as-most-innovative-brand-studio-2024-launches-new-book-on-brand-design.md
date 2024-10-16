@@ -7,7 +7,17 @@ LONDON, ENGLAND, September 03, 2024 /24-7PressRelease/ -- Ismail Taibouta, a dis
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513962/london-brand-strategist-ismail-taibouta-honored-as-most-innovative-brand-studio-2024-launches-new-book-on-brand-design)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ismail-taibouta-recognized-as-most-innovative-brand-studio-in-london-2024/a7777dd14f96ca4b7452b7a271822eb0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/london-brand-strategist-ismail-taibouta-named-most-innovative-releases-new-book-on-brand-design)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ismail-taibouta-named-most-innovative-brand-studio-2024-launches-new-book-on-brand-design/20246469)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/london-s-ismail-taibouta-named-most-innovative-brand-strategist-releases-new-book/20246469)
+
+Pickup - [advos.io](https://advos.io/en/ismail-taibouta-named-most-innovative-brand-studio-2024-releases-new-book-on-brand-design/20246469)
+ 
 
 
 

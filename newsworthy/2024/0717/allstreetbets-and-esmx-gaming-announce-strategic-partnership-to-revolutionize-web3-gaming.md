@@ -27,7 +27,19 @@ For more information about the partnership and upcoming initiatives, please visi
 [Original/Source Press Release](https://newsworthy.ai/news/202407171213/allstreetbets-and-esmx-gaming-announce-strategic-partnership-to-revolutionize-web3-gaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/allstreetbets-and-esmx-gaming-announce-strategic-partnership/eb022339f585d9b3d7e073c81ef2c7d5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/allstreetbets-and-esmx-gaming-join-forces-to-transform-web3-gaming-landscape)
+
+Pickup - [fishervista.com](https://fishervista.com/en/allstreetbets-and-esmx-gaming-forge-strategic-partnership-to-transform-web3-gaming/20245017)
+
+Pickup - [advos.io](https://advos.io/en/allstreetbets-and-esmx-gaming-forge-strategic-partnership-to-transform-web3-gaming/20245017)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/allstreetbets-and-esmx-gaming-announce-strategic-partnership)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/allstreetbets-and-esmx-gaming-announce-strategic-partnership)
+ 
 
 
 

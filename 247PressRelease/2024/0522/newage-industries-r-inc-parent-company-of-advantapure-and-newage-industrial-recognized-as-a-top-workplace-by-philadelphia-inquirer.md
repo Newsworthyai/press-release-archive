@@ -7,7 +7,11 @@ SOUTHAMPTON, PA, May 22, 2024 /24-7PressRelease/ -- NewAge Industries, Inc. (the
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511022/newage-industries-inc-parent-company-of-advantapure-and-newage-industrial-recognized-as-a-top-workplace-by-philadelphia-inquirer)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newage-industries-inc-receives-top-workplaces-2024-designation/202d91dca9c8b0d2d9943ec24a9bfb5f) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/newage-industries-earns-top-workplace-recognition-from-philadelphia-inquirer/20243294)
+ 
 
 
 

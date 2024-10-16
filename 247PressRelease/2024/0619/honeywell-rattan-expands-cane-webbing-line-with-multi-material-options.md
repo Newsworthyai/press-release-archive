@@ -7,7 +7,13 @@ GUANGDONG, June 19, 2024 /24-7PressRelease/ -- Honeywell Rattan Limited today in
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511797/honeywell-rattan-expands-cane-webbing-line-with-multi-material-options)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/honeywell-rattan-introduces-new-production-line-for-cane-webbing/1555d8bdbd2f46d32a7ab56616073dda) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/honeywell-rattan-expands-cane-webbing-line-with-multi-material-options/20244270)
+
+Pickup - [advos.io](https://advos.io/en/honeywell-rattan-expands-cane-webbing-line-with-multi-material-options/20244270)
+ 
 
 
 

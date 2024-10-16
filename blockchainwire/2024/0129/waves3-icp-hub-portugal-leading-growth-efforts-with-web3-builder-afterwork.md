@@ -23,7 +23,11 @@ For all the latest updates and information on Waves3, follow their twitter pageÂ
 [Original/Source Press Release](https://blockchainwire.io/press-release/waves3-icphub-portugal-leading-growth-efforts-with-web3-builder-afterwork)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/waves3-hosts-first-community-building-event-in-lisbon/d855bba538de1e0335961825aa4d83a8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/29/waves3-icp-hub-portugal-fuels-web3-growth-with-builder-afterwork-event)
+ 
 
 
 

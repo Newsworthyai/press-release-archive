@@ -31,7 +31,11 @@ SOURCE: Defiquant
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-review-2024-shaping-the-future-of-digital-asset-interaction-and-green-passive-income-opportunities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-redefines-digital-asset-engagement-with-innovative-solutions/cdd189f9d936b706bc9d6aee76a31478) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/23/defiquant-pioneering-inclusive-digital-asset-engagement-and-sustainable-passive-income)
+ 
 
 
 

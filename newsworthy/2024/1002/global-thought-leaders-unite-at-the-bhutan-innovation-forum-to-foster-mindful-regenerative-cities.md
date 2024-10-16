@@ -36,7 +36,9 @@ For further information and media inquiries, please contact:
 [Original/Source Press Release](https://newsworthy.ai/news/202410021299/global-thought-leaders-unite-at-the-bhutan-innovation-forum-to-foster-mindful-regenerative-cities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bhutan-innovation-forum-to-host-inaugural-event-on-mindful-city-development/f3b163d607d677eca3ae325386eecfa8) 
+
+ 
 
 
 

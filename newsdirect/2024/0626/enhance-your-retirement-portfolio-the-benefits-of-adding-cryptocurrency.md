@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/enhance-your-
 [Original/Source Press Release](https://newsdirect.com/news/enhance-your-retirement-portfolio-the-benefits-of-adding-cryptocurrency-832636731)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/retirement-savers-boost-your-portfolio-with-cryptocurrencies/02fd48f84ad2ff0d1b5ad55065ae627f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/the-strategic-advantages-of-incorporating-cryptocurrency-into-retirement-portfolios/20244498)
+
+Pickup - [advos.io](https://advos.io/en/enhance-your-retirement-portfolio-with-cryptocurrency-investments/20244498)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/retirement-savers-boost-your-portfolio-with-cryptocurrencies)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/retirement-savers-boost-your-portfolio-with-cryptocurrencies)
+ 
 
 
 

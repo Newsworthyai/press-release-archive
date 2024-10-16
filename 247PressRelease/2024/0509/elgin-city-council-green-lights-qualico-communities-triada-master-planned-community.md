@@ -7,7 +7,9 @@ PFLUGERVILLE, TX, May 09, 2024 /24-7PressRelease/ -- Qualico Communities' propos
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510753/elgin-city-council-green-lights-qualico-communities-triada-master-planned-community)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/qualico-communities-triada-master-planned-community-receives-approval-from-elgin-city-council/bf6a30ba4a8534ea15c7d1b988487221) 
+
+ 
 
 
 

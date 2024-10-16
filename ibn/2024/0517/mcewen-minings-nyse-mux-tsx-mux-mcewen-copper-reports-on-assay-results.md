@@ -23,7 +23,9 @@ McEwen Mining (NYSE: MUX) (TSX: MUX), a gold and silver producer with operations
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-minings-nyse-mux-tsx-mux-mcewen-copper-reports-on-assay-results/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-mining-reports-positive-assay-results-from-los-azules-copper-project/5940350f6a8d753a2431500a3905da65) 
+
+ 
 
 
 

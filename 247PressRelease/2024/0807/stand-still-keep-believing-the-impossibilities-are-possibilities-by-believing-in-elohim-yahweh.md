@@ -7,7 +7,17 @@ WASHINGTON, DC, August 07, 2024 /24-7PressRelease/ -- Prepare to embark on a tra
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513202/stand-still-keep-believing-the-impossibilities-are-possibilities-by-believing-in-elohim-yahweh)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-release-stand-still-keep-believing-by-oliver-n-giddings/cab0dfe5dc62d12821319a52d874adc3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/new-book-by-pastor-oliver-n-giddings-inspires-readers-to-embrace-faith-driven-possibilities)
+
+Pickup - [fishervista.com](https://fishervista.com/en/oliver-n-giddings-unveils-new-book-on-transformative-power-of-faith/20245543)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/pastor-oliver-n-giddings-releases-new-book-on-faith-and-possibility)
+
+Pickup - [advos.io](https://advos.io/en/oliver-n-giddings-releases-new-book-on-transformative-faith/20245543)
+ 
 
 
 

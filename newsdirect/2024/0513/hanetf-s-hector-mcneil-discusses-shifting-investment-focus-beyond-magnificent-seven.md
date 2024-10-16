@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/hanetfs-hecto
 [Original/Source Press Release](https://newsdirect.com/news/hanetfs-hector-mcneil-discusses-shifting-investment-focus-beyond-magnificent-seven-541475233)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hanetf-s-hector-mcneil-urges-shift-in-investment-focus-beyond-magnificent-seven/fe8506ce5a3ab4f53c94524fad84fbd6) 
+
+ 
 
 
 

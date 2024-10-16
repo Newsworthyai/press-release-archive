@@ -7,7 +7,15 @@ LACONIA, NH, July 12, 2024 /24-7PressRelease/ -- Rogue Space Systems Corporation
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512405/rogue-awarded-phase-ii-sbir-for-in-situ-resident-space-object-characterization)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rogue-space-systems-corporation-awarded-1m-contract-by-spacewerx-for-space-domain-awareness-project/808fdbc66b08ec65d691e38b632736ae) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/rogue-space-systems-secures-1m-sbir-phase-ii-award-for-space-domain-awareness-technology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rogue-space-systems-secures-over-1m-sbir-phase-ii-award-for-advanced-space-object-characterization/20244909)
+
+Pickup - [advos.io](https://advos.io/en/rogue-space-systems-secures-1m-sbir-phase-ii-award-to-enhance-space-domain-awareness/20244909)
+ 
 
 
 

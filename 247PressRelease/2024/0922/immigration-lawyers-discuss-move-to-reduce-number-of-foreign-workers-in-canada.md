@@ -7,7 +7,9 @@ VANCOUVER, BC, September 22, 2024 /24-7PressRelease/ -- The Vancouver Immigratio
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514560/immigration-lawyers-discuss-move-to-reduce-number-of-foreign-workers-in-canada)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/canada-to-reduce-number-of-foreign-workers-sas-ing-immigration-law-centre-discusses-implications/dae8f89de7d45eae28888c17526ac825) 
+
+ 
 
 
 

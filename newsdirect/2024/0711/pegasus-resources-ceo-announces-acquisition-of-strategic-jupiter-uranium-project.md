@@ -19,7 +19,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/pegasus-resou
 [Original/Source Press Release](https://newsdirect.com/news/pegasus-resources-ceo-announces-acquisition-of-strategic-jupiter-uranium-project-110888241)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pegasus-resources-ceo-announces-acquisition-of-strategic-jupiter-uranium-project/9bf6ea9792248227f7e5ae332f8fbd4c) 
+
+
+Pickup - [advos.io](https://advos.io/en/pegasus-resources-acquires-strategic-uranium-project-in-utah/20244884)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pegasus-resources-acquires-strategic-jupiter-uranium-project-in-utah/20244884)
+
+Pickup - [citybuzz.co](https://citybuzz.co/pegasus-resources-expands-uranium-portfolio-with-jupiter-project-acquisition)
+ 
 
 
 

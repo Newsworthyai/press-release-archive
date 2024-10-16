@@ -40,7 +40,9 @@ Founded in 2021, OMNIA Protocol is a specialized RPC provider designed by cybers
 [Original/Source Press Release](https://blockchainwire.io/press-release/chaingpt-pad-launches-omnia-protocol-to-enhance-and-secure-web3-for-defi-users-via-depin-and-mev-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chaingpt-announces-exclusive-launch-of-omnia-protocol-for-defi-solutions/1b6f2fdcc4851e677a9e8c6c57374719) 
+
+ 
 
 
 

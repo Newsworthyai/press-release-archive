@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-meme-stoc
 [Original/Source Press Release](https://newsdirect.com/news/the-meme-stock-revival-saw-gamestop-nyse-gme-shares-surge-above-120-vantagepoints-a-i-driven-forecasting-software-saw-it-coming-a-week-earlier-126635422)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meme-stock-revival-and-the-power-of-predictive-tools/b7539b409ee95e579a70bc1afa64aaa2) 
+
+ 
 
 
 

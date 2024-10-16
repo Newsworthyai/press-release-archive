@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/heat-stroke-a
 [Original/Source Press Release](https://newsdirect.com/news/heat-stroke-and-heat-related-illness-rapidly-rising-as-global-temperatures-climb-916614276)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rising-global-temperatures-lead-to-increase-in-heat-related-illnesses/902283374e40b7b0a14ee47d8745593e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/rising-global-temperatures-increase-risk-of-heat-stroke-and-heat-related-illnesses)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rising-global-temperatures-increase-risk-of-heat-stroke-and-related-illnesses/20245194)
+
+Pickup - [advos.io](https://advos.io/en/heat-stroke-cases-surge-as-global-temperatures-reach-record-highs/20245194)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/rising-global-temperatures-increase-risk-of-heat-stroke-and-heat-related-illnesses)
+ 
 
 
 

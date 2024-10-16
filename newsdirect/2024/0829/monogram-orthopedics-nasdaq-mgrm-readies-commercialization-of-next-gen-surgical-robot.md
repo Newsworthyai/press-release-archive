@@ -65,7 +65,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/monogram-orth
 [Original/Source Press Release](https://newsdirect.com/news/monogram-orthopedics-nasdaq-mgrm-readies-commercialization-of-next-gen-surgical-robot-408624263)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/monogram-orthopedics-readies-commercialization-of-next-gen-surgical-robot/ca8892d3622df09ad16949f09b9d9d8b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/monogram-orthopedics-advances-toward-commercialization-of-next-generation-surgical-robot)
+
+Pickup - [fishervista.com](https://fishervista.com/en/monogram-orthopedics-advances-towards-commercialization-of-next-generation-surgical-robot/20246378)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/monogram-orthopedics-advances-towards-commercialization-of-next-generation-surgical-robot/20246378)
+
+Pickup - [advos.io](https://advos.io/en/monogram-orthopedics-nears-commercialization-of-advanced-surgical-robot/20246378)
+ 
 
 
 

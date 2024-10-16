@@ -47,7 +47,9 @@ Connect with us on social media: X (@Banana_Fund); LinkedIn (@banana-fund); Tele
 [Original/Source Press Release](https://blockchainwire.io/press-release/banana-capital-plans-to-increase-funds-to-100-million-for-its-updated-ai-driven-defi-strategy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/banana-capital-to-increase-funding-for-ai-driven-defi-strategy-to-100m/7ec051bd19648bb6b1d5f85d710c62b0) 
+
+ 
 
 
 

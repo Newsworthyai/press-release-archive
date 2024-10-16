@@ -7,7 +7,9 @@ PERTH, AUSTRALIA, October 15, 2024 /24-7PressRelease/ -- Held at the Shincheonji
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515262/a-spectacle-of-faith-shincheonji-evangelism-seminar-stuns-global-audience-drawing-over-16000-attendees)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-church-of-jesus-hosts-seminar-celebrating-faith-and-biblical-teachings/4d89d08fdebb2568b37a2912d5a08f24) 
+
+ 
 
 
 

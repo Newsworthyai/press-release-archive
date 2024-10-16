@@ -30,7 +30,11 @@ Gate Group is proud to be a leader in the digital asset industry and is committe
 [Original/Source Press Release](https://blockchainwire.io/press-release/gate-group-expands-its-european-presence-with-italy-vasp-registration)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gate-group-expands-global-reach-with-italian-vasp-registration/376710438c6f18f0642220b57b040d69) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/gate-group-strengthens-european-foothold-with-italian-vasp-registration)
+ 
 
 
 

@@ -31,7 +31,9 @@ Media ContactContact Person and Position: Kathleen Ryan, COO Company website: [h
 [Original/Source Press Release](https://blockchainwire.io/press-release/y-combinator-backed-talent-tokenization-startup-trendex-acquires-web3-platform-gummys)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trendex-expands-into-u-s-market-with-nba-partnerships-and-gummys-acquisition/248c579796b796af4e7dd121dd5f8256) 
+
+ 
 
 
 

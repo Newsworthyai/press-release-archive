@@ -75,7 +75,11 @@ Coinstore Social MediaTwitter | Discord | Facebook | Instagram | Youtube | Teleg
 [Original/Source Press Release](https://blockchainwire.io/press-release/value-flow---a-crypto-services-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/value-flow-creating-a-crypto-services-ecosystem-with-vflow-token/29399be9b94fa4f6ec9f112a03162559) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/14/value-flow-unifying-crypto-services-for-seamless-navigation)
+ 
 
 
 

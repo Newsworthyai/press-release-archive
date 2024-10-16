@@ -29,7 +29,9 @@ Contact:General Inquiriesleadtheway@culturepilot.com(713) 868-4100
 [Original/Source Press Release](https://newsworthy.ai/news/202410011289/project-luong-unveils-rebrand-and-new-website-in-its-next-chapter-of-impact-on-architecture)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/project-luong-launches-new-website-and-rebrand-emphasizing-collaboration-and-growth/c7eb0bf44447b34e45c137fcd31d2a74) 
+
+ 
 
 
 

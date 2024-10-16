@@ -45,7 +45,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/leadstar-mark
 [Original/Source Press Release](https://newsdirect.com/news/leadstar-marketplace-unleashes-groundbreaking-enhancements-to-its-lead-generation-platform-327464187)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leadstar-marketplace-unveils-enhanced-leadstar-2-0-platform/fdaceb7ce4c65b586b4ca5783f268ec9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/leadstar-marketplace-revolutionizes-lead-generation-with-platform-upgrade)
+
+Pickup - [fishervista.com](https://fishervista.com/en/leadstar-marketplace-unveils-advanced-leadstar-2-0-platform/20245080)
+
+Pickup - [advos.io](https://advos.io/en/leadstar-marketplace-launches-enhanced-lead-generation-platform/20245080)
+ 
 
 
 

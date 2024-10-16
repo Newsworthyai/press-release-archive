@@ -7,7 +7,9 @@ BOISE, ID, May 08, 2024 /24-7PressRelease/ -- Whether they are looking to buy a 
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510723/southwestern-idahos-2024-parade-of-homes-draws-distinctive-new-home-entries-from-throughout-the-region)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/woodbridge-pacific-group-idaho-joins-2024-parade-of-homes-with-award-winning-design/c8a0eda008515c6251bc62e28345ffe0) 
+
+ 
 
 
 

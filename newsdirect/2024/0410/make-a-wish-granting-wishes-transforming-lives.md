@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/make-a-wish-g
 [Original/Source Press Release](https://newsdirect.com/news/make-a-wish-granting-wishes-transforming-lives-951857015)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/make-a-wish-launches-initiative-to-recruit-1-million-wishmakers-worldwide/041e0024cadcd51327a9fa7dc4288151) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/make-a-wish-transforming-lives-one-wish-at-a-time)
+ 
 
 
 

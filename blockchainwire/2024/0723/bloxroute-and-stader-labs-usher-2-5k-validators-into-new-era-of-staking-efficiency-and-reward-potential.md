@@ -27,7 +27,21 @@ About Stader LabsStader Labs is a pioneer in blockchain infrastructure solutions
 [Original/Source Press Release](https://blockchainwire.io/press-release/bloxroute-and-stader-labs-usher-25k-validators-into-new-era-of-staking-efficiency-and-reward-potential)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bloxroute-and-stader-labs-collaborate-to-revolutionize-ethereum-staking/ff5b2da9087045ae22d04502be637a80) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/bloxroute-and-stader-labs-partner-to-enhance-ethereum-staking-efficiency-and-rewards)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bloxroute-and-stader-labs-enhance-staking-efficiency-and-rewards-for-over-2500-validators/20245198)
+
+Pickup - [advos.io](https://advos.io/en/bloxroute-and-stader-labs-revolutionize-ethereum-staking-with-advanced-validator-gateway/20245198)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bloxroute-and-stader-labs-collaborate-to-revolutionize-ethereum-staking)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bloxroute-and-stader-labs-collaborate-to-revolutionize-ethereum-staking)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bloxroute-and-stader-labs-partnership-set-to-boost-ethereum-staking-rewards)
+ 
 
 
 

@@ -41,7 +41,13 @@ Trading Quant & MM: [market@weexglobal.com](mailto:market@weexglobal.com)Disclai
 [Original/Source Press Release](https://blockchainwire.io/press-release/experience-superior-trading-on-weex-with-tradingviews-advanced-analysis-tools-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/weex-integrates-with-tradingview-to-enhance-user-trading-experience/ecd09ab8c909e13f707239aa979600cb) 
+
+
+Pickup - [advos.io](https://advos.io/en/weex-exchange-integrates-tradingview-s-advanced-analysis-tools-for-superior-trading-experience/20244240)
+
+Pickup - [fishervista.com](https://fishervista.com/en/weex-enhances-trading-experience-with-integration-of-tradingview-s-advanced-tools/20244240)
+ 
 
 
 

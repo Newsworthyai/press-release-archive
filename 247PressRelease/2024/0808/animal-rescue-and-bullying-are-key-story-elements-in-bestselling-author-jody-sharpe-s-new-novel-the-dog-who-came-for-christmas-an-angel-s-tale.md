@@ -7,7 +7,17 @@ WILMINGTON, NC, August 08, 2024 /24-7PressRelease/ -- Animal rescue and bullying
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513169/animal-rescue-and-bullying-are-key-story-elements-in-bestselling-author-jody-sharpes-new-novel-the-dog-who-came-for-christmas-an-angels-tale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-jody-sharpe-releases-new-book-the-dog-who-came-for-christmas-an-angel-s-tale/6917de6431a2fe5a03c06cba550e8c62) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/animal-rescue-and-anti-bullying-themes-shine-in-jody-sharpe-s-new-novel/20245576)
+
+Pickup - [advos.io](https://advos.io/en/jody-sharpe-s-new-novel-addresses-animal-rescue-and-bullying/20245576)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bestselling-author-jody-sharpe-tackles-animal-rescue-and-bullying-in-new-novel/20245576)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/bestselling-author-jody-sharpe-tackles-animal-rescue-and-bullying-in-new-novel)
+ 
 
 
 

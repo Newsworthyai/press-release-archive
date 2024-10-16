@@ -25,7 +25,19 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/metabeat-partners-with-fzf-ventures-to-lead-web3-music-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fzf-ventures-and-metabeat-announce-strategic-partnership-in-blockchain-and-kpop-nft-platform/f6502c6d6d86f79734fd4923e45b0470) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/fzf-ventures-and-metabeat-announce-strategic-partnership-in-blockchain-and-kpop-nft-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/fzf-ventures-and-metabeat-announce-strategic-partnership-in-blockchain-and-kpop-nft-platform)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/19/fzf-ventures-and-metabeat-join-forces-to-revolutionize-web3-music-industry)
+
+Pickup - [fishervista.com](https://fishervista.com/en/metabeat-and-fzf-ventures-partner-to-pioneer-web3-music-innovation/20245121)
+
+Pickup - [advos.io](https://advos.io/en/metabeat-and-fzf-ventures-forge-strategic-partnership-to-propel-web3-music-innovation/20245121)
+ 
 
 
 

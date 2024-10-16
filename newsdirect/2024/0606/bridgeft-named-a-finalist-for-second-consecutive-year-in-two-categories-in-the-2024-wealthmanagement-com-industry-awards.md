@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bridgeft-name
 [Original/Source Press Release](https://newsdirect.com/news/bridgeft-named-a-finalist-for-second-consecutive-year-in-two-categories-in-the-2024-wealthmanagement-com-industry-awards-568764206)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bridgeft-named-finalist-in-2024-wealthmanagement-com-industry-awards/145fa5efaa131d892fd9a36a82f5f048) 
+
+
+Pickup - [advos.io](https://advos.io/en/bridgeft-recognized-as-finalist-in-two-categories-for-2024-wealthmanagement-com-industry-awards/20243898)
+ 
 
 
 

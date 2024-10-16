@@ -7,7 +7,15 @@ ROSELAND, NJ, July 15, 2024 /24-7PressRelease/ -- The team at Next Generation, a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512480/next-generation-celebrates-20th-anniversary-as-administrator-and-custodian-for-self-directed-retirement-plans)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/next-generation-celebrates-20-years-of-self-directed-retirement-plan-administration/55ef1578c741aeccfaa3889a89407cc2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/next-generation-marks-two-decades-of-self-directed-retirement-plan-administration)
+
+Pickup - [fishervista.com](https://fishervista.com/en/next-generation-celebrates-20-years-as-leader-in-self-directed-retirement-plans/20244951)
+
+Pickup - [advos.io](https://advos.io/en/next-generation-marks-20-years-as-leader-in-self-directed-retirement-plans/20244951)
+ 
 
 
 

@@ -7,7 +7,11 @@ PROVIDENCE, RI, March 28, 2024 /24-7PressRelease/ -- Chisholm Chisholm & Kilpatr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509606/nasya-bellard-receives-ccks-2023-the-child-of-an-american-veteran-scholarship)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cck-law-awards-the-child-of-an-american-veteran-scholarship-to-nasya-bellard/9ed72bdf54a77675aaf5634bc093291d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/nasya-bellard-awarded-cck-law-s-the-child-of-an-american-veteran-scholarship)
+ 
 
 
 

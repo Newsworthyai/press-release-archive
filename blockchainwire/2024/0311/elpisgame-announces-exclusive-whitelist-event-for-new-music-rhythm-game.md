@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/elpisgame-announces-exclusive-whitelist-event-for-new-music-rhythm-game)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elpisgame-announces-whitelist-event-and-nft-pre-sale-for-elpis-origin/8f93166afdc22782cd25f7c4ecc47fe8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/elpisgame-unveils-whitelist-event-for-innovative-music-rhythm-game)
+ 
 
 
 

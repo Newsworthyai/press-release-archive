@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, t
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-shares-progress-across-commercial-vehicle-programs/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-nasdaq-muln-issues-shareholder-update-on-ev-initiatives-and-milestones/ad73ac44344bffec11d664da59fe7940) 
+
+ 
 
 
 

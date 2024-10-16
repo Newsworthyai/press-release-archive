@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/arrow-explora
 [Original/Source Press Release](https://newsdirect.com/news/arrow-exploration-says-first-horizontal-drilling-at-tapir-marks-a-step-change-in-production-602576008)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arrow-exploration-marks-a-step-change-in-production-with-first-horizontal-drilling-at-tapir/f13b1b05fd00f36408bdbe1d2f3aa12b) 
+
+ 
 
 
 

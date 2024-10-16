@@ -53,7 +53,9 @@ Stay up-to-date with the latest developments by following Talus on Twitter, Di
 [Original/Source Press Release](https://blockchainwire.io/press-release/polychain-backed-talus-network-launches-nexus-the-first-fully-onchain-agentic-framework-for-autonomous-ai-on-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/talus-network-launches-nexus-the-world-s-first-onchain-agentic-framework-for-autonomous-ai/289ec9bf376419728dc9245dfd5b93de) 
+
+ 
 
 
 

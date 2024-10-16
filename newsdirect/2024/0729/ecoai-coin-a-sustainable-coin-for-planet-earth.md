@@ -56,7 +56,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/ecoai-coin-a-
 [Original/Source Press Release](https://newsdirect.com/news/ecoai-coin-a-sustainable-coin-for-planet-earth-882873910)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ecoai-coin-pioneering-sustainable-cryptocurrency-integration/eb13b0d20a3bd59b2eaa5dd0414155f0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/ecoai-coin-launches-to-merge-cryptocurrency-with-environmental-sustainability)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ecoai-coin-merging-cryptocurrency-and-environmental-sustainability/20245321)
+
+Pickup - [advos.io](https://advos.io/en/ecoai-coin-merging-cryptocurrency-with-environmental-sustainability/20245321)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ecoai-coin-pioneering-sustainable-cryptocurrency-integration)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ecoai-coin-pioneering-sustainable-cryptocurrency-integration)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ecoai-coin-launches-to-merge-cryptocurrency-with-environmental-sustainability)
+ 
 
 
 

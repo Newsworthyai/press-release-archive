@@ -9,7 +9,19 @@ Mainnet & Block Explorer Launch Operating on a modular, EVM-compatible framework
 [Original/Source Press Release](https://blockchainwire.io/press-release/zchains-announces-mainnet-launch-and-zcd-listing-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zchains-launches-mainnet-and-lists-zcd-token-on-bitmart/d0b0d955969d25c8136d651332f7bb4a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/zchains-launches-mainnet-and-lists-zcd-token-marking-major-milestone-in-web3-innovation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/zchains-launches-mainnet-and-lists-zcd-token-paving-the-way-for-web3-innovations/20245158)
+
+Pickup - [advos.io](https://advos.io/en/zchains-launches-mainnet-and-lists-zcd-token-paving-the-way-for-web3-innovations/20245158)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/zchains-launches-mainnet-and-lists-zcd-token-on-bitmart)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/zchains-launches-mainnet-and-lists-zcd-token-on-bitmart)
+ 
 
 
 

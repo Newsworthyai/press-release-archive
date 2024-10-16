@@ -7,7 +7,17 @@ FALLS CHURCH, VA, September 17, 2024 /24-7PressRelease/ -- Inova today announced
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514341/inova-health-selects-hyro-and-nice-to-enhance-patient-and-team-member-experience-and-connectivity-through-ai-powered-communications)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/inova-partners-with-hyro-and-nice-to-improve-patient-and-staff-satisfaction-with-ai-innovation/0e1c47c84d5d33fa923fd9e472fce7cc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/inova-health-partners-with-hyro-and-nice-to-implement-ai-powered-communication-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/inova-health-system-partners-with-ai-firms-to-transform-patient-and-staff-communication/20246874)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/inova-health-system-partners-with-hyro-and-nice-to-implement-ai-powered-communication-solutions/20246874)
+
+Pickup - [advos.io](https://advos.io/en/inova-health-partners-with-hyro-and-nice-to-implement-ai-powered-communication-solutions/20246874)
+ 
 
 
 

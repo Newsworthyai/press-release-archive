@@ -7,7 +7,9 @@ FORT MYERS, FL, May 10, 2024 /24-7PressRelease/ -- EHC, Inc., a trailblazer in t
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510746/ehc-charging-ahead-in-2024-with-multiple-new-and-completed-construction-projects)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ehc-inc-announces-major-projects-in-florida-for-2024/047515cdf9ee53662485aac3277edcd8) 
+
+ 
 
 
 

@@ -59,7 +59,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/zoomexs-respo
 [Original/Source Press Release](https://newsdirect.com/news/zoomexs-responsibility-in-the-crypto-industry-319333512)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zoomex-leading-the-way-in-crypto-industry-responsibility/c0034c9a3db7feb83af2b71a962f8380) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/zoomex-reinforces-commitment-to-security-transparency-and-innovation-in-the-crypto-industry/20244389)
+
+Pickup - [advos.io](https://advos.io/en/zoomex-reinforces-commitment-to-security-transparency-and-innovation-in-crypto-industry/20244389)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/zoomex-leading-the-way-in-crypto-industry-responsibility)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/zoomex-leading-the-way-in-crypto-industry-responsibility)
+ 
 
 
 

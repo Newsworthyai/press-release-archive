@@ -7,7 +7,11 @@ NAIROBI, KENYA, March 30, 2024 /24-7PressRelease/ -- In a ground-breaking move t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509667/harnessing-the-power-of-the-sun-burhani-engineers-ltds-solar-energy-initiatives)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/burhani-engineers-ltd-leading-the-way-in-sustainable-solar-energy-projects-in-kenya/73be777c272b449f5bc5506e9eb2a509) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/30/burhani-engineers-pioneers-solar-energy-solutions-in-kenya)
+ 
 
 
 

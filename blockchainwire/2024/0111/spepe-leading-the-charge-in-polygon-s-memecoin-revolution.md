@@ -7,7 +7,11 @@ In the vibrant landscape of Polygon, a major Ethereum Virtual Machine (EVM) chai
 [Original/Source Press Release](https://blockchainwire.io/press-release/spepe-leading-the-charge-in-polygons-memecoin-revolution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exciting-growth-anticipated-for-spepe-memecoin-on-polygon-network/1b01ed750e46c68847fd135b105682b5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/11/spepe-pioneers-polygon-s-memecoin-revolution-with-innovative-revenue-sharing-dapp)
+ 
 
 
 

@@ -35,7 +35,13 @@ OMA3 is an international consortium based in Switzerland dedicated to enabling t
 [Original/Source Press Release](https://blockchainwire.io/press-release/reality-joins-the-oma3-metaverse-consortium)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/reality-joins-oma3-to-shape-the-future-of-web3-entertainment/125e41c15fa532785896c397cf925758) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/reality-joins-oma3-to-shape-the-future-of-web3-entertainment)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/reality-joins-oma3-to-shape-the-future-of-web3-entertainment)
+ 
 
 
 

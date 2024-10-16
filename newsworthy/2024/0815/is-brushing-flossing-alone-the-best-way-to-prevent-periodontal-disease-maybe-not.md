@@ -45,7 +45,17 @@ ioTech International is a leading developer and manufacturer of award-winning or
 [Original/Source Press Release](https://newsworthy.ai/news/202408151238/is-brushing-flossing-alone-the-best-way-to-prevent-periodontal-disease-maybe-not)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-study-reveals-importance-of-rinsing-in-preventing-dental-implant-loss/d157685c9ab080efe20f2eedfae8822a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/new-study-challenges-traditional-oral-hygiene-practices-rinsing-may-be-key-to-preventing-periodontal-disease)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-research-challenges-traditional-oral-hygiene-practices-advocates-for-molecular-iodine-rinses/20245764)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-study-challenges-traditional-oral-hygiene-practices-emphasizes-importance-of-antibacterial-rinsing/20245764)
+
+Pickup - [advos.io](https://advos.io/en/study-reveals-brushing-and-rinsing-superior-to-brushing-and-flossing-in-preventing-periodontal-disease/20245764)
+ 
 
 
 

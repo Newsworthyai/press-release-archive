@@ -21,7 +21,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/brandpilot-ai
 [Original/Source Press Release](https://newsdirect.com/news/brandpilot-ai-launches-spectrum-iq-to-revolutionize-influencer-marketing-and-prepares-for-us-listing-721579097)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brandpilot-ai-launches-spectrum-iq-to-revolutionize-influencer-marketing/2b9456d7c5c7b2f577e107c5a53eb705) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/brandpilot-ai-unveils-spectrum-iq-platform-and-plans-otc-listing)
+
+Pickup - [fishervista.com](https://fishervista.com/en/brandpilot-ai-unveils-spectrum-iq-and-prepares-for-us-market-listing/20245329)
+
+Pickup - [advos.io](https://advos.io/en/brandpilot-ai-unveils-spectrum-iq-and-plans-us-market-entry/20245329)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/brandpilot-ai-unveils-spectrum-iq-platform-and-prepares-for-otc-markets-listing)
+ 
 
 
 

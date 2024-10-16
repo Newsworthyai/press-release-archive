@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/inmed-demonst
 [Original/Source Press Release](https://newsdirect.com/news/inmed-demonstrates-encouraging-data-for-its-cannabinoid-inm-089-in-treating-dry-amd-an-ocular-disease-with-rising-patient-numbers-as-national-population-ages-362107568)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/inmed-pharmaceuticals-inc-develops-promising-treatment-for-age-related-macular-degeneration/39a44ce29687487f28adf2d49e6f8a0c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/inmed-s-cannabinoid-inm-089-shows-promise-in-treating-age-related-macular-degeneration)
+
+Pickup - [fishervista.com](https://fishervista.com/en/inmed-shows-promising-results-for-cannabinoid-inm-089-in-treating-age-related-macular-degeneration/20246349)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/inmed-s-cannabinoid-analog-shows-promise-in-treating-age-related-macular-degeneration/20246349)
+
+Pickup - [advos.io](https://advos.io/en/inmed-s-inm-089-shows-potential-in-treating-dry-age-related-macular-degeneration/20246349)
+ 
 
 
 

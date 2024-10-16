@@ -33,7 +33,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/credbull-concludes-52-million-funding-round-led-by-gnosisvc-to-democratize-rwa-private-credit-onchain-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/credbull-closes-5-2m-funding-round-led-by-gnosisvc-and-strategic-investors/fd5fd52cb9bc8385a8547ea67ea5ae28) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/credbull-secures-5-2-million-in-funding-to-revolutionize-onchain-private-credit)
+
+Pickup - [fishervista.com](https://fishervista.com/en/credbull-secures-5-2-million-funding-to-democratize-onchain-private-credit/20245902)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/credbull-secures-5-2-million-in-funding-to-revolutionize-onchain-private-credit/20245902)
+
+Pickup - [advos.io](https://advos.io/en/credbull-secures-5-2-million-funding-to-democratize-onchain-private-credit/20245902)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/credbull-closes-5-2m-funding-round-led-by-gnosisvc-and-strategic-investors)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/credbull-closes-5-2m-funding-round-led-by-gnosisvc-and-strategic-investors)
+ 
 
 
 

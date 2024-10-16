@@ -33,7 +33,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/gicai-launches-revolutionary-global-digital-currency-quantitative-trading-platform-to-improve-investment-returns-and-security)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gicai-launches-global-digital-currency-quantitative-trading-platform/742e1f5585dfe0e007d5b7857d1c878f) 
+
+
+Pickup - [advos.io](https://advos.io/en/gicai-unveils-advanced-digital-currency-quantitative-trading-platform/20244004)
+ 
 
 
 

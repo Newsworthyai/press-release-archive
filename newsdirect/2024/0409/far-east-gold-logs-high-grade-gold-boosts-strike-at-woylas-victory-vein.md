@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/far-east-gold
 [Original/Source Press Release](https://newsdirect.com/news/far-east-gold-logs-high-grade-gold-boosts-strike-at-woylas-victory-vein-190386023)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/far-east-gold-unearths-high-grade-gold-and-extends-strike-at-woyla-s-victory-vein/b155026e3c03926a9c2857883e2f93e5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/far-east-gold-strikes-high-grade-gold-and-extends-victory-vein-at-woyla-project)
+ 
 
 
 

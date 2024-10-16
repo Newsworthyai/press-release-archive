@@ -7,7 +7,11 @@ CHEYENNE, WY, April 18, 2024 /24-7PressRelease/ -- Marky Corp. announced a suite
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510090/marky-corp-announces-social-media-marketing-solutions-with-platform-and-mobile-app-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marky-corp-unveils-new-social-media-marketing-resources-and-mobile-app/475111f46263ba6b9d5e4de07ed2cf2e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/marky-corp-announces-social-media-marketing-solutions-with-platform-and-mobile-app-launch)
+ 
 
 
 

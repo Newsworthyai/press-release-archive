@@ -62,7 +62,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/expressgene-r
 [Original/Source Press Release](https://newsdirect.com/news/expressgene-revolutionizes-at-home-genetic-testing-competing-head-to-head-with-industry-giants-977517573)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/expressgene-revolutionizes-at-home-genetic-testing-competing-head-to-head-with-industry-giants/0af03c5fdf9e54da9b1dc66e36aa7439) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/expressgene-brings-genetic-testing-to-your-doorstep)
+ 
 
 
 

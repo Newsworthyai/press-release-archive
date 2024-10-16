@@ -25,7 +25,21 @@ Media Contact: xenia@transformgroup.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/renowned-futurist-marcie-jastrow-joins-venice-international-film-festival-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marcie-jastrow-to-moderate-panel-on-blockchain-and-immersive-technologies-at-venice-film-festival/24727196c5493c60f38312b721e381eb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/30/futurist-marcie-jastrow-to-moderate-groundbreaking-panel-at-venice-international-film-festival)
+
+Pickup - [fishervista.com](https://fishervista.com/en/marcie-jastrow-to-moderate-innovative-panel-on-blockchain-at-venice-international-film-festival/20246420)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/futurist-marcie-jastrow-to-moderate-groundbreaking-panel-at-venice-international-film-festival/20246420)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/marcie-jastrow-to-moderate-panel-on-blockchain-and-immersive-technologies-at-venice-film-festival)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/marcie-jastrow-to-moderate-panel-on-blockchain-and-immersive-technologies-at-venice-film-festival)
+
+Pickup - [advos.io](https://advos.io/en/futurist-marcie-jastrow-to-moderate-panel-on-blockchain-and-immersive-tech-at-venice-film-festival/20246420)
+ 
 
 
 

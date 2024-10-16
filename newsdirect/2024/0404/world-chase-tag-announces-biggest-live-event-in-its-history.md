@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/world-chase-t
 [Original/Source Press Release](https://newsdirect.com/news/world-chase-tag-announces-biggest-live-event-in-its-history-747613383)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/world-chase-tag-r-usa-announces-wct6-world-championships-in-france/c4d762ab5dd23a5d8a20d6879dd3b626) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/world-chase-tag-prepares-for-biggest-live-event-yet)
+ 
 
 
 

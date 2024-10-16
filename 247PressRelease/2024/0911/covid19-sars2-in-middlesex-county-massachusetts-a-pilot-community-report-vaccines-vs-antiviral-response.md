@@ -7,7 +7,17 @@ BOSTON, MA, September 11, 2024 /24-7PressRelease/ -- To better prepare for the n
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514216/covid19sars2-in-middlesex-county-massachusetts-a-pilot-community-report-vaccines-vs-antiviral-response)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-government-urged-to-improve-public-health-emergency-response/424f797980f99be37785e12cc66e4ecd) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/u-s-government-accounting-office-urges-to-learn-from-covid-19-response-failures/20246676)
+
+Pickup - [advos.io](https://advos.io/en/study-reveals-socioeconomic-factors-influenced-covid-19-spread-in-massachusetts-county/20246676)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/study-reveals-socioeconomic-factors-influenced-covid-19-spread-in-middlesex-county-massachusetts/20246676)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/study-reveals-income-and-population-density-linked-to-covid-19-spread-in-middlesex-county-ma)
+ 
 
 
 

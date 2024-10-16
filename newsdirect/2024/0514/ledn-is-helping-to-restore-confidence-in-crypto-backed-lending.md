@@ -54,7 +54,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/ledn-is-helpi
 [Original/Source Press Release](https://newsdirect.com/news/ledn-is-helping-to-restore-confidence-in-crypto-backed-lending-846776533)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ledn-restores-confidence-in-crypto-backed-lending/c5d0074638457d26d355c076e0b7bff4) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ledn-restores-confidence-in-crypto-backed-lending)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ledn-restores-confidence-in-crypto-backed-lending)
+ 
 
 
 

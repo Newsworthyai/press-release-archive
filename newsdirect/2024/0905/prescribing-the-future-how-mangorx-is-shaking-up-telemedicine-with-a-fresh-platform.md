@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/prescribing-t
 [Original/Source Press Release](https://newsdirect.com/news/prescribing-the-future-how-mangorx-is-shaking-up-telemedicine-with-a-fresh-platform-772119124)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dea-opens-digital-door-to-telemedicine-mangorx-capitalizes-on-new-system/2c58cd65f4aa653ae658a3dcb85022f4) 
+
+ 
 
 
 

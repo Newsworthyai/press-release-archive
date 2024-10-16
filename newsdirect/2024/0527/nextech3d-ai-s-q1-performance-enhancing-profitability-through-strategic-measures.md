@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ais
 [Original/Source Press Release](https://newsdirect.com/news/nextech3d-ais-q1-performance-enhancing-profitability-through-strategic-measures-768580386)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nextech3d-ai-ceo-discusses-q1-performance-and-strategic-measures/06617f8e1bf74e707e676373fd6e639f) 
+
+ 
 
 
 

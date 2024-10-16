@@ -7,7 +7,9 @@ GRANBURY, TX, May 23, 2024 /24-7PressRelease/ -- As part of its commitment to im
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511101/cain-firms-new-scholarship-highlights-the-importance-of-using-law-to-help-others)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/texas-law-firm-offers-2500-scholarship-for-law-students/fece3b827b0da6658f0859cbff861d78) 
+
+ 
 
 
 

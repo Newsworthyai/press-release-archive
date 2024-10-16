@@ -7,7 +7,15 @@ NEW YORK, NY, July 15, 2024 /24-7PressRelease/ -- FemSMS, a compassionate messag
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512519/ukrainian-messaging-service-offering-support-to-women-in-conflict-zones-secures-funding-to-expand-reach)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/femsms-receives-funding-to-expand-support-for-women-in-ukraine/fd33259d2574fc3f86194e0f1c7d7344) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/femsms-expands-support-for-women-in-ukrainian-conflict-zones-with-new-funding)
+
+Pickup - [fishervista.com](https://fishervista.com/en/femsms-secures-funding-to-expand-support-for-women-in-conflict-zones/20244949)
+
+Pickup - [advos.io](https://advos.io/en/ukrainian-messaging-service-for-women-in-conflict-zones-secures-funding-for-expansion/20244949)
+ 
 
 
 

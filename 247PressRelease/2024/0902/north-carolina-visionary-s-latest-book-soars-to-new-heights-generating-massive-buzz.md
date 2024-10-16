@@ -7,7 +7,17 @@ FAYETTEVILLE, NC, September 02, 2024 /24-7PressRelease/ -- During an exclusive i
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513967/north-carolina-visionarys-latest-book-soars-to-new-heights-generating-massive-buzz)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-author-dr-lashonda-wofford-s-anthology-breaking-the-chains-captivates-readers-and-tops-bestseller-lists/37e2c6241922a02e686f118c35aa2c87) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-lashonda-wofford-s-new-book-ignites-global-movement/20246438)
+
+Pickup - [advos.io](https://advos.io/en/dr-lashonda-wofford-s-new-book-garners-bestseller-status-ignites-movement/20246438)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/02/north-carolina-author-s-book-on-breaking-generational-curses-becomes-bestseller)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/dr-lashonda-wofford-s-breaking-the-chains-becomes-bestseller-sparks-global-movement/20246438)
+ 
 
 
 

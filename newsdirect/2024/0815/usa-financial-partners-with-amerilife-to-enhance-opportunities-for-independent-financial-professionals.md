@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/usa-financial
 [Original/Source Press Release](https://newsdirect.com/news/usa-financial-partners-with-amerilife-to-enhance-opportunities-for-independent-financial-professionals-948381979)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amerilife-partners-with-usa-financial-to-enhance-opportunities-for-independent-financial-professionals/b7be242ae094f3cbf312c7f654eca212) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/usa-financial-partners-with-amerilife-to-boost-opportunities-for-financial-professionals/20245762)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/amerilife-and-usa-financial-join-forces-to-expand-opportunities-for-financial-professionals/20245762)
+
+Pickup - [advos.io](https://advos.io/en/usa-financial-partners-with-amerilife-to-enhance-opportunities-for-independent-financial-professionals/20245762)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/amerilife-and-usa-financial-join-forces-to-expand-wealth-management-services)
+ 
 
 
 

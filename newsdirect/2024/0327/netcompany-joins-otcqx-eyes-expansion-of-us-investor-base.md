@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/netcompany-jo
 [Original/Source Press Release](https://newsdirect.com/news/netcompany-joins-otcqx-eyes-expansion-of-us-investor-base-988445030)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/netcompany-joins-otcqx-eyes-expansion-of-us-investor-base/f52aebad6a8e03e25b9c33baf45476e9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/netcompany-joins-otcqx-aims-to-expand-us-investor-base)
+ 
 
 
 

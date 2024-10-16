@@ -45,7 +45,11 @@ Twitter: [SHIBA BUDZ "$BUDZ" (@ShibaBudz) / X](https://twitter.com/ShibaBudz) Di
 [Original/Source Press Release](https://blockchainwire.io/press-release/new-cryptocurrency-budz-shib-rival-meme-coin-pumps-again)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiba-budz-budz-emerges-as-strong-competitor-to-shiba-inu-shib-in-meme-coin-market/4569c9126bcce12e2bd6f236633254b3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/shiba-budz-surges-as-shiba-inu-rival-in-meme-coin-arena)
+ 
 
 
 

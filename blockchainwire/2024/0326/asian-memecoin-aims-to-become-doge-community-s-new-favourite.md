@@ -37,7 +37,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/asian-memecoin-aims-to-become-doge-communitys-new-favourite)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dogita-the-next-big-thing-in-crypto-assets/0595e551b06bb5fa7b54881cde0d7014) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/dogita-the-asian-memecoin-aiming-to-become-the-next-crypto-sensation)
+ 
 
 
 

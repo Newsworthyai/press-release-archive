@@ -7,7 +7,17 @@ AUSTIN, TX, August 29, 2024 /24-7PressRelease/ -- How do AI, social media, and g
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513857/soul-prompts-combine-ai-social-media-and-group-mind-mapping-to-inspire-christians)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-dawn-ministries-pioneers-soul-prompts-to-deepen-faith-through-ai-and-social-media/f76411b70f3085b5cdd069ee35c0edfe) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/new-dawn-ministries-introduces-soul-prompts-to-deepen-christian-faith-through-technology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/innovative-soul-prompts-integrate-ai-and-social-media-to-deepen-christian-faith/20246359)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/new-dawn-ministries-introduces-soul-prompts-to-deepen-christian-faith-through-technology/20246359)
+
+Pickup - [advos.io](https://advos.io/en/soul-prompts-integrate-ai-social-media-and-group-mind-mapping-to-enhance-christian-faith/20246359)
+ 
 
 
 

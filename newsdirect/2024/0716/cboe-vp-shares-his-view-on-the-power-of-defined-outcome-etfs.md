@@ -35,7 +35,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/cboe-vp-share
 [Original/Source Press Release](https://newsdirect.com/news/cboe-vp-shares-his-view-on-the-power-of-defined-outcome-etfs-899888361)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cboe-vp-discusses-rise-of-defined-outcome-etfs/d6abf39ea76880256863cbca51a5f483) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/cboe-vp-highlights-growing-importance-of-defined-outcome-etfs-for-retail-investors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cboe-vp-discusses-the-growing-importance-of-defined-outcome-etfs/20244993)
+
+Pickup - [advos.io](https://advos.io/en/cboe-vp-highlights-the-growing-importance-of-defined-outcome-etfs/20244993)
+ 
 
 
 

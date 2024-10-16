@@ -80,7 +80,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/retail-tradin
 [Original/Source Press Release](https://newsdirect.com/news/retail-trading-is-booming-but-which-platform-is-the-best-for-investors-371870504)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/retail-trading-revolution-the-rise-of-meme-stocks-and-the-role-of-platforms-like-moomoo/911adfc096a2fa4102c8796da4c0ed3e) 
+
+
+Pickup - [advos.io](https://advos.io/en/moomoo-the-affordable-and-feature-rich-trading-platform-for-retail-investors/20244247)
+
+Pickup - [fishervista.com](https://fishervista.com/en/moomoo-emerges-as-a-leading-platform-amidst-retail-trading-boom/20244247)
+ 
 
 
 

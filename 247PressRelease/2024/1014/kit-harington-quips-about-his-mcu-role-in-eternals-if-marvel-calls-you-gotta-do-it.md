@@ -7,7 +7,9 @@ LOS ANGELES, CA, October 14, 2024 /24-7PressRelease/ -- In 2021, Harington made 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514177/kit-harington-quips-about-his-mcu-role-in-eternals-if-marvel-calls-you-gotta-do-it)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kit-harington-s-reluctance-and-controversy-in-the-mcu-and-game-of-thrones/8bbb4da35acac708686ffbd58ef32f5d) 
+
+ 
 
 
 

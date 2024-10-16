@@ -39,7 +39,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/dissatisfied-
 [Original/Source Press Release](https://newsdirect.com/news/dissatisfied-by-candidates-this-election-check-out-the-latest-meme-coin-revolution-mixing-politics-with-crypto-profits-and-some-laughs-129289297)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rise-of-political-meme-coins-and-the-impact-on-voter-engagement/2670710c393241350b35531ece793c15) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/rise-of-political-meme-coins-and-the-impact-on-voter-engagement)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/rise-of-political-meme-coins-and-the-impact-on-voter-engagement)
+ 
 
 
 

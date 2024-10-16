@@ -37,7 +37,11 @@ Disclaimer: This press release is provided for informational purposes only and d
 [Original/Source Press Release](https://blockchainwire.io/press-release/moneybagtrading-launches-moneybagtoken---a-gateway-to-exclusive-trading-analytics)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/moneybagtoken-launch-revolutionizing-cryptocurrency-trading/7aae8a51d39c5e715f6191d2633483c2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/moneybagtrading-unveils-moneybagtoken-for-exclusive-crypto-trading-analytics)
+ 
 
 
 

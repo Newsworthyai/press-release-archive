@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/safeguard-you
 [Original/Source Press Release](https://newsdirect.com/news/safeguard-your-construction-projects-compariqo-construction-insurance-830513179)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/protect-your-construction-projects-with-latent-defects-insurance-from-compariqo-construction-insurance/394633357b0d37bafd667880d6aa55f8) 
+
+ 
 
 
 

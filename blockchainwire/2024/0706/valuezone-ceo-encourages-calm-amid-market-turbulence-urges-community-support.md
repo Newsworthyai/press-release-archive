@@ -46,7 +46,19 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/valuezone-ceo-encourages-calm-amid-market-turbulence-urges-community-support)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ceo-urges-calm-amid-crypto-market-volatility/2e401aad4db5247e640024f09e29afe2) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/valuezone-ceo-urges-calm-amid-cryptocurrency-market-turbulence/20244739)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/06/valuezone-ceo-calls-for-calm-as-cryptocurrency-market-faces-severe-downturn)
+
+Pickup - [advos.io](https://advos.io/en/valuezone-ceo-adam-carl-waldman-urges-calm-amid-cryptocurrency-market-turbulence/20244739)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ceo-urges-calm-amid-crypto-market-volatility)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ceo-urges-calm-amid-crypto-market-volatility)
+ 
 
 
 

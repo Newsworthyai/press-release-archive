@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/danmarks-blom
 [Original/Source Press Release](https://newsdirect.com/news/danmarks-blomstrende-spille-og-casino-scene-nye-innovationer-og-ansvarligt-spil-333161836)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/danish-gaming-and-casino-scene-new-innovations-and-responsible-gaming/73e26d913fe257afee2febf7efa07228) 
+
+ 
 
 
 

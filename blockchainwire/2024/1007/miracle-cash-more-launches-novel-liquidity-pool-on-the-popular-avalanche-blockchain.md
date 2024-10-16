@@ -29,7 +29,9 @@ Miracle Cash & More also supports the Phoenic Token, which plays a central role 
 [Original/Source Press Release](https://blockchainwire.io/press-release/miracle-cash--more-launches-novel-liquidity-pool-on-the-popular-avalanche-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/miracle-cash-more-launches-phoenic-leveller-liquidity-pool-on-avalanche-blockchain/f659d0487c42b451a3716af09fd01d57) 
+
+ 
 
 
 

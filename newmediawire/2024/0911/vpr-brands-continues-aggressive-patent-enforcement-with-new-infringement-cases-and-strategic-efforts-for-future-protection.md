@@ -37,7 +37,9 @@ Email: IR@vprbrands.com
 [Original/Source Press Release](https://www.newmediawire.com/news/vpr-brands-continues-aggressive-patent-enforcement-with-new-infringement-cases-and-strategic-efforts-for-future-protection-7076036)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vpr-brands-takes-legal-action-to-protect-vaping-technology/246c3de3b4091dcfe1d488f641969ddd) 
+
+ 
 
 
 

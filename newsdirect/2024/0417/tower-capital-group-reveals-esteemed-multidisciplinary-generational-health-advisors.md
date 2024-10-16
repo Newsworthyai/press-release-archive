@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/tower-capital
 [Original/Source Press Release](https://newsdirect.com/news/tower-capital-group-reveals-esteemed-multidisciplinary-generational-health-advisors-235772037)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tower-capital-group-expands-advisory-team-to-drive-growth-in-generational-health/839065cae425ce565946cc48fa5164d1) 
+
+ 
 
 
 

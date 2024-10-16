@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/diamond-lake-
 [Original/Source Press Release](https://newsdirect.com/news/diamond-lake-minerals-and-boxabl-revolutionize-real-estate-with-modular-housing-collaboration-612333402)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/diamond-lake-minerals-and-boxabl-revolutionize-real-estate-with-modular-housing-collaboration/440a53faaa17a95da69cdef7a0b93234) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/diamond-lake-minerals-and-boxabl-revolutionize-real-estate-with-modular-housing-collaboration)
+ 
 
 
 

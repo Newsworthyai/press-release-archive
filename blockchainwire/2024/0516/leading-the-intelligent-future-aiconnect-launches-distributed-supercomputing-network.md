@@ -59,7 +59,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/leading-the-intelligent-future-aiconnect-launches-distributed-supercomputing-network)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aiconnect-unveils-distributed-supercomputing-network-to-lead-intelligent-future/7c3ce64476fad314b173f30124dcdab4) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/aiconnect-unveils-distributed-supercomputing-network-to-lead-intelligent-future)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/aiconnect-unveils-distributed-supercomputing-network-to-lead-intelligent-future)
+ 
 
 
 

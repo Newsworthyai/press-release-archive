@@ -62,7 +62,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-joy-joystream-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-joy-token-in-innovation-zone-ceo-emphasizes-importance-of-decentralized-video-platforms/9d0a3a0ae9cf196d595f4d152a5c4b6d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/09/joystream-s-joy-token-listed-on-xt-com-exchange)
+ 
 
 
 

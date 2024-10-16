@@ -51,7 +51,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/monkeybitio--building-the-next-web3-social-gaming-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/monkeybit-io-revolutionizing-social-gaming-with-blockchain-innovation/2a46b84aa96d37d46923d6a9a37db66c) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/monkeybit-io-revolutionizing-social-gaming-with-blockchain-innovation)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/monkeybit-io-revolutionizing-social-gaming-with-blockchain-innovation)
+ 
 
 
 

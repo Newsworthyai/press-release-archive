@@ -7,7 +7,11 @@ LOS ANGELES, CA, April 10, 2024 /24-7PressRelease/ -- Dissatisfied with the curr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509919/from-russia-with-loneliness-dreamover-an-independent-russian-romantic-sci-fi-drama-exploring-the-roots-of-loneliness-debuts-in-north-america-ahead-of-its-domestic-release)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/russian-filmmakers-challenge-traditional-cinema-with-release-of-dreamover-in-north-america/8cc587c42dcd15be4728180c0c338adc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/dreamover-an-independent-russian-romantic-sci-fi-drama-makes-its-north-american-debut)
+ 
 
 
 

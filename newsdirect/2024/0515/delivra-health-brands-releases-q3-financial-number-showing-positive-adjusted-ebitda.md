@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/delivra-healt
 [Original/Source Press Release](https://newsdirect.com/news/delivra-health-brands-releases-q3-financial-number-showing-positive-adjusted-ebitda-501502181)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/delivra-health-brands-reports-strong-q3-financial-results/5bb7a24b5f4bbdb42a944e6a5394fb20) 
+
+ 
 
 
 

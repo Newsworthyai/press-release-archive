@@ -30,7 +30,11 @@ Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-officer-a-revolutionary-platform-for-enhanced-transparency-and-security)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-officer-launches-blockchain-powered-advertising-network/80e9c9c580877e360e860a08f9e0b92c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/crypto-officer-revolutionizing-digital-advertising-with-blockchain-transparency)
+ 
 
 
 

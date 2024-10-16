@@ -63,7 +63,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/maxim-group-i
 [Original/Source Press Release](https://newsdirect.com/news/maxim-group-initiates-coverage-of-brand-engagement-network-nasdaq-bnai-with-buy-rating-sets-over-100-higher-price-target-929186128)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/maxim-group-initiates-coverage-of-brand-engagement-network-with-buy-rating/9a13b791c9be82426fbb0b8e37f22a53) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/maxim-group-initiates-coverage-of-brand-engagement-network-with-buy-rating-and-6-price-target)
+
+Pickup - [fishervista.com](https://fishervista.com/en/maxim-group-initiates-buy-rating-for-brand-engagement-network-sets-double-price-target/20245729)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/maxim-group-initiates-coverage-of-brand-engagement-network-with-buy-rating-and-6-price-target/20245729)
+
+Pickup - [advos.io](https://advos.io/en/maxim-group-initiates-coverage-of-brand-engagement-network-with-buy-rating-sets-price-target-over-100-higher/20245729)
+ 
 
 
 

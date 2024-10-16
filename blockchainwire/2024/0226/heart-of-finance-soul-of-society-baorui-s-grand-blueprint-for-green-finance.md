@@ -23,7 +23,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/heart-of-finance-soul-of-society-baoruis-grand-blueprint-for-green-finance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/baorui-renews-commitment-to-social-responsibility-in-cryptocurrency-market/c3304e288a8e546de304ccfe5f6d601c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/26/baorui-unveils-ambitious-green-finance-initiative)
+ 
 
 
 

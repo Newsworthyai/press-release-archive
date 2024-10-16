@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/polkadots-and
 [Original/Source Press Release](https://newsdirect.com/news/polkadots-and-chainlinks-liquidation-increases-as-backers-eye-raboo-rabt-as-their-next-move-250704441)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investors-turn-to-raboo-rabt-amid-polkadot-and-chainlink-liquidation-surge/1946d494193d0d01403d03d597bb943a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/raboo-emerges-as-investors-next-move-amid-polkadot-and-chainlink-liquidations)
+ 
 
 
 

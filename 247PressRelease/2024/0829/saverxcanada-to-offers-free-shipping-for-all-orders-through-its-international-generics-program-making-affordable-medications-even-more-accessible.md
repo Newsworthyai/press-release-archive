@@ -7,7 +7,17 @@ VANCOUVER, BC, August 29, 2024 /24-7PressRelease/ -- SaveRxCanada.to is pleased 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513755/saverxcanadato-offers-free-shipping-for-all-orders-through-its-international-generics-program-making-affordable-medications-even-more-accessible)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/saverxcanada-to-announces-free-shipping-on-international-generics-program-orders/79e1921bdb2e64e03280548366b6511d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/saverxcanada-to-introduces-free-shipping-on-all-generic-medication-orders)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/saverxcanada-to-introduces-free-shipping-on-all-generic-medication-orders/20246363)
+
+Pickup - [advos.io](https://advos.io/en/saverxcanada-to-introduces-free-shipping-on-generic-medications/20246363)
+
+Pickup - [fishervista.com](https://fishervista.com/en/saverxcanada-to-enhances-accessibility-with-free-shipping-on-generic-medications/20246363)
+ 
 
 
 

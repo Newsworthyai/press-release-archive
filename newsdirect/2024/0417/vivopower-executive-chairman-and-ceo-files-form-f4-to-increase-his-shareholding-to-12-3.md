@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/vivopower-exe
 [Original/Source Press Release](https://newsdirect.com/news/vivopower-executive-chairman-and-ceo-files-form-f4-to-increase-his-shareholding-to-12-3-246861624)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vivopower-ceo-increases-shareholding-by-146084-shares/8ab5ee8e6282455bfcd0f14e1bb0a14c) 
+
+ 
 
 
 

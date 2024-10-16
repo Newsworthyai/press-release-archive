@@ -29,7 +29,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/threebestrate
 [Original/Source Press Release](https://newsdirect.com/news/threebestrated-lists-purpose-path-as-the-best-advertising-agency-in-vaughan-on-863395536)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/purpose-path-named-best-advertising-agency-in-vaughan-by-threebestrated/0a3738b57926b9cc82ff99fb7590d79c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/purpose-path-recognized-as-best-advertising-agency-in-vaughan-by-threebestrated)
+
+Pickup - [fishervista.com](https://fishervista.com/en/purpose-path-named-best-advertising-agency-in-vaughan-by-threebestrated/20245424)
+
+Pickup - [advos.io](https://advos.io/en/purpose-path-named-best-advertising-agency-in-vaughan-by-threebestrated/20245424)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/purpose-path-named-best-advertising-agency-in-vaughan-by-threebestrated)
+ 
 
 
 

@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cerro-de-pasc
 [Original/Source Press Release](https://newsdirect.com/news/cerro-de-pasco-resources-granted-land-easement-for-major-exploration-campaign-371310269)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cerro-de-pasco-resources-granted-land-easement-for-major-exploration-campaign/16bb05d286901b615e02f47e281dd212) 
+
+ 
 
 
 

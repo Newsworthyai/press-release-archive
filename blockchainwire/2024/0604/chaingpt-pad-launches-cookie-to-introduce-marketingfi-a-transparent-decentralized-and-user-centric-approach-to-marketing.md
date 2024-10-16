@@ -51,7 +51,9 @@ About Cookie DAO:The Cookie DAO is an independent, decentralized collective of M
 [Original/Source Press Release](https://blockchainwire.io/press-release/chaingpt-pad-launches-cookie-to-introduce-marketingfi-a-transparent-decentralized-and-user-centric-approach-to-marketing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chaingpt-cookie3-and-cookie-dao-launch-cookie-ido-to-redistribute-marketing-value-in-web3/7a44dba1082adc26b3ff99d5c6d8f989) 
+
+ 
 
 
 

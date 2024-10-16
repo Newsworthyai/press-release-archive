@@ -29,7 +29,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-announces-partnership-extension-and-launch-of-hybrid-quantum-solver/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-extends-partnership-with-aramco-launches-new-quantum-solver/ee79183aebf6f5ef7e804552e9ec3455) 
+
+ 
 
 
 

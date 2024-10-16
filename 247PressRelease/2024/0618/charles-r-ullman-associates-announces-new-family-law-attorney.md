@@ -7,7 +7,13 @@ RALEIGH, NC, June 18, 2024 /24-7PressRelease/ -- Charles R. Ullman & Associates 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511756/charles-r-ullman-associates-announces-new-family-law-attorney)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/family-law-firm-welcomes-attorney-kat-mcdonald-as-associate-attorney/58b584053e73f420d2f0054b115b98a8) 
+
+
+Pickup - [advos.io](https://advos.io/en/charles-r-ullman-associates-welcomes-new-family-law-attorney/20244231)
+
+Pickup - [fishervista.com](https://fishervista.com/en/charles-r-ullman-associates-welcomes-kat-mcdonald-as-new-family-law-attorney/20244231)
+ 
 
 
 

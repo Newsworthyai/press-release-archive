@@ -33,7 +33,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/ilearningengi
 [Original/Source Press Release](https://newsdirect.com/news/ilearningengines-this-ai-powered-learning-saas-company-has-amazing-retention-968805478)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ilearningengines-ceo-discusses-company-s-rapid-growth-and-success-with-benzinga-s-all-access/23df331ef59e680980865c4eaed255a2) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/ilearningengines-achieves-exceptional-retention-rates-with-ai-powered-learning-platform/20244493)
+
+Pickup - [advos.io](https://advos.io/en/ilearningengines-ai-powered-learning-saas-company-achieves-exceptional-retention/20244493)
+ 
 
 
 

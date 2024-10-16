@@ -23,7 +23,11 @@ Discover transformative insights and join the future of supply chain management 
 [Original/Source Press Release](https://newsworthy.ai/news/20231128880/supplychainadvice-net-launches-the-definitive-hub-for-supply-chain-mastery)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-supply-chain-resource-launches-supplychainadvice-net/8f5f83d494226d0781d3a3b8866f8fd5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/28/supplychainadvice-net-emerges-as-the-premier-hub-for-supply-chain-mastery)
+ 
 
 
 

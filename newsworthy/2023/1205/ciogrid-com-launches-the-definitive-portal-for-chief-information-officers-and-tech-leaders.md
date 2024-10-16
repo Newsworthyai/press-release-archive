@@ -23,7 +23,11 @@ Navigate the tech world with authority. Discover more at www.CIOGrid.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231205791/ciogrid-com-launches-the-definitive-portal-for-chief-information-officers-and-tech-leaders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ciogrid-com-the-premier-digital-destination-for-cios-and-tech-enthusiasts/976dd44ab8e38fd640c1836ec9bd5ff5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/05/ciogrid-com-emerges-as-premier-digital-destination-for-tech-leaders)
+ 
 
 
 

@@ -7,7 +7,11 @@ LOS GATOS, CA, March 30, 2024 /24-7PressRelease/ -- Key Housing, a top provider 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509674/key-housing-announces-newly-updated-los-gatos-california-short-term-housing-and-serviced-apartment-listings)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/key-housing-announces-new-short-term-housing-listings-in-los-gatos-california/0b06cae49fc163833d697a238d47393c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/30/key-housing-unveils-upscale-el-gatos-penthouse-in-los-gatos-california)
+ 
 
 
 

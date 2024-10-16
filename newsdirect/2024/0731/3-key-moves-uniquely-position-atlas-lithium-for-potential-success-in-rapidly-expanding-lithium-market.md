@@ -65,7 +65,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/3-key-moves-u
 [Original/Source Press Release](https://newsdirect.com/news/3-key-moves-uniquely-position-atlas-lithium-for-potential-success-in-rapidly-expanding-lithium-market-756094981)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atlas-lithium-s-strategic-initiatives-positioning-it-for-success-in-the-lithium-market/b3c5c2f482252e368e6689ca0cb98e37) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/atlas-lithium-poised-for-growth-with-strategic-expansion-and-key-appointments)
+
+Pickup - [fishervista.com](https://fishervista.com/en/atlas-lithium-s-strategic-moves-position-it-for-success-in-expanding-lithium-market/20245391)
+
+Pickup - [advos.io](https://advos.io/en/atlas-lithium-s-strategic-moves-position-it-for-success-in-booming-lithium-market/20245391)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/atlas-lithium-poised-for-growth-with-strategic-expansion-and-key-appointments)
+ 
 
 
 

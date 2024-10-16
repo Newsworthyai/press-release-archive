@@ -7,7 +7,17 @@ BOTHELL, WA, September 13, 2024 /24-7PressRelease/ -- Ispirer Systems, a leader 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514259/ispirer-announces-ai-integration-to-revolutionize-database-migration)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ispirer-systems-collaborates-with-gemini-to-introduce-revolutionary-ai-assistant-for-database-migration/f0d53c50cf57ba206eff728d61440882) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/ispirer-systems-integrates-ai-to-streamline-database-migration-process)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ispirer-systems-integrates-ai-to-streamline-database-migration-process/20246809)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ispirer-systems-integrates-ai-to-streamline-database-migration-process/20246809)
+
+Pickup - [advos.io](https://advos.io/en/ispirer-systems-integrates-ai-to-streamline-database-migration-process/20246809)
+ 
 
 
 

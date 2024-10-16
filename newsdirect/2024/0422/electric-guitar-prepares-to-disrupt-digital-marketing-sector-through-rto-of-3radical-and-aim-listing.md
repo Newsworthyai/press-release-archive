@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/electric-guit
 [Original/Source Press Release](https://newsdirect.com/news/electric-guitar-prepares-to-disrupt-digital-marketing-sector-through-rto-of-3radical-and-aim-listing-988193786)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/electric-guitar-prepares-to-disrupt-digital-marketing-sector-through-rto-of-3radical-and-aim-listing/277c9f9c6b28bd5d708f3301f52af414) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/electric-guitar-prepares-to-disrupt-digital-marketing-sector-through-rto-of-3radical-and-aim-listing)
+ 
 
 
 

@@ -15,7 +15,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/sono-group-dr
 [Original/Source Press Release](https://newsdirect.com/news/sono-group-driving-the-future-with-solar-powered-commercial-vehicles-795855730)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sono-group-driving-the-future-with-solar-powered-commercial-vehicles/eda89f3cead59b653799642d50c66de8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/sono-group-advances-solar-powered-commercial-vehicles-with-innovative-solar-bus-kit/20244837)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/sono-group-advances-solar-technology-integration-in-commercial-vehicles)
+
+Pickup - [advos.io](https://advos.io/en/sono-group-pioneers-solar-powered-commercial-vehicles-with-innovative-solar-bus-kit/20244837)
+ 
 
 
 

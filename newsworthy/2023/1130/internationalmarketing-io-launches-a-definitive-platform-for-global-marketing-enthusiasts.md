@@ -23,7 +23,11 @@ Discover the world of global marketing insights at www.InternationalMarketing.io
 [Original/Source Press Release](https://newsworthy.ai/news/20231130831/internationalmarketing-io-launches-a-definitive-platform-for-global-marketing-enthusiasts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-platform-internationalmarketing-io-offers-expert-insights-for-international-marketing-strategies/cc3cde0091d3d20b92e229b6ffb3826d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/30/internationalmarketing-io-a-new-hub-for-global-marketing-strategies)
+ 
 
 
 

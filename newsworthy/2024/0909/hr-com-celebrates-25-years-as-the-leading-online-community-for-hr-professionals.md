@@ -28,7 +28,19 @@ HR.com Newsroom
 [Original/Source Press Release](https://newsworthy.ai/news/202409091256/hr-com-celebrates-25-years-as-the-leading-online-community-for-hr-professionals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-celebrates-25th-anniversary-as-the-premier-resource-for-hr-professionals/45221a5c2d4017ba133d847db9776771) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/hr-com-marks-25-years-as-premier-resource-for-human-resources-professionals)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-com-marks-25-years-as-premier-online-resource-for-hr-professionals/20246615)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hr-com-celebrates-25-years-as-premier-online-community-for-hr-professionals/20246615)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hr-com-marks-25-years-as-premier-online-resource-for-hr-professionals/20246615)
+
+Pickup - [advos.io](https://advos.io/en/hr-com-celebrates-25-years-as-premier-online-community-for-hr-professionals/20246615)
+ 
 
 
 

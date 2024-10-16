@@ -49,7 +49,11 @@ Links
 [Original/Source Press Release](https://blockchainwire.io/press-release/funky-frog-fro-meme-coin-takes-the-crypto-pond-by-storm-with-a-leap-of-180-apy-raising-over-127k-in-hours)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/funky-frog-fro-presale-raises-over-127000-with-180-apy-offering/2b4cf18c0c3b22c5461de9a7d9f0d01c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/funky-frog-meme-coin-leaps-to-new-heights-with-hourly-180-apy)
+ 
 
 
 

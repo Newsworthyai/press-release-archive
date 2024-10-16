@@ -25,7 +25,9 @@ For more information, please visit:[www.copper.co](https://www.copper.co/)
 [Original/Source Press Release](https://blockchainwire.io/press-release/copper-becomes-first-custodian-to-offer-secure-btc-yield-with-cores-integration-of-btc-staking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/core-foundation-integrates-dual-staking-into-copper-s-custody-platform/5ba8e39bcd3bc9d0c5d41ddde012686b) 
+
+ 
 
 
 

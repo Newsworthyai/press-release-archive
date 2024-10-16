@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/torr-metals-e
 [Original/Source Press Release](https://newsdirect.com/news/torr-metals-expands-kolos-copper-gold-project-by-75-and-prepares-for-2024-field-season-647147201)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/torr-metals-expands-kolos-copper-gold-project-by-75-and-prepares-for-2024-field-season/884e1071b7030c0fd96057f8f11be92e) 
+
+ 
 
 
 

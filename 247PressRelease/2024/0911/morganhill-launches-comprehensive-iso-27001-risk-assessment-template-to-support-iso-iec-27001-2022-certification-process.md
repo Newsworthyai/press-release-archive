@@ -7,7 +7,17 @@ DALLAS, TX, September 11, 2024 /24-7PressRelease/ -- MorganHill is proud to anno
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514200/morganhill-launches-comprehensive-iso-27001-risk-assessment-template-to-support-isoiec-270012022-certification-process)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/morganhill-launches-new-iso-27001-risk-assessment-template-for-enhanced-information-security-management/88dc1ef6650b359d6cbfb15b3575d475) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/morganhill-unveils-iso-27001-risk-assessment-template-to-streamline-certification-process)
+
+Pickup - [fishervista.com](https://fishervista.com/en/morganhill-introduces-iso-27001-risk-assessment-template-for-streamlined-certification/20246687)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/morganhill-unveils-iso-27001-risk-assessment-template-for-enhanced-information-security-compliance/20246687)
+
+Pickup - [advos.io](https://advos.io/en/morganhill-unveils-iso-27001-risk-assessment-template-to-streamline-certification-process/20246687)
+ 
 
 
 

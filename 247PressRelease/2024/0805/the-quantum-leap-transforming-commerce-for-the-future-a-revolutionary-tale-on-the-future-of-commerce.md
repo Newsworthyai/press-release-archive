@@ -7,7 +7,17 @@ INDIANAPOLIS, IN, August 05, 2024 /24-7PressRelease/ -- Renowned author and indu
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513123/the-quantum-leap-transforming-commerce-for-the-future-a-revolutionary-tale-on-the-future-of-commerce)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-author-toby-reeves-releases-groundbreaking-book-on-future-of-commerce/e95190ed31536c5edba66e1a60f3d3a5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/new-novel-the-quantum-leap-explores-future-of-commerce-and-technology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/toby-reeves-releases-the-quantum-leap-transforming-commerce-for-the-future/20245481)
+
+Pickup - [advos.io](https://advos.io/en/toby-reeves-unveils-the-quantum-leap-transforming-commerce-for-the-future/20245481)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-novel-the-quantum-leap-explores-future-of-commerce-and-technology)
+ 
 
 
 

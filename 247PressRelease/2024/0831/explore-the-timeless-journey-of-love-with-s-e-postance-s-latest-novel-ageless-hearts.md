@@ -7,7 +7,17 @@ WILSONVILLE, OR, August 31, 2024 /24-7PressRelease/ -- S.E. Postance, a romance 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513949/explore-the-timeless-journey-of-love-with-se-postances-latest-novel-ageless-hearts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-release-ageless-hearts-a-must-read-romance-novel-for-all-ages/14472c0273adf0e8fa5473c1e917dee3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/31/new-novel-ageless-hearts-challenges-perceptions-of-love-in-later-life)
+
+Pickup - [fishervista.com](https://fishervista.com/en/s-e-postance-unveils-heartwarming-tale-of-love-later-in-life-with-ageless-hearts/20246407)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/new-novel-ageless-hearts-challenges-perceptions-of-love-in-later-life/20246407)
+
+Pickup - [advos.io](https://advos.io/en/s-e-postance-releases-debut-novel-ageless-hearts-celebrating-love-in-later-life/20246407)
+ 
 
 
 

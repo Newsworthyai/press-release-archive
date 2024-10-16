@@ -7,7 +7,15 @@ ATLANTA, GA, July 04, 2024 /24-7PressRelease/ -- Kathryn Fletcher, CPA, partner 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512252/kathryn-fletcher-cpa-cgma-elected-chair-of-gscpa-board-of-directors-for-2024-25-year)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kathryn-fletcher-elected-chair-of-gscpa-board-of-directors/376e75010305d8e8850ce001b1756dee) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/kathryn-fletcher-elected-chair-of-gscpa-board-of-directors-for-2024-25-year/20244707)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/04/kathryn-fletcher-elected-chair-of-georgia-society-of-cpas-board-of-directors)
+
+Pickup - [advos.io](https://advos.io/en/kathryn-fletcher-cpa-cgma-elected-chair-of-gscpa-board-for-2024-25/20244707)
+ 
 
 
 

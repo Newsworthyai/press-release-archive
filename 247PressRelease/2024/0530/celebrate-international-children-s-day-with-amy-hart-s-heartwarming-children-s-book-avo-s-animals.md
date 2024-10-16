@@ -7,7 +7,9 @@ AUSTIN, TX, May 30, 2024 /24-7PressRelease/ -- Amy Hart, a talented writer and d
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511216/celebrate-international-childrens-day-with-amy-harts-heartwarming-childrens-book-avos-animals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/talented-writer-amy-hart-releases-heartwarming-children-s-book-avo-s-animals/5bab134083a51ee25deaa7cf05f6e574) 
+
+ 
 
  
 

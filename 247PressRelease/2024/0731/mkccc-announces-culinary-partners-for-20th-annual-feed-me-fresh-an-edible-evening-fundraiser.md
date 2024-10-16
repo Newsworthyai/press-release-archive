@@ -7,7 +7,17 @@ MOUNT KISCO, NY, July 31, 2024 /24-7PressRelease/ -- Mount Kisco Child Care Cent
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512964/mkccc-announces-culinary-partners-for-20th-annual-feed-me-fresh-an-edible-evening-fundraiser)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mount-kisco-child-care-center-unveils-culinary-partners-for-20th-annual-fundraiser/4dd978d5dfc501f639088f276b77d1ae) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/mount-kisco-child-care-center-unveils-culinary-lineup-for-20th-annual-fundraiser)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mkccc-reveals-culinary-lineup-for-20th-annual-feed-me-fresh-an-edible-evening/20245378)
+
+Pickup - [advos.io](https://advos.io/en/mount-kisco-child-care-center-announces-culinary-partners-for-20th-annual-fundraiser/20245378)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mount-kisco-child-care-center-s-20th-annual-fundraiser-showcases-local-culinary-talent)
+ 
 
 
 

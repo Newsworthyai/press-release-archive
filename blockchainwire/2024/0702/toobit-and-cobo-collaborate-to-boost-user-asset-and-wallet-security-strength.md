@@ -19,7 +19,19 @@ For more information on Toobit and its services, visit Toobit.
 [Original/Source Press Release](https://blockchainwire.io/press-release/toobit-and-cobo-collaborate-to-boost-user-asset-and-wallet-security-strength)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/toobit-announces-strategic-partnership-with-cobo-to-enhance-security-and-trust-for-cryptocurrency-investors/1331f07abda4ddcd3f924fa47f3b81d8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/toobit-and-cobo-partner-to-enhance-digital-asset-security/20244668)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/toobit-partners-with-cobo-to-enhance-cryptocurrency-security)
+
+Pickup - [advos.io](https://advos.io/en/toobit-and-cobo-collaborate-to-enhance-cryptocurrency-security/20244668)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/toobit-announces-strategic-partnership-with-cobo-to-enhance-security-and-trust-for-cryptocurrency-investors)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/toobit-announces-strategic-partnership-with-cobo-to-enhance-security-and-trust-for-cryptocurrency-investors)
+ 
 
 
 

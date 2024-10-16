@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/lily-introduc
 [Original/Source Press Release](https://newsdirect.com/news/lily-introduces-yuzu-flavor-240032704)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lily-introduces-vibrant-yuzu-flavor-with-egyptian-water-lily-adaptogens/e49195cb84376fc95f7721da1b47c5d4) 
+
+
+Pickup - [advos.io](https://advos.io/en/lily-unveils-new-yuzu-flavor-infused-with-adaptogens-and-nootropics/20243983)
+ 
 
 
 

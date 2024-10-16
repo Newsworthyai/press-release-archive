@@ -60,7 +60,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/understanding-beart-in-one-article--focused-rwa-asset-issuance-platform-galxe-prize-activity-launched)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beart-introduces-innovative-rwa-assets-and-visionary-club-nft-series/79e0f7030e04e1f0f846d6e66c1be965) 
+
+ 
 
 
 

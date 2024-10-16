@@ -31,7 +31,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/slex-exchange-launch-the-first-launchpad-with-4000-participants-on-february-15th)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/slex-launchpad-empowers-token-holders-with-exclusive-access-to-tier-1-projects/122cd8b5395c6dc7a19228ebabe8bbf8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/14/slex-exchange-launches-exclusive-launchpad-for-tier-1-crypto-projects)
+ 
 
 
 

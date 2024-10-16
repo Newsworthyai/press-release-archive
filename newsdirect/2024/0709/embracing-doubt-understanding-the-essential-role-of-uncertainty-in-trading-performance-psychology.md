@@ -55,7 +55,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/embracing-dou
 [Original/Source Press Release](https://newsdirect.com/news/embracing-doubt-understanding-the-essential-role-of-uncertainty-in-trading-performance-psychology-353412050)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/embracing-doubt-understanding-the-essential-role-of-uncertainty-in-trading/80e5e423a2f2b34cf9137617b15ce654) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/understanding-the-critical-role-of-uncertainty-in-trading-performance-psychology/20244796)
+
+Pickup - [advos.io](https://advos.io/en/embracing-doubt-the-crucial-role-of-uncertainty-in-trading-performance-psychology/20244796)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/embracing-uncertainty-the-key-to-successful-futures-and-options-trading)
+ 
 
 
 

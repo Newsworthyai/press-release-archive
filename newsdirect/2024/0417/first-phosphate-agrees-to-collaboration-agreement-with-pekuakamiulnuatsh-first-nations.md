@@ -21,7 +21,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/first-phospha
 [Original/Source Press Release](https://newsdirect.com/news/first-phosphate-agrees-to-collaboration-agreement-with-pekuakamiulnuatsh-first-nations-800015758)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/first-phosphate-corp-signs-collaboration-agreement-with-pekuakamiulnuatsh-first-nations/0eedcec5542b7f18a15be812879cc868) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/first-phosphate-and-pekuakamiulnuatsh-first-nations-sign-collaboration-agreement)
+ 
 
 
 

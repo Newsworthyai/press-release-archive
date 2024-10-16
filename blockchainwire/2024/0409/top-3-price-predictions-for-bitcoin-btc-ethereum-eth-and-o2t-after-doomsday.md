@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/top-3-price-predictions-for-bitcoin-btc-ethereum-eth-and-o2t-after-doomsday)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-market-analysis-bitcoin-ethereum-and-option2trade-o2t-recovery-prospects/e3781541f6e17fb904e5bd13665652ee) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/navigating-the-post-doomsday-crypto-landscape-btc-eth-and-o2t-s-paths-to-recovery)
+ 
 
 
 

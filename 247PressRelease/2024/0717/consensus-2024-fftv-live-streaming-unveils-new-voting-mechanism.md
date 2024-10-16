@@ -7,7 +7,15 @@ AUSTIN, TX, July 17, 2024 /24-7PressRelease/ -- At Consensus 2024, a gathering o
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512553/consensus-2024-fftv-live-streaming-unveils-new-voting-mechanism)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fftv-unveils-innovative-voting-mechanism-at-consensus-2024/8cf174843dee00b294257377036bd6a1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/fftv-introduces-revolutionary-voting-mechanism-at-consensus-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/fftv-live-streaming-introduces-revolutionary-voting-mechanism-at-consensus-2024/20245013)
+
+Pickup - [advos.io](https://advos.io/en/fftv-live-streaming-introduces-ai-driven-voting-mechanism-at-consensus-2024/20245013)
+ 
 
 
 

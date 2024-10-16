@@ -7,7 +7,11 @@ EL PASO, TX, March 09, 2024 /24-7PressRelease/ -- SoBellas, a leading provider o
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509155/sobellas-unveils-state-of-the-art-online-store-for-air-conditioner-filters-in-el-paso-tx)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sobellas-launches-new-online-store-for-air-conditioner-filters-in-el-paso-texas/25cdb3de0856b2f8407f5d3fd3d79a0a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/09/sobellas-launches-user-friendly-online-store-for-air-conditioner-filters)
+ 
 
 
 

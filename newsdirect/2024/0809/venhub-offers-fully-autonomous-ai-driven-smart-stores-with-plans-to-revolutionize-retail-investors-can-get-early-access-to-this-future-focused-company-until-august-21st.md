@@ -53,7 +53,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/venhub-offers
 [Original/Source Press Release](https://newsdirect.com/news/venhub-offers-fully-autonomous-ai-driven-smart-stores-with-plans-to-revolutionize-retail-investors-can-get-early-access-to-this-future-focused-company-until-august-21st-107933371)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/venhub-revolutionizes-retail-with-ai-driven-smart-stores/13a14dfd53e5b49a8ab3a118996d77d5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/venhub-s-ai-powered-smart-stores-set-to-transform-retail-landscape)
+
+Pickup - [fishervista.com](https://fishervista.com/en/venhub-introduces-ai-driven-smart-stores-aiming-to-transform-retail-industry/20245612)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/venhub-introduces-ai-powered-autonomous-smart-stores-aiming-to-transform-retail-landscape/20245612)
+
+Pickup - [advos.io](https://advos.io/en/venhub-introduces-fully-autonomous-ai-driven-smart-stores-to-revolutionize-retail/20245612)
+ 
 
 
 

@@ -7,7 +7,17 @@ MOUNTAIN VIEW, CA, August 11, 2024 /24-7PressRelease/ -- Silicon Valley-based AI
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513288/aibit-recognized-in-the-fintech-power-50-list-for-2024-showcasing-innovation-leadership-in-ai-driven-financial-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aibit-named-in-the-fintech-power-50-list-for-2024/5f41bfe06cc208cdd4b1240f4eeff6d4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/11/aibit-secures-spot-in-the-fintech-power-50-list-for-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/aibit-recognized-in-the-fintech-power-50-list-for-2024/20245636)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/aibit-secures-spot-in-the-fintech-power-50-list-for-2024/20245636)
+
+Pickup - [advos.io](https://advos.io/en/aibit-earns-spot-in-the-fintech-power-50-list-for-2024/20245636)
+ 
 
 
 

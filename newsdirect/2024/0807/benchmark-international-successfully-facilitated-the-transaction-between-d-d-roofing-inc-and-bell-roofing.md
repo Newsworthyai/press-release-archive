@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-d-and-d-roofing-inc-and-bell-roofing-981464273)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-facilitates-transaction-between-d-d-roofing-inc-and-bell-roofing/2c59bfc701c3c8ccbb905f917ccfe391) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/d-d-roofing-acquired-by-bell-roofing-in-strategic-merger)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-acquisition-of-d-d-roofing-by-bell-roofing/20245552)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/d-d-roofing-acquired-by-bell-roofing-in-strategic-merger)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-acquisition-of-d-d-roofing-by-bell-roofing/20245552)
+ 
 
 
 

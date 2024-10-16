@@ -7,7 +7,11 @@ MONTEREY, CA, April 07, 2024 /24-7PressRelease/ -- DW Excavation, a leader in pr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509857/from-sonoma-to-monterey-dw-excavations-commitment-to-californias-central-coast)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dw-excavation-expands-to-monterey-county-ca/13be0b3009bbf267d29a54e91a5599d3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/07/dw-excavation-expands-to-monterey-county-bringing-expertise-to-california-s-central-coast)
+ 
 
 
 

@@ -67,7 +67,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/birmingham-ai
 [Original/Source Press Release](https://newsdirect.com/news/birmingham-airport-chaos-highlights-dire-need-for-improved-security-913032680)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chaos-at-birmingham-airport-highlights-dire-need-for-improved-security/cb8aaa959c91f726142258cf6b1bf93a) 
+
+ 
 
 
 

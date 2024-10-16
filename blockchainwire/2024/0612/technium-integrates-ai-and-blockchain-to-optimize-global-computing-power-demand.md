@@ -49,7 +49,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/technium-integrates-ai-and-blockchain-to-optimize-global-computing-power-demand)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/technium-integrates-ai-and-blockchain-to-revolutionize-computing-power-management/440ac58a8a071b4b7fcfd2bb8a070272) 
+
+
+Pickup - [advos.io](https://advos.io/en/technium-integrates-ai-and-blockchain-to-optimize-global-computing-power-demand/20244086)
+ 
 
 
 

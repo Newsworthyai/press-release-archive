@@ -7,7 +7,17 @@ PITTSBURGH, PA, July 24, 2024 /24-7PressRelease/ -- Laurie Barkman, business tra
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512781/launch-of-the-endgame-entrepreneurship-masterclass-empowers-business-owners-for-successful-exits)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/business-transition-expert-launches-masterclass-to-demystify-business-exits/5679db6f851cf06391a9513bc5ca7b0a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/new-online-masterclass-aims-to-help-business-owners-navigate-successful-exits)
+
+Pickup - [fishervista.com](https://fishervista.com/en/the-endgame-entrepreneurshiptm-masterclass-a-game-changer-for-business-owners-seeking-successful-exits/20245203)
+
+Pickup - [advos.io](https://advos.io/en/launch-of-the-endgame-entrepreneurshiptm-masterclass-empowers-business-owners-for-successful-exits/20245203)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-masterclass-aims-to-revolutionize-business-exit-strategies-for-entrepreneurs)
+ 
 
 
 

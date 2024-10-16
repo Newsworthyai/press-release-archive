@@ -50,7 +50,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/market-movements-okaycoin-data-shows-whale-activity-peaks-in-crypto-staking-during-key-financial-events)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/okaycoin-study-reveals-surge-in-cryptocurrency-whales-staking-activities/8386f1e4164a4fd9ab2dde1bda77a80e) 
+
+
+Pickup - [advos.io](https://advos.io/en/okaycoin-reports-surge-in-whale-activity-amid-key-financial-events/20244074)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/okaycoin-study-reveals-surge-in-cryptocurrency-whales-staking-activities)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/okaycoin-study-reveals-surge-in-cryptocurrency-whales-staking-activities)
+ 
 
 
 

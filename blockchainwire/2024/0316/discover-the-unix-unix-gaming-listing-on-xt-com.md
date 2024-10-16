@@ -59,7 +59,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-unixunix-gaming-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-announces-listing-of-unix-gaming-on-its-platform-with-new-trading-pair/52125291c2ea9d43027e151f833e5e42) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/16/xt-com-lists-unix-gaming-token-fueling-web3-gaming-revolution)
+ 
 
 
 

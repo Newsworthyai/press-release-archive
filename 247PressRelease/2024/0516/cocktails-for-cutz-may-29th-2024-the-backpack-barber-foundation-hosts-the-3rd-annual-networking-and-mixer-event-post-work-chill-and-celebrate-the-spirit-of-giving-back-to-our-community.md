@@ -7,7 +7,9 @@ FORT LAUDERDALE, FL, May 16, 2024 /24-7PressRelease/ -- Join the Backpack Barber
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510926/cocktails-for-cutz-may-29th-2024-the-backpack-barber-foundation-hosts-the-3rd-annual-networking-and-mixer-event-post-work-chill-and-celebrate-the-spirit-of-giving-back-to-our-community)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/backpack-barber-foundation-hosts-cocktails-for-cutz-fundraising-event/28eaba8d2149641132fbf070ff6cd875) 
+
+ 
 
 
 

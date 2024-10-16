@@ -57,7 +57,9 @@ DEX.ORG is a pioneering decentralized exchange platform that combines the best f
 [Original/Source Press Release](https://blockchainwire.io/press-release/dexorg-the-robinhood-of-defi-gears-up-for-an-explosive-token-and-exchange-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dex-org-announces-launch-of-revolutionary-decentralized-exchange-and-token/6f86fac6b29b6ea8bc10ab23a8d67917) 
+
+ 
 
 
 

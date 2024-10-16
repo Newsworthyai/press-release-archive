@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/imugene-opens
 [Original/Source Press Release](https://newsdirect.com/news/imugene-opens-enrolment-for-bile-tract-cancer-expansion-study-853950200)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/imugene-ceo-discusses-enrolment-for-bile-tract-cancer-expansion-study/fee037ac120a1d5c5535273178181362) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/imugene-expands-bile-tract-cancer-study-with-promising-vaxinia-results)
+ 
 
 
 

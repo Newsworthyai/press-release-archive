@@ -7,7 +7,13 @@ BALTIMORE, MD, May 22, 2024 /24-7PressRelease/ -- Softhread Inc. today proudly u
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511014/softhread-inc-announces-prestigious-nsf-phase-ii-sbir-grant-to-fund-development-of-chios-qr-exchange-platform-tailored-to-address-complex-healthcare-interoperability-and-data-exchange-challenges)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/softhread-unveils-chiostm-qr-change-solution-for-healthcare-interoperability/b8e27b279521216a4c495a1b065fc07e) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/softhread-unveils-chiostm-qr-change-solution-for-healthcare-interoperability)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/softhread-unveils-chiostm-qr-change-solution-for-healthcare-interoperability)
+ 
 
 
 

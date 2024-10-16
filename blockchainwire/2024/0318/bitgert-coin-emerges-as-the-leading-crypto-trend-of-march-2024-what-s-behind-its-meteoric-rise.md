@@ -41,7 +41,11 @@ Buy on[Uniswap](https://bit.ly/43kIzQb)Disclaimer:The information provided in th
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitgert-coin-emerges-as-the-leading-crypto-trend-of-march-2024-whats-behind-its-meteoric-rise)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitgert-the-hottest-cryptocurrency-project-of-2024-set-to-make-major-exchange-debut/ad884eceb43514feffd217bd6c1ccee3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/bitgert-coin-emerges-as-crypto-s-hottest-trend-in-2024)
+ 
 
 
 

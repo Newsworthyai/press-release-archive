@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, h
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-receives-order-for-mullen-campus-evs/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-receives-order-for-electric-vehicles-from-db-schenker/7f77e21556596085ce380ab1e826bcc0) 
+
+ 
 
 
 

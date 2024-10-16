@@ -21,7 +21,17 @@ Arhasi, a Google Cloud and Redis partner and an Alpha Transform Holdings portfol
 [Original/Source Press Release](https://blockchainwire.io/press-release/lifeworks-launches-a-human-resources-ai-agent-to-improve-productivity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lifeworks-unveils-groundbreaking-ai-employee-assistant/ffdddb705cf9c4b72e1159b603ef7abe) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/lifeworks-introduces-ai-employee-assistant-to-streamline-nonprofit-hr-processes/20245073)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/lifeworks-introduces-ai-employee-assistant-to-streamline-nonprofit-operations)
+
+Pickup - [fishervista.com](https://fishervista.com/en/lifeworks-launches-ai-powered-hr-assistant-to-enhance-productivity/20245073)
+
+Pickup - [advos.io](https://advos.io/en/lifeworks-unveils-ai-powered-hr-assistant-to-revolutionize-nonprofit-onboarding/20245073)
+ 
 
 
 

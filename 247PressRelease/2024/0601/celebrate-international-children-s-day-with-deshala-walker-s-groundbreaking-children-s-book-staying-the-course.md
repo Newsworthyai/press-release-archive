@@ -7,7 +7,9 @@ LOS ANGELES, CA, June 01, 2024 /24-7PressRelease/ -- In celebration of Internati
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511226/celebrate-international-childrens-day-with-deshala-walkers-groundbreaking-childrens-book-staying-the-course)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/empowering-children-deshala-walker-s-transformative-book-staying-the-course/79b0d8a12087419497e97939c0a3d6a4) 
+
+ 
 
 
 

@@ -51,7 +51,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/marietta-pers
 [Original/Source Press Release](https://newsdirect.com/news/marietta-personal-injury-attorney-ramiro-rodriguez-is-promoting-safe-driving-and-workplace-safety-768892961)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marietta-personal-injury-attorney-launches-campaign-to-promote-safe-driving-and-workplace-safety/077de3352037e0e5ea6e42a011cd9185) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/marietta-attorney-champions-safe-driving-and-workplace-safety)
+ 
 
 
 

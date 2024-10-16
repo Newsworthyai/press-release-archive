@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/pantheon-reso
 [Original/Source Press Release](https://newsdirect.com/news/pantheon-resources-eyes-resource-upgrade-and-financing-developments-392568316)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pantheon-resources-eyes-resource-upgrade-and-financing-developments/27a04b7153b3bb28659741176834d4e0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/pantheon-resources-gears-up-for-pivotal-developments)
+ 
 
 
 

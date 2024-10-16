@@ -49,7 +49,17 @@ IR@icoreconnect.com
 [Original/Source Press Release](https://www.newmediawire.com/news/mississippi-dental-association-expands-partnership-with-cloud-software-leader-icoreconnect-7076024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/icoreconnect-expands-partnership-with-mississippi-dental-association/1966780485d6615a9abf2fb07e2ce292) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/mississippi-dental-association-expands-endorsement-of-icoreconnect-s-cloud-based-software-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mississippi-dental-association-expands-endorsement-of-icoreconnect-s-software-solutions/20246622)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mississippi-dental-association-endorses-seven-icoreconnect-products-expanding-partnership/20246622)
+
+Pickup - [advos.io](https://advos.io/en/mississippi-dental-association-expands-endorsement-of-icoreconnects-cloud-software-solutions/20246622)
+ 
 
 
 

@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/digging-deepe
 [Original/Source Press Release](https://newsdirect.com/news/digging-deeper-exploring-the-depths-of-mining-421356698)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benzinga-webinar-digging-deeper-into-the-mining-industry/768c2edc48a9ec12d11cdc3abac9ad1e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/unveiling-the-depths-mining-industry-webinar-unearths-insights)
+ 
 
 
 

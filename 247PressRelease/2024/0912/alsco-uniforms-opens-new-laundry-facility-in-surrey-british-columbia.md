@@ -7,7 +7,17 @@ SALT LAKE CITY, UT, September 12, 2024 /24-7PressRelease/ -- Alsco Uniforms is p
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514253/alsco-uniforms-opens-new-laundry-facility-in-surrey-british-columbia)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alsco-uniforms-opens-advanced-laundry-processing-facility-in-surrey-bc/2a523ec1ae97927ca65549d9e66ce00e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/alsco-uniforms-unveils-advanced-laundry-facility-in-surrey-bc-boosting-capacity-and-sustainability)
+
+Pickup - [fishervista.com](https://fishervista.com/en/alsco-uniforms-unveils-advanced-laundry-facility-in-surrey-bc-boosting-capacity-and-environmental-sustainability/20246754)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/alsco-uniforms-expands-operations-with-advanced-laundry-facility-in-surrey-bc/20246754)
+
+Pickup - [advos.io](https://advos.io/en/alsco-uniforms-expands-operations-with-new-advanced-laundry-facility-in-surrey-bc/20246754)
+ 
 
 
 

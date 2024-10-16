@@ -59,7 +59,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/all-eyes-on-a
 [Original/Source Press Release](https://newsdirect.com/news/all-eyes-on-atlas-lithium-as-the-us-assistant-secretary-of-state-for-energy-resources-visits-the-companys-headquarters-in-brazil-385146331)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atlas-lithium-hosts-u-s-diplomats-spotlights-importance-of-critical-minerals/81a700937bddfecf16e3fbb5f27dd769) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/u-s-diplomats-visit-atlas-lithium-in-brazil-highlighting-critical-minerals-strategy)
+
+Pickup - [fishervista.com](https://fishervista.com/en/us-assistant-secretary-of-state-for-energy-resources-visits-atlas-lithium-in-brazil/20245286)
+
+Pickup - [advos.io](https://advos.io/en/atlas-lithium-hosts-u-s-diplomatic-delegation-to-bolster-critical-mineral-supply-chains/20245286)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/u-s-diplomats-visit-atlas-lithium-in-brazil-highlighting-critical-minerals-strategy)
+ 
 
 
 

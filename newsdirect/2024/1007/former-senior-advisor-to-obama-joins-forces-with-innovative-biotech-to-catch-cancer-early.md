@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/former-senior
 [Original/Source Press Release](https://newsdirect.com/news/former-senior-advisor-to-obama-joins-forces-with-innovative-biotech-to-catch-cancer-early-506329789)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-senior-advisor-to-obama-joins-forces-with-innovative-biotech/42e269c87cb4e0dae96731180d8a87d2) 
+
+ 
 
 
 

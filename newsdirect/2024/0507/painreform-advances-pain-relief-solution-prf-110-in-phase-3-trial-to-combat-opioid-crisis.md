@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/painreform-ad
 [Original/Source Press Release](https://newsdirect.com/news/painreform-advances-pain-relief-solution-prf-110-in-phase-3-trial-to-combat-opioid-crisis-657098434)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/painreform-advances-non-opioid-pain-relief-solution-prf-110-in-phase-3-trial-to-combat-opioid-crisis/c95bd5044e2a09f1ed5763e5886e3661) 
+
+ 
 
 
 

@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bango-says-po
 [Original/Source Press Release](https://newsdirect.com/news/bango-says-positive-momentum-from-2023-has-continued-into-2024-914436118)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bango-s-ceo-discusses-strong-2023-performance-and-positive-2024-outlook/9dc30b9747158c08d11676d98741588e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/bango-says-positive-momentum-from-2023-has-continued-into-2024)
+ 
 
 
 

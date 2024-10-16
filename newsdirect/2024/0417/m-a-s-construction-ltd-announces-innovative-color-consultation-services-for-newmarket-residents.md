@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/m-a-s-constru
 [Original/Source Press Release](https://newsdirect.com/news/m-a-s-construction-ltd-announces-innovative-color-consultation-services-for-newmarket-residents-891637934)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/m-a-s-construction-ltd-launches-new-color-consultation-service-for-newmarket-residents/1250c05d57dfe5029c1a3fd99f767d15) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/m-a-s-construction-ltd-introduces-new-color-consultation-service-for-newmarket-homeowners)
+ 
 
 
 

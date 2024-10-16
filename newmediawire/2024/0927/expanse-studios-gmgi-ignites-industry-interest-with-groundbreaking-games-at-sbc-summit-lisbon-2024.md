@@ -65,7 +65,9 @@ Other important factors that may cause actual results and outcomes to differ mat
 [Original/Source Press Release](http://www.newmediawire.com/news/expanse-studios-gmgi-ignites-industry-interest-with-groundbreaking-games-at-sbc-summit-lisbon-2024-7076100)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/expanse-studios-shines-at-sbc-summit-lisbon-2024-unveils-new-game-offerings/03fc29b85460f483bc6db677dd867969) 
+
+ 
 
 
 

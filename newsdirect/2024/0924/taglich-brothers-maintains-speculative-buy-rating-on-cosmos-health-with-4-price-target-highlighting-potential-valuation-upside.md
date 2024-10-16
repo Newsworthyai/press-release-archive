@@ -181,7 +181,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/taglich-broth
 [Original/Source Press Release](https://newsdirect.com/news/taglich-brothers-maintains-speculative-buy-rating-on-cosmos-health-with-4-price-target-highlighting-potential-valuation-upside-184464465)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cosmos-health-expects-revenue-growth-and-strategic-initiatives-to-drive-growth/20c5ecacea478fbecd49b7e3fe842e4a) 
+
+ 
 
 
 

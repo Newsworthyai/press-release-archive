@@ -63,7 +63,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ca1-ca2-prese
 [Original/Source Press Release](https://newsdirect.com/news/ca1-ca2-presents-4th-annual-photography-exhibition-and-benefit-in-support-of-the-egmont-us-foundation-723856226)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/4th-annual-photography-exhibition-and-benefit-in-support-of-the-egmont-us-foundation/0e81d279e4874201fc0c80a77db10c3c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/ca1-ca2-presents-4th-annual-photography-exhibition-and-benefit-in-support-of-the-egmont-us-foundation)
+ 
 
 
 

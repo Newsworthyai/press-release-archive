@@ -40,7 +40,11 @@ Website: https://reportscammedbitcoin.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/reclaiming-stolen-funds-rsb-reveals-advanced-crypto-scam-recovery-strategies)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/report-scammed-bitcoin-unveils-comprehensive-crypto-scam-recovery-solutions/3bbbed5f4cab28e3f52fefdce4af5420) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/rsb-unveils-advanced-crypto-scam-recovery-solutions)
+ 
 
 
 

@@ -9,7 +9,11 @@ A Landmark Release in the Crypto-Gaming SphereThe release of the Steamboat Willi
 [Original/Source Press Release](https://blockchainwire.io/press-release/steamboat-willie-game-revolutionizes-the-crypto-and-gaming-world)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-steamboat-willie-game-integrates-cryptocurrency-and-public-domain-content/ad829d6f467793ed8ea50f8fa1db6df8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/14/steamboat-willie-game-merging-crypto-gaming-and-classic-animation)
+ 
 
 
 

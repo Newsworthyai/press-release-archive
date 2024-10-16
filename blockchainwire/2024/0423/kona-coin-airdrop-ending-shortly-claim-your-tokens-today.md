@@ -37,7 +37,11 @@ X (Twitter) | Telegram (Announcement Channel) | Telegram (Community)
 [Original/Source Press Release](https://blockchainwire.io/press-release/kona-coin-airdrop-ending-shortly---claim-your-tokens-today)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kona-coin-launches-airdrop-campaign-distributing-80-billion-tokens-to-community/8ea0dad546f6e2c719ae57cf5f77121f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/kona-coin-airdrop-ending-shortly-claim-your-tokens-today)
+ 
 
 
 

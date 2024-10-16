@@ -24,7 +24,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/web3-is-getting-a-social-makeover)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/so-social-releases-groundbreaking-web3-social-protocols/aedf7827f4a6f7a55211e97879c235a4) 
+
+ 
 
 
 

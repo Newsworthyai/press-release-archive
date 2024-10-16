@@ -23,7 +23,15 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-btcs-fed-induced-dip-vs-solana-sols--surge-how-furrever-token-can-benefit-with-its-referral-system)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-and-solana-react-to-fed-decision-furrever-token-emerges-as-a-promising-investment-opportunity/4490d519c7781754487253bb304175b1) 
+
+
+Pickup - [advos.io](https://advos.io/en/bitcoin-s-fed-induced-dip-and-solana-s-surge-highlight-furrever-token-s-unique-investment-opportunity/20244124)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-and-solana-react-to-fed-decision-furrever-token-emerges-as-a-promising-investment-opportunity)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-and-solana-react-to-fed-decision-furrever-token-emerges-as-a-promising-investment-opportunity)
+ 
 
 
 

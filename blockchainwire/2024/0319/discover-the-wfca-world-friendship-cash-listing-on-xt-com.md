@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-wfca-world-friendship-cash-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-wfca-token-on-socially-infused-trading-platform/ffe677f0dfdefe22d515fd4616b7bc00) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/xt-com-lists-wfca-token-bridging-real-and-virtual-worlds)
+ 
 
 
 

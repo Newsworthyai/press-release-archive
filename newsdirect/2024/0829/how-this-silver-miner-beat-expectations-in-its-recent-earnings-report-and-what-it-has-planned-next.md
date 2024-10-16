@@ -49,7 +49,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-this-silv
 [Original/Source Press Release](https://newsdirect.com/news/how-this-silver-miner-beat-expectations-in-its-recent-earnings-report-and-what-it-has-planned-next-454932842)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/silver-miner-beats-expectations-and-expands-amid-soaring-silver-prices/f2e4af6822ae1dc7b082d5e1d84c3f99) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/silvercorp-metals-surpasses-expectations-with-strong-q1-results-expands-operations)
+
+Pickup - [fishervista.com](https://fishervista.com/en/silvercorp-metals-inc-exceeds-expectations-and-expands-operations/20246377)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/silvercorp-metals-surpasses-expectations-with-strong-q1-fiscal-2025-results/20246377)
+
+Pickup - [advos.io](https://advos.io/en/silvercorp-metals-inc-exceeds-earnings-expectations-and-plans-strategic-expansion/20246377)
+ 
 
 
 

@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/from-faster-m
 [Original/Source Press Release](https://newsdirect.com/news/from-faster-medical-service-to-global-crisis-relief-the-potential-of-evtols-to-usher-in-a-new-future-731318591)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/horizon-aircraft-s-evtol-prototype-could-revolutionize-air-travel-and-provide-faster-medical-service-and-crisis-relief/8127996d834168f35276118e5c840983) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/evtols-revolutionizing-air-travel-for-a-greener-future)
+ 
 
 
 

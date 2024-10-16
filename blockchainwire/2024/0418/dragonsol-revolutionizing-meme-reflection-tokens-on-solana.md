@@ -49,7 +49,11 @@ DragonSol is poised to redefine the meme reflection token landscape on Solana, o
 [Original/Source Press Release](https://blockchainwire.io/press-release/-dragonsol-revolutionizing-meme-reflection-tokens-on-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dragonsol-redefines-decentralized-finance-on-solana-with-innovative-smart-contract/a20afb14f4f75b32e96445e5c89f3faf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/dragonsol-revolutionizing-meme-reflection-tokens-on-solana)
+ 
 
 
 

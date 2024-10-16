@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cepton-inc-se
 [Original/Source Press Release](https://newsdirect.com/news/cepton-inc-secures-engineering-services-agreement-with-automotive-giant-koito-manufacturing-763610122)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cepton-inc-secures-engineering-services-agreement-with-automotive-giant-koito-manufacturing/6755570380ada3cf678690cf1b8ac63d) 
+
+ 
 
 
 

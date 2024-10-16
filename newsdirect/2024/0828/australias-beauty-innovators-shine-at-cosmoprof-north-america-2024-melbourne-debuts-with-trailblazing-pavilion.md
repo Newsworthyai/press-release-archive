@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/australias-be
 [Original/Source Press Release](https://newsdirect.com/news/australias-beauty-innovators-shine-at-cosmoprof-north-america-2024-melbourne-debuts-with-trailblazing-pavilion-513844921)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/melbourne-australia-beauty-pavilion-shines-at-cosmoprof-north-america-2024/cb54a8b23f9d517d566e27a5869a0787) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/australian-beauty-brands-make-waves-at-cosmoprof-north-america-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/australia-s-beauty-innovators-spotlighted-at-cosmoprof-north-america-2024/20246351)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/australian-beauty-brands-make-waves-at-cosmoprof-north-america-2024/20246351)
+
+Pickup - [advos.io](https://advos.io/en/australian-beauty-brands-make-impact-at-cosmoprof-north-america-2024/20246351)
+ 
 
 
 

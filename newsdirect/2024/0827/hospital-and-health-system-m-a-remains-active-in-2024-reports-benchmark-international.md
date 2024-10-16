@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/hospital-and-
 [Original/Source Press Release](https://newsdirect.com/news/hospital-and-health-system-manda-remains-active-in-2024-reports-benchmark-international-683333958)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-releases-insights-on-2024-hospital-and-health-system-m-a-landscape/d33f048f8f56822959e723e24c65f21c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/healthcare-m-a-activity-remains-strong-in-2024-benchmark-international-reports)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hospital-and-health-system-m-a-activity-remains-robust-in-2024/20246200)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/healthcare-sector-sees-continued-m-a-activity-in-2024-benchmark-international-reports/20246200)
+
+Pickup - [advos.io](https://advos.io/en/hospital-and-health-system-m-a-activity-remains-robust-in-2024-reports-benchmark-international/20246200)
+ 
 
 
 

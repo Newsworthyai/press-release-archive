@@ -7,7 +7,15 @@ SMITHFIELD, VA, July 03, 2024 /24-7PressRelease/ -- Renowned composer Stephen Me
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512226/stephen-melillo-celebrates-outstanding-achievements-in-2024-with-two-new-awards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/composer-stephen-melillo-receives-multiple-accolades-in-2024/96e6191664949a414cb1ca0dfd602825) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/stephen-melillo-s-2024-a-year-marked-by-prestigious-awards-and-musical-milestones/20244678)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/composer-stephen-melillo-wins-multiple-awards-in-2024-including-global-music-awards-recognition)
+
+Pickup - [advos.io](https://advos.io/en/stephen-melillo-celebrates-outstanding-achievements-in-2024-with-two-new-awards/20244678)
+ 
 
 
 

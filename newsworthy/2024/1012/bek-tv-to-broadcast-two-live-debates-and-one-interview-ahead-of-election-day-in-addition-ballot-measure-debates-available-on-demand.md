@@ -35,7 +35,9 @@ BEK TV is one of the only locally-owned, non-corporate television broadcasting n
 [Original/Source Press Release](https://newsworthy.ai/news/202410121314/bek-tv-to-broadcast-two-live-debates-and-one-interview-ahead-of-election-day-in-addition-ballot-measure-debates-available-on-demand)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bek-tv-to-air-live-coverage-of-key-north-dakota-debates/a0122f0cc915e5fcc9f97d0f3b89bedd) 
+
+ 
 
 
 

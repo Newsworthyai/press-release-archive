@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/technology-is
 [Original/Source Press Release](https://newsdirect.com/news/technology-is-enabling-remote-work-in-more-and-more-fields-could-surgery-be-next-surgical-robot-maker-monogram-orthopedics-nasdaq-mgrm-believes-so-919627506)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/monogram-orthopedics-demonstrates-prowess-in-remote-robotic-surgery/c0c5db19efcfa8803eed3c6d861228d0) 
+
+ 
 
 
 

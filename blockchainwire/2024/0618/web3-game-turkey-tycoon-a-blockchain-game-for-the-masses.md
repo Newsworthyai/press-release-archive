@@ -49,7 +49,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/web3-game-turkey-tycoon-a-blockchain-game-for-the-masses)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elon-musk-and-turkey-tycoon-team-up-to-build-martian-home/e1b43987cedc4cf0321249a3bf8e3d00) 
+
+
+Pickup - [advos.io](https://advos.io/en/turkey-tycoon-revolutionizing-web3-gaming-with-a-martian-metaverse/20244246)
+
+Pickup - [fishervista.com](https://fishervista.com/en/turkey-tycoon-a-revolutionary-web3-game-combining-blockchain-and-traditional-gaming/20244246)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/elon-musk-and-turkey-tycoon-team-up-to-build-martian-home)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/elon-musk-and-turkey-tycoon-team-up-to-build-martian-home)
+ 
 
 
 

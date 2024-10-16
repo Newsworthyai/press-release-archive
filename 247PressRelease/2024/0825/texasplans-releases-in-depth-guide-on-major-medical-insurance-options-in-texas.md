@@ -7,7 +7,17 @@ AUSTIN, TX, August 25, 2024 /24-7PressRelease/ -- TexasPlans.com Releases In-Dep
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513751/texasplans-releases-in-depth-guide-on-major-medical-insurance-options-in-texas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/texasplans-com-releases-in-depth-guide-on-major-medical-insurance-options-in-texas/b5c4e698e0e28895548b9d54c36c78ce) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/25/texasplans-unveils-comprehensive-guide-to-major-medical-insurance-options-in-texas)
+
+Pickup - [fishervista.com](https://fishervista.com/en/texasplans-unveils-comprehensive-guide-on-major-medical-insurance-options-in-texas/20245952)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/texasplans-unveils-comprehensive-guide-to-major-medical-insurance-options-in-texas/20245952)
+
+Pickup - [advos.io](https://advos.io/en/texasplans-releases-comprehensive-guide-on-major-medical-insurance-options-in-texas/20245952)
+ 
 
 
 

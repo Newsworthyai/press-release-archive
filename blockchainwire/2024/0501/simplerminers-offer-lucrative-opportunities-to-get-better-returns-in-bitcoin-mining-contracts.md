@@ -41,7 +41,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/simplerminers-offer-lucrative-opportunities-to-get-better-returns-in-bitcoin-mining-contracts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/simpleminers-empowering-users-to-profit-from-bitcoin-mining-contracts/bf637b4ee47989eab8c27359419f2708) 
+
+ 
 
 
 

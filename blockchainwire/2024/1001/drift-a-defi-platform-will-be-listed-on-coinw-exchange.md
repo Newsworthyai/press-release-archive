@@ -35,7 +35,9 @@ Drift is the #1 open-sourced perpetual futures platform built on Solana. Drift 
 [Original/Source Press Release](https://blockchainwire.io/press-release/drift-a-defi-platform-will-be-listed-on-coinw-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-list-drift-on-decentralized-derivatives-trading-platform/dffc94e6a28fc2efb0ba542628049c92) 
+
+ 
 
 
 

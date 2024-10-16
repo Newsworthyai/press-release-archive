@@ -37,7 +37,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/leading-the-future-of-finance-cryptoheaps-breakthrough-in-advanced-staking-and-farming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptoheap-redefines-finance-with-advanced-staking-and-farming-techniques/020ddff221a9b7fa18d36203e32fb96b) 
+
+
+Pickup - [advos.io](https://advos.io/en/cryptoheap-redefines-finance-with-advanced-staking-and-farming-techniques/20243956)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cryptoheap-redefines-finance-with-advanced-staking-and-farming-techniques)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cryptoheap-redefines-finance-with-advanced-staking-and-farming-techniques)
+ 
 
 
 

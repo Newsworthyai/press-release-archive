@@ -57,7 +57,13 @@ Sales: hello@diamondstandard.co
 [Original/Source Press Release](https://blockchainwire.io/press-release/diamond-standard-partners-with-simplex-to-provide-global-access-to-carats-its-groundbreaking-payment-solution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/diamond-standard-co-partners-with-simplex-by-nuvei-to-offer-seamless-payment-solutions-for-carats-holders/35f2a9fa2510bae570aa7795ebee7d2a) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/diamond-standard-co-partners-with-simplex-by-nuvei-to-offer-seamless-payment-solutions-for-carats-holders)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/diamond-standard-co-partners-with-simplex-by-nuvei-to-offer-seamless-payment-solutions-for-carats-holders)
+ 
 
 
 

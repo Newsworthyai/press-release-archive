@@ -29,7 +29,11 @@ Connecting the world of individuals and businesses in a fully decentralized and 
 [Original/Source Press Release](https://blockchainwire.io/press-release/bytetrade-lab-and-uc-berkeley-partner-to-explore-the-next-generation-of-decentralized-ai)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bytetrade-lab-and-uc-berkeley-launch-decentralized-ai-project-gaianet/14814afd4ebcd5f9d444251e7dacb2db) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/uc-berkeley-and-bytetrade-lab-partner-to-revolutionize-decentralized-ai)
+ 
 
 
 

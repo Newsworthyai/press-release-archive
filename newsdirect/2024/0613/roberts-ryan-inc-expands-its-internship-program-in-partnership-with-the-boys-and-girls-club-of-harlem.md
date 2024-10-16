@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/roberts-and-r
 [Original/Source Press Release](https://newsdirect.com/news/roberts-and-ryan-inc-expands-its-internship-program-in-partnership-with-the-boys-and-girls-club-of-harlem-939875632)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/roberts-ryan-inc-expands-summer-internship-program/21aa5281eee3ace91e92c46ea9bf9c4c) 
+
+
+Pickup - [advos.io](https://advos.io/en/roberts-ryan-expands-internship-program-with-boys-and-girls-club-of-harlem-collaboration/20244122)
+ 
 
 
 

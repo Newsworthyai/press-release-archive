@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/gold-terra-re
 [Original/Source Press Release](https://newsdirect.com/news/gold-terra-resources-drilling-intersects-con-shear-and-gold-in-hanging-wall-at-con-mine-property-468355554)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-terra-resources-unveils-significant-gold-discoveries-in-deep-drill-hole-targeting-campbell-shear-at-con-mine-property/d8303d0fece7ecf53dabf1005bab610a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/gold-terra-resources-drilling-intersects-con-shear-and-gold-in-hanging-wall-at-con-mine-property)
+ 
 
 
 

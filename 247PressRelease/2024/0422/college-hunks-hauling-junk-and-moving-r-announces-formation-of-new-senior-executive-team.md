@@ -7,7 +7,11 @@ TAMPA, FL, April 22, 2024 /24-7PressRelease/ -- College HUNKS Hauling Junk and M
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510222/college-hunks-hauling-junk-and-moving-announces-formation-of-new-senior-executive-team)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/college-hunks-hauling-junk-and-moving-announces-formation-of-new-senior-executive-team/c345cc2f19790b0c33e5729f673d1000) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/college-hunks-hauling-junk-and-moving-r-announces-formation-of-new-senior-executive-team)
+ 
 
 
 

@@ -7,7 +7,11 @@ DETROIT, MI, June 05, 2024 /24-7PressRelease/ -- For over 25 years, the Multiple
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511421/become-part-of-a-movement-to-accelerate-a-cure-for-multiple-myeloma)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/join-the-mmrf-walk-run-to-accelerate-a-cure-for-multiple-myeloma/7ecc8e8c70ad3b7d40d1ac40cf57e8a9) 
+
+
+Pickup - [advos.io](https://advos.io/en/join-the-fight-against-multiple-myeloma-sign-up-for-mmrf-walk-run-events/20243824)
+ 
 
 
 

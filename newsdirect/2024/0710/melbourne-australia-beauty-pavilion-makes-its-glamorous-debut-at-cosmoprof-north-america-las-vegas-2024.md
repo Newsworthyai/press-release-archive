@@ -61,7 +61,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/melbourne-aus
 [Original/Source Press Release](https://newsdirect.com/news/melbourne-australia-beauty-pavilion-makes-its-glamorous-debut-at-cosmoprof-north-america-las-vegas-2024-886532792)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/melbourne-australia-beauty-pavilion-shines-at-cosmoprof-north-america-las-vegas-2024/4fcc215b86c386c0dc01759ff5298334) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/melbourne-australia-beauty-pavilion-debuts-at-cosmoprof-north-america-2024/20244822)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/melbourne-australia-beauty-pavilion-set-to-dazzle-at-cosmoprof-north-america-2024)
+
+Pickup - [advos.io](https://advos.io/en/melbourne-australia-beauty-pavilion-to-debut-at-cosmoprof-north-america-las-vegas-2024/20244822)
+ 
 
 
 

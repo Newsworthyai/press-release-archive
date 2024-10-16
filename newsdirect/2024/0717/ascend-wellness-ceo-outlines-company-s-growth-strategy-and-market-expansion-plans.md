@@ -15,7 +15,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ascend-wellne
 [Original/Source Press Release](https://newsdirect.com/news/ascend-wellness-ceo-outlines-companys-growth-strategy-and-market-expansion-plans-182332556)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ascend-wellness-ceo-outlines-growth-strategy-and-market-expansion-plans/d0a1f8d531ba6d0e2a39efc1c3d31552) 
+
+
+Pickup - [advos.io](https://advos.io/en/ascend-wellness-ceo-discusses-strategic-growth-and-market-expansion/20245029)
+ 
 
 
 

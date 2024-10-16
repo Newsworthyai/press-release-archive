@@ -27,7 +27,11 @@ Source: Sealwifhat TeamFor more information, visit $SI Project Social Links: htt
 [Original/Source Press Release](https://blockchainwire.io/press-release/si-the-sealwifhat-token-breaks-all-time-high-a-testament-to-the-seal-lover-phenomenon-and-the-first-viral-marine-animal-token)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sealwifhat-token-si-surges-to-900k-usd-market-cap-gains-viral-status/c47533ee093dccc3da5009ee82d961ba) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/22/the-rise-of-sealwifhat-crypto-s-adorable-aquatic-sensation)
+ 
 
 
 

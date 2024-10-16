@@ -25,7 +25,21 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/kroma-secures-series-a-funding-from-prominent-investors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kroma-successfully-completes-series-a-funding-round/e712b9099f2f525f12e25ecab66fd8c2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/02/kroma-secures-series-a-funding-to-advance-layer-2-blockchain-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kroma-secures-series-a-funding-to-propel-blockchain-innovations/20246437)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/kroma-secures-series-a-funding-to-advance-layer-2-blockchain-solutions/20246437)
+
+Pickup - [advos.io](https://advos.io/en/kroma-secures-series-a-funding-to-enhance-blockchain-technology/20246437)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/kroma-successfully-completes-series-a-funding-round)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/kroma-successfully-completes-series-a-funding-round)
+ 
 
 
 

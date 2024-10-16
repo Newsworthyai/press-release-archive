@@ -7,7 +7,9 @@ SAN DIEGO, CA, May 08, 2024 /24-7PressRelease/ -- C. Blackburn Jewelers (La Joll
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510701/vintage-rolex-watches-are-in-demand-in-san-diego)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vintage-rolex-watches-in-high-demand-in-san-diego/26e16e431c2f5c65463cbefca0a70cc1) 
+
+ 
 
 
 

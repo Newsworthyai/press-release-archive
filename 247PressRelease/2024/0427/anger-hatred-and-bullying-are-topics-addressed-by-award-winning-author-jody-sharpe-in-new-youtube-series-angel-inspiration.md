@@ -7,7 +7,9 @@ WILMINGTON, NC, April 27, 2024 /24-7PressRelease/ -- Anger, hatred and bullying 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510401/anger-hatred-and-bullying-are-topics-addressed-by-award-winning-author-jody-sharpe-in-new-youtube-series-angel-inspiration)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-jody-sharpe-champions-anti-bullying-message-in-new-video-series/a4089d814e4ea1f0d1f4972cc64e0740) 
+
+ 
 
 
 

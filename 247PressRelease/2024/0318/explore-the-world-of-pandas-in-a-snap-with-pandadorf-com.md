@@ -7,7 +7,11 @@ SAN FRANCISCO, CA, March 18, 2024 /24-7PressRelease/ -- Pandadorf.com is here fo
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509331/explore-the-world-of-pandas-in-a-snap-with-pandadorfcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pandadorf-com-your-ultimate-destination-for-panda-themed-products/63bc28d2219adb869464940bf0a673a3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/pandadorf-com-embracing-the-charm-of-pandas-one-product-at-a-time)
+ 
 
 
 

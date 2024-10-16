@@ -7,7 +7,17 @@ NASHVILLE, TN, September 04, 2024 /24-7PressRelease/ -- Labor Day for most Ameri
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513965/branch-deans-viral-song-puts-us-back-in-usa)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/country-duo-branch-dean-s-new-song-us-back-in-usa-strikes-a-chord-with-americans/c9f736b07ecfd7851ca38cdf35db326f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/country-duo-branch-dean-s-us-back-in-usa-resonates-with-americans-seeking-unity)
+
+Pickup - [fishervista.com](https://fishervista.com/en/branch-dean-s-us-back-in-usa-resonates-as-new-american-anthem/20246499)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/country-duo-branch-dean-s-new-song-us-back-in-usa-resonates-with-americans-across-political-divide/20246499)
+
+Pickup - [advos.io](https://advos.io/en/branch-dean-s-us-back-in-usa-becomes-new-american-anthem/20246499)
+ 
 
 
 

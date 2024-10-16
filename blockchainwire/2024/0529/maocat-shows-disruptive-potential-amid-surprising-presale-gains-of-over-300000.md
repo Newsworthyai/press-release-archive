@@ -33,7 +33,13 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/maocat-shows-disruptive-potential-amid-surprising-presale-gains-of-over-300000)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/maocat-memecoin-project-raises-over-300000-in-token-presale/a360b7267eaef351357f6af5222a7cd8) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/maocat-memecoin-project-raises-over-300000-in-token-presale)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/maocat-memecoin-project-raises-over-300000-in-token-presale)
+ 
 
 
 

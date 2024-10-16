@@ -57,7 +57,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-discover-the-wusd-worldwide-usd-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-announces-listing-of-wusd-and-ceo-expresses-excitement/f750ad22cbc40443a0062994bbc04c04) 
+
+ 
 
 
 

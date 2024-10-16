@@ -51,7 +51,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-source-source-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-exchange-lists-source-token-in-innovation-zone-web3-0/4ac5a586cd6a18b74f875dc7bcef4259) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/xt-exchange-lists-source-token-in-innovation-zone-web3-0)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/xt-exchange-lists-source-token-in-innovation-zone-web3-0)
+ 
 
 
 

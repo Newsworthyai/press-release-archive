@@ -7,7 +7,11 @@ SEATTLE, WA, March 18, 2024 /24-7PressRelease/ -- The Global Beauty Awards™ (T
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509336/the-global-beauty-awards-to-spotlight-excellence-in-pageantry-in-april)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/7th-annual-global-beauty-awardstm-to-celebrate-excellence-in-pageantry/029f733feb6d1811289ecb98290e5968) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/pageant-excellence-takes-center-stage-at-the-global-beauty-awards)
+ 
 
 
 

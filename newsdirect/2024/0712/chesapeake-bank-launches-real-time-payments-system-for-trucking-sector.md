@@ -23,7 +23,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/chesapeake-ba
 [Original/Source Press Release](https://newsdirect.com/news/chesapeake-bank-launches-real-time-payments-system-for-trucking-sector-953915273)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chesapeake-bank-revolutionizes-trucking-sector-with-real-time-payments-system/56aceae33a21392b9fbb6ea0605e7226) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/chesapeake-bank-introduces-instant-payment-solution-for-trucking-industry)
+
+Pickup - [fishervista.com](https://fishervista.com/en/chesapeake-bank-introduces-real-time-payments-for-trucking-industry/20244926)
+
+Pickup - [advos.io](https://advos.io/en/chesapeake-bank-unveils-real-time-payments-system-for-trucking-industry/20244926)
+ 
 
 
 

@@ -48,7 +48,9 @@ Join us in shaping the future of DeFi!
 [Original/Source Press Release](https://blockchainwire.io/press-release/how-cryptocom-is-revolutionizing-defi-wallet-evolution-powered-by-zettablock)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-com-introduces-degen-arcade-to-simplify-memecoin-trading/f5c525005f7548f4c87f2eea05cc062d) 
+
+ 
 
 
 

@@ -33,7 +33,15 @@ Please visit https://connects360.net/political or contact 240-447-5261.
 [Original/Source Press Release](https://newsworthy.ai/news/202407101208/connects-360-unveils-revolutionary-political-power-up-solution-to-transform-campaigning)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/connects-360-unveils-political-power-up-to-empower-political-candidates/cb417bd2ff0c3e8b8ced418167c4ccad) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/connects-360-launches-political-power-up-to-revolutionize-campaign-strategies/20244821)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/connects-360-launches-political-power-up-to-transform-campaign-strategies)
+
+Pickup - [advos.io](https://advos.io/en/connects-360-unveils-political-power-up-to-revolutionize-campaign-strategy/20244821)
+ 
 
 
 

@@ -49,7 +49,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/apis-cors-rev
 [Original/Source Press Release](https://newsdirect.com/news/apis-cors-revolutionary-3d-printed-houses-could-help-revolutionize-construction-solving-key-social-issues-like-a-labor-and-housing-shortage-804641321)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/apis-cor-s-revolutionary-3d-printed-houses-could-help-revolutionize-construction/484cc85280d075db56b9bd3c2fdee5e1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/apis-cor-s-3d-printed-houses-a-potential-solution-to-the-u-s-housing-crisis)
+
+Pickup - [fishervista.com](https://fishervista.com/en/apis-cor-s-3d-printed-houses-aim-to-address-housing-and-labor-shortages/20245611)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/3d-printed-houses-a-potential-solution-to-america-s-housing-and-labor-shortages/20245611)
+
+Pickup - [advos.io](https://advos.io/en/apis-cor-s-3d-printed-homes-a-potential-solution-to-the-housing-and-labor-crisis/20245611)
+ 
 
 
 

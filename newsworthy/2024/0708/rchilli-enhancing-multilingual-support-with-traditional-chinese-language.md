@@ -29,7 +29,17 @@ RChilli also has its multilingual resume parsing app available on Oracle Cloud M
 [Original/Source Press Release](https://newsworthy.ai/news/202407081207/rchilli-enhancing-multilingual-support-with-traditional-chinese-language)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-enhances-recruitment-solution-with-traditional-chinese-parser-capabilities/59d30d4aa218c74473ad3ef945ffc4c0) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/rchilli-expands-multilingual-capabilities-with-traditional-chinese-language-support/20244770)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-expands-resume-parsing-capabilities-with-traditional-chinese-support/20244770)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/rchilli-expands-global-reach-with-traditional-chinese-language-support)
+
+Pickup - [advos.io](https://advos.io/en/rchilli-enhances-recruitment-solutions-with-traditional-chinese-language-support/20244770)
+ 
 
 
 

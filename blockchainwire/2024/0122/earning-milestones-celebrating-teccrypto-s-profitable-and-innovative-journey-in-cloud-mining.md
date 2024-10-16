@@ -53,7 +53,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/earning-milestones-celebrating-teccryptos-profitable-and-innovative-journey-in-cloud-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teccrypto-revolutionizes-cloud-mining-with-profitable-and-innovative-solutions/0787623088693aa3363fdd69b7fbbc91) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/22/teccrypto-celebrates-milestones-in-profitable-cloud-mining)
+ 
 
 
 

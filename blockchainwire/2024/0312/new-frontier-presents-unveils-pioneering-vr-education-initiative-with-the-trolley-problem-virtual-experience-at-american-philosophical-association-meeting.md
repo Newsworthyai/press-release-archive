@@ -23,7 +23,11 @@ To visit the "Trolley Problem" virtual experience go to: [https://nfp.land/apa/]
 [Original/Source Press Release](https://blockchainwire.io/press-release/new-frontier-presents-unveils-pioneering-vr-education-initiative-with-the-trolley-problem-virtual-experience-at-american-philosophical-association-meeting-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-frontier-presents-introduces-vr-experience-for-academic-innovation/804ce8c38d2201820b9f155dbff269fb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/new-frontier-presents-pioneers-vr-education-with-trolley-problem-experience)
+ 
 
 
 

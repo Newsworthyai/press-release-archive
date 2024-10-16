@@ -33,7 +33,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/casinu-inu-vitalik-buterins-groundbreaking-venture-into-meme-coin-creation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-co-founder-vitalik-buterin-launches-casinu-inu-meme-coin/456449998c3c1cc9bee70aaa6288500c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/10/vitalik-buterin-shakes-up-crypto-world-with-casinu-inu-meme-coin)
+ 
 
 
 

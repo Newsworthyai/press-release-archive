@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/steppe-gold-a
 [Original/Source Press Release](https://newsdirect.com/news/steppe-gold-announces-40-million-dollars-drawdown-for-phase-2-expansion-at-ato-gold-mine-186457950)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/steppe-gold-achieves-financing-milestone-for-phase-2-expansion-at-ato-gold-mine/ba26ce5c7eff8b5ad218720dafa726d1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/steppe-gold-secures-40-million-for-ato-gold-mine-expansion)
+ 
 
 
 

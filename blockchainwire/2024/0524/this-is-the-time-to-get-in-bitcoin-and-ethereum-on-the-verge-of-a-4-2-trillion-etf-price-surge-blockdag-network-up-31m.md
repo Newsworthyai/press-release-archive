@@ -49,7 +49,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/this-is-the-time-to-get-in---bitcoin-and-ethereum-on-the-verge-of-a-42-trillion-etf-price-surge-blockdag-network-up-31m-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-and-ethereum-surge-blockdag-network-revolutionizes-crypto-landscape/26a2ae752f7e69726b9401660b2e582c) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-and-ethereum-surge-blockdag-network-revolutionizes-crypto-landscape)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-and-ethereum-surge-blockdag-network-revolutionizes-crypto-landscape)
+ 
 
 
 

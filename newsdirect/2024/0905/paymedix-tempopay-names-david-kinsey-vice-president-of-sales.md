@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/paymedix-temp
 [Original/Source Press Release](https://newsdirect.com/news/paymedix-tempopay-names-david-kinsey-vice-president-of-sales-757645407)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/paymedix-tempopay-names-david-kinsey-vice-president-of-sales/15b451bc1c08fa49565ddfce30691fb7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/paymedix-tempopay-appoints-david-kinsey-as-vice-president-of-sales-amid-rapid-growth)
+
+Pickup - [fishervista.com](https://fishervista.com/en/david-kinsey-appointed-vice-president-of-sales-at-paymedix-tempopay/20246558)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/paymedix-tempopay-appoints-david-kinsey-as-vice-president-of-sales-to-drive-growth-in-healthcare-payment-solutions/20246558)
+
+Pickup - [advos.io](https://advos.io/en/david-kinsey-appointed-vice-president-of-sales-at-paymedix-tempopay/20246558)
+ 
 
 
 

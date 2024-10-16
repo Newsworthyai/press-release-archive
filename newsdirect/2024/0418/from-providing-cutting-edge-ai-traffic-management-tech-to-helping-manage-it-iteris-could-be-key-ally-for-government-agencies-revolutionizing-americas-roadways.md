@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/from-providin
 [Original/Source Press Release](https://newsdirect.com/news/from-providing-cutting-edge-ai-traffic-management-tech-to-helping-manage-it-iteris-could-be-key-ally-for-government-agencies-revolutionizing-americas-roadways-682706837)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iteris-inc-revolutionizes-urban-mobility-with-cutting-edge-traffic-management-tech/771d7c63f8bbb855ffc1e520c8075ae1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/iteris-revolutionizes-urban-mobility-with-cutting-edge-ai-traffic-management-solutions)
+ 
 
 
 

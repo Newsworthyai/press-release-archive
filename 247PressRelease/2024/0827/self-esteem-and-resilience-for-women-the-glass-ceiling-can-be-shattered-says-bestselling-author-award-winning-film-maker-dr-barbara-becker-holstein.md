@@ -7,7 +7,17 @@ WILMINGTON, NC, August 27, 2024 /24-7PressRelease/ -- The phrase "glass ceiling"
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513772/self-esteem-and-resilience-for-women-the-glass-ceiling-can-be-shattered-says-bestselling-author-award-winning-film-maker-dr-barbara-becker-holstein)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-barbara-becker-holstein-encourages-women-and-girls-to-recognize-their-talents-and-potential/1b8225b1cb8baee385c545c21c144bee) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bestselling-author-and-filmmaker-dr-barbara-becker-holstein-advocates-for-women-s-self-esteem-and-resilience/20245979)
+
+Pickup - [advos.io](https://advos.io/en/dr-barbara-becker-holstein-advocates-for-shattering-the-glass-ceiling/20245979)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/dr-barbara-becker-holstein-empowers-women-to-break-through-glass-ceiling)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dr-barbara-becker-holstein-empowers-women-to-break-glass-ceiling-with-self-esteem-and-resilience/20245979)
+ 
 
 
 

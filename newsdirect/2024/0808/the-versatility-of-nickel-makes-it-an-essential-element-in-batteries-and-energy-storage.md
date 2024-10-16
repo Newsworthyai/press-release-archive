@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-versatili
 [Original/Source Press Release](https://newsdirect.com/news/the-versatility-of-nickel-makes-it-an-essential-element-in-batteries-and-energy-storage-496645591)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-versatility-of-nickel-essential-element-in-batteries-and-energy-storage/5097ec445cca7b237e68b674e9f00d40) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/nickel-the-essential-element-powering-the-future-of-energy-and-technology/20245584)
+
+Pickup - [advos.io](https://advos.io/en/nickel-s-rising-importance-in-energy-storage-and-evs/20245584)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/nickel-s-growing-importance-in-batteries-and-energy-storage-drives-demand/20245584)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/nickel-s-critical-role-in-energy-storage-and-electric-vehicles-drives-growing-demand)
+ 
 
 
 

@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/erdene-resour
 [Original/Source Press Release](https://newsdirect.com/news/erdene-resource-development-corp-makes-big-strides-at-bayan-khundii-project-in-pivotal-year-406582529)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/erdene-resource-development-corp-makes-big-strides-at-bayan-khundii-project/3d92948d78d34134cd9cf1fd49c430fe) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/erdene-resource-development-corp-poised-for-pivotal-year-at-bayan-khundii-gold-project)
+ 
 
 
 

@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/etf-mastery-n
 [Original/Source Press Release](https://newsdirect.com/news/etf-mastery-navigating-the-future-of-finance-225010738)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benzinga-presents-etf-mastery-navigating-the-future-of-finance-webinar/2fd2b542434421cbc9ce69a23702f114) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/etf-mastery-unveiling-the-future-of-finance)
+ 
 
 
 

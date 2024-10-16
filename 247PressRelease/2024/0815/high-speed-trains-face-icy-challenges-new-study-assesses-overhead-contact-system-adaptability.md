@@ -7,7 +7,17 @@ KNOXVILLE, TN, August 15, 2024 /24-7PressRelease/ -- A pivotal study assesses th
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513421/high-speed-trains-face-icy-challenges-new-study-assesses-overhead-contact-system-adaptability)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/groundbreaking-study-reveals-new-approach-to-enhance-high-speed-railway-safety/906de3381787fbccb0542f16df538b6a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/new-study-revolutionizes-high-speed-rail-safety-in-icy-conditions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-study-enhances-reliability-of-overhead-contact-systems-in-high-speed-railways-under-icy-conditions/20245752)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-study-advances-high-speed-rail-safety-in-icy-conditions/20245752)
+
+Pickup - [advos.io](https://advos.io/en/new-study-enhances-high-speed-rail-resilience-in-icy-conditions/20245752)
+ 
 
 
 

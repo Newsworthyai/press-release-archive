@@ -15,7 +15,11 @@ As pioneers in TMS therapy, Optimum TMS is dedicated to advancing the field thro
 [Original/Source Press Release](https://newsworthy.ai/news/202401271039/tms-treatment-for-ocd-offers-effective-relief-for-patients-resistant-to-first-line-treatments)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-ocd-treatment-option-introduced-by-optimum-tms/e313e8f006f87726c82b0637571e26c2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/27/transcranial-magnetic-stimulation-offers-new-hope-for-ocd-patients)
+ 
 
 
 

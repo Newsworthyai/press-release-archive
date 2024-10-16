@@ -72,7 +72,17 @@ Research Highlights:
 [Original/Source Press Release](https://www.newmediawire.com/news/popular-home-blood-pressure-monitoring-cuff-devices-may-not-fit-some-us-adults-7076003)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-research-reveals-at-home-blood-pressure-monitor-cuffs-may-not-fit-millions-of-u-s-adults/2fcccab2f3c61cb0f4f330637861a97e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/popular-home-blood-pressure-monitors-may-not-fit-millions-of-americans)
+
+Pickup - [fishervista.com](https://fishervista.com/en/home-blood-pressure-monitors-may-not-fit-18-million-u-s-adults-study-finds/20246550)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/popular-home-blood-pressure-monitors-may-not-fit-millions-of-americans/20246550)
+
+Pickup - [advos.io](https://advos.io/en/home-blood-pressure-cuffs-may-not-fit-millions-of-u-s-adults-research-finds/20246550)
+ 
 
 
 

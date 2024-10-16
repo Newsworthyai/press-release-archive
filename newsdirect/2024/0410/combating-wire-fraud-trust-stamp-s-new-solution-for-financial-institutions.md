@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/combating-wir
 [Original/Source Press Release](https://newsdirect.com/news/combating-wire-fraud-trust-stamps-new-solution-for-financial-institutions-364424869)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trust-stamp-unveils-fast-tracked-solution-for-financial-institutions/cac7a38443175b72847efffa973fb9cc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/trust-stamp-s-innovative-solution-to-combat-wire-fraud-in-financial-institutions)
+ 
 
 
 

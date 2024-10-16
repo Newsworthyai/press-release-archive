@@ -59,7 +59,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/independent-l
 [Original/Source Press Release](https://newsdirect.com/news/independent-living-and-safety-how-logicmarks-innovations-are-helping-to-address-the-needs-of-an-aging-america-237343720)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/logicmark-s-innovations-address-the-needs-of-an-aging-america/451adb2db03c62ae5aa034bd5aa554dc) 
+
+ 
 
 
 

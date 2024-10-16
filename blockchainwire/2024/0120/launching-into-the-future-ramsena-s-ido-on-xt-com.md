@@ -33,7 +33,11 @@ Instagram: https://www.instagram.com/ramsena.io/
 [Original/Source Press Release](https://blockchainwire.io/press-release/launching-into-the-future-ramsenas-ido-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ramsena-coin-to-launch-on-xt-com-exchange-for-philanthropic-initiatives/887c562d385be9bcc60e83227949de6a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/20/ramsena-coin-launches-ido-on-xt-com-heralding-a-philanthropic-vision)
+ 
 
 
 

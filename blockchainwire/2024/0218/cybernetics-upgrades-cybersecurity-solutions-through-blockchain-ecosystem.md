@@ -29,7 +29,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cybernetics-upgrades-cybersecurity-solutions-through-blockchain-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cybernetics-expands-innovative-cybersecurity-platform-for-blockchain-ecosystem/904cd0e265bde9c6c90af6edd093ac42) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/18/cybernetics-fortifies-blockchain-security-with-innovative-solutions)
+ 
 
 
 

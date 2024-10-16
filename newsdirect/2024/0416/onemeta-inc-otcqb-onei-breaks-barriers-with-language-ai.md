@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/onemeta-inc-o
 [Original/Source Press Release](https://newsdirect.com/news/onemeta-inc-otcqb-onei-breaks-barriers-with-language-ai-302638348)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/onemeta-inc-otcqb-onei-breaks-barriers-with-language-ai/04c720314761292501f70543afde7cd2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/onemeta-inc-otcqb-onei-breaks-barriers-with-language-ai)
+ 
 
 
 

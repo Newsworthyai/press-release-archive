@@ -7,7 +7,9 @@ OKLAHOMA CITY, OK, May 22, 2024 /24-7PressRelease/ -- Ben Franklin Plumbing OKC,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511067/ben-franklin-plumbing-okc-launches-new-website-to-serve-oklahoma-city-residents-with-professional-plumbing-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ben-franklin-plumbing-okc-launches-new-website-for-oklahoma-city-residents/8f798ed539f12d66f20d891b1d6d4ca3) 
+
+ 
 
 
 

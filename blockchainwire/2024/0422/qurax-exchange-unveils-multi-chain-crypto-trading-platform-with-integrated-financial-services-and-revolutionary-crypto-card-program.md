@@ -37,7 +37,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/qurax-exchange-unveils-multi-chain-crypto-trading-platform-with-integrated-financial-services-and-revolutionary-crypto-card-program)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/qurax-exchange-launches-comprehensive-cryptocurrency-ecosystem/3e363f88af8d619b2de277a5fc3fc7d0) 
+
+ 
 
 
 

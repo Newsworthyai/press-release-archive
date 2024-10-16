@@ -7,7 +7,17 @@ GREENVILLE, MS, July 28, 2024 /24-7PressRelease/ -- The esteemed Dr. Robert Cork
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512901/dr-robert-corkern-scholarship-for-future-rural-doctors-fostering-innovation-in-rural-healthcare)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-robert-corkern-launches-scholarship-for-future-rural-doctors/fde10f98085c581019c3692dee9f57be) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/28/new-scholarship-aims-to-address-rural-healthcare-shortage)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-robert-corkern-scholarship-for-future-rural-doctors-fostering-innovation-in-rural-healthcare/20245308)
+
+Pickup - [advos.io](https://advos.io/en/dr-robert-corkern-announces-scholarship-to-boost-rural-healthcare/20245308)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dr-robert-corkern-launches-scholarship-to-support-future-rural-doctors)
+ 
 
 
 

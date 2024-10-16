@@ -53,7 +53,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/prenetics-glo
 [Original/Source Press Release](https://newsdirect.com/news/prenetics-global-limited-genomic-innovations-making-waves-in-cancer-care-331342131)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prenetics-global-limited-revolutionizing-cancer-care-with-genomic-innovations/a555033a4054a270a1d139191fd04851) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/prenetics-global-limited-advances-genomic-innovations-in-cancer-care/20244305)
+
+Pickup - [advos.io](https://advos.io/en/prenetics-global-limited-genomic-innovations-making-waves-in-cancer-care/20244305)
+ 
 
 
 

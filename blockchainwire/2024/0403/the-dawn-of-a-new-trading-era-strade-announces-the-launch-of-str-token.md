@@ -39,7 +39,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-dawn-of-a-new-trading-era-strade-announces-the-launch-of-str-token)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/strade-launches-str-token-a-new-era-in-ai-trading/7a52e473426e4db1b712ef7432f89af8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/strade-ushers-in-a-new-era-with-the-launch-of-str-token-and-crypto-debit-card)
+ 
 
 
 

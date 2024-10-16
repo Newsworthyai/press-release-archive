@@ -7,7 +7,11 @@ PHILADELPHIA, PA, April 15, 2024 /24-7PressRelease/ -- NewAge Industries, Inc. (
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510031/newage-industries-inc-announces-release-of-2023-sustainability-report)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newage-industries-releases-2023-sustainability-report/ca3727324eeb611d145460eae6b4208b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/newage-industries-inc-announces-release-of-2023-sustainability-report)
+ 
 
 
 

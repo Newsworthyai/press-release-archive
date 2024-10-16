@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/atlas-lithium
 [Original/Source Press Release](https://newsdirect.com/news/atlas-lithiums-progress-processing-plant-readies-for-shipment-to-site-948821344)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atlas-lithium-prepares-to-ship-sustainable-lithium-processing-plant-to-brazil/0a1beeab3af48f179c10ac5f4ca1fcaf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/atlas-lithium-prepares-to-ship-innovative-modular-processing-plant-to-brazil)
+
+Pickup - [fishervista.com](https://fishervista.com/en/atlas-lithium-advances-sustainable-lithium-production-with-modular-plant-shipment/20246346)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/atlas-lithium-prepares-to-ship-innovative-modular-processing-plant-to-brazil/20246346)
+
+Pickup - [advos.io](https://advos.io/en/atlas-lithium-prepares-to-ship-modular-processing-plant-to-brazil/20246346)
+ 
 
 
 

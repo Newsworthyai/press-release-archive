@@ -34,7 +34,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/boom-defi-ecosystem-secures-500m-in-growth-capital-opens-crypto-friendly-equity-purchase-window)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boom-technologies-secures-500m-growth-capital-offers-crypto-enabled-equity/0cd671a526dc10b58ec9c87a8347db84) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/boom-defi-ecosystem-secures-500m-opens-crypto-friendly-equity-purchase)
+
+Pickup - [fishervista.com](https://fishervista.com/en/boom-technologies-secures-500m-opens-equity-purchase-window-for-crypto-investors/20245741)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/boom-defi-ecosystem-raises-500m-opens-crypto-friendly-equity-investment/20245741)
+
+Pickup - [advos.io](https://advos.io/en/boom-defi-ecosystem-secures-500m-and-opens-crypto-equity-purchase-window/20245741)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/boom-technologies-secures-500m-growth-capital-offers-crypto-enabled-equity)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/boom-technologies-secures-500m-growth-capital-offers-crypto-enabled-equity)
+ 
 
 
 

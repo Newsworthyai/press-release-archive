@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/personalized-
 [Original/Source Press Release](https://newsdirect.com/news/personalized-learning-with-ai-this-company-is-delivering-results-globally-172819557)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/genius-group-ceo-secures-22-million-contract-with-republic-of-kazakhstan/cad674f201551e95bd5a727b61e1bae9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/genius-group-secures-22-million-contract-to-develop-sovereign-ai-in-kazakhstan)
+
+Pickup - [fishervista.com](https://fishervista.com/en/genius-group-secures-22-million-contract-to-develop-sovereign-ai-in-kazakhstan/20245689)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/genius-group-secures-22-million-contract-to-develop-ai-powered-education-in-kazakhstan/20245689)
+
+Pickup - [advos.io](https://advos.io/en/genius-group-secures-22-million-ai-contract-with-kazakhstan-government/20245689)
+ 
 
 
 

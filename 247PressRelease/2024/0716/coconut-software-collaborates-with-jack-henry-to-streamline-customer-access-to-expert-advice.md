@@ -7,7 +7,15 @@ TORONTO, ON, July 16, 2024 /24-7PressRelease/ -- Coconut Software, a leader in e
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512525/coconut-software-collaborates-with-jack-henry-to-streamline-customer-access-to-expert-advice)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coconut-software-integrates-with-jack-henrytm-digital-banking-platform/0d244eb05c46b7bb892855546013944f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/coconut-software-integrates-with-jack-henry-s-digital-banking-platform-to-enhance-customer-service)
+
+Pickup - [fishervista.com](https://fishervista.com/en/coconut-software-teams-up-with-jack-henry-to-enhance-digital-banking-experience/20244973)
+
+Pickup - [advos.io](https://advos.io/en/coconut-software-partners-with-jack-henry-to-enhance-digital-banking-experience/20244973)
+ 
 
 
 

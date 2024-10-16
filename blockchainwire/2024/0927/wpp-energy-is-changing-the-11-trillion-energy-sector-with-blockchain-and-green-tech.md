@@ -37,7 +37,9 @@ About WPP EnergyWPP Energy is changing the energy sector by developing innovati
 [Original/Source Press Release](https://blockchainwire.io/press-release/wpp-energy-is-changing-the-11-trillion-energy-sector-with-blockchain-and-green-tech)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wpp-energy-leading-the-shift-to-clean-energy-with-innovative-technologies/f3221426fd28ffb304f8f4575c87e1b8) 
+
+ 
 
 
 

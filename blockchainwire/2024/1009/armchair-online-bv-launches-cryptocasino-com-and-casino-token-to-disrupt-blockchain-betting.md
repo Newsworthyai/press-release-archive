@@ -69,7 +69,9 @@ Whitepaper: https://whitepaper.cryptocasino.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/armchair-online-bv-launches-cryptocasinocom-and-casino-token-to-disrupt-blockchain-betting)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/armchair-online-bv-set-to-revolutionize-blockchain-gambling-with-cryptocasino-com-and-casino-token/305b4498bc535b98569b20bcd1201be0) 
+
+ 
 
 
 

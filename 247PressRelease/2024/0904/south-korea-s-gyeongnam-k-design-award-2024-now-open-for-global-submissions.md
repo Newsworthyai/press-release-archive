@@ -7,7 +7,17 @@ GYEONGNAM, KOREA, September 04, 2024 /24-7PressRelease/ -- The prestigious Gyeon
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513969/south-koreas-gyeongnam-k-design-award-2024-now-open-for-global-submissions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gyeongnam-k-design-award-2024-now-open-for-global-submissions/67754c583e01bd8c1e8ed215f24aef93) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/south-korea-s-gyeongnam-k-design-award-2024-opens-for-global-submissions-fostering-international-design-innovation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gyeongnam-k-design-award-2024-opens-for-global-submissions/20246504)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/gyeongnam-k-design-award-2024-opens-global-call-for-innovative-design-submissions/20246504)
+
+Pickup - [advos.io](https://advos.io/en/gyeongnam-k-design-award-2024-opens-for-global-submissions/20246504)
+ 
 
 
 

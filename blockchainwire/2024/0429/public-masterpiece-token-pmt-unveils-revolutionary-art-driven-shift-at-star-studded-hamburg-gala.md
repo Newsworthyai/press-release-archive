@@ -39,7 +39,9 @@ X: https://x.com/publicmemetoken
 [Original/Source Press Release](https://blockchainwire.io/press-release/public-masterpiece-token-pmt-unveils-revolutionary-art-driven-shift-at-star-studded-hamburg-gala-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/public-meme-token-transforms-into-public-masterpiece-token-unveiling-real-world-asset-ambitions/63eda9483de639536246395a48194806) 
+
+ 
 
 
 

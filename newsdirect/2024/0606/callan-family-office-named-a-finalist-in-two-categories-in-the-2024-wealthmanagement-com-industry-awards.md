@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/callan-family
 [Original/Source Press Release](https://newsdirect.com/news/callan-family-office-named-a-finalist-in-two-categories-in-the-2024-wealthmanagement-com-industry-awards-298741425)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/callan-family-office-named-finalist-in-wealthmanagement-com-2024-industry-awards/109777784263ca56456df530f70a4366) 
+
+
+Pickup - [advos.io](https://advos.io/en/callan-family-office-earns-double-finalist-honors-in-2024-wealthmanagement-com-industry-awards/20243897)
+ 
 
 
 

@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/wishpond-q1-r
 [Original/Source Press Release](https://newsdirect.com/news/wishpond-q1-results-include-revenue-growth-and-39-increase-in-adjusted-ebitda-537892784)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wishpond-technologies-reports-strong-q1-2024-results-and-launches-ai-powered-sales-platform/401cb6319c67f3f384be8d6ea0f0d587) 
+
+ 
 
 
 

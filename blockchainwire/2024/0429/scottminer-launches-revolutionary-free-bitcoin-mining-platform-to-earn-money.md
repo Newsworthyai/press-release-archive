@@ -41,7 +41,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/scottminer-launches-revolutionary-free-bitcoin-mining-platform-to-earn-money)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionize-cryptocurrency-investment-with-scottminer-s-cloud-mining-platform/e6afec78c685221cbc5b51f2cc853894) 
+
+ 
 
 
 

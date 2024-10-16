@@ -7,7 +7,17 @@ FORT LAUDERDALE, FL, August 06, 2024 /24-7PressRelease/ -- Starting Monday, Augu
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513153/kids-eat-free-mondays-at-anthonys-coal-fired-pizza-wings)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/anthony-s-coal-fired-pizza-wings-offers-kids-eat-free-mondays-special/0bacc9c5874b96358e5419eca2f2af31) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/anthony-s-coal-fired-pizza-wings-launches-kids-eat-free-mondays)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kids-eat-free-mondays-launch-at-anthony-s-coal-fired-pizza-wings/20245506)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/anthony-s-coal-fired-pizza-wings-launches-kids-eat-free-mondays)
+
+Pickup - [advos.io](https://advos.io/en/anthony-s-coal-fired-pizza-wings-introduces-kids-eat-free-mondays/20245506)
+ 
 
  
 

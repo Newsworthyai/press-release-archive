@@ -19,7 +19,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/metalla-royal
 [Original/Source Press Release](https://newsdirect.com/news/metalla-royalty-and-streamings-major-merger-and-production-milestones-377302195)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metalla-royalty-and-streaming-s-major-merger-and-production-milestones/647aa4b073d1ff9837e68c5f4f075637) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/metalla-royalty-streaming-expands-portfolio-with-major-merger-and-new-production-milestones/20244841)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/metalla-royalty-streaming-expands-portfolio-with-nova-merger-and-celebrates-first-gold-pour-at-brazilian-mine)
+
+Pickup - [advos.io](https://advos.io/en/metalla-royalty-streaming-announces-major-merger-and-production-milestones/20244841)
+ 
 
 
 

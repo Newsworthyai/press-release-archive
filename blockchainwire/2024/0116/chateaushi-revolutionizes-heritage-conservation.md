@@ -17,7 +17,11 @@ For more information about the transformative vision of Chateaushi and the oppor
 [Original/Source Press Release](https://blockchainwire.io/press-release/chateaushi-revolutionizes-heritage-conservation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chateaushi-reshaping-historic-preservation-with-tokenization/269e5077fb5ebe23ff7b9dbf472916e9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/16/chateaushi-tokenizing-cultural-heritage-for-sustainable-preservation)
+ 
 
 
 

@@ -89,7 +89,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/select-sector
 [Original/Source Press Release](https://newsdirect.com/news/select-sector-spdr-etfs-a-strategic-approach-to-precision-investing-and-customized-portfolios-716595166)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/select-sector-spdr-etfs-precision-investing-for-customized-portfolios/b9bac231e0fd765c24d4cdb5dd23a7af) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/unlocking-sector-specific-investment-opportunities-with-select-sector-spdr-etfs)
+ 
 
 
 

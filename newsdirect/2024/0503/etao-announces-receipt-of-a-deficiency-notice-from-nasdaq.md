@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/etao-announce
 [Original/Source Press Release](https://newsdirect.com/news/etao-announces-receipt-of-a-deficiency-notice-from-nasdaq-786445621)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/etao-receives-deficiency-notice-from-nasdaq/229929dbee70d2777b8d66183ef8317d) 
+
+ 
 
 
 

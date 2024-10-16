@@ -21,7 +21,11 @@ Everclear is building the first Clearing Layer for Web3. Everclear solves fragme
 [Original/Source Press Release](https://blockchainwire.io/press-release/everclear-announces-token-lock-up-extension-to-align-community-post-rebrand)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/everclear-extends-next-token-unlock-schedule/59c4399952903366b68cd9b12ac6f763) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/everclear-extends-token-lock-up-period-to-strengthen-community-alignment/20246723)
+ 
 
 
 

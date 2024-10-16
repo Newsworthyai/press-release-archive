@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/bluepeak-to-i
 [Original/Source Press Release](https://newsdirect.com/news/bluepeak-to-invest-more-than-19-5-million-to-bring-fiber-optic-internet-to-the-city-of-muskogee-603984693)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bluepeak-to-invest-19-5-million-in-fiber-optic-internet-expansion-to-muskogee-oklahoma/a5baf059d320775deb4bafd574633e93) 
+
+ 
 
 
 

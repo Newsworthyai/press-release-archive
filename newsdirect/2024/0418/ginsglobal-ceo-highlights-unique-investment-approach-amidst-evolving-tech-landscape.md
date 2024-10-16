@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ginsglobal-ce
 [Original/Source Press Release](https://newsdirect.com/news/ginsglobal-ceo-highlights-unique-investment-approach-amidst-evolving-tech-landscape-271738267)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ginsglobal-ceo-highlights-unique-investment-approach-amid-evolving-tech-landscape/a898a9211eb3b9f30b095a3c444cbf88) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/ginsglobal-ceo-highlights-unique-investment-approach-amidst-evolving-tech-landscape)
+ 
 
 
 

@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/modern-day-co
 [Original/Source Press Release](https://newsdirect.com/news/modern-day-content-machines-search-bergs-content-marketing-prowess-raises-the-bar-for-agencies-all-over-756273318)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/search-berg-redefines-content-marketing-with-human-crafted-approach/5a1868012c580f8dda21de5a8842e54c) 
+
+ 
 
 
 

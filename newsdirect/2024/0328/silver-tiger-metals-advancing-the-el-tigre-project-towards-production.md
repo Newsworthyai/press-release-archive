@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/silver-tiger-
 [Original/Source Press Release](https://newsdirect.com/news/silver-tiger-metals-advancing-the-el-tigre-project-towards-production-741924674)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/silver-tiger-metals-advancing-el-tigre-project-in-mexico/54651a9886f19512889094c55d3e1879) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/silver-tiger-metals-poised-for-significant-growth-with-el-tigre-project)
+ 
 
 
 

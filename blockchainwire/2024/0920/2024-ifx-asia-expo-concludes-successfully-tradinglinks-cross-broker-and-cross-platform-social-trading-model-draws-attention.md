@@ -51,7 +51,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/2024-ifx-asia-expo-concludes-successfully-tradinglinks-cross-broker-and-cross-platform-social-trading-model-draws-attention)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tradinglink-showcases-open-source-social-trading-model-at-ifx-asia-expo-2024/5ee636940e0efe3d847d041862c3f07a) 
+
+ 
 
 
 

@@ -35,7 +35,17 @@ The content herein does not constitute investment advice, any offer, solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/gateio-announces-official-sleeve-partnership-with-inter-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gate-io-announces-partnership-with-fc-internazionale-milano/e4c07c7f15a9b2e1d408145c18c1d06e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/24/gate-io-secures-sleeve-partnership-with-inter-milan-for-2024-25-season)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gate-io-partners-with-fc-internazionale-milano-as-official-sleeve-partner/20245928)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gate-io-partners-with-inter-milan-as-official-sleeve-sponsor/20245928)
+
+Pickup - [advos.io](https://advos.io/en/gate-io-announces-sleeve-partnership-with-inter-milan/20245928)
+ 
 
 
 

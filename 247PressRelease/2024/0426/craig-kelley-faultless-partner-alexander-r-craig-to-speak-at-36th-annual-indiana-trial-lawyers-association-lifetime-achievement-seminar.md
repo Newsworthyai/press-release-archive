@@ -7,7 +7,9 @@ INDIANAPOLIS, IN, April 26, 2024 /24-7PressRelease/ -- Craig, Kelley & Faultless
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510406/craig-kelley-faultless-partner-alexander-r-craig-to-speak-at-36th-annual-indiana-trial-lawyers-association-lifetime-achievement-seminar)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/craig-kelley-faultless-partner-invited-to-speak-at-itla-lifetime-achievement-seminar/f75f33c2cc3b5d003fb37e58ba65b77a) 
+
+ 
 
 
 

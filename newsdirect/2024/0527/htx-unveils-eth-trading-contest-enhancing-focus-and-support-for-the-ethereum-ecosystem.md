@@ -27,7 +27,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-unveils-e
 [Original/Source Press Release](https://newsdirect.com/news/htx-unveils-eth-trading-contest-enhancing-focus-and-support-for-the-ethereum-ecosystem-244462449)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-launches-eth-trading-contest-in-celebration-of-sec-approval-for-spot-ether-etfs/51da4d3794884f73050643545ffd786d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-launches-eth-trading-contest-in-celebration-of-sec-approval-for-spot-ether-etfs)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-launches-eth-trading-contest-in-celebration-of-sec-approval-for-spot-ether-etfs)
+ 
 
 
 

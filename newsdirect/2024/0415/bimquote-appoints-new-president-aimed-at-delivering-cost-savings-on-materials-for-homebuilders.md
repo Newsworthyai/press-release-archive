@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bimquote-appo
 [Original/Source Press Release](https://newsdirect.com/news/bimquote-appoints-new-president-aimed-at-delivering-cost-savings-on-materials-for-homebuilders-659039839)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bimquote-appoints-new-president-to-deliver-cost-savings-on-materials-for-homebuilders/a479d560c69d1fc3b4e5054dc5b7c6ea) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/bimquote-appoints-new-president-to-bring-cost-savings-to-homebuilders)
+ 
 
 
 

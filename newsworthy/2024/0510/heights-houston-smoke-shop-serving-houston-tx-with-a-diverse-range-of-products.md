@@ -23,7 +23,9 @@ Heights Houston Smoke Shop invites all to discover the unique and quality-driven
 [Original/Source Press Release](https://newsworthy.ai/news/202405101166/heights-houston-smoke-shop-serving-houston-tx-with-a-diverse-range-of-products)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heights-houston-smoke-shop-navigating-houston-s-cannabis-regulations/50d7a39f432933724cbc01ffac06da67) 
+
+ 
 
 
 

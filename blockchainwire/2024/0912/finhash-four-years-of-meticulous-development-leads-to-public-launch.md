@@ -21,7 +21,21 @@ Contact Information:Website: https://finhash.finance/
 [Original/Source Press Release](https://blockchainwire.io/press-release/finhash-four-years-of-meticulous-development-leads-to-public-launch-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/finhash-finance-launches-innovative-multi-chain-staking-platform/3cf9707d2c048190e517b6af9d1aed2f) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/finhash-finance-launches-innovative-multi-chain-staking-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/finhash-finance-launches-innovative-multi-chain-staking-platform)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/finhash-finance-launches-innovative-multi-chain-defi-platform-after-four-years-of-development)
+
+Pickup - [fishervista.com](https://fishervista.com/en/finhash-finance-launches-innovative-multi-chain-defi-platform-after-four-years-of-development/20246801)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/finhash-finance-launches-innovative-multi-chain-defi-platform-after-four-years-of-development/20246801)
+
+Pickup - [advos.io](https://advos.io/en/finhash-finance-launches-innovative-multi-chain-defi-platform-after-four-years-of-development/20246801)
+ 
 
 
 

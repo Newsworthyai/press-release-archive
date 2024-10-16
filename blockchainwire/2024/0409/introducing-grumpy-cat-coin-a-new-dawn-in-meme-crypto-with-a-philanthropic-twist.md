@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-grumpy-cat-coin-a-new-dawn-in-meme-crypto-with-a-philanthropic-twist)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-grumpy-cat-coin-launches-on-solana-network-with-philanthropic-mission/87e92c1acaa5ffe4e781161c32743fec) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/grumpy-cat-coin-meme-crypto-with-a-philanthropic-twist)
+ 
 
 
 

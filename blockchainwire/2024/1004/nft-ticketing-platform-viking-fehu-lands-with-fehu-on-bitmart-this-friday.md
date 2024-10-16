@@ -27,7 +27,9 @@ You can learn more about Viking Fehu and stay up-to-date with its developments h
 [Original/Source Press Release](https://blockchainwire.io/press-release/nft-ticketing-platform-viking-fehu-lands-with-fehu-on-bitmart-this-friday)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/viking-fehu-to-land-with-fehu-token-on-bitmart-exchange/b7954d34df1b05f684a5f2c088663641) 
+
+ 
 
 
 

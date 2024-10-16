@@ -35,7 +35,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/seraphs-journey-to-token-2049-showcasing-the-future-of-web3-gaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/seraph-engages-with-global-community-at-major-offline-events/ea25248f4cbd9f0bef4cc62ae3aa3015) 
+
+ 
 
 
 

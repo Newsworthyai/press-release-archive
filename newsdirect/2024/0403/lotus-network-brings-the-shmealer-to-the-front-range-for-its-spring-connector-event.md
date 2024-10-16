@@ -50,7 +50,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/lotus-network
 [Original/Source Press Release](https://newsdirect.com/news/lotus-network-brings-the-shmealer-to-the-front-range-for-its-spring-connector-event-811636454)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lotus-network-hosts-2024-spring-connector-event-with-shmealer-sarah-lajeunesse/e0f46e7d97fb44b2614f00ffe529b89a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/lotus-network-hosts-empowering-reigniting-the-women-s-spirit-event)
+ 
 
 
 

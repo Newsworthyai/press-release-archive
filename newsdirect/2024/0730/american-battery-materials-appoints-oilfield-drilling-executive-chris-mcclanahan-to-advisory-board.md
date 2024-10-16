@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/american-batt
 [Original/Source Press Release](https://newsdirect.com/news/american-battery-materials-appoints-oilfield-drilling-executive-chris-mcclanahan-to-advisory-board-498386617)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-battery-materials-appoints-oilfield-drilling-executive-chris-mcclanahan-to-advisory-board/d06fd3c2630b769646fa1620ab2dbe4d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/american-battery-materials-strengthens-advisory-board-with-oilfield-drilling-expert)
+
+Pickup - [fishervista.com](https://fishervista.com/en/american-battery-materials-appoints-chris-mcclanahan-to-advisory-board/20245368)
+
+Pickup - [advos.io](https://advos.io/en/american-battery-materials-appoints-chris-mcclanahan-to-advisory-board/20245368)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/american-battery-materials-strengthens-advisory-board-with-oilfield-drilling-expert)
+ 
 
 
 

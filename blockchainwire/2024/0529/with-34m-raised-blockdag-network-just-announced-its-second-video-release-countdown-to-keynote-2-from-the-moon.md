@@ -49,7 +49,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/with-34m-raised-blockdag-network-just-announced-its-second-video-release-countdown-to-keynote-2-from-the-moon-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-set-to-launch-keynote-video-2-from-the-moon-after-impressive-presale-results/ede950e5cfc2e4c078a331eae378d300) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blockdag-network-set-to-launch-keynote-video-2-from-the-moon-after-impressive-presale-results)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blockdag-network-set-to-launch-keynote-video-2-from-the-moon-after-impressive-presale-results)
+ 
 
 
 

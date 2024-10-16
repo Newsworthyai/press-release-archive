@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/light-science
 [Original/Source Press Release](https://newsdirect.com/news/light-science-technologies-says-government-grant-will-help-advance-key-food-production-research-771529340)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/light-science-technologies-secures-grant-for-food-production-research/4f0e245612fb54a88e36f3d08116e8fb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/light-science-technologies-secures-government-grant-for-innovative-food-production-research)
+ 
 
 
 

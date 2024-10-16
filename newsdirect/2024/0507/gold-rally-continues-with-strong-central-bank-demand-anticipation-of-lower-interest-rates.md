@@ -75,7 +75,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/gold-rally-co
 [Original/Source Press Release](https://newsdirect.com/news/gold-rally-continues-with-strong-central-bank-demand-anticipation-of-lower-interest-rates-803602218)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-rally-continues-with-strong-central-bank-demand-anticipation-of-lower-interest-rates/2446b82b93196dc20f23819bf282b7c7) 
+
+ 
 
 
 

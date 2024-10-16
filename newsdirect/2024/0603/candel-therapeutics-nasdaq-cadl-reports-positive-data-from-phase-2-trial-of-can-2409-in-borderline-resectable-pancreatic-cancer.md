@@ -49,7 +49,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/candel-therap
 [Original/Source Press Release](https://newsdirect.com/news/candel-therapeutics-nasdaq-cadl-reports-positive-data-from-phase-2-trial-of-can-2409-in-borderline-resectable-pancreatic-cancer-425692953)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/candel-therapeutics-reports-positive-phase-2-trial-data-for-can-2409-in-pancreatic-cancer/643d13f09685316e601aeb3d398125e3) 
+
+
+Pickup - [advos.io](https://advos.io/en/candel-therapeutics-reports-positive-data-from-phase-2-trial-of-can-2409-in-borderline-resectable-pancreatic-cancer/20243629)
+ 
 
 
 

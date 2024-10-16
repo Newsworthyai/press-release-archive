@@ -7,7 +7,11 @@ NAIROBI, KENYA, March 29, 2024 /24-7PressRelease/ -- Burhani Engineers, one of t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509644/electrifying-kenyas-future-burhani-engineers-role-in-the-last-mile-project)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/burhani-engineers-leading-the-way-in-kenya-s-last-mile-project/7bace21dda09904e618e680971ed89a3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/electrifying-kenya-s-future-burhani-engineers-powers-last-mile-project)
+ 
 
 
 

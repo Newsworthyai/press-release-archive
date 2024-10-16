@@ -46,7 +46,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/mashash-launches-innovative-cloud-based-mining-platform-to-transform-crypto-mining-profitability-in-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mashash-launches-enhanced-mining-platform-for-optimal-crypto-mining-profits-in-2024/d95405a1202e1a6e08574a49402014e3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/mashash-unveils-advanced-cloud-based-mining-platform-for-enhanced-crypto-profitability)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mashash-unveils-groundbreaking-cloud-based-crypto-mining-platform-for-2024/20245961)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mashash-unveils-advanced-cloud-based-mining-platform-for-enhanced-crypto-profitability/20245961)
+
+Pickup - [advos.io](https://advos.io/en/mashash-unveils-new-cloud-based-mining-platform-to-boost-crypto-profitability-in-2024/20245961)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/mashash-launches-enhanced-mining-platform-for-optimal-crypto-mining-profits-in-2024)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/mashash-launches-enhanced-mining-platform-for-optimal-crypto-mining-profits-in-2024)
+ 
 
 
 

@@ -7,7 +7,17 @@ ATLANTA, GA, September 12, 2024 /24-7PressRelease/ -- Marking its 11th anniversa
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514248/georgia-society-of-cpas-and-feeding-georgias-accounting-food-fight-raises-nearly-14-million-meals-for-georgias-food-banks)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/2024-georgia-accounting-food-fight-raises-347591-16-to-combat-hunger/d976001cb0a67f42dbfcf509493cb43f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/georgia-accounting-food-fight-raises-nearly-1-4-million-meals-for-state-food-banks)
+
+Pickup - [fishervista.com](https://fishervista.com/en/georgia-accounting-food-fight-raises-over-347000-for-state-food-banks/20246764)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/georgia-accounting-food-fight-raises-1-4-million-meals-highlighting-profession-s-commitment-to-fighting-hunger/20246764)
+
+Pickup - [advos.io](https://advos.io/en/georgia-accounting-food-fight-raises-nearly-1-4-million-meals-for-state-food-banks/20246764)
+ 
 
 
 

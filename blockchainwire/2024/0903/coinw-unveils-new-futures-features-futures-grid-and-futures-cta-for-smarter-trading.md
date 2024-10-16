@@ -31,7 +31,11 @@ CoinW’s new Futures Grid and Futures CTA tools are designed to democratize acc
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-unveils-new-futures-features-futures-grid-and-futures-cta-for-smarter-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-launches-innovative-futures-trading-tools/f99fb41f8ee334db50d9058e0d963eb3) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/coinw-launches-advanced-futures-trading-tools-to-enhance-user-experience/20246726)
+ 
 
 
 

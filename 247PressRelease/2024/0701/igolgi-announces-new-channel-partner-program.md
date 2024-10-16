@@ -7,7 +7,15 @@ PRINCETON, NJ, July 01, 2024 /24-7PressRelease/ -- igolgi, inc., a leading innov
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512153/igolgi-announces-new-channel-partner-program)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/igolgi-unveils-new-channel-partner-program-with-ilux-transport-as-first-offering/30e117d1fddfac9f9c3af514a4786c98) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/igolgi-launches-comprehensive-channel-partner-program/20244661)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/01/igolgi-launches-channel-partner-program-for-audio-video-processing-solutions)
+
+Pickup - [advos.io](https://advos.io/en/igolgi-launches-new-channel-partner-program-for-advanced-audio-video-solutions/20244661)
+ 
 
 
 

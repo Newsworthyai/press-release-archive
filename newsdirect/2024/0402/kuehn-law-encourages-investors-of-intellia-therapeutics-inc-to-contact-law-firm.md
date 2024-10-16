@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kuehn-law-enc
 [Original/Source Press Release](https://newsdirect.com/news/kuehn-law-encourages-investors-of-intellia-therapeutics-inc-to-contact-law-firm-739759807)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kuehn-law-investigates-potential-breach-of-fiduciary-duties-at-intellia-therapeutics-inc/680781fd101bcd213fe2993289c4f54b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/kuehn-law-firm-investigates-potential-breach-of-fiduciary-duties-at-intellia-therapeutics)
+ 
 
 
 

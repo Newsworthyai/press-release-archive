@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/angle-announc
 [Original/Source Press Release](https://newsdirect.com/news/angle-announces-second-assay-with-astrazeneca-as-it-deepens-relationship-with-pharma-giant-484401574)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/angle-plc-announces-supplier-agreement-with-astrazeneca-for-prostate-cancer-assay/a2c6d9ce4975beb9d97d15fe818a9eca) 
+
+ 
 
 
 

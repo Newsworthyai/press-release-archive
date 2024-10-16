@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ilika-announc
 [Original/Source Press Release](https://newsdirect.com/news/ilika-announces-collaboration-with-tatas-agratas-on-goliath-industrialisation-programme-745640935)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ilika-announces-collaboration-with-tata-s-agratas-on-battery-industrialisation-program/15d49f89e1073a38429061ae532b0283) 
+
+ 
 
 
 

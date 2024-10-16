@@ -37,7 +37,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/valuezone-ceo-highlights-xrps-strong-profitability-amid-price-challenges)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xrp-s-resilience-and-profitability-amid-market-challenges/a6197cc051b9aa87f22f29ef6082d1d0) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/xrp-s-resilience-and-profitability-amid-market-challenges)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/xrp-s-resilience-and-profitability-amid-market-challenges)
+ 
 
 
 

@@ -39,7 +39,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/financial-gra
 [Original/Source Press Release](https://newsdirect.com/news/financial-gravity-companies-inc-announces-strong-third-quarter-results-with-significant-growth-in-assets-under-management-and-revenue-506022327)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/financial-gravity-companies-inc-announces-strong-third-quarter-results-with-significant-growth-in-assets-under-management-and-revenue/bef27c21745816ab1684ed91260fe795) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/financial-gravity-companies-reports-impressive-q3-2024-results-significant-growth-in-assets-and-revenue)
+
+Pickup - [fishervista.com](https://fishervista.com/en/financial-gravity-companies-inc-reports-strong-third-quarter-results-with-major-growth-in-assets-and-revenue/20245423)
+
+Pickup - [advos.io](https://advos.io/en/financial-gravity-companies-inc-reports-strong-q3-results-with-notable-growth-in-assets-and-revenue/20245423)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/financial-gravity-reports-robust-q3-2024-results-assets-under-management-surge-and-profitability-achieved)
+ 
 
 
 

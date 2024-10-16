@@ -7,7 +7,15 @@ CHARLESTON, SC, July 10, 2024 /24-7PressRelease/ -- Set in the fictional Live Oa
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512400/debut-mystery-novel-the-phantom-wore-red-pajamas-thrills-with-hilton-head-island-intrigue)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amateur-sleuths-investigate-suspicious-death-in-new-mystery-novel/769160637b2d425a377908a6e59465df) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/debut-mystery-novel-the-phantom-wore-red-pajamas-brings-hilton-head-island-to-life/20244819)
+
+Pickup - [advos.io](https://advos.io/en/debut-mystery-novel-the-phantom-wore-red-pajamas-thrills-with-hilton-head-island-intrigue/20244819)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/new-mystery-novel-set-in-hilton-head-retirement-community-captivates-readers)
+ 
 
 
 

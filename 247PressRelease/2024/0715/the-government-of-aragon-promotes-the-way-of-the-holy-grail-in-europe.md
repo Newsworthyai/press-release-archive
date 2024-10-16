@@ -7,7 +7,15 @@ San Juan de la Peña (Huesca), July 15, 2024 /24-7PressRelease/ -- In a ceremony
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512518/the-government-of-aragon-promotes-the-way-of-the-holy-grail-in-europe)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aragon-government-and-cultural-association-collaborate-to-promote-holy-grail-cultural-itinerary/1bdc7625888d18e5dfde30fcd8368ca2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/aragon-government-partners-with-cultural-association-to-promote-holy-grail-route-in-europe)
+
+Pickup - [fishervista.com](https://fishervista.com/en/aragon-government-and-cultural-association-collaborate-to-promote-holy-grail-european-cultural-route/20244948)
+
+Pickup - [advos.io](https://advos.io/en/government-of-aragon-promotes-european-cultural-route-inspired-by-the-holy-grail/20244948)
+ 
 
 
 

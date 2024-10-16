@@ -21,7 +21,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/itaconix-ceo-
 [Original/Source Press Release](https://newsdirect.com/news/itaconix-ceo-outlines-future-growth-despite-short-term-revenue-setback-748936061)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/itaconix-ceo-outlines-future-growth-despite-short-term-revenue-setback/00616411fe30a4e7eefd3c8414a3011f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/itaconix-ceo-remains-optimistic-despite-short-term-revenue-setback)
+ 
 
 
 

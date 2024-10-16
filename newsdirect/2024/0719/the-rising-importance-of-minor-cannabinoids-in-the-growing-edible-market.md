@@ -77,7 +77,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-rising-im
 [Original/Source Press Release](https://newsdirect.com/news/the-rising-importance-of-minor-cannabinoids-in-the-growing-edible-market-169639551)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/report-reveals-remarkable-growth-of-minor-cannabinoid-infused-edibles-market-in-2023/3df0760cd88d00dc6c000f50674914c2) 
+
+ 
 
 
 

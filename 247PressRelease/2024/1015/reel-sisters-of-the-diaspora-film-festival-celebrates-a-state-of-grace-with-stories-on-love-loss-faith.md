@@ -7,7 +7,9 @@ NEW YORK, NY, October 15, 2024 /24-7PressRelease/ -- The Reel Sisters of the Dia
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515243/reel-sisters-of-the-diaspora-film-festival-celebrates-a-state-of-grace-with-stories-on-love-loss-faith)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/reel-sisters-of-the-diaspora-film-festival-lecture-series-presents-a-state-of-grace-a-four-week-season-showcasing-personal-stories-of-love-loss-and-faith/8086a8e7fac536427f141685d53c643d) 
+
+ 
 
 
 

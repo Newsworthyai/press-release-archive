@@ -33,7 +33,21 @@ About ONDO
 [Original/Source Press Release](https://blockchainwire.io/press-release/ondo-a-rwa-platform-will-be-listed-on-coinw-exchange-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-list-ondo-token-celebrates-with-5000-usdt-bounty-program/be2201377d1f66f0baa2130ebaec7432) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-to-list-ondo-token-celebrates-with-5000-usdt-bounty-program)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-to-list-ondo-token-celebrates-with-5000-usdt-bounty-program)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/coinw-exchange-to-list-ondo-token-offering-5000-usdt-bounty-program)
+
+Pickup - [fishervista.com](https://fishervista.com/en/coinw-to-list-ondo-governance-token-sparking-new-opportunities-in-decentralized-finance/20245443)
+
+Pickup - [advos.io](https://advos.io/en/coinw-exchange-to-list-ondo-finance-s-ondo-token/20245443)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ondo-finance-s-ondo-token-to-list-on-coinw-exchange-marking-expansion-in-rwa-sector)
+ 
 
 
 

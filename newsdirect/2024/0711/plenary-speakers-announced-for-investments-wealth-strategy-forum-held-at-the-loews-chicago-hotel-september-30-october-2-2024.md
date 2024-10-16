@@ -44,7 +44,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/plenary-speak
 [Original/Source Press Release](https://newsdirect.com/news/plenary-speakers-announced-for-investments-and-wealth-strategy-forum-held-at-the-loews-chicago-hotel-september-30-october-2-2024-325363737)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/distinguished-plenary-speakers-announced-for-investments-wealth-strategy-forum-2024/992e2e72ba5788a34bab042af75a9723) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/11/investments-wealth-strategy-forum-unveils-stellar-lineup-of-speakers-for-2024-event)
+
+Pickup - [fishervista.com](https://fishervista.com/en/expert-speakers-announced-for-2024-investments-wealth-strategy-forum/20244895)
+
+Pickup - [advos.io](https://advos.io/en/investments-wealth-institute-announces-plenary-speakers-for-2024-strategy-forum/20244895)
+ 
 
 
 

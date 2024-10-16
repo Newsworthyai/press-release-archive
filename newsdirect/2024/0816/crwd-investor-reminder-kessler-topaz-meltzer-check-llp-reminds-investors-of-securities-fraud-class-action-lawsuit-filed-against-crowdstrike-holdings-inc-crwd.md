@@ -59,7 +59,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/crwd-investor
 [Original/Source Press Release](https://newsdirect.com/news/crwd-investor-reminder-kessler-topaz-meltzer-and-check-llp-reminds-investors-of-securities-fraud-class-action-lawsuit-filed-against-crowdstrike-holdings-inc-crwd-844837502)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investor-reminder-securities-fraud-class-action-lawsuit-filed-against-crowdstrike-holdings-inc/2d9f5fdf0c530dbcd71cf70d1a6dd860) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/16/crowdstrike-faces-securities-fraud-class-action-lawsuit-investors-urged-to-act)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kessler-topaz-meltzer-check-initiates-class-action-lawsuit-against-crowdstrike-holdings/20245794)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/securities-fraud-class-action-lawsuit-filed-against-crowdstrike-holdings-inc/20245794)
+
+Pickup - [advos.io](https://advos.io/en/crowdstrike-faces-securities-fraud-class-action-over-alleged-misconduct/20245794)
+ 
 
 
 

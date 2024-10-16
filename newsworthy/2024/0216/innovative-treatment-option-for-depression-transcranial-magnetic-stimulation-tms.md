@@ -17,7 +17,11 @@ For more information or to schedule an appointment, please visit www.newdirectio
 [Original/Source Press Release](https://newsworthy.ai/news/202402161065/innovative-treatment-option-for-depression-transcranial-magnetic-stimulation-tms)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-mental-health-treatments-offered-at-new-direction-functional-psychiatry-in-lancaster-pa/8ece1aab93a1ac4ff3d578a085cf5491) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/16/innovative-transcranial-magnetic-stimulation-offers-new-hope-for-depression-treatment)
+ 
 
 
 

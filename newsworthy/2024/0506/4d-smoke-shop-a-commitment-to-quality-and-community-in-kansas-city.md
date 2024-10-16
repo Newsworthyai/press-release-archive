@@ -21,7 +21,9 @@ For more information about 4D Smoke Shop and its offerings, please visit the sho
 [Original/Source Press Release](https://newsworthy.ai/news/202405061158/leaf-life-smoke-shop-serving-portland-oregon-with-dedication-and-excellence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/4d-smoke-shop-quality-consumables-and-accessories-in-the-heart-of-kansas-city/5a922912b5e1af4970cf9b0f2656e6c2) 
+
+ 
 
 
 

@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/oriole-resour
 [Original/Source Press Release](https://newsdirect.com/news/oriole-resources-prepares-for-more-drilling-at-bibemi-gold-project-expands-exploration-in-cameroon-215650527)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/oriole-resources-expands-exploration-in-cameroon/113540c6dcca44a16a1f51a4258df50d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/oriole-resources-gears-up-for-expanded-gold-exploration-in-cameroon)
+ 
 
 
 

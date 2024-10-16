@@ -23,7 +23,11 @@ Explore, inquire, and gain unparalleled IT wisdom at www.ITInsights.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231130834/itinsights-io-debuts-it-knowledge-reflecting-the-essence-of-input-and-output)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/itinsights-io-the-new-hub-for-in-depth-it-knowledge-and-expert-insights/193f35281431ae58a456aff600398f3e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/30/itinsights-io-a-new-era-of-it-knowledge-sharing)
+ 
 
 
 

@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/copper-proper
 [Original/Source Press Release](https://newsdirect.com/news/copper-property-ctl-pass-through-trust-files-quarterly-report-for-the-period-ended-march-31-2024-665557110)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/copper-property-ctl-trust-files-quarterly-report/211651d17c85ff97b61d20cf1b03b9d1) 
+
+ 
 
 
 

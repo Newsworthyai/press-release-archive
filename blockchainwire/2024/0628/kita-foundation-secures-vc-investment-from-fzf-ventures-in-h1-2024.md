@@ -41,7 +41,17 @@ Website: [https://kita.foundation/](https://kita.foundation/)Twitter: [https://x
 [Original/Source Press Release](https://blockchainwire.io/press-release/kita-foundation-secures-vc-investment-from-fzf-ventures-in-h1-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kita-foundation-secures-significant-investment-from-fzf-ventures/48b6b6fd6a74e6ef74be05b27cf6b38f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/kita-foundation-secures-major-investment-from-fzf-ventures-to-propel-social-fi-innovations/20244581)
+
+Pickup - [advos.io](https://advos.io/en/kita-foundation-secures-major-vc-investment-from-fzf-ventures-in-early-2024/20244581)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/kita-foundation-secures-significant-investment-from-fzf-ventures)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/kita-foundation-secures-significant-investment-from-fzf-ventures)
+ 
 
 
 

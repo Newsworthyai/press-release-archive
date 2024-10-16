@@ -49,7 +49,21 @@ Download Earn Alliance App: Google Play Store | Apple Store
 [Original/Source Press Release](https://blockchainwire.io/press-release/earn-alliance-launches-magic-muffins-telegram-game)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/earn-alliance-to-launch-magic-muffins-game-on-telegram/137c25b8b3a3fb49d32ae900ba27fdf9) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/earn-alliance-to-launch-magic-muffins-game-on-telegram)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/earn-alliance-to-launch-magic-muffins-game-on-telegram)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/earn-alliance-launches-magic-muffins-telegram-game-expanding-web3-gaming-portfolio)
+
+Pickup - [fishervista.com](https://fishervista.com/en/earn-alliance-launches-magic-muffins-a-new-frontier-in-web3-gaming/20246789)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/earn-alliance-launches-magic-muffins-a-new-frontier-in-web3-gaming-on-telegram/20246789)
+
+Pickup - [advos.io](https://advos.io/en/earn-alliance-launches-magic-muffins-game-on-telegram-expanding-web3-gaming-portfolio/20246789)
+ 
 
 
 

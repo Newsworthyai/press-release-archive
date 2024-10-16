@@ -33,7 +33,11 @@ The Baked Beans token presale will start on April 20th on Pinksale. Follow the p
 [Original/Source Press Release](https://blockchainwire.io/press-release/baked-beans-launches-first-gamified-passive-income-miner-on-solana-sets-april-20-token-presale-on-pinksale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/baked-beans-token-launches-on-solana-with-presale-set-for-april-20/561531918562d9e30ab7cf44f0f7971d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/baked-beans-launches-gamified-passive-income-miner-on-solana)
+ 
 
 
 

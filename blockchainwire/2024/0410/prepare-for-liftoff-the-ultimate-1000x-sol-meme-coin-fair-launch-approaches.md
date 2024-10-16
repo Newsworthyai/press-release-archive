@@ -43,7 +43,11 @@ Twitter – [https://x.com/meowwif](https://x.com/meowwif)Telegram – [https://
 [Original/Source Press Release](https://blockchainwire.io/press-release/prepare-for-liftoff-the-ultimate-1000x-sol-meme-coin-fair-launch-approaches)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-meme-coin-meowwif-mwif-set-for-fairlaunch-on-pinksale/a2397e0006681f476f3f1ef9a68a1c10) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/the-rise-of-meowwif-a-meme-coin-fairlaunch-with-promising-rewards)
+ 
 
 
 

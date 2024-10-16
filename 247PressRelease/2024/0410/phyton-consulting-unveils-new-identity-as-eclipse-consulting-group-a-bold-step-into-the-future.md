@@ -7,7 +7,11 @@ NEW YORK, NY, April 10, 2024 /24-7PressRelease/ -- Phyton Consulting, a leader i
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509922/phyton-consulting-unveils-new-identity-as-eclipse-consulting-group-a-bold-step-into-the-future)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/phyton-consulting-rebrands-as-eclipse-consulting-group-reflecting-commitment-to-innovation-and-client-success/f68b05f985397ff5578130d1bda9952f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/phyton-consulting-rebrands-as-eclipse-consulting-group-a-bold-move-into-the-future)
+ 
 
 
 

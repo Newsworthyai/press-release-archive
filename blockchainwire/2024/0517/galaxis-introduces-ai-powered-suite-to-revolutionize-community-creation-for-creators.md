@@ -38,7 +38,13 @@ Twitter | Discord
 [Original/Source Press Release](https://blockchainwire.io/press-release/galaxis-introduces-ai-powered-suite-to-revolutionize-community-creation-for-creators)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/galaxis-unveils-ai-powered-suite-for-community-creation-in-web3-space/a63dbd92d911705b2907d383f05314f9) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/galaxis-unveils-ai-powered-suite-for-community-creation-in-web3-space)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/galaxis-unveils-ai-powered-suite-for-community-creation-in-web3-space)
+ 
 
 
 

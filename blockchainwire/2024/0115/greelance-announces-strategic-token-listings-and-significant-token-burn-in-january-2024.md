@@ -47,7 +47,11 @@ Greelance is revolutionizing the freelance industry by seamlessly integrating AI
 [Original/Source Press Release](https://blockchainwire.io/press-release/greelance-announces-strategic-token-listings-and-significant-token-burn-in-january-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greelance-announces-key-token-listings-and-token-burn-event-in-january-2024/b803ee3d48748ced9cff991fddf40dd1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/15/greelance-expands-token-reach-and-reduces-supply-in-transformative-move)
+ 
 
 
 

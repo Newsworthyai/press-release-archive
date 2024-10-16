@@ -7,7 +7,13 @@ ATLANTA, GA, June 19, 2024 /24-7PressRelease/ -- Dr. Ken Anderson has been honor
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511800/dr-ken-anderson-receives-aztec-jaguar-trophy-at-los-angeles-hair-restoration-courses-meeting)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-ken-anderson-honored-with-distinguished-faculty-award-at-lahrc/49d9a8e30bf386bead33d273334376e9) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-ken-anderson-awarded-aztec-jaguar-trophy-at-la-hair-restoration-courses-meeting/20244271)
+
+Pickup - [advos.io](https://advos.io/en/dr-ken-anderson-honored-with-aztec-jaguar-trophy-at-la-hair-restoration-courses-meeting/20244271)
+ 
 
 
 

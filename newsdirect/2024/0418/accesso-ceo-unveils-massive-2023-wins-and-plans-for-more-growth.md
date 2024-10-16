@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/accesso-ceo-u
 [Original/Source Press Release](https://newsdirect.com/news/accesso-ceo-unveils-massive-2023-wins-and-plans-for-more-growth-859999047)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/accesso-ceo-unveils-massive-2023-wins-and-plans-for-more-growth/cb11a3d53839cab7e8f9b29bccf34d82) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/accesso-ceo-unveils-massive-2023-wins-and-plans-for-more-growth)
+ 
 
 
 

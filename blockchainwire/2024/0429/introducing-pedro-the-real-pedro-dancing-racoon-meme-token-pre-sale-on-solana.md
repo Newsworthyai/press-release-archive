@@ -43,7 +43,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-pedro-the-real-pedro-dancing-racoon-meme-token-pre-sale-on-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-real-pedro-dancing-racoon-pedro-pre-sale-join-the-decentralized-fun/42c840947d386db51e6c45035128d614) 
+
+ 
 
 
 

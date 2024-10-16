@@ -37,7 +37,9 @@ Media Contact:Name: Frieda OlafEmail: support@hoot.cool
 [Original/Source Press Release](https://blockchainwire.io/press-release/missed-out-on-solanas-bonk-bome-wif-and-donk-dont-miss-out-on-hoot)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hoot-cool-unveiling-the-magic-of-the-owl-themed-solana-memecoin/6aa52e579107847075b7feacd3e7fb20) 
+
+ 
 
 
 

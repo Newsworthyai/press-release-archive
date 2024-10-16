@@ -41,7 +41,17 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-cookpad-your-recipe-for-effortless-crypto-project-creation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cookpad-crafting-the-future-of-crypto-development/7483f296c675c9c280b9b8ea2d5e42fa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/cookpad-launches-all-in-one-platform-for-crypto-project-development)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cookpad-launches-comprehensive-platform-to-simplify-crypto-project-development/20246850)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cookpad-launches-all-in-one-platform-for-simplified-crypto-project-development/20246850)
+
+Pickup - [advos.io](https://advos.io/en/cookpad-launches-all-in-one-platform-for-crypto-project-development/20246850)
+ 
 
 
 

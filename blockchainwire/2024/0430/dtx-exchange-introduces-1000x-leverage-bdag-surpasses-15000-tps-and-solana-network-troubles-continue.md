@@ -19,7 +19,9 @@ Media Contact:Robert SmithDTX Exchangesupport@dtxexchange.com[https://dtxexchang
 [Original/Source Press Release](https://blockchainwire.io/press-release/-dtx-exchange-introduces-1000x-leverage-bdag-surpasses-15000-tps-and-solana-network-troubles-continue)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dtx-exchange-dtx-introduces-1000x-leverage-and-blockdag-bdag-surpasses-15000-tps/1144afd34678e4e99997ee59991f6aa4) 
+
+ 
 
 
 

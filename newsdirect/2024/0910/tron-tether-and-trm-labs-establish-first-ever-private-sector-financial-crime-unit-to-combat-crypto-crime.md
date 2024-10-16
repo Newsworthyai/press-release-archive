@@ -56,7 +56,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/tron-tether-a
 [Original/Source Press Release](https://newsdirect.com/news/tron-tether-and-trm-labs-establish-first-ever-private-sector-financial-crime-unit-to-combat-crypto-crime-101910198)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tron-tether-and-trm-labs-join-forces-to-combat-crypto-crime/19540bc12f911f6d81566689cd12906a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/tron-tether-and-trm-labs-launch-pioneering-private-sector-financial-crime-unit)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/tron-tether-and-trm-labs-launch-pioneering-private-sector-financial-crime-unit/20246671)
+
+Pickup - [advos.io](https://advos.io/en/tron-tether-and-trm-labs-form-first-ever-private-sector-financial-crime-unit-to-combat-crypto-crime/20246671)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tron-tether-and-trm-labs-join-forces-to-combat-crypto-crime)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tron-tether-and-trm-labs-join-forces-to-combat-crypto-crime)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tron-tether-and-trm-labs-establish-private-financial-crime-unit-to-combat-crypto-crime/20246671)
+ 
 
 
 

@@ -23,7 +23,11 @@ Stay informed and explore the wealth of knowledge by visiting www.Organizational
 [Original/Source Press Release](https://newsworthy.ai/news/20231127858/organizationaldevelopment-org-debuts-destination-for-business-growth-and-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/organizationaldevelopment-org-launches-as-comprehensive-resource-for-organizational-development-and-leadership-strategies/701f9e9c629e55d8417cf6b4b4249ceb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/27/organizationaldevelopment-org-emerges-as-premier-destination-for-business-growth-insights)
+ 
 
 
 

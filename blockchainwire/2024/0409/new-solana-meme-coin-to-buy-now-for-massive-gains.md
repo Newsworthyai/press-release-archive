@@ -27,7 +27,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/new-solana-meme-coin-to-buy-now-for-massive-gains)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hump-the-coin-that-captured-investors-interest-in-the-solana-meme/7ebb599f7e69c9719690af2366729085) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/hump-the-solana-meme-coin-offering-massive-gains)
+ 
 
 
 

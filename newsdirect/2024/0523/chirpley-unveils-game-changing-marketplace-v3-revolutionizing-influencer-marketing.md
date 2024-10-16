@@ -59,7 +59,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/chirpley-unve
 [Original/Source Press Release](https://newsdirect.com/news/chirpley-unveils-game-changing-marketplace-v3-revolutionizing-influencer-marketing-270904311)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chirpley-unveils-game-changing-marketplace-v3-revolutionizing-influencer-marketing/207ac27629e4ed58bab35f02c6c36efa) 
+
+ 
 
 
 

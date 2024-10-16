@@ -7,7 +7,9 @@ LOS ANGELES, CA, September 30, 2024 /24-7PressRelease/ -- Philip W. Boesch, Jr. 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514775/philip-w-boesch-jr-of-the-boesch-law-group-recognized-as-one-of-50-most-influential-lawyers-in-the-us)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/philip-w-boesch-jr-receives-2024-lawyers-of-distinction-award-for-most-influential-lawyers/eee57be84e0a8b6e794dd54c14d0eae4) 
+
+ 
 
 
 

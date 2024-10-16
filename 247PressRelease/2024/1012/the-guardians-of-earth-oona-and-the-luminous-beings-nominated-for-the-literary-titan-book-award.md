@@ -7,7 +7,9 @@ LOS ANGELES, CA, October 12, 2024 /24-7PressRelease/ -- The Guardians of Earth â
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515206/the-guardians-of-earth-oona-and-the-luminous-beings-nominated-for-the-literary-titan-book-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fantasy-novel-the-guardians-of-earth-nominated-for-literary-titan-book-award/63d0f7e6dd8de49b8de585526b48fe6c) 
+
+ 
 
 
 

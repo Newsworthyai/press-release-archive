@@ -35,7 +35,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/xtcom--cobak-are-partners-in-creating-a-new-crypto-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-and-cobak-partner-to-create-new-crypto-ecosystem/22388e1df3e1eed3a10cd1b199e2ab2c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/xt-com-and-cobak-join-forces-to-build-a-new-crypto-ecosystem)
+ 
 
 
 

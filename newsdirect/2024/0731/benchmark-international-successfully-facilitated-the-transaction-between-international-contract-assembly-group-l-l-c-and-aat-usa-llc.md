@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-international-contract-assembly-group-l-l-c-and-aat-usa-llc-536988737)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-facilitates-transaction-between-icag-and-aat-usa/89d4c301d7afca28fdae12b0609e4c86) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/benchmark-international-facilitates-merger-between-international-contract-assembly-group-and-aat-usa)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-key-transaction-between-icag-and-aat-usa-llc/20245396)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-strategic-acquisition-between-icag-and-aat-usa-llc/20245396)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/benchmark-international-facilitates-strategic-acquisition-in-manufacturing-sector)
+ 
 
 
 

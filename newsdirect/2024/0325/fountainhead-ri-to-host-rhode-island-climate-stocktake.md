@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/fountainhead-
 [Original/Source Press Release](https://newsdirect.com/news/fountainhead-ri-to-host-rhode-island-climate-stocktake-154711037)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fountainhead-ri-to-host-rhode-island-climate-stocktake-event-at-waterfire-arts-center/921256cb0836ce542dfba40e4699ac80) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/fountainhead-ri-gears-up-for-inaugural-climate-stocktake-event)
+ 
 
 
 

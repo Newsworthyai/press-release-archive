@@ -35,7 +35,9 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-partners-with-davidson-technologies-to-place-second-advantage-quantum-computer-in-the-us/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-inc-announces-placement-of-second-u-s-based-quantum-computer-and-study-results-showing-potential-51-5-billion-impact/1b643b2e8d21cf84dc3beb2fb07ec72b) 
+
+ 
 
 
 

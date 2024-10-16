@@ -33,7 +33,9 @@ This news release contains forward-looking statements, which are not statements 
 [Original/Source Press Release](https://www.newmediawire.com/news/ladybug-surpasses-6-million-in-revenue-for-first-half-of-year-7076139)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ladybug-nutratech-reports-6-0-million-in-revenues-for-q2-2024/d870db4e2e4cc0c7d2a05cd9cf2f9b85) 
+
+ 
 
 
 

@@ -43,7 +43,9 @@ Media Contact:Robert Smith[Support@algotech.com](mailto:Support@algotech.com)[ht
 [Original/Source Press Release](https://blockchainwire.io/press-release/algotech-presale-flies-past-4-million-is-it-still-early-to-buy-on-its-stage-3-presale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/algotech-algt-public-presale-exceeds-4-million-is-it-the-best-time-to-invest/392227135bd1f7084568efcd0f8f6330) 
+
+ 
 
 
 

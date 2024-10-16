@@ -7,7 +7,17 @@ VANCOUVER, BC, August 24, 2024 /24-7PressRelease/ -- SaveRxCanada.to, a leading 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513752/saverxcanadato-offers-affordable-access-to-generic-prescription-drugs-for-americans)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/saverxcanada-to-offers-affordable-access-to-generic-prescription-drugs-for-americans/37064c583d7a001bf854e82f55bb31fb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/24/saverxcanada-to-provides-affordable-generic-prescription-drugs-to-american-consumers)
+
+Pickup - [fishervista.com](https://fishervista.com/en/saverxcanada-to-provides-affordable-generic-prescription-drugs-for-americans/20245954)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/saverxcanada-to-emerges-as-cost-effective-solution-for-americans-seeking-affordable-generic-prescription-drugs/20245954)
+
+Pickup - [advos.io](https://advos.io/en/saverxcanada-to-provides-affordable-generic-prescription-drugs-for-americans/20245954)
+ 
 
 
 

@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/nevada-lithiu
 [Original/Source Press Release](https://newsdirect.com/news/nevada-lithiums-bonnie-claire-2nd-core-hole-from-2023-shows-4-154-ppm-lithium-177480639)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nevada-lithium-s-bonnie-claire-project-reveals-high-grade-lithium-intersect/8f457f2580b6f40994affa6507284fc1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/nevada-lithium-strikes-high-grade-lithium-zone-at-bonnie-claire-project)
+ 
 
 
 

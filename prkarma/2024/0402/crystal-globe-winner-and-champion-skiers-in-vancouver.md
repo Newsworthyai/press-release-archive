@@ -73,7 +73,11 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/bcalpine/news_release/1439)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/olympic-champion-marielle-thompson-celebrates-record-setting-ski-season-and-launches-fundraising-initiative-in-bc/7c9c1e29706c0f7082eb87dd05938783) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/canadian-ski-stars-celebrate-record-season-and-launch-fundraiser)
+ 
 
 
 

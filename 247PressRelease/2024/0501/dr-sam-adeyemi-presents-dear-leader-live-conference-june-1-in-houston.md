@@ -7,7 +7,9 @@ HOUSTON, TX, May 01, 2024 /24-7PressRelease/ -- Dr. Sam Adeyemi, author and lead
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510532/dr-sam-adeyemi-presents-dear-leader-live-conference-june-1-in-houston)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-sam-adeyemi-to-host-exclusive-leadership-development-event-in-houston/d8e81f3b2622962c31ed348454deaee9) 
+
+ 
 
 
 

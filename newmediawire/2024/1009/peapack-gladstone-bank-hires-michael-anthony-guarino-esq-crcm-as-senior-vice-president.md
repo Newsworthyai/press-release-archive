@@ -19,7 +19,9 @@ Contact:  Rosanne Schwab, Peapack-Gladstone Bank, Vice President, Public Relati
 [Original/Source Press Release](https://www.newmediawire.com/news/peapack-gladstone-bank-hires-michael-anthony-guarino-esq-crcm-as-senior-vice-president-7076171)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peapack-gladstone-financial-corporation-welcomes-michael-anthony-guarino-esq-as-senior-vice-president-attorney/2b437d5be1c0c1b1c11743cb5699db78) 
+
+ 
 
 
 

@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bestgrowthsto
 [Original/Source Press Release](https://newsdirect.com/news/bestgrowthstocks-com-unveils-in-depth-review-of-paramount-globals-latest-merger-bid-473689134)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/best-growth-stocks-unveils-in-depth-review-of-paramount-global-s-latest-merger-bid/4d26aff9a945d7e2a6f4bfb938a3d2e8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/bestgrowthstocks-com-unveils-in-depth-review-of-paramount-global-s-latest-merger-bid)
+ 
 
 
 

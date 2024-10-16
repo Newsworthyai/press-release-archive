@@ -19,7 +19,21 @@ For more information about the “Night of Crypto Wonders” event or to registe
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-to-host-night-of-crypto-wonders-high-end-web3-event-at-token2049-singapore)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/high-end-networking-event-night-of-crypto-wonders-to-showcase-web3-industry-innovations/9ce206e69f782112e62a299acf1632fc) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/high-end-networking-event-night-of-crypto-wonders-to-showcase-web3-industry-innovations)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/high-end-networking-event-night-of-crypto-wonders-to-showcase-web3-industry-innovations)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/bitmart-and-partners-to-host-exclusive-web3-networking-event-at-token2049-singapore)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitmart-to-host-high-end-web3-networking-event-at-token2049-singapore/20246330)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/bitmart-and-partners-to-host-exclusive-web3-networking-event-at-token2049-singapore/20246330)
+
+Pickup - [advos.io](https://advos.io/en/bitmart-to-host-high-end-web3-event-at-token2049-singapore/20246330)
+ 
 
 
 

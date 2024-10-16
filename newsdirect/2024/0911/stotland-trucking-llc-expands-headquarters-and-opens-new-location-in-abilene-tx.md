@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/stotland-truc
 [Original/Source Press Release](https://newsdirect.com/news/stotland-trucking-llc-expands-headquarters-and-opens-new-location-in-abilene-tx-956870190)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stotland-trucking-llc-expands-headquarters-and-opens-new-location-in-abilene-tx/bf2b1bcdce017a118a6cf5dd17956990) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/stotland-trucking-llc-expands-operations-with-new-headquarters-and-abilene-location)
+
+Pickup - [fishervista.com](https://fishervista.com/en/stotland-trucking-llc-expands-headquarters-and-opens-new-facility-in-abilene-tx/20246729)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/stotland-trucking-expands-operations-with-new-headquarters-and-abilene-facility/20246729)
+
+Pickup - [advos.io](https://advos.io/en/stotland-trucking-llc-expands-headquarters-and-opens-new-location-in-abilene-tx/20246729)
+ 
 
 
 

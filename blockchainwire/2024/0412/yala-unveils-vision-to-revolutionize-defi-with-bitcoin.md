@@ -31,7 +31,11 @@ For media inquiries, please contact media@yala.org.
 [Original/Source Press Release](https://blockchainwire.io/press-release/yala-unveils-vision-to-revolutionize-defi-with-bitcoin)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/yala-unveils-vision-for-defi-on-bitcoin-with-yu-stablecoin-integration/4f56ccc33c9a6a1932a1915f22dc0fe2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/yala-unveils-vision-to-revolutionize-defi-with-bitcoin)
+ 
 
 
 

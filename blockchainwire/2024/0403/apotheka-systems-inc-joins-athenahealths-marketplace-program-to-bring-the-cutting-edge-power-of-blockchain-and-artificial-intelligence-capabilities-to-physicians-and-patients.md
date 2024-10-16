@@ -25,7 +25,11 @@ About athenahealth MarketplaceThe athenahealth Marketplace, the largest EHR app 
 [Original/Source Press Release](https://blockchainwire.io/press-release/apothka-systems-inc-joins-athenahealths-marketplace-program-to-bring-the-cutting-edge-power-of-blockchain-and-artificial-intelligence-capabilities-to-physicians-and-patients-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/apotheka-systems-inc-announces-integration-agreement-with-athenahealth/478d0220752330810ece146ed65c4e83) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/apotheka-systems-brings-blockchain-and-ai-to-healthcare-through-athenahealth-partnership)
+ 
 
 
 

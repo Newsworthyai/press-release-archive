@@ -35,7 +35,9 @@ Email: info@thegardensociety.com
 [Original/Source Press Release](https://newsworthy.ai/news/202402221098/garden-society-expands-portfolio-with-the-strategic-acquisition-of-craft-cannabis-brand-chemistry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/garden-society-acquires-chemistry-expanding-product-lineup-and-demographic-reach/d0230fe1bc5a7dadb6ef50849e5f1da6) 
+
+ 
 
 
 

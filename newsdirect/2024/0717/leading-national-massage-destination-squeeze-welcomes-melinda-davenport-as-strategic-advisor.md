@@ -39,7 +39,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/leading-natio
 [Original/Source Press Release](https://newsdirect.com/news/leading-national-massage-destination-squeeze-welcomes-melinda-davenport-as-strategic-advisor-552305568)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/squeeze-appoints-melinda-davenport-as-strategic-advisor-for-brand-growth-and-innovation-strategies/60c8d20968ed69a1a247064c950d3ce4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/squeeze-massage-appoints-communications-executive-melinda-davenport-as-strategic-advisor)
+
+Pickup - [fishervista.com](https://fishervista.com/en/squeeze-appoints-melinda-davenport-as-strategic-advisor-amid-expansion-efforts/20245023)
+
+Pickup - [advos.io](https://advos.io/en/squeeze-welcomes-melinda-davenport-as-strategic-advisor/20245023)
+ 
 
 
 

@@ -33,7 +33,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/brett-surpasses-1-billion-in-market-capitalization)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/memecoin-brett-surpasses-1-billion-market-cap-in-record-time/cb4a6fe5645f1c2c7f73ab42a52e58fd) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/memecoin-brett-surpasses-1-billion-market-cap-in-record-time)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/memecoin-brett-surpasses-1-billion-market-cap-in-record-time)
+ 
 
 
 

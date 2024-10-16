@@ -7,7 +7,9 @@ DECATUR, GA, May 19, 2024 /24-7PressRelease/ -- Dr. Tyrone Malloy, a distinguish
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511000/dr-tyrone-malloy-introduces-inaugural-scholarship-to-cultivate-excellence-in-womens-health-and-medical-leadership)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-tyrone-malloy-unveils-1000-scholarship-to-support-future-medical-leaders/9ddec93d990898f4e57c88083c4b45d4) 
+
+ 
 
 
 

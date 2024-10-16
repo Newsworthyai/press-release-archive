@@ -21,7 +21,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/western-metal
 [Original/Source Press Release](https://newsdirect.com/news/western-metallica-resources-prepares-for-inaugural-drilling-at-the-cana-brava-copper-project-214222418)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/western-metallica-resources-ceo-discusses-upcoming-drilling-project-in-peru/5972ec6bcac1fb0c77ee21c31ecf21f3) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/western-metallica-resources-to-begin-drilling-at-cana-brava-copper-project-in-july-2024/20244588)
+
+Pickup - [advos.io](https://advos.io/en/western-metallica-resources-set-to-begin-drilling-at-cana-brava-copper-project/20244588)
+ 
 
 
 

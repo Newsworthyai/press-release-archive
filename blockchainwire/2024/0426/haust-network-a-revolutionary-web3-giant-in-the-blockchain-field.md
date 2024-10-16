@@ -41,7 +41,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/haust-network-a-revolutionary-web3-giant-in-the-blockchain-field)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/haust-network-launches-groundbreaking-web3-project/1d7fe7f993141d994080fb9c42a76372) 
+
+ 
 
 
 

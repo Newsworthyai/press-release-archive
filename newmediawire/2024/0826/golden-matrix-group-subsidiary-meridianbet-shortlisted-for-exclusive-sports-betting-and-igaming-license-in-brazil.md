@@ -55,7 +55,11 @@ LAS VEGAS, NV - (NewMediaWire) - August 26, 2024 - Golden Matrix Group Inc. (N
 [Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-subsidiary-meridianbet-shortlisted-for-exclusive-sports-betting-and-igaming-license-in-brazil-7075966)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meridianbet-shortlisted-for-exclusive-gaming-license-in-brazil/8c45d6bf39e4d672acd130e32cb484b2) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/meridianbet-advances-in-bid-for-brazilian-sports-betting-and-igaming-license/20246457)
+ 
 
 
 

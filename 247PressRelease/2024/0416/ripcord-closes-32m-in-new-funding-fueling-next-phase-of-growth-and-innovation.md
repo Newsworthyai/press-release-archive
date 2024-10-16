@@ -7,7 +7,9 @@ SAN FRANCISCO, CA, April 16, 2024 /24-7PressRelease/ -- Ripcord, the robotic dig
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510083/ripcord-closes-32m-in-new-funding-fueling-next-phase-of-growth-and-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ripcord-secures-32-million-in-new-funding-reinforces-commitment-to-document-intelligence-innovation/62f9d7539f6085e8509cb426ecb01bbe) 
+
+ 
 
 
 

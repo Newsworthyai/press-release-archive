@@ -23,7 +23,11 @@ Website: [https://www.dollur.xyz/](https://www.dollur.xyz/)Twitter X: [https://t
 [Original/Source Press Release](https://blockchainwire.io/press-release/dollur-is-a-memecoin-inspired-by-the-us-dollar-and-its-up-10000)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dollur-memecoin-launches-on-coinbase-s-base-network-with-10000-surge/54a6a92286817f0e8ad0052614ce1ef3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/dollur-the-memecoin-inspired-by-the-us-dollar-surges-10000)
+ 
 
 
 

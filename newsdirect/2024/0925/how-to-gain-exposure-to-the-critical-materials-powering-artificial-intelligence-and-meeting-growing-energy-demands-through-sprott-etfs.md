@@ -71,7 +71,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-to-gain-e
 [Original/Source Press Release](https://newsdirect.com/news/how-to-gain-exposure-to-the-critical-materials-powering-artificial-intelligence-and-meeting-growing-energy-demands-through-sprott-etfs-844696087)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-growing-demand-for-critical-materials-in-ai-data-centers/5716522bf66202bd6faa736c05900778) 
+
+ 
 
 
 

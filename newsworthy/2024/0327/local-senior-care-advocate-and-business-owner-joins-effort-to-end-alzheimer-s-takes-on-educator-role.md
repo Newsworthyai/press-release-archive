@@ -19,7 +19,11 @@ Media Contact Bryan EisenbergCo-ownerA Place At Home - North Austin512 -521-3010
 [Original/Source Press Release](https://newsworthy.ai/news/202403271135/local-senior-care-advocate-and-business-owner-joins-effort-to-end-alzheimer-s-takes-on-educator-role)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stacey-eisenberg-appointed-to-2024-alzheimer-s-association-committee/0b10484bf8c553090272b1d32990e0ad) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/local-senior-care-advocate-joins-fight-against-alzheimer-s)
+ 
 
 
 

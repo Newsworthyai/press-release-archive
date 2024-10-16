@@ -7,7 +7,9 @@ MEMPHIS, TN, May 04, 2024 /24-7PressRelease/ -- The Federal Trade Commission (FT
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510663/federal-trade-commission-enacts-nationwide-ban-on-non-compete-agreements)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ftc-issues-historic-ban-on-non-compete-agreements/0409c876b4458e5632f2a265467005c6) 
+
+ 
 
 
 

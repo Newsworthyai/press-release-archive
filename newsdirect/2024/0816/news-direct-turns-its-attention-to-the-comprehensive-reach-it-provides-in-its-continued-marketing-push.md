@@ -17,7 +17,17 @@ View original content to download multimedia: https://newsdirect.com/news/news-d
 [Original/Source Press Release](https://newsdirect.com/news/news-direct-turns-its-attention-to-the-comprehensive-reach-it-provides-in-its-continued-marketing-push-319782872)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/news-direct-corp-highlights-comprehensive-reach-in-marketing-push/124d72bf2ab6c7c573087ce933d2d3ed) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/16/news-direct-emphasizes-comprehensive-reach-in-latest-marketing-initiative)
+
+Pickup - [fishervista.com](https://fishervista.com/en/news-direct-enhances-comprehensive-reach-in-marketing-strategy/20245787)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/news-direct-emphasizes-comprehensive-reach-in-latest-marketing-initiative/20245787)
+
+Pickup - [advos.io](https://advos.io/en/news-direct-emphasizes-comprehensive-reach-in-latest-marketing-efforts/20245787)
+ 
 
 
 

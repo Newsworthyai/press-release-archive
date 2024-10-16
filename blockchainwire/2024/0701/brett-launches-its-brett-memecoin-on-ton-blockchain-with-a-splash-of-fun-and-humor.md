@@ -33,7 +33,19 @@ Instagram: instagram.com/realbrettcoin
 [Original/Source Press Release](https://blockchainwire.io/press-release/brett-launches-its-brett-memecoin-on-ton-blockchain-with-a-splash-of-fun-and-humor)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brett-launches-brett-memecoin-on-ton-blockchain/313ff6243cf80801f4ba340827a32d70) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/brett-launches-brett-memecoin-on-ton-blockchain-merging-fun-with-financial-innovation/20244618)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/01/brett-introduces-brett-memecoin-on-ton-blockchain-aiming-to-revolutionize-crypto-industry)
+
+Pickup - [advos.io](https://advos.io/en/brett-launches-brett-memecoin-on-ton-blockchain/20244618)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/brett-launches-brett-memecoin-on-ton-blockchain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/brett-launches-brett-memecoin-on-ton-blockchain)
+ 
 
 
 

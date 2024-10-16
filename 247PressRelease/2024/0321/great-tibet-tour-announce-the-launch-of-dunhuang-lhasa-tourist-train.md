@@ -7,7 +7,11 @@ LHASA, CHINA, March 21, 2024 /24-7PressRelease/ -- From April 20th to October 12
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509403/great-tibet-tour-announce-the-launch-of-dunhuang-lhasa-tourist-train)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/great-tibet-tour-launches-new-tourist-train-to-explore-western-china/a28945d46b42fc8ac29e4ef7d01c774f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/explore-the-wonders-of-western-china-on-the-tibetan-gesang-flower-train)
+ 
 
 
 

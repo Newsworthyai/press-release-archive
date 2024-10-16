@@ -41,7 +41,9 @@
 [Original/Source Press Release](https://www.newmediawire.com/news/nominate-a-stroke-hero-today-2025-stroke-hero-awards-open-for-submissions-7076132)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nominations-open-for-2025-stroke-hero-awards-by-american-stroke-association/606543cff28750b148792e9d7af0279d) 
+
+ 
 
 
 

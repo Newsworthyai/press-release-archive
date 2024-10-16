@@ -7,7 +7,11 @@ WINTER SPRINGS, FL, June 12, 2024 /24-7PressRelease/ -- The National Watermelon 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511640/watermelon-inspires-greater-engagement-among-younger-consumers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-study-reveals-evolving-preferences-of-young-watermelon-consumers/3b4603361d721f1ef7e34ef97109b79c) 
+
+
+Pickup - [advos.io](https://advos.io/en/younger-consumers-drive-culinary-innovation-with-watermelon-nwpb-study-finds/20244065)
+ 
 
 
 

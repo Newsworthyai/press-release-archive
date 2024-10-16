@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/emmerson-adva
 [Original/Source Press Release](https://newsdirect.com/news/emmerson-advances-on-environmental-approval-for-khemisset-project-following-key-enhancements-252776395)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/emmerson-advances-on-environmental-approval-for-khemisset-project-following-key-enhancements/70d76c31c4cc8ade391ea8f2d6482667) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/emmerson-enhances-environmental-approval-application-for-khemisset-potash-project)
+ 
 
 
 

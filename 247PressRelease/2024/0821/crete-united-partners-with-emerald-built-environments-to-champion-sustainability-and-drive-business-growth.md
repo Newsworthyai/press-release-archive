@@ -7,7 +7,17 @@ CHARLOTTE, NC, August 21, 2024 /24-7PressRelease/ -- Crete United ("Crete"), a l
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513614/crete-united-partners-with-emerald-built-environments-to-champion-sustainability-and-drive-business-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crete-united-forms-strategic-alliance-with-emerald-built-environments/78128694e870885c657f11979414ed14) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/crete-united-and-emerald-built-environments-join-forces-to-advance-sustainability-in-building-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/crete-united-partners-with-emerald-built-environments-to-drive-sustainability-and-business-growth/20245863)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/crete-united-and-emerald-built-environments-join-forces-to-advance-sustainability-in-building-services/20245863)
+
+Pickup - [advos.io](https://advos.io/en/crete-united-partners-with-emerald-built-environments-to-drive-sustainability/20245863)
+ 
 
 
 

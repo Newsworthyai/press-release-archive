@@ -29,7 +29,11 @@ Gamers and investors interested in learning more can visit GGWP's website for 
 [Original/Source Press Release](https://blockchainwire.io/press-release/unlock-the-past-ggwps-exclusive-presale-opportunity-with-nostalgic-gaming-adventure)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ggwp-launches-retro-gaming-platform-with-presale-empowering-community-control/886da4ced4d3232410cace4a9d0720ff) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/04/ggwp-brings-retro-gaming-and-crypto-together-in-innovative-platform)
+ 
 
 
 

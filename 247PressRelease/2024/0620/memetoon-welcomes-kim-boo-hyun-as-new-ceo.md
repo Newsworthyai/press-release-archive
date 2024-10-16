@@ -7,7 +7,17 @@ NEW YORK, NY, June 20, 2024 /24-7PressRelease/ -- MEME Entertainment, the operat
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511844/memetoon-welcomes-kim-boo-hyun-as-new-ceo)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-film-producer-kim-boo-hyun-appointed-as-new-ceo-of-memetoon/3e490ff5146bf7e93b20bc450a23f3ab) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/memetoon-appoints-kim-boo-hyun-as-new-ceo-to-lead-global-expansion/20244300)
+
+Pickup - [advos.io](https://advos.io/en/memetoon-appoints-kim-boo-hyun-as-new-ceo-strengthening-global-webtoon-market-presence/20244300)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/renowned-film-producer-kim-boo-hyun-appointed-as-new-ceo-of-memetoon)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/renowned-film-producer-kim-boo-hyun-appointed-as-new-ceo-of-memetoon)
+ 
 
 
 

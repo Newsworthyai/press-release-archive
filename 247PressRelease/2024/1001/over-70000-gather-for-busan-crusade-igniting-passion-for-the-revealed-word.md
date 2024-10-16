@@ -7,7 +7,9 @@ PERTH, AUSTRALIA, October 01, 2024 /24-7PressRelease/ -- In a remarkable display
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514847/over-70000-gather-for-busan-crusade-igniting-passion-for-the-revealed-word)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/busan-crusade-of-the-word-unites-70000-attendees-in-a-powerful-display-of-faith-and-community/cefa9520eb3075725bbab8fcdca69f56) 
+
+ 
 
 
 

@@ -79,7 +79,9 @@ johnv@otcmarkets.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/montis-to-present-at-the-blockchain--digital-asset-virtual-investor-conference-april-25th-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/montis-group-ceo-to-present-at-blockchain-digital-asset-virtual-investor-conference/35f13a48f27dd85163a6953e63c7fe84) 
+
+ 
 
 
 

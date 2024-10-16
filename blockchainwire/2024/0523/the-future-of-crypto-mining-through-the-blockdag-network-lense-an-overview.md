@@ -55,7 +55,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-future-of-crypto-mining-through-the-blockdag-network-lense-an-overview-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-shaping-the-future-of-crypto-mining/8f201e60377a2620d890990585521dc2) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blockdag-network-shaping-the-future-of-crypto-mining)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blockdag-network-shaping-the-future-of-crypto-mining)
+ 
 
 
 

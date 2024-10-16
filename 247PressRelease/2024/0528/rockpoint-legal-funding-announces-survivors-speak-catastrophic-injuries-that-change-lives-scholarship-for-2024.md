@@ -7,7 +7,9 @@ LOS ANGELES, CA, May 28, 2024 /24-7PressRelease/ -- Rockpoint Legal Funding unde
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511195/rockpoint-legal-funding-announces-survivors-speak-catastrophic-injuries-that-change-lives-scholarship-for-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rockpoint-legal-funding-offers-scholarship-for-students-with-catastrophic-injuries/13bd5d6db3ac9b2d5ae4f39b4f0b1b24) 
+
+ 
 
 
 

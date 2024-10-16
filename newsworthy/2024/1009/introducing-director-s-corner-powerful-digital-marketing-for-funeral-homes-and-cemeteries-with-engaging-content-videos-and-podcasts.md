@@ -23,7 +23,9 @@ For more information, visit https://www.directorscorner.app or contact Autumn at
 [Original/Source Press Release](https://newsworthy.ai/news/202410091309/introducing-director-s-corner-ai-powered-digital-marketing-for-funeral-homes-and-cemeteries-with-engaging-content-and-podcasts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/director-s-corner-launches-digital-marketing-agency-for-funeral-homes/f0bd8ba10ce8fc5366242086f731f057) 
+
+ 
 
 
 

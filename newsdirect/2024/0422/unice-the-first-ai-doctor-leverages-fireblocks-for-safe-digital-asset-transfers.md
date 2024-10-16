@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/unice-the-fir
 [Original/Source Press Release](https://newsdirect.com/news/unice-the-first-ai-doctor-leverages-fireblocks-for-safe-digital-asset-transfers-856624969)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unice-partners-with-fireblocks-to-revolutionize-digital-asset-management-in-healthcare/69e8080f4bcd42d594b7f7b89348d28c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/unice-the-first-ai-doctor-leverages-fireblocks-for-safe-digital-asset-transfers)
+ 
 
 
 

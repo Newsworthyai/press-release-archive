@@ -7,7 +7,15 @@ STAMFORD, CT, July 23, 2024 /24-7PressRelease/ -- The Avon Theatre - Deborah & C
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512629/avon-theatre-deborah-chuck-royce-cinema-arts-center-to-honor-academy-award-winner-michael-douglas-with-lifetime-achievement-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/michael-douglas-to-receive-lifetime-achievement-award-from-avon-theatre/68fde6be353ddaea0fa34cc8ca7b2df2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/michael-douglas-to-receive-lifetime-achievement-award-from-avon-theatre)
+
+Pickup - [fishervista.com](https://fishervista.com/en/avon-theatre-honors-michael-douglas-with-lifetime-achievement-award/20245164)
+
+Pickup - [advos.io](https://advos.io/en/avon-theatre-to-honor-michael-douglas-with-lifetime-achievement-award/20245164)
+ 
 
 
 

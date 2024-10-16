@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/downtowns-nei
 [Original/Source Press Release](https://newsdirect.com/news/downtowns-neighbouring-rights-division-announces-raft-of-cross-company-signings-including-academy-award-nominated-artist-anohni-902697126)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dnr-announces-new-signings-and-partnerships-with-anohni-position-music-and-th3rd-brain-records/a27a13394b21b379b02b3bd119ddb07f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/downtown-s-neighbouring-rights-division-announces-raft-of-cross-company-signings-including-academy-award-nominated-artist-anohni)
+ 
 
 
 

@@ -7,7 +7,11 @@ SAN DIEGO, CA, April 05, 2024 /24-7PressRelease/ -- When Justin Sather found out
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509847/what-does-a-13-year-old-frog-enthusiast-do-with-an-idea-he-protects-the-planet-one-acre-at-a-time)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/13-year-old-environmental-activist-protects-rainforests-and-frogs/465aae88aa6f66ff1073db7b6bae3304) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/13-year-old-frog-enthusiast-protects-planet-one-acre-at-a-time)
+ 
 
 
 

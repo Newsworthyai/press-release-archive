@@ -7,7 +7,9 @@ KNOXVILLE, TN, October 01, 2024 /24-7PressRelease/ -- Scientists have developed 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514816/from-beetles-to-bottles-innovative-yarn-quenches-thirst-with-fog)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bioinspired-yarn-developed-to-harvest-water-from-fog/60b05bdc3720e451bee350b02efd9c85) 
+
+ 
 
 
 

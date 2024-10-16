@@ -7,7 +7,17 @@ NEW YORK, NY, August 23, 2024 /24-7PressRelease/ -- For over 22 years, Talia's S
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513713/rosh-hashanah-2024-meals-at-glatt-kosher-nyc-restaurant-talias-steakhouse)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/talia-s-steakhouse-to-serve-prepaid-rosh-hashanah-2024-meals-in-nyc/271731b102bdee9f7583bbe85e4014c1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/23/talia-s-steakhouse-announces-rosh-hashanah-2024-meal-offerings)
+
+Pickup - [fishervista.com](https://fishervista.com/en/talia-s-steakhouse-to-serve-prepaid-rosh-hashanah-2024-meals-in-nyc/20245909)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/talia-s-steakhouse-prepares-for-rosh-hashanah-2024-with-glatt-kosher-offerings/20245909)
+
+Pickup - [advos.io](https://advos.io/en/talia-s-steakhouse-to-host-prepaid-rosh-hashanah-2024-meals-in-nyc/20245909)
+ 
 
 
 

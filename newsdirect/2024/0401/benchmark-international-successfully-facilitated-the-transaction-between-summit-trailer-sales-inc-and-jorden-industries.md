@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-summit-trailer-sales-inc-and-jorden-industries-623857007)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jorden-industries-acquires-summit-trailer-sales-inc-with-the-help-of-benchmark-international/aab0948180081c3eb5d90a168e1e043d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/summit-trailer-sales-acquired-by-jorden-industries)
+ 
 
 
 

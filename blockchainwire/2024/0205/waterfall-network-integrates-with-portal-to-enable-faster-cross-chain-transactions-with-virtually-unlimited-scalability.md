@@ -31,7 +31,11 @@ Portal Company Contact: [media@portaldefi.com](mailto:media@portaldefi.com)
 [Original/Source Press Release](https://blockchainwire.io/press-release/waterfall-network-integrates-with-portal-to-enable-faster-cross-chain-transactions-with-virtually-unlimited-scalability)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/waterfall-network-integrates-with-portal-defi-for-cross-chain-transactions/63d0c0e27f46d1adec924ddf832c0748) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/05/waterfall-network-and-portal-dex-partner-for-seamless-cross-chain-transactions)
+ 
 
 
 

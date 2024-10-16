@@ -21,7 +21,19 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/metabeat-raises-3m-in-funding-from-fzf-ventures-layer-otc-and-dubai-labs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metabeat-secures-3m-investment-and-strategic-partnerships/97a933ae6f363854ee4a3a8b4caf881a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/metabeat-secures-3m-in-funding-to-expand-fan-to-earn-kpop-music-nft-platform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/metabeat-raises-3m-to-enhance-kpop-nft-platform-through-strategic-partnerships/20245156)
+
+Pickup - [advos.io](https://advos.io/en/metabeat-secures-3m-funding-to-enhance-kpop-music-nft-platform/20245156)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/metabeat-secures-3m-investment-and-strategic-partnerships)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/metabeat-secures-3m-investment-and-strategic-partnerships)
+ 
 
 
 

@@ -7,7 +7,11 @@
 [Original/Source Press Release](https://blockchainwire.io/press-release/bad-idea-ai-announces-collaboration-with-publishing-ceo-for-new-ai-news-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bad-idea-ai-announces-collaboration-for-ai-driven-news-platform/1dd1e8f71a2485b82d47563a63e77f55) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/19/bad-idea-ai-partners-with-publishing-ceo-for-ai-driven-news-platform)
+ 
 
 
 

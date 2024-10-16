@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/greatland-gol
 [Original/Source Press Release](https://newsdirect.com/news/greatland-gold-expands-exploration-portfolio-with-mount-egerton-acquisition-in-western-australia-709020141)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greatland-gold-expands-exploration-portfolio-with-mount-egerton-acquisition/67ff7ea060a70a77dfdf6e1c04b6bc4f) 
+
+ 
 
 
 

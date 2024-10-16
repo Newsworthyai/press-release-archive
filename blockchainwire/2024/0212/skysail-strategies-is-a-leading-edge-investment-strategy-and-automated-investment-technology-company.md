@@ -21,7 +21,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/skysail-strategies-is-a-leading-edge-investment-strategy-and-automated-investment-technology-company)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/skysail-strategies-redefines-wealth-creation-with-innovative-investment-approach/a4dad145b5bdafd5bd78564de7e898a9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/12/skysail-strategies-pioneers-innovative-automated-investment-algorithm)
+ 
 
 
 

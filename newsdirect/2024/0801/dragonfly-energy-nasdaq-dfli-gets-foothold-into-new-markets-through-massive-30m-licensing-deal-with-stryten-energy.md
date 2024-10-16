@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/dragonfly-ene
 [Original/Source Press Release](https://newsdirect.com/news/dragonfly-energy-nasdaq-dfli-gets-foothold-into-new-markets-through-massive-30m-licensing-deal-with-stryten-energy-442705774)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stryten-energy-and-dragonfly-energy-holdings-corp-ink-significant-licensing-agreement/8d9c8042f33101913b006691637e0001) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/dragonfly-energy-secures-30m-licensing-deal-with-stryten-energy-expanding-into-new-markets)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dragonfly-energy-secures-30m-licensing-deal-with-stryten-energy-to-expand-lithium-battery-market-reach/20245428)
+
+Pickup - [advos.io](https://advos.io/en/dragonfly-energy-secures-30m-licensing-deal-with-stryten-energy-expanding-market-reach/20245428)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dragonfly-energy-and-stryten-energy-forge-30m-licensing-deal-expanding-lithium-battery-market-reach)
+ 
 
 
 

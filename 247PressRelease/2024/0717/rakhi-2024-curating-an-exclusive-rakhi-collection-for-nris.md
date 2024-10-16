@@ -7,7 +7,15 @@ KOLKATA, INDIA, July 17, 2024 /24-7PressRelease/ --   Rakhi 2024: Curating an Ex
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512571/rakhi-2024-curating-an-exclusive-rakhi-collection-for-nris)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/giftstoindia24x7-curates-exclusive-rakhi-collection-for-nris/1f0677fd4821728eb3b66e2c948c0299) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/giftstoindia24x7-unveils-extensive-rakhi-collection-for-nris-celebrating-rakshabandhan)
+
+Pickup - [fishervista.com](https://fishervista.com/en/giftstoindia24x7-unveils-extensive-rakhi-collection-for-nris-enhancing-raksha-bandhan-celebrations-worldwide/20245009)
+
+Pickup - [advos.io](https://advos.io/en/giftstoindia24x7-unveils-exclusive-rakhi-collection-for-nris-ahead-of-rakshabandhan-2024/20245009)
+ 
 
 
 

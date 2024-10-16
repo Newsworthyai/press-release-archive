@@ -30,7 +30,11 @@ Press Inquiries: PR@clarafordaters.com
 [Original/Source Press Release](https://newsworthy.ai/news/202403261128/revolutionizing-dating-culture-clara-for-daters-not-a-dating-app-unveils-data-insights-to-transform-meaningful-connections-in-its-landmark-yea)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clara-for-daters-releases-year-one-wrapped-report-on-modern-dating-insights/02e4c3dfe35b53c52f4329ad7d1f34cb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/data-insights-reveal-the-path-to-meaningful-dating-connections)
+ 
 
 
 

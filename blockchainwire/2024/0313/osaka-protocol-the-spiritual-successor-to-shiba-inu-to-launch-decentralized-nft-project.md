@@ -7,7 +7,11 @@ When you go to a crypto conference, there is always at least one person with a s
 [Original/Source Press Release](https://blockchainwire.io/press-release/osaka-protocol-the-spiritual-successor-to-shiba-inu-to-launch-decentralized-nft-project)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiba-inu-and-osaka-protocol-decentralization-success-stories/9424ade01b0b44f1652d5842ccba8f51) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/13/osaka-protocol-the-spiritual-successor-to-shiba-inu-launches-decentralized-nft-project)
+ 
 
 
 

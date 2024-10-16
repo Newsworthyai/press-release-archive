@@ -51,7 +51,13 @@ contact@threepointzero.vc
 [Original/Source Press Release](https://blockchainwire.io/press-release/varys-capital-and-threepointzero-ventures-lead-1075000-investment-in-ledger-works)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/varys-capital-and-threepointzero-ventures-lead-1075000-investment-in-ledger-works/9f4325ed2cdf38af4ee85c679887b68a) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/varys-capital-and-threepointzero-ventures-lead-1075000-investment-in-ledger-works)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/varys-capital-and-threepointzero-ventures-lead-1075000-investment-in-ledger-works)
+ 
 
 
 

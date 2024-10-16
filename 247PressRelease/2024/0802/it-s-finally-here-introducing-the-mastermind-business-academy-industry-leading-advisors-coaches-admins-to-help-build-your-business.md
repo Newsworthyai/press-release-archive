@@ -7,7 +7,17 @@ SCOTTSDALE, AZ, August 02, 2024 /24-7PressRelease/ -- Mastermind.com, co-owned b
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513050/its-finally-here-introducing-the-mastermind-business-academy-industry-leading-advisors-coaches-admins-to-help-build-your-business)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mastermind-com-launches-mastermind-business-academy-for-knowledge-based-entrepreneurs/e3a9c399d6884eb3e9fca0dc2cd87ab7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/mastermind-com-launches-comprehensive-business-academy-for-knowledge-entrepreneurs)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mastermind-business-academy-launched-to-empower-knowledge-based-entrepreneurs/20245450)
+
+Pickup - [advos.io](https://advos.io/en/mastermind-com-launches-mastermind-business-academy-to-empower-knowledge-based-entrepreneurs/20245450)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mastermind-com-launches-business-academy-to-accelerate-growth-for-knowledge-based-entrepreneurs)
+ 
 
 
 

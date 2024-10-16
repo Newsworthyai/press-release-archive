@@ -38,7 +38,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/gateio-introduces-quant-fund---a-new-era-of-wealth-management-for-digital-assets)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gate-io-launches-groundbreaking-wealth-management-solution-the-quant-fund/130ecdfff9128dd3aa57111b68450681) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/gate-io-introduces-quant-fund-a-new-era-of-wealth-management-for-digital-assets)
+ 
 
 
 

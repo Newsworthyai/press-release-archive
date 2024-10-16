@@ -49,7 +49,11 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-rises-post-halving-ethereum-faces-a-5-volume-dip-at-3000-and-furrever-token-achieves-1m-presale-milestone)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-market-analysis-btc-bullish-eth-uncertain-furr-emerges/120510327760e5558e8051f5e411316a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/bitcoin-rises-post-halving-ethereum-faces-a-5-volume-dip-at-3000-and-furrever-token-achieves-1m-presale-milestone)
+ 
 
 
 

@@ -35,7 +35,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-wallet
 [Original/Source Press Release](https://newsdirect.com/news/bitget-wallet-lists-ecosystem-token-bwb-on-native-launchpad-seeks-to-capitalize-on-market-momentum-776414170)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-wallet-launches-ecosystem-token-bwb-on-native-launchpad/c3cfdffb004d1065dd27a3b461bf1ac8) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitget-wallet-launches-ecosystem-token-bwb-on-native-launchpad)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitget-wallet-launches-ecosystem-token-bwb-on-native-launchpad)
+ 
 
 
 

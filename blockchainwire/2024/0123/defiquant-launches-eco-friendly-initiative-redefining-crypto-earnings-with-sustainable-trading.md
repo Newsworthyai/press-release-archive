@@ -65,7 +65,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-launches-eco-friendly-initiative-redefining-crypto-earnings-with-sustainable-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-unveils-new-sustainable-trading-model-with-ai-bots/55cb38c9b27171620f02b3f71f0e0a4f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/23/defiquant-pioneers-sustainable-crypto-trading-with-ai-powered-eco-friendly-initiative)
+ 
 
 
 

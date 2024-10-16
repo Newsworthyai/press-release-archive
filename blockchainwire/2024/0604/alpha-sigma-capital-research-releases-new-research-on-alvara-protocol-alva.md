@@ -33,7 +33,13 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/alpha-sigma-capital-research-releases-new-research-on-alvara-protocol-alva)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-research-released-on-alvara-protocol-by-alpha-sigma-capital/e472cb4e7288764b13a2e5fed5d3e1f4) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/new-research-released-on-alvara-protocol-by-alpha-sigma-capital)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/new-research-released-on-alvara-protocol-by-alpha-sigma-capital)
+ 
 
 
 

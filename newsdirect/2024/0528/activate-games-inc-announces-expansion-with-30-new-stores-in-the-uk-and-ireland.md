@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/activate-game
 [Original/Source Press Release](https://newsdirect.com/news/activate-games-inc-announces-expansion-with-30-new-stores-in-the-uk-and-ireland-496116585)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/activate-games-inc-announces-expansion-with-30-new-stores-in-the-uk-and-ireland/bf39fe1e649b1a4bb5ccbb099e6864e3) 
+
+ 
 
 
 

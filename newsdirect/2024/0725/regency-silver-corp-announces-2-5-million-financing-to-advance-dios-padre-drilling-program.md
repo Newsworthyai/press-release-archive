@@ -21,7 +21,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/regency-silve
 [Original/Source Press Release](https://newsdirect.com/news/regency-silver-corp-announces-2-5-million-financing-to-advance-dios-padre-drilling-program-305902398)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/regency-silver-corp-announces-2-5-million-financing-to-advance-dios-padre-drilling-program/8cbf5ae857b06ba4a6c1e3791572ab97) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/regency-silver-corp-secures-2-5-million-for-expansion-of-dios-padre-drilling-program)
+
+Pickup - [fishervista.com](https://fishervista.com/en/regency-silver-corp-secures-2-5-million-financing-to-propel-dios-padre-drilling-program/20245260)
+
+Pickup - [advos.io](https://advos.io/en/regency-silver-corp-secures-2-5-million-for-dios-padre-drilling-program/20245260)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/regency-silver-corp-secures-2-5-million-for-dios-padre-project-expansion)
+ 
 
 
 

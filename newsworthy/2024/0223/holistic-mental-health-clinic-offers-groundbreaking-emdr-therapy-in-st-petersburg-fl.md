@@ -13,7 +13,11 @@ Don't let anxiety, trauma, or depression hold you back any longer. Take control 
 [Original/Source Press Release](https://newsworthy.ai/news/202402231085/holistic-mental-health-clinic-offers-groundbreaking-emdr-therapy-in-st-petersburg-fl)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/holistic-mental-health-clinic-introduces-emdr-therapy-in-st-petersburg-fl/09c56997c96edb81812a4e0620243d0d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/23/holistic-mental-health-clinic-brings-cutting-edge-emdr-therapy-to-st-petersburg)
+ 
 
 
 

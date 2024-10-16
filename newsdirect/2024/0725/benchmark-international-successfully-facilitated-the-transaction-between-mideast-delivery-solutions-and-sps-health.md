@@ -39,7 +39,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-mideast-delivery-solutions-and-sps-health-244147419)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-facilitates-acquisition-of-mideast-delivery-solutions-by-sps-health/3050c5f307e77be0f0d81bd9a06a03c0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/mideast-delivery-solutions-acquired-by-sps-health-in-strategic-healthcare-logistics-deal)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-acquisition-of-mideast-delivery-solutions-by-sps-health/20245250)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-mideast-delivery-solutions-acquisition-by-sps-health/20245250)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mideast-delivery-solutions-acquired-by-sps-health-in-strategic-healthcare-logistics-move)
+ 
 
 
 

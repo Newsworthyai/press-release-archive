@@ -57,7 +57,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/hedera-price-
 [Original/Source Press Release](https://newsdirect.com/news/hedera-price-jumps-kangamoon-nears-6m-is-a-500-breakout-possible-for-ltc-128193804)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kangamoon-kang-new-investors-get-a-20-bonus-on-all-purchases/bf7f513468c0f13eab9598ee4a305233) 
+
+ 
 
 
 

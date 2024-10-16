@@ -47,7 +47,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/ethereum-eth-and-bitcoin-btc-unsettle-the-market-while-this-black-account-exchange-token-rallies-400)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/option2trade-o2t-emerges-as-a-strong-contender-amidst-ethereum-eth-and-bitcoin-btc-volatility/e346d9f0cbae3bffaf96be1c855afb00) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/option2trade-s-black-account-shakes-up-crypto-market-with-400-rally)
+ 
 
 
 

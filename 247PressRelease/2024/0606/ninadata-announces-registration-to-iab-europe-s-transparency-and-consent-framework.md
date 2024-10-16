@@ -7,7 +7,11 @@ HELSINKI, FINLAND, June 06, 2024 /24-7PressRelease/ -- NinaData, an innovator in
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511459/ninadata-announces-registration-to-iab-europes-transparency-and-consent-framework)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ninadata-joins-iab-europe-s-transparency-and-consent-framework-tcf/ce38335af04233cbd5211b90de1847b1) 
+
+
+Pickup - [advos.io](https://advos.io/en/ninadata-joins-iab-europe-s-transparency-and-consent-framework-enhancing-privacy-first-advertising-solutions/20243875)
+ 
 
 
 

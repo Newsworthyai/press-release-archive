@@ -51,7 +51,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/databillity-u
 [Original/Source Press Release](https://newsdirect.com/news/databillity-unleashes-the-power-of-zero-party-data-for-marketing-success-338406633)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/databillity-revolutionizes-marketing-with-predictive-insights-and-personalized-recommendations/7d35858a47073e2846e7fb834c84bac1) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/databillity-harnesses-zero-party-data-to-revolutionize-marketing/20244277)
+
+Pickup - [advos.io](https://advos.io/en/databillity-leverages-zero-party-data-for-enhanced-marketing-strategies/20244277)
+ 
 
 
 

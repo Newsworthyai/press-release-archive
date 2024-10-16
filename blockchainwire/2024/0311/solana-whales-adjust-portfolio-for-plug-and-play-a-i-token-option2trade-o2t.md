@@ -49,7 +49,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/solana-whales-adjust-portfolio-for-plug-and-play-ai-token-option2trade-o2t)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solana-sol-whales-embrace-option2trade-o2t-a-i-innovation/e1a7bfe76c377bb6a8ec1c41d73a1bbd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/solana-whales-embrace-option2trade-s-ai-powered-trading-solutions)
+ 
 
 
 

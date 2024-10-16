@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/trust-stamp-s
 [Original/Source Press Release](https://newsdirect.com/news/trust-stamp-secures-full-participant-status-in-the-united-nations-global-compact-370983630)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trust-stamp-recognized-as-full-participant-in-un-global-compact/7a98dc087b6d567e4db3846a9c9b1b40) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/trust-stamp-secures-full-participant-status-in-the-united-nations-global-compact)
+ 
 
 
 

@@ -86,7 +86,9 @@ Statement Highlights:
 [Original/Source Press Release](https://www.newmediawire.com/news/heart-failure-atrial-fibrillation-coronary-heart-disease-linked-to-cognitive-impairment-7076176)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-research-links-cardiovascular-diseases-to-cognitive-impairment-and-dementia/afb727be6c51f5426cbe3f5aaae23fd6) 
+
+ 
 
 
 

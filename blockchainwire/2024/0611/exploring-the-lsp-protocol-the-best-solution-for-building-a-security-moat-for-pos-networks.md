@@ -111,7 +111,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/exploring-the-lsp-protocol-the-best-solution-for-building-a-security-moat-for-pos-networks)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-lsp-protocol-revolutionizes-pos-network-security-and-capital-utilization/f1f50e4184c8733dd298a318ca32d1fb) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/new-lsp-protocol-revolutionizes-pos-network-security-and-capital-utilization)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/new-lsp-protocol-revolutionizes-pos-network-security-and-capital-utilization)
+ 
 
 
 

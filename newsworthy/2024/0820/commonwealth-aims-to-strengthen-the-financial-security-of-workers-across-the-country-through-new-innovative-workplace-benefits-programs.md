@@ -29,7 +29,17 @@ Commonwealth is a national nonprofit building financial security and opportunity
 [Original/Source Press Release](https://newsworthy.ai/news/202408201242/commonwealth-aims-to-strengthen-the-financial-security-of-workers-across-the-country-through-new-innovative-workplace-benefits-programs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/commonwealth-and-jpmorganchase-launch-initiative-to-improve-worker-financial-well-being/8275cdb777fe6ea29b6f21ba60ed2056) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/commonwealth-launches-benefits-for-the-future-initiative-to-enhance-financial-security-for-low-to-moderate-income-workers)
+
+Pickup - [fishervista.com](https://fishervista.com/en/commonwealth-launches-initiative-to-strengthen-financial-security-for-low-to-moderate-income-workers/20245832)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/commonwealth-launches-benefits-for-the-future-initiative-to-enhance-financial-security-for-low-to-moderate-income-workers/20245832)
+
+Pickup - [advos.io](https://advos.io/en/commonwealth-and-jpmorganchase-launch-initiative-to-enhance-financial-security-for-low-to-moderate-income-workers/20245832)
+ 
 
 
 

@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/chesnara-repo
 [Original/Source Press Release](https://newsdirect.com/news/chesnara-reports-strong-2023-results-with-improved-cash-generation-and-solvency-ratio-147017038)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chesnara-plc-ceo-steve-murray-discusses-strong-2023-results-with-proactive/b3080569c02aa428687b66e84576756f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/chesnara-delivers-robust-financial-performance-and-sustained-growth)
+ 
 
 
 

@@ -9,7 +9,11 @@ TONY THE DUCK, a vibrant new token launched on the TON network, has taken the cr
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-tony-the-duck-the-quacking-success-story-on-ton-network)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tony-the-duck-a-rising-star-in-the-crypto-world/d3f696ec97e26ece7c4d09f1eac07505) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/tony-the-duck-the-quacking-sensation-taking-over-the-ton-network)
+ 
 
 
 

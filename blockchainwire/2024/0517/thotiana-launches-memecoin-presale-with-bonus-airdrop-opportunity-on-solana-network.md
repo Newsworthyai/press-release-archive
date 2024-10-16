@@ -45,7 +45,13 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/thotiana-launches-memecoin-presale-with-bonus-airdrop-opportunity-on-solana-network)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/thotiana-launches-presale-on-solana-network/e334b6e06943c270bf583cbeb53853aa) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/thotiana-launches-presale-on-solana-network)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/thotiana-launches-presale-on-solana-network)
+ 
 
 
 

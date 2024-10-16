@@ -47,7 +47,9 @@ IR@icoreconnect.com
 [Original/Source Press Release](https://www.newmediawire.com/news/delaware-state-dental-society-endorses-five-icoreconnect-products-7076170)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/icoreconnect-inc-announces-new-endorsement-agreement-with-delaware-state-dental-society/f0f000e2aa44698638a38f38cbfc0d4e) 
+
+ 
 
 
 

@@ -71,7 +71,11 @@ Coinstore Social MediaTwitter | Discord | Facebook | Instagram | Youtube
 [Original/Source Press Release](https://blockchainwire.io/press-release/breaking-news-mbid-is-officially-listing-on-coinstore)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/official-listing-of-mbid-on-coinstore-set-for-february-25-2024/3817a3fdb658fcb70c0bc6d30ff2a067) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/27/ushering-in-a-new-era-of-digital-identity-with-mbid-s-listing-on-coinstore)
+ 
 
 
 

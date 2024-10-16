@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-promotes-invaluable-asset-to-position-of-president-of-commercial-ev-division/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-appoints-john-taylor-as-president-of-commercial-ev-division/050627fa703367ed3d797651223e1484) 
+
+ 
 
 
 

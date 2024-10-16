@@ -21,7 +21,9 @@ BEK TV is the 2021, 2022, 2023, and 2024 winner of the Bismarck Tribune’s Best
 [Original/Source Press Release](https://newsworthy.ai/news/202409191228/free-speech-network-wins-best-tv-station-for-fourth-consecutive-year-chosen-by-the-people-bek-tv-host-names-best-tv-personality)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bek-tv-wins-best-local-tv-station-for-fourth-consecutive-year/09215ee110ab23625df68aa1fd16db75) 
+
+ 
 
 
 

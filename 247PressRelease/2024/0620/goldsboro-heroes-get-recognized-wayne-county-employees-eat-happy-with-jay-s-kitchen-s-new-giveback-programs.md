@@ -7,7 +7,13 @@ GOLDSBORO, NC, June 20, 2024 /24-7PressRelease/ -- Jay's Kitchen, located in Gol
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511864/goldsboro-heroes-get-recognized-wayne-county-employees-eat-happy-with-jays-kitchens-new-giveback-programs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jay-s-kitchen-launches-community-program-to-recognize-local-heroes-and-support-wayne-county-employees/35c338f959cadc588ef072e9bc4426bf) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/jay-s-kitchen-launches-programs-to-recognize-local-heroes-and-support-wayne-county-employees/20244296)
+
+Pickup - [advos.io](https://advos.io/en/jay-s-kitchen-launches-programs-to-honor-wayne-county-heroes-and-employees/20244296)
+ 
 
 
 

@@ -7,7 +7,9 @@ NEW YORK, NY, May 16, 2024 /24-7PressRelease/ -- In a strategic expansion, River
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510923/river-north-communications-expands-portfolio-with-leading-tech-innovators-in-ai-and-real-world-asset-tokenization)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/river-north-communications-announces-strategic-partnerships-with-leading-tech-innovators/b3d500ba747ea4184deb1f70f9847ea3) 
+
+ 
 
 
 

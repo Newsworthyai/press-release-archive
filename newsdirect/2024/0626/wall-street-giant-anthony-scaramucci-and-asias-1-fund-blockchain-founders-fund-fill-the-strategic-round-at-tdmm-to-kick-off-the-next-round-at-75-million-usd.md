@@ -53,7 +53,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/wall-street-g
 [Original/Source Press Release](https://newsdirect.com/news/wall-street-giant-anthony-scaramucci-and-asias-1-fund-blockchain-founders-fund-fill-the-strategic-round-at-tdmm-to-kick-off-the-next-round-at-75-million-usd-934352053)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tradedog-market-management-secures-major-investment-from-blockchain-founders-fund-and-anthony-scaramucci/8a3ae9d3c303a60776a312e21b24d465) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/tradedog-market-management-secures-75-million-investment-from-blockchain-founders-fund-and-anthony-scaramucci/20244490)
+
+Pickup - [advos.io](https://advos.io/en/anthony-scaramucci-and-blockchain-founders-fund-invest-75-million-in-tradedog-market-management/20244490)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tradedog-market-management-secures-major-investment-from-blockchain-founders-fund-and-anthony-scaramucci)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tradedog-market-management-secures-major-investment-from-blockchain-founders-fund-and-anthony-scaramucci)
+ 
 
 
 

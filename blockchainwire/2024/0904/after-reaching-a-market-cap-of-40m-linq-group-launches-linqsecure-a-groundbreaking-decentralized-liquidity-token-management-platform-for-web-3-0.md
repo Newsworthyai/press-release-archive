@@ -35,7 +35,11 @@ Explore LINQSecure and Pot of Greed now: [https://www.linqgroup.io](https://www
 [Original/Source Press Release](https://blockchainwire.io/press-release/after-reaching-a-market-cap-of-40m-linq-group-launches-linqsecure-a-groundbreaking-decentralized-liquidity-token-management-platform-for-web-30)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/linq-group-launches-innovative-token-management-platform-linqsecure/49bdd4cb8cab3f2dba1827d33110cf0a) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/linq-group-unveils-linqsecure-a-revolutionary-decentralized-token-management-platform/20246718)
+ 
 
 
 

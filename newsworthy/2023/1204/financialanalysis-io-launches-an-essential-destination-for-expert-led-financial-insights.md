@@ -23,7 +23,11 @@ Dive deep into the world of financial insights at www.FinancialAnalysis.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231204819/financialanalysis-io-launches-an-essential-destination-for-expert-led-financial-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-financialanalysis-io-a-new-platform-for-financial-insight-and-collaboration/ec2b5474f4023b0fadd3e3b0209c7601) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/04/financialanalysis-io-emerges-as-premier-destination-for-expert-financial-insights)
+ 
 
 
 

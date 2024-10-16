@@ -7,7 +7,11 @@ WASHINGTON, DC, June 05, 2024 /24-7PressRelease/ -- Quimera Publishing is excite
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511426/quimera-publishing-announces-new-novel-the-quimera-codes-by-russell-rutland-mcguire-jr)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-political-fiction-novel-the-quimera-codes-released-by-quimera-publishing/e4ddad3d27ea6876efb69d8a80f7327a) 
+
+
+Pickup - [advos.io](https://advos.io/en/quimera-publishing-releases-political-thriller-the-quimera-codes-by-russell-rutland-mcguire-jr/20243838)
+ 
 
 
 

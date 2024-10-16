@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/alkane-resour
 [Original/Source Press Release](https://newsdirect.com/news/alkane-resources-announces-major-development-at-roswell-as-it-transitions-to-production-stoping-806564043)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alkane-resources-announces-major-development-at-roswell-as-it-transitions-to-production-stoping/b73b931656861ca80b74e72b5f9d4e01) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/alkane-resources-announces-major-development-at-roswell-as-it-transitions-to-production-stoping)
+ 
 
 
 

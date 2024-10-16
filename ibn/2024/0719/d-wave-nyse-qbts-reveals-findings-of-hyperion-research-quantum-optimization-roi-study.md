@@ -29,7 +29,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-reveals-findings-of-hyperion-research-quantum-optimization-roi-study/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/majority-of-businesses-expecting-significant-roi-from-quantum-computing-efforts/8b4c63544829498fa8506c63c57fa598) 
+
+ 
 
 
 

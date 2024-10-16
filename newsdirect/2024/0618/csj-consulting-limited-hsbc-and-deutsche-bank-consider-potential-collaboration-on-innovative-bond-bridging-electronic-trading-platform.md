@@ -33,7 +33,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/csj-consultin
 [Original/Source Press Release](https://newsdirect.com/news/csj-consulting-limited-hsbc-and-deutsche-bank-consider-potential-collaboration-on-innovative-bond-bridging-electronic-trading-platform-941714770)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/csj-consulting-limited-hsbc-and-deutsche-bank-to-develop-innovative-bond-trading-platform/ea1b50a97d868040bc141da4e822eb6f) 
+
+
+Pickup - [advos.io](https://advos.io/en/major-banks-explore-revolutionary-bond-trading-platform/20244245)
+
+Pickup - [fishervista.com](https://fishervista.com/en/csj-consulting-hsbc-and-deutsche-bank-explore-innovative-electronic-bond-trading-platform/20244245)
+ 
 
 
 

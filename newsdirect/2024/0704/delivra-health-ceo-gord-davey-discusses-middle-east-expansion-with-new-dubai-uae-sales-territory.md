@@ -21,7 +21,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/delivra-healt
 [Original/Source Press Release](https://newsdirect.com/news/delivra-health-ceo-gord-davey-discusses-middle-east-expansion-with-new-dubai-uae-sales-territory-490179364)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/delivra-health-ceo-gord-davey-discusses-middle-east-expansion-with-new-dubai-uae-sales-territory/175c1e0084a66a0b0e798935b8c35acf) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/delivra-health-expands-into-uae-amid-regulatory-challenges/20244713)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/04/delivra-health-brands-expands-into-uae-market-with-dream-water-product)
+
+Pickup - [advos.io](https://advos.io/en/delivra-health-expands-into-uae-with-dream-water-product/20244713)
+ 
 
 
 

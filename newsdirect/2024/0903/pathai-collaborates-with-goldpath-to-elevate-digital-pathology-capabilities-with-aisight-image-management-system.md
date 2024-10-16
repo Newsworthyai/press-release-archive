@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/pathai-collab
 [Original/Source Press Release](https://newsdirect.com/news/pathai-collaborates-with-goldpath-to-elevate-digital-pathology-capabilities-with-aisight-image-management-system-348740036)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pathai-collaborates-with-goldpath-to-elevate-digital-pathology-capabilities/e990ef660de28ac80f28923996cf2f1e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/pathai-partners-with-goldpath-to-enhance-digital-pathology-with-aisight-ims/20246494)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/goldpath-adopts-pathai-s-aisight-to-revolutionize-digital-pathology-services)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/goldpath-adopts-pathai-s-aisight-to-enhance-digital-pathology-services/20246494)
+
+Pickup - [advos.io](https://advos.io/en/pathai-and-goldpath-partner-to-advance-digital-pathology-with-aisight-image-management-system/20246494)
+ 
 
 
 

@@ -7,7 +7,17 @@ NEW YORK, NY, September 11, 2024 /24-7PressRelease/ -- MOGABI AMT INC., a leadin
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514186/mogabi-v3-electric-guitar-the-ultimate-one-man-band-experience-now-live-on-kickstarter)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mogabi-amt-inc-launches-mogabi-v3-electric-guitar-on-kickstarter/a5f6d5901344aad31221a76ce7dd3f1f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/mogabi-v3-electric-guitar-launches-on-kickstarter-a-portable-one-man-band-solution)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mogabi-v3-electric-guitar-revolutionizing-portability-and-sound-quality/20246678)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mogabi-v3-electric-guitar-launches-on-kickstarter-a-portable-one-man-band-solution/20246678)
+
+Pickup - [advos.io](https://advos.io/en/mogabi-v3-electric-guitar-a-game-changer-for-musicians-now-on-kickstarter/20246678)
+ 
 
 
 

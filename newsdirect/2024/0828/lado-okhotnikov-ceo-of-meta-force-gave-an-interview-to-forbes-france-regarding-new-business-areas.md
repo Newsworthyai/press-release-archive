@@ -63,7 +63,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/lado-okhotnik
 [Original/Source Press Release](https://newsdirect.com/news/lado-okhotnikov-ceo-of-meta-force-gave-an-interview-to-forbes-france-regarding-new-business-areas-541509756)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meta-force-diversifies-into-biology-and-medicine-introduces-holistic-products-and-dna-technology-in-metaverses/90c2ae0d4788cc4159b994139e733f2d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/meta-force-diversifies-into-biology-and-medicine-introduces-holistic-products-and-dna-technology-in-metaverses)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/meta-force-diversifies-into-biology-and-medicine-introduces-holistic-products-and-dna-technology-in-metaverses)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/meta-force-expands-into-holistic-health-and-dna-integrated-metaverse-technology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/meta-force-ventures-into-organic-cosmetics-and-dna-based-metaverse-innovations/20246342)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/meta-force-ventures-into-holistic-health-and-dna-integrated-avatars/20246342)
+
+Pickup - [advos.io](https://advos.io/en/meta-force-ventures-into-organic-cosmetics-and-dna-metaverse-technologies/20246342)
+ 
 
 
 

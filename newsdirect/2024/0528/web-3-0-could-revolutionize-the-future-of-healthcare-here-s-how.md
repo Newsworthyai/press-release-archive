@@ -55,7 +55,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/web-3-0-could
 [Original/Source Press Release](https://newsdirect.com/news/web-3-0-could-revolutionize-the-future-of-healthcare-heres-how-612086022)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/web-3-0-revolutionizing-healthcare-elevate-health-wellness-leading-the-way/e4057525aee813fce209a552cd5f81f5) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/web-3-0-revolutionizing-healthcare-elevate-health-wellness-leading-the-way)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/web-3-0-revolutionizing-healthcare-elevate-health-wellness-leading-the-way)
+ 
 
 
 

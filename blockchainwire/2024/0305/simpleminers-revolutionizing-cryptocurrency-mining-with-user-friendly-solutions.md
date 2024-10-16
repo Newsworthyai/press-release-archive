@@ -32,7 +32,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/simpleminers-revolutionizing-cryptocurrency-mining-with-user-friendly-solutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/simpleminers-launches-revolutionary-cryptocurrency-mining-platform/5e82803af068e885ed8e324bba0d9c82) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/05/simpleminers-unveils-user-friendly-cryptocurrency-mining-platform)
+ 
 
 
 

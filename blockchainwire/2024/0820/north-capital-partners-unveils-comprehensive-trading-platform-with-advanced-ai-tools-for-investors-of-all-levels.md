@@ -37,7 +37,17 @@ Company Website: https://north-capital-partners.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/north-capital-partners-unveils-comprehensive-trading-platform-with-advanced-ai-tools-for-investors-of-all-levels)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/north-capital-partners-launches-comprehensive-trading-platform-with-advanced-ai-tools/0aad07ad5ec75d45f3221b1bfbcd286f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/north-capital-partners-launches-advanced-ai-powered-trading-platform-for-all-investor-levels)
+
+Pickup - [fishervista.com](https://fishervista.com/en/north-capital-partners-launches-advanced-ai-powered-trading-platform/20245845)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/north-capital-partners-launches-advanced-ai-powered-trading-platform-for-all-investor-levels/20245845)
+
+Pickup - [advos.io](https://advos.io/en/north-capital-partners-launches-advanced-ai-powered-trading-platform/20245845)
+ 
 
 
 

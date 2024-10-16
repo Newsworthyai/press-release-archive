@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-regenerat
 [Original/Source Press Release](https://newsdirect.com/news/the-regenerative-power-of-seaweed-nurturing-health-empowering-women-and-sustaining-the-planet-911733687)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rootless-revolutionizing-global-food-system-with-seaweed-for-women-s-health/1b66ac20905576bfbba4ec50109a700c) 
+
+ 
 
 
 

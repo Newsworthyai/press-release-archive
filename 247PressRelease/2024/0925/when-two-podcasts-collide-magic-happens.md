@@ -7,7 +7,9 @@ NEW YORK, NY, September 25, 2024 /24-7PressRelease/ -- Lifestyle podcaster Suzy 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514637/when-two-podcasts-collide-magic-happens)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/podcaster-suzy-chase-relaunches-hit-shows-as-dinner-party-podcast/e31d5bc9091a6fe1b2a23991773417d3) 
+
+ 
 
 
 

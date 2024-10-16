@@ -7,7 +7,15 @@ FORT LAUDERDALE, FL, July 22, 2024 /24-7PressRelease/ -- BurgerFi®, owned by Bu
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512715/burgerfi-celebrates-national-chicken-wing-day-with-5-jumbo-chicken-wings)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/burgerfi-r-celebrates-national-chicken-wing-day-with-5-jumbo-wings-offer/07297490bd3bbc96171204bd40bd3012) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/burgerfi-offers-5-jumbo-chicken-wings-for-national-chicken-wing-day)
+
+Pickup - [fishervista.com](https://fishervista.com/en/burgerfi-r-offers-5-jumbo-chicken-wings-for-national-chicken-wing-day/20245140)
+
+Pickup - [advos.io](https://advos.io/en/burgerfi-r-celebrates-national-chicken-wing-day-with-5-jumbo-chicken-wings/20245140)
+ 
 
 
 

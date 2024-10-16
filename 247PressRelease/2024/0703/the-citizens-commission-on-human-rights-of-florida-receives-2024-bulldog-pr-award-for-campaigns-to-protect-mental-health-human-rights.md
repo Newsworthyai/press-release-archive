@@ -7,7 +7,15 @@ CLEARWATER, FL, July 03, 2024 /24-7PressRelease/ -- Recognized for their work to
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512224/the-citizens-commission-on-human-rights-of-florida-receives-2024-bulldog-pr-award-for-campaigns-to-protect-mental-health-human-rights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/florida-chapter-of-cchr-wins-gold-and-silver-in-bulldog-pr-awards/31375c84058e2e5a0f6b837574466510) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/citizens-commission-on-human-rights-of-florida-honored-with-2024-bulldog-pr-awards-for-mental-health-advocacy/20244677)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/florida-mental-health-watchdog-cchr-wins-gold-and-silver-in-2024-bulldog-pr-awards)
+
+Pickup - [advos.io](https://advos.io/en/citizens-commission-on-human-rights-of-florida-wins-2024-bulldog-pr-award-for-campaigns-on-mental-health-human-rights/20244677)
+ 
 
 
 

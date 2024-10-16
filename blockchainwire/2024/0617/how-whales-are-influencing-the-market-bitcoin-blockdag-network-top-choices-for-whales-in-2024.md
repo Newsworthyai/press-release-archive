@@ -47,7 +47,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/how-whales-are-influencing-the-market-bitcoin--blockdag-network-top-choices-for-whales-in-2024-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/whales-influence-cryptocurrency-market-dynamics-in-2024/5fdba3f136e981807f6b979e302e8f71) 
+
+
+Pickup - [advos.io](https://advos.io/en/bitcoin-and-blockdag-network-emerge-as-top-choices-for-crypto-whales-in-2024/20244215)
+
+Pickup - [fishervista.com](https://fishervista.com/en/whale-activity-signals-strategic-shift-towards-bitcoin-and-blockdag-network-in-2024/20244215)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/whales-influence-cryptocurrency-market-dynamics-in-2024)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/whales-influence-cryptocurrency-market-dynamics-in-2024)
+ 
 
 
 

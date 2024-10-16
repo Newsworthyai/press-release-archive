@@ -29,7 +29,9 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-extends-partnership-with-aramco-research-center-to-help-maximize-quantums-positive-impact/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-extends-agreement-with-aramco-to-utilize-quantum-technologies-for-geophysical-optimization/4e6b5663612f4d3fcd397715739cbe44) 
+
+ 
 
 
 

@@ -7,7 +7,17 @@ VANCOUVER, BC, September 07, 2024 /24-7PressRelease/ -- VRFY Inc., a trailblazer
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514087/vrfy-inc-announces-strategic-expansion-with-the-appointment-of-new-ceo-and-formation-of-a-specialized-team-to-drive-fundraising-and-product-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vrfy-inc-appoints-timothy-d-moore-as-new-ceo-and-forms-expert-team-to-spearhead-fundraising-efforts/b08815ea8ff052bd2278444ddaf6155f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/07/vrfy-inc-appoints-new-ceo-and-forms-expert-team-to-accelerate-growth-in-ai-driven-law-enforcement-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/vrfy-inc-appoints-new-ceo-and-assembles-expert-team-for-strategic-growth-and-product-launch/20246598)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/vrfy-inc-appoints-new-ceo-and-forms-expert-team-to-drive-growth-in-ai-driven-law-enforcement-solutions/20246598)
+
+Pickup - [advos.io](https://advos.io/en/vrfy-inc-appoints-new-ceo-and-forms-strategic-team-to-accelerate-growth-and-innovation/20246598)
+ 
 
 
 

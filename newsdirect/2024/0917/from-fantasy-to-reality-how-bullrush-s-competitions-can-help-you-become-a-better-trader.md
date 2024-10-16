@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/from-fantasy-
 [Original/Source Press Release](https://newsdirect.com/news/from-fantasy-to-reality-how-bullrushs-competitions-can-help-you-become-a-better-trader-496036957)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bullrush-the-gamified-trading-platform-that-makes-learning-fun/11023a70263d7a94e3377a2be92ad147) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/bullrush-platform-combines-fantasy-sports-excitement-with-trading-skill-development)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bullrush-platform-combines-fantasy-sports-and-trading-to-enhance-investor-skills/20246900)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bullrush-platform-revolutionizes-trading-education-through-gamification/20246900)
+
+Pickup - [advos.io](https://advos.io/en/bullrush-platform-combines-fantasy-sports-excitement-with-simulated-trading-to-enhance-trader-skills/20246900)
+ 
 
 
 

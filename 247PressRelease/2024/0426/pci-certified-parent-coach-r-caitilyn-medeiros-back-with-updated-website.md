@@ -7,7 +7,9 @@ BELLINGHAM, WA, April 26, 2024 /24-7PressRelease/ -- PCI Certified Parent CoachÂ
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510414/pci-certified-parent-coach-caitilyn-medeiros-back-with-updated-website)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/experienced-parent-coach-relaunches-website-with-focus-on-simplifying-family-life/87b0af4e5ed0a3a137e01a2dde9b8697) 
+
+ 
 
 
 

@@ -7,7 +7,15 @@ WILMINGTON, NC, July 23, 2024 /24-7PressRelease/ -- Bestselling author Saverio M
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512732/bestsellling-author-saverio-monachinos-latest-psychological-fiction-novel-little-bit-of-faith-will-be-available-at-no-charge-in-ebook-format-july-22-through-july-24-2024-at-amazon)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-saverio-monachino-offers-free-ebook-of-little-bit-of-faith-on-amazon/94d8225417b23dfb3380df238b914a4c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/bestselling-author-saverio-monachino-offers-free-ebook-little-bit-of-faith)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bestselling-author-saverio-monachino-offers-free-ebook-of-latest-psychological-fiction-novel/20245174)
+
+Pickup - [advos.io](https://advos.io/en/bestselling-author-saverio-monachino-offers-new-psychological-fiction-novel-for-free-on-amazon/20245174)
+ 
 
 
 

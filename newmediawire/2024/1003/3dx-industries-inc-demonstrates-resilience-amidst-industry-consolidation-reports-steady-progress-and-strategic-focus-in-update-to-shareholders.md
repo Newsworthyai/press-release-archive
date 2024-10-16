@@ -35,7 +35,9 @@ Visit the 3DX Industries, Inc. web site at www.3dxindustries.com.  Information 
 [Original/Source Press Release](https://www.newmediawire.com/news/3dx-industries-inc-demonstrates-resilience-amidst-industry-consolidation-reports-steady-progress-and-strategic-focus-in-update-to-shareholders-7076147)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/3dx-industries-inc-otcm-dddx-showcases-resilience-amid-ongoing-3d-printing-sector-consolidation/60fdf76a795407f95d2b436e4aeeade2) 
+
+ 
 
 
 

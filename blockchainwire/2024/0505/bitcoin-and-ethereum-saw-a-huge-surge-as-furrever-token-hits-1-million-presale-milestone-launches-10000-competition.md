@@ -29,7 +29,9 @@ Media Contact:Robert Smith[https://furrevertoken.com/](https://furrevertoken.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-and-ethereum-saw-a-huge-surge-as-furrever-token-hits-1-million-presale-milestone-launches-10000-competition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-and-ethereum-surge-amidst-market-uncertainty-furrever-token-hits-1m-presale-milestone/9207f1d44264d419583606f0cbab0c3f) 
+
+ 
 
 
 

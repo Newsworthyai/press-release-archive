@@ -7,7 +7,11 @@ WILMINGTON, NC, June 08, 2024 /24-7PressRelease/ -- Author Saverio Monachino has
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511495/author-saverio-monachinos-murder-mystery-by-any-means-will-be-available-at-no-charge-in-ebook-format-june-10-through-june-12-2024-at-amazon)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/free-ebook-release-of-by-any-means-murder-mystery-novel-by-saverio-monachino/a0c3e2b00380ea56dea8455487445574) 
+
+
+Pickup - [advos.io](https://advos.io/en/author-saverio-monachino-s-murder-mystery-by-any-means-available-for-free-as-ebook-on-amazon/20243954)
+ 
 
 
 

@@ -15,7 +15,11 @@ For more information or to schedule a consultation, please contact Conventions P
 [Original/Source Press Release](https://newsworthy.ai/news/202402161066/conventions-psychiatry-counseling-partners-with-apollo-and-neurostar-tms-to-offer-groundbreaking-tms-treatment-for-depression)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-tms-therapy-partnership-for-depression-treatment/fea8cab4f6eee3b6d8c6eacfd8c00863) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/16/conventions-psychiatry-counseling-pioneers-tms-therapy-for-depression-treatment)
+ 
 
 
 

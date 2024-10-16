@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/locality-appo
 [Original/Source Press Release](https://newsdirect.com/news/locality-appoints-sandy-ashendorf-as-executive-vice-president-law-and-business-affairs-380341273)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/locality-appoints-sandy-ashendorf-as-executive-vice-president/0873d19d10e14f358fe774485c37bfd4) 
+
+ 
 
 
 

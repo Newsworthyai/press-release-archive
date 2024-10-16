@@ -31,7 +31,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/global-publishing-house-puts-10m-gigabytes-on-chain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/serenity-shield-and-contentra-technologies-announce-groundbreaking-partnership/cdfd04f0e5336fdb1de74d09e9d47ec4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/global-publishing-giant-partners-with-blockchain-firm-to-secure-10m-gigabytes-of-data)
+ 
 
 
 

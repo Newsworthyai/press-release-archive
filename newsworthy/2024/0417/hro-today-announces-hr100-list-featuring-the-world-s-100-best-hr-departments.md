@@ -43,7 +43,13 @@ HRO Today is the go-to resource for top-level HR executives and leaders across i
 [Original/Source Press Release](https://newsworthy.ai/news/202404171148/hro-today-announces-hr100-list-featuring-the-world-s-100-best-hr-departments)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hro-today-magazine-unveils-2023-24-hr100-list-of-top-hr-departments/9701f556bbc801ce8be3617c9f6ffc04) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hro-today-unveils-hr100-ranking-the-world-s-top-hr-departments/20241888)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/hro-today-announces-hr100-list-featuring-the-world-s-100-best-hr-departments)
+ 
 
 
 

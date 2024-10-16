@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kingston-reso
 [Original/Source Press Release](https://newsdirect.com/news/kingston-resources-delivers-high-grade-results-secures-8-8-million-as-part-of-13-5-million-raise-775363933)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kingston-resources-delivers-high-grade-results-secures-8-8-million-as-part-of-13-5-million-raise/e22f6cfa36cb3bc45e4f706174ae80b4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/kingston-resources-secures-funding-and-reports-promising-drilling-results)
+ 
 
 
 

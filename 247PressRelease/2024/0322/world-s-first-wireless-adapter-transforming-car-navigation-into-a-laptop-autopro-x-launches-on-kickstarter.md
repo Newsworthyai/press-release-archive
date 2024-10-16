@@ -7,7 +7,11 @@ NEW YORK, NY, March 22, 2024 /24-7PressRelease/ -- Mayton Motion is launching Au
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509448/worlds-first-wireless-adapter-transforming-car-navigation-into-a-laptop-autopro-x-launches-on-kickstarter)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mayton-motion-launches-autopro-x-the-world-s-first-wireless-adapter-for-car-navigation-screens/0f312fb4f19a55545cb290a519c63c2c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/autopro-x-transforming-car-navigation-into-a-laptop)
+ 
 
 
 

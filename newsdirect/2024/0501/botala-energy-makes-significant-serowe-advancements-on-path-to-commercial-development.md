@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/botala-energy
 [Original/Source Press Release](https://newsdirect.com/news/botala-energy-makes-significant-serowe-advancements-on-path-to-commercial-development-321862587)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/botala-energy-achieves-significant-milestones-in-serowe-commercial-development/173549ce320c90eb70f949a37631247e) 
+
+ 
 
 
 

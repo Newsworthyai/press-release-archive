@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/nextsource-ma
 [Original/Source Press Release](https://newsdirect.com/news/nextsource-materials-on-track-with-building-of-battery-anode-facility-in-mauritius-594465968)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nextsource-materials-advances-development-of-battery-anode-facility-in-mauritius/63db337888a099021bb9afb45aab660e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/nextsource-materials-on-track-with-building-of-battery-anode-facility-in-mauritius)
+ 
 
 
 

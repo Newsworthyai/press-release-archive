@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/caledonia-min
 [Original/Source Press Release](https://newsdirect.com/news/caledonia-mining-tackles-2023-challenges-with-optimism-for-2024-as-it-maintains-dividend-474868449)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/caledonia-mining-tackles-2023-challenges-with-optimism-for-2024/fa4c958a3538c8ff9cf8d712e87312be) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/caledonia-mining-forges-ahead-despite-2023-hurdles-maintains-dividend)
+ 
 
 
 

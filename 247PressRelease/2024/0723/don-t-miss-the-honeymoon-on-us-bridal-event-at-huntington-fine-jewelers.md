@@ -7,7 +7,15 @@ OKLAHOMA CITY, OK, July 23, 2024 /24-7PressRelease/ -- Huntington Fine Jewelers 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512767/dont-miss-the-honeymoon-on-us-bridal-event-at-huntington-fine-jewelers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/huntington-fine-jewelers-hosts-honeymoon-on-us-bridal-event/c068e214f62d6237aeee902e480de21e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/huntington-fine-jewelers-offers-complimentary-honeymoon-with-bridal-jewelry-purchase)
+
+Pickup - [fishervista.com](https://fishervista.com/en/huntington-fine-jewelers-announces-honeymoon-on-us-bridal-event/20245173)
+
+Pickup - [advos.io](https://advos.io/en/huntington-fine-jewelers-announces-complimentary-honeymoon-getaway-with-bridal-purchase/20245173)
+ 
 
 
 

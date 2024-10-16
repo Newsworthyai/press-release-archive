@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/genflow-biosc
 [Original/Source Press Release](https://newsdirect.com/news/genflow-biosciences-attracts-new-institutional-investors-with-ps715-000-fundraise-277918144)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/genflow-biosciences-raises-ps715000-from-new-institutional-investors/b4ab84a876e9f0f538c356e28a66c87a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/genflow-biosciences-secures-ps715000-investment-from-institutional-investors)
+ 
 
 
 

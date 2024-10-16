@@ -31,7 +31,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/claravine-lau
 [Original/Source Press Release](https://newsdirect.com/news/claravine-launches-connected-application-on-the-snowflake-ai-data-cloud-848689203)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/claravine-launches-connected-application-on-snowflake-ai-data-cloud/c3b4d8eae8edf8b276bd513cca67aee9) 
+
+
+Pickup - [advos.io](https://advos.io/en/claravine-unveils-connected-application-on-snowflake-ai-data-cloud/20244880)
+
+Pickup - [fishervista.com](https://fishervista.com/en/claravine-unveils-connected-application-on-snowflake-ai-data-cloud/20244880)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/11/claravine-introduces-connected-application-for-snowflake-ai-data-cloud-revolutionizing-marketing-data-management)
+ 
 
 
 

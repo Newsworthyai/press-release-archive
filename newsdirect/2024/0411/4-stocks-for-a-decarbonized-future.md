@@ -65,7 +65,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/4-stocks-for-
 [Original/Source Press Release](https://newsdirect.com/news/4-stocks-for-a-decarbonized-future-349994051)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investing-in-a-decarbonized-future-key-players-and-opportunities/6b134fe1497f11c7003b28c8d9c8c658) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/investing-in-a-decarbonized-future-4-stocks-to-watch)
+ 
 
 
 

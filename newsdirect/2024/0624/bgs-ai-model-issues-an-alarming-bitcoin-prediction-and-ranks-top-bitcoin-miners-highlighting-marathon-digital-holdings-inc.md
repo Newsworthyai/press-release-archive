@@ -43,7 +43,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/bgs-ai-model-
 [Original/Source Press Release](https://newsdirect.com/news/bgs-ai-model-issues-an-alarming-bitcoin-prediction-and-ranks-top-bitcoin-miners-highlighting-marathon-digital-holdings-inc-702299139)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/best-growth-stocks-issues-bitcoin-prediction-and-ranks-top-miners/bc35314ce414a0a5fd2fb94fa9db5036) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bgs-ai-model-predicts-alarming-bitcoin-price-drop-amid-rising-u-s-debt/20244415)
+
+Pickup - [advos.io](https://advos.io/en/best-growth-stocks-ai-model-predicts-alarming-bitcoin-trends-highlights-marathon-digital-holdings/20244415)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/best-growth-stocks-issues-bitcoin-prediction-and-ranks-top-miners)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/best-growth-stocks-issues-bitcoin-prediction-and-ranks-top-miners)
+ 
 
 
 

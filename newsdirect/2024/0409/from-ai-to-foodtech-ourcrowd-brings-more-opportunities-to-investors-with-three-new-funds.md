@@ -51,7 +51,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/from-ai-to-fo
 [Original/Source Press Release](https://newsdirect.com/news/from-ai-to-foodtech-ourcrowd-brings-more-opportunities-to-investors-with-three-new-funds-393109408)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ourcrowd-unveils-new-investment-funds-in-ai-foodtech-and-tech-sectors/08552b36da01b571f68a3e9f9d9aa0e6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/ourcrowd-unlocks-opportunities-in-ai-foodtech-and-beyond-with-new-funds)
+ 
 
 
 

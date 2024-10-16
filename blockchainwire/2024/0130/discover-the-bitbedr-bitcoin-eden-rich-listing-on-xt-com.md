@@ -56,7 +56,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-bitbedrbitcoin-eden-rich-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-announces-listing-of-bitbedr-token-in-the-innovation-zone-defi/b2fb5a637b1e728dc9171fd858ef4fa6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/30/bitbedr-token-listing-announced-on-xt-com-exchange)
+ 
 
 
 

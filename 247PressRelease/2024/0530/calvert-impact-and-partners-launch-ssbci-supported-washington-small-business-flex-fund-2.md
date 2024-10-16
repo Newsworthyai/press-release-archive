@@ -7,7 +7,9 @@ BETHESDA, MD, May 30, 2024 /24-7PressRelease/ -- Calvert Impact and its partners
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511282/calvert-impact-and-partners-launch-ssbci-supported-washington-small-business-flex-fund-2)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/calvert-impact-launches-washington-small-business-flex-fund-2-to-support-underbanked-communities/6e57f3c73bb64ab5f1c970f5c4e9c4cb) 
+
+ 
 
 
 

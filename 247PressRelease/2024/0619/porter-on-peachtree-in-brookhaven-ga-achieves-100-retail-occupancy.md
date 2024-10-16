@@ -7,7 +7,13 @@ ATLANTA, GA, June 19, 2024 /24-7PressRelease/ -- Porter on Peachtree, a mixed-us
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511787/porter-on-peachtree-in-brookhaven-ga-achieves-100-retail-occupancy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/luxury-patisserie-sucre-leases-final-retail-space-at-porter-on-peachtree-in-brookhaven-ga/0af68745f13100c03751e82c8dfa50c0) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/porter-on-peachtree-in-brookhaven-ga-achieves-100-retail-occupancy/20244269)
+
+Pickup - [advos.io](https://advos.io/en/porter-on-peachtree-in-brookhaven-ga-achieves-full-retail-occupancy-with-addition-of-sucre/20244269)
+ 
 
 
 

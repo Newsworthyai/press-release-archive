@@ -7,7 +7,15 @@ NEW LONDON, CT, July 14, 2024 /24-7PressRelease/ -- Debug Pest Control, a locall
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512494/debug-pest-control-expands-to-new-london-county)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/debug-pest-control-expands-with-new-branch-in-new-london-county/97947e2eff8172bbb8d5007c41f7aac7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/14/debug-pest-control-expands-services-to-new-london-county-with-new-niantic-branch)
+
+Pickup - [fishervista.com](https://fishervista.com/en/debug-pest-control-expands-operations-to-new-london-county/20244937)
+
+Pickup - [advos.io](https://advos.io/en/debug-pest-control-expands-services-to-new-london-county/20244937)
+ 
 
 
 

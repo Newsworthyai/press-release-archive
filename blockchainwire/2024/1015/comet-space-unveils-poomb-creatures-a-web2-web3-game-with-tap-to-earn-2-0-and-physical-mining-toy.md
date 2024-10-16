@@ -36,7 +36,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/comet-space-unveils-poomb-creatures-a-web2--web3-game-with-tap-to-earn-20-and-physical-mining-toy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comet-space-launches-poomb-creatures-the-new-standard-in-blockchain-gaming/93ae23f6c8b02f7ff6dfc82835c67f7e) 
+
+ 
 
 
 

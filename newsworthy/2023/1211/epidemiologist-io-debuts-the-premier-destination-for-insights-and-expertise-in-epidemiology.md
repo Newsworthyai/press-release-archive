@@ -23,7 +23,11 @@ Navigate the intricate world of epidemiology with www.Epidemiologist.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231211816/epidemiologist-io-debuts-the-premier-destination-for-insights-and-expertise-in-epidemiology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-epidemiologist-io-a-new-platform-for-advancing-knowledge-in-epidemiology/654061afb2e1542ac869e7102f80279e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/11/epidemiologist-io-illuminating-the-vital-world-of-epidemiology)
+ 
 
 
 

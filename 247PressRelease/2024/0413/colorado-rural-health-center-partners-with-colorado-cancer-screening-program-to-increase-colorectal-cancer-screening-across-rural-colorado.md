@@ -7,7 +7,11 @@ DENVER, CO, April 13, 2024 /24-7PressRelease/ -- The Colorado Rural Health Cente
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510042/colorado-rural-health-center-partners-with-colorado-cancer-screening-program-to-increase-colorectal-cancer-screening-across-rural-colorado)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crhc-and-ccsp-partner-to-increase-colorectal-cancer-screening-in-rural-colorado/fd0ad6f6b035093e89bbcc5d4a95686d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/13/colorado-rural-health-center-partners-with-colorado-cancer-screening-program-to-increase-colorectal-cancer-screening-across-rural-colorado)
+ 
 
 
 

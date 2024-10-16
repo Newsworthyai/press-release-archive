@@ -7,7 +7,9 @@ WRIGHTSTOWN, WI, May 16, 2024 /24-7PressRelease/ -- Wrightstown-based car wheel 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510933/anovia-wheels-launches-brand-new-highball-car-wheel)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/anovia-wheels-unveils-new-highball-wheel-model/e5f56a8eaf8d22f76a34b3d9f6a14d58) 
+
+ 
 
 
 

@@ -57,7 +57,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/ethena-suffer
 [Original/Source Press Release](https://newsdirect.com/news/ethena-suffers-crypto-slump-as-raboo-outclasses-tron-with-exceptional-activity-580573587)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defi-coins-in-decline-as-raboo-outclasses-tron-with-exceptional-activity/354171d1647877bb35b25e601300d361) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/ethena-faces-criticism-amid-crypto-slump-raboo-and-tron-gain-traction/20244465)
+
+Pickup - [advos.io](https://advos.io/en/ethena-faces-decline-raboo-gains-momentum-with-ai-enhanced-meme-coin/20244465)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/defi-coins-in-decline-as-raboo-outclasses-tron-with-exceptional-activity)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/defi-coins-in-decline-as-raboo-outclasses-tron-with-exceptional-activity)
+ 
 
 
 

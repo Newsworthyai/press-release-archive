@@ -33,7 +33,11 @@ Whitepaper: https://whitepaper.sm.network
 [Original/Source Press Release](https://blockchainwire.io/press-release/solmedia-becomes-first-to-integrate-solana-and-filecoin-on-their-censorship-resistant-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solmedia-integrates-solana-blockchain-and-filecoin-ipfs-for-secure-content-sharing/2538e15ce397947d7b50311d5b723729) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/solmedia-pioneers-solana-and-filecoin-integration-for-censorship-resistant-content-sharing)
+ 
 
 
 

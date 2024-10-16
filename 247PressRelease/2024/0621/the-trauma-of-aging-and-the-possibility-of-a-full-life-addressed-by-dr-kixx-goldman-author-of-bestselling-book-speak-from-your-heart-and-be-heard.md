@@ -7,7 +7,13 @@ WILMINGTON, NC, June 21, 2024 /24-7PressRelease/ -- When we think about aging, w
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511836/the-trauma-of-aging-and-the-possibility-of-a-full-life-addressed-by-dr-kixx-goldman-author-of-bestselling-book-speak-from-your-heart-and-be-heard)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-kixx-goldman-challenges-society-s-attitudes-toward-aging-in-recent-article/e5429bacbb056efb61b6777fb649f01e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/aging-and-trauma-dr-kixx-goldmans-insights-from-speak-from-your-heart-and-be-heard/20244361)
+
+Pickup - [advos.io](https://advos.io/en/dr-kixx-goldman-addresses-aging-trauma-and-full-life-potential-in-new-insights/20244361)
+ 
 
 
 

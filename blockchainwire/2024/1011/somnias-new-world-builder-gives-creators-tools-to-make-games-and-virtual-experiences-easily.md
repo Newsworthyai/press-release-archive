@@ -31,7 +31,9 @@ For more information, please visit Somnia.Network
 [Original/Source Press Release](https://blockchainwire.io/press-release/somnias-new-world-builder-gives-creators-tools-to-make-games-and-virtual-experiences-easily)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/somnia-announces-launch-of-world-builder-for-metaverse-gaming/861e6f1484f7eee78857899968675c1f) 
+
+ 
 
 
 

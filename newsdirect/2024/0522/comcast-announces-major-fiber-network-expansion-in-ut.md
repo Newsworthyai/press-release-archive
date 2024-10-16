@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/comcast-annou
 [Original/Source Press Release](https://newsdirect.com/news/comcast-announces-major-fiber-network-expansion-in-ut-374369822)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-invests-138m-to-expand-xfinity-network-in-utah/b4404b48842daf3dbc28374bc4a59747) 
+
+ 
 
 
 

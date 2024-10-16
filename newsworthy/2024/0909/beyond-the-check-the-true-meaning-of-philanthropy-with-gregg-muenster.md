@@ -25,7 +25,17 @@ About The Building Texas ShowThe Building Texas Show is a podcast dedicated to e
 [Original/Source Press Release](https://newsworthy.ai/news/202409091251/beyond-the-check-the-true-meaning-of-philanthropy-with-gregg-muenster)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beyond-the-check-the-true-meaning-of-philanthropy-with-gregg-muenster/fb41d6f90b050d013a3ec2820c253188) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/gregg-muenster-redefines-philanthropy-on-the-building-texas-show)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gregg-muenster-redefines-philanthropy-on-the-building-texas-show/20246624)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gregg-muenster-redefines-philanthropy-on-the-building-texas-show/20246624)
+
+Pickup - [advos.io](https://advos.io/en/gregg-muenster-explores-the-true-meaning-of-philanthropy-on-the-building-texas-show/20246624)
+ 
 
 
 

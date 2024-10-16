@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/shedding-ligh
 [Original/Source Press Release](https://newsdirect.com/news/shedding-light-on-cystic-fibrosis-awareness-month-366568427)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cystic-fibrosis-foundation-board-chair-kc-white-advocates-for-cf-awareness-and-progress-in-nationwide-media-tour/12b8b635fd32e336b01df495bfd3483e) 
+
+ 
 
 
 

@@ -7,7 +7,11 @@ VANCOUVER, BC, March 22, 2024 /24-7PressRelease/ -- Jeff the Liquidator, owner o
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509446/jeff-the-liquidator-along-with-many-valued-donor-partners-is-proud-to-support-the-memorial-ribbon-society-of-canada)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jeff-the-liquidator-commits-to-auction-donated-items-for-memorial-ribbon-society/b684cce1b84fa82c84eba3f8a549e85d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/jeff-the-liquidator-auctions-donated-items-to-support-memorial-ribbon-society)
+ 
 
 
 

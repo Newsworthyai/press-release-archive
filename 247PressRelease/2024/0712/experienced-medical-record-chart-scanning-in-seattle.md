@@ -7,7 +7,15 @@ SEATTLE, WA, July 12, 2024 /24-7PressRelease/ -- The team at Micro Com Systems (
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512481/experienced-medical-recordchart-scanning-in-seattle)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/micro-com-systems-offers-efficient-medical-records-scanning-services/36a4ec3fdeeffed6892cc09ca2174e83) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/micro-com-systems-revolutionizes-medical-record-management-in-seattle)
+
+Pickup - [fishervista.com](https://fishervista.com/en/micro-com-systems-revolutionizes-medical-record-management-in-seattle/20244906)
+
+Pickup - [advos.io](https://advos.io/en/micro-com-systems-enhances-medical-record-management-with-advanced-scanning-services-in-seattle/20244906)
+ 
 
 
 

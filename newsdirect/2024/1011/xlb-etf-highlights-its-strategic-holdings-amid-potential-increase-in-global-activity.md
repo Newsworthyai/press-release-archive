@@ -94,7 +94,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/xlb-etf-highl
 [Original/Source Press Release](https://newsdirect.com/news/xlb-etf-highlights-its-strategic-holdings-amid-potential-increase-in-global-activity-183970308)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xlb-etf-highlights-potential-increase-in-global-activity/c7b07b4cabe18051097e8bad2fa8363e) 
+
+ 
 
 
 

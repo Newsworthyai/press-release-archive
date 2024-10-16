@@ -37,7 +37,21 @@ In addition to depositing funds at centralized cryptocurrency exchanges, users c
 [Original/Source Press Release](https://blockchainwire.io/press-release/bit-treasury-exchange-pioneering-decentralized-trading-platforms)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bit-treasury-exchange-shifting-to-remote-work-model-and-expanding-services/c846afa5d6ce0580ad02a9c6de04cdc4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/bit-treasury-exchange-leading-the-way-in-decentralized-cryptocurrency-trading)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bit-treasury-exchange-advancing-decentralized-cryptocurrency-trading/20245294)
+
+Pickup - [advos.io](https://advos.io/en/bit-treasury-exchange-revolutionizing-decentralized-cryptocurrency-trading/20245294)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bit-treasury-exchange-shifting-to-remote-work-model-and-expanding-services)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bit-treasury-exchange-shifting-to-remote-work-model-and-expanding-services)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bit-treasury-exchange-a-pioneer-in-decentralized-cryptocurrency-trading)
+ 
 
 
 

@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-lists-
 [Original/Source Press Release](https://newsdirect.com/news/bitget-lists-massa-mas-to-its-platform-348949138)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-lists-massa-mas-to-its-platform-furthering-true-decentralization-and-scalability/da91a9cd7466d2ba7b4d87669251e942) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/bitget-embraces-decentralization-with-massa-mas-listing)
+ 
 
 
 

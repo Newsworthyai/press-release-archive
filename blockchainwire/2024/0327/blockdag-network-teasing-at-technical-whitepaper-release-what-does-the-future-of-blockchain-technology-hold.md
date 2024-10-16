@@ -39,7 +39,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-network-teasing-at-technical-whitepaper-releasewhat-does-the-future-of-blockchain-technology-hold-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-to-release-technical-whitepaper-signaling-major-industry-advancement/dddf16440a03268ba2ee6c01d0249d63) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/blockdag-network-unveils-upcoming-technical-whitepaper-release)
+ 
 
 
 

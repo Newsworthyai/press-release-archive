@@ -49,7 +49,9 @@ Don’t miss out on the future of crypto trading—automate your trades with Gre
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-power-of-automation-how-green-global-fx-uses-bots-to-optimize-client-trades)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionizing-trading-with-advanced-automation/83611cd804fd82a94c3cc8bf44f97223) 
+
+ 
 
 
 

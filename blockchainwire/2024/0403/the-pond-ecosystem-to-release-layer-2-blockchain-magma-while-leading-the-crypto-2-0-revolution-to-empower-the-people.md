@@ -25,7 +25,11 @@ Website: www.Pond0x.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-pond-ecosystem-to-release-layer-2-blockchain-magma-while-leading-the-crypto-20-revolution-to-empower-the-people)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pond-ecosystem-empowering-crypto-holders-with-dex-functions-and-layer-2-blockchain/db6dc0e3278475f65a0c32faa5b18fb1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/the-pond-ecosystem-unleashes-layer-2-blockchain-magma-leading-crypto-2-0-revolution)
+ 
 
 
 

@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/electric-guit
 [Original/Source Press Release](https://newsdirect.com/news/electric-guitar-debuts-on-aim-with-big-plans-following-3radical-acquisition-100927169)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/electric-guitar-plc-enters-london-s-aim-market-with-3radical-acquisition/a13b84aca343bf12b558617f8fdcf55d) 
+
+ 
 
 
 

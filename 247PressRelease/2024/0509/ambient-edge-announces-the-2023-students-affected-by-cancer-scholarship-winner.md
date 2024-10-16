@@ -7,7 +7,9 @@ KINGMAN, AZ, May 09, 2024 /24-7PressRelease/ -- Ambient Edge's scholarship selec
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510747/ambient-edge-announces-the-2023-students-affected-by-cancer-scholarship-winner)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ambient-edge-awards-scholarship-to-breast-cancer-survivor-elizabeth-jones/17691958659ac60158edbb7facf06879) 
+
+ 
 
 
 

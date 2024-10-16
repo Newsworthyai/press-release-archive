@@ -52,7 +52,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptoheap-ceo-observes-bitcoin-trends-amid-market-volatility-and-us-presidential-debate)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptoheap-ceo-salvage-warwick-monitors-bitcoin-decline-and-u-s-presidential-debate-impact/cf109a40a0cb4f4cdc37cd317d6c3b15) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cryptoheap-ceo-monitors-bitcoin-trends-and-u-s-presidential-debate-for-market-impact/20244514)
+
+Pickup - [advos.io](https://advos.io/en/cryptoheap-ceo-monitors-bitcoin-trends-and-u-s-presidential-debate-impact/20244514)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cryptoheap-ceo-salvage-warwick-monitors-bitcoin-decline-and-u-s-presidential-debate-impact)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cryptoheap-ceo-salvage-warwick-monitors-bitcoin-decline-and-u-s-presidential-debate-impact)
+ 
 
 
 

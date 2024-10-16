@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/norsk-titaniu
 [Original/Source Press Release](https://newsdirect.com/news/norsk-titanium-secures-direct-supply-agreement-with-boeing-achieves-strong-growth-milestones-128003144)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/norsk-titanium-secures-direct-supply-agreement-with-boeing-achieves-strong-growth-milestones/f13e4c8f6a296e68fe52e2a49390e776) 
+
+ 
 
 
 

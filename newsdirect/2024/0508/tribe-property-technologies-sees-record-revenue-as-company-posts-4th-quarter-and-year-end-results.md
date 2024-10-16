@@ -29,7 +29,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/tribe-propert
 [Original/Source Press Release](https://newsdirect.com/news/tribe-property-technologies-sees-record-revenue-as-company-posts-4th-quarter-and-year-end-results-747023662)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tribe-property-technologies-ceo-announces-record-revenue-for-4th-quarter-and-year-end-results/c0bde7417304046140da1093106d1809) 
+
+ 
 
 
 

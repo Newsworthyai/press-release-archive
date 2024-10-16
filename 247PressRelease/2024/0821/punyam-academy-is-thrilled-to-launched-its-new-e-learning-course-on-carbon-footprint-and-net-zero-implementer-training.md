@@ -7,7 +7,17 @@ VANCOUVER, WA, August 21, 2024 /24-7PressRelease/ -- Punyam Academy, a leading p
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513602/punyam-academy-is-thrilled-to-launched-its-new-e-learning-course-on-carbon-footprint-and-net-zero-implementer-training)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/punyam-academy-launches-new-net-zero-implementer-training-course/ad5aa9bfde7ef340ed9cf0a78cb3c657) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/punyam-academy-launches-comprehensive-net-zero-implementer-training-course)
+
+Pickup - [fishervista.com](https://fishervista.com/en/punyam-academy-launches-comprehensive-net-zero-implementer-training-course/20245862)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/punyam-academy-launches-comprehensive-net-zero-implementer-training-course/20245862)
+
+Pickup - [advos.io](https://advos.io/en/punyam-academy-launches-new-e-learning-course-on-carbon-footprint-and-net-zero-implementer-training/20245862)
+ 
 
 
 

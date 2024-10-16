@@ -26,7 +26,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-solana-shiba-sshib-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-solana-shiba-token-and-offers-sshib-usdt-trading-pair/543f8b844851b860f0e0bd7e536ba03b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/16/xt-com-embraces-solana-shiba-sshib-listing-merging-memes-and-utility)
+ 
 
 
 

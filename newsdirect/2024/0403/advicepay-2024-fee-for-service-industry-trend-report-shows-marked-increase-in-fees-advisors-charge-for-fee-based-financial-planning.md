@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/advicepay-202
 [Original/Source Press Release](https://newsdirect.com/news/advicepay-2024-fee-for-service-industry-trend-report-shows-marked-increase-in-fees-advisors-charge-for-fee-based-financial-planning-978255176)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/advicepay-2024-report-increase-in-fees-for-fee-based-financial-planning/f3a8469c78c5879d44aaf6b3b0468180) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/financial-advisors-see-higher-fees-for-fee-based-planning-services)
+ 
 
 
 

@@ -75,7 +75,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/copper-prices
 [Original/Source Press Release](https://newsdirect.com/news/copper-prices-could-climb-50-as-ai-green-energy-and-defense-spending-drive-demand-580352246)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/copper-prices-soar-as-ai-green-energy-and-defense-spending-drive-demand/4d5cdd4187876773d6bb3f8fab3adf82) 
+
+ 
 
 
 

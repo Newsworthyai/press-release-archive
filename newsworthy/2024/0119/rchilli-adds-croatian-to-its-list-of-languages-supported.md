@@ -23,7 +23,13 @@ RChilli also has its multilingual resume parsing app available on Oracle Cloud M
 [Original/Source Press Release](https://newsworthy.ai/news/202401191022/rchilli-adds-croatian-to-its-list-of-languages-supported)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-strengthens-multilingual-support-with-croatian-language-addition/7052b5dfef07faa00a7303e7e62bb2e0) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-expands-multilingual-capabilities-with-croatian-language-support/2024254)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/19/rchilli-expands-multilingual-capabilities-with-croatian-language-support)
+ 
 
 
 

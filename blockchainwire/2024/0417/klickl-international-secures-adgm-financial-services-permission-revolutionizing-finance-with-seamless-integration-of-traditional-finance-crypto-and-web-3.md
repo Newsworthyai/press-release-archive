@@ -19,7 +19,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/klickl-international-secures-adgm-financial-services-permission-revolutionizing-finance-with-seamless-integration-of-traditional-finance-crypto-and-web-3)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/klickl-international-secures-financial-services-permission-in-abu-dhabi/9c0fee7a84482abb45e08bf095ca7cab) 
+
+ 
 
 
 

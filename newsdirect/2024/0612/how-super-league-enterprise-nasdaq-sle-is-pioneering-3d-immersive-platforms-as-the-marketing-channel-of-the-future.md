@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-super-lea
 [Original/Source Press Release](https://newsdirect.com/news/how-super-league-enterprise-nasdaq-sle-is-pioneering-3d-immersive-platforms-as-the-marketing-channel-of-the-future-588236000)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/super-league-enterprise-pioneering-3d-immersive-platforms/c80a2520088117c245bc2bd76185c2f9) 
+
+
+Pickup - [advos.io](https://advos.io/en/super-league-enterprise-leads-the-future-of-digital-marketing-with-3d-immersive-platforms/20244077)
+ 
 
 
 

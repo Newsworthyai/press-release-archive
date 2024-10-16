@@ -77,7 +77,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-shnd-stronghands-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-announces-listing-of-shnd-stronghands-in-innovation-zone/d155ec1d1d6a011cc421444032122ced) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/xt-announces-listing-of-shnd-stronghands-in-innovation-zone)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/xt-announces-listing-of-shnd-stronghands-in-innovation-zone)
+ 
 
 
 

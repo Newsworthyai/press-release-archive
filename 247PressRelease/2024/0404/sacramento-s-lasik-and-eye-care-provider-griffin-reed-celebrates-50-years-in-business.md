@@ -7,7 +7,11 @@ SACRAMENTO, CA, April 04, 2024 /24-7PressRelease/ -- Dr. Griffin started his pri
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509482/sacramentos-lasik-and-eye-care-provider-griffin-reed-celebrates-50-years-in-business)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/griffin-reed-eye-care-providing-high-quality-eye-care-and-laser-vision-correction-services-for-50-years/64fd02fbf24f14923a8cd0bb907afed2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/griffin-reed-eye-care-celebrates-50-years-of-exceptional-vision-care)
+ 
 
 
 

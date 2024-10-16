@@ -45,7 +45,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/shiba-inu-drops-15-as-shib-holders-join-new-cryptocurrency-meme)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiba-inu-shib-faces-15-drop-as-shiba-budz-budz-emerges/44a80a41ef1f39e3862bf9700fbe0989) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/shiba-inu-holders-diversify-into-shiba-budz-leading-to-15-shib-drop)
+ 
 
 
 

@@ -7,7 +7,17 @@ ST. LOUIS, MO, September 05, 2024 /24-7PressRelease/ -- Global Vision Technologi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514021/global-vision-technologies-partners-with-shi-international-to-offer-famcare-on-naspo-valuepoint-cloud-solutions-contract)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-vision-technologies-partners-with-shi-international-to-offer-famcare-through-naspo-valuepoint-cloud-solutions-contract/1cfd4b49e7bb9ebf2a039eca16b3b2ad) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/famcare-case-management-software-now-available-on-naspo-valuepoint-cloud-solutions-contract)
+
+Pickup - [fishervista.com](https://fishervista.com/en/global-vision-technologies-partners-with-shi-international-to-offer-famcare-on-naspo-valuepoint/20246538)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/famcare-case-management-software-now-available-on-naspo-valuepoint-contract/20246538)
+
+Pickup - [advos.io](https://advos.io/en/global-vision-technologies-partners-with-shi-international-to-offer-famcare-on-naspo-valuepoint-contract/20246538)
+ 
 
 
 

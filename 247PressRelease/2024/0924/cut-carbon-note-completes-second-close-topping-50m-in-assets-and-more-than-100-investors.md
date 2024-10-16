@@ -7,7 +7,9 @@ BETHESDA, MD, September 24, 2024 /24-7PressRelease/ -- Calvert Impact, Inc. toda
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514605/cut-carbon-note-completes-second-close-topping-50m-in-assets-and-more-than-100-investors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/calvert-impact-announces-successful-close-of-cut-carbon-note-issuance/51fb511312d5512acc189cb6b5f64021) 
+
+ 
 
 
 

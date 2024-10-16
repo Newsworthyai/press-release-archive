@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/comcast-to-ex
 [Original/Source Press Release](https://newsdirect.com/news/comcast-to-expand-fiber-network-in-tulare-county-962658782)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-to-expand-fiber-network-in-tulare-county-california/f88be302f3b3d53e08ac45cbbb6d2846) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/comcast-to-bring-high-speed-internet-to-6200-unserved-locations-in-tulare-county)
+
+Pickup - [fishervista.com](https://fishervista.com/en/comcast-to-expand-fiber-network-in-tulare-county/20245906)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/comcast-announces-26-million-fiber-network-expansion-in-tulare-county/20245906)
+
+Pickup - [advos.io](https://advos.io/en/comcast-to-expand-fiber-network-in-tulare-county/20245906)
+ 
 
 
 

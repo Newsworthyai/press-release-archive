@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/tuktu-care-in
 [Original/Source Press Release](https://newsdirect.com/news/tuktu-care-inc-scales-on-demand-platform-to-revolutionize-senior-care-to-ontario-669797441)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tuktu-care-inc-revolutionizes-senior-care-with-on-demand-platform/d7c620bf547f004e6882ae3422e29ef0) 
+
+ 
 
 
 

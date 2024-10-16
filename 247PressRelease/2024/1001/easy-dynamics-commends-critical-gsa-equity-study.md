@@ -7,7 +7,9 @@ MCLEAN, VA, October 01, 2024 /24-7PressRelease/ -- Easy Dynamics commends the Ge
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514832/easy-dynamics-commends-critical-gsa-equity-study)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gsa-commended-for-equity-study-of-remote-identity-proofing/407c3b8751eb1152da9bc5863bf96c35) 
+
+ 
 
 
 

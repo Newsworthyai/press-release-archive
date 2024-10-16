@@ -59,7 +59,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/revolutionizing-blockchain-unleashing-cratd2cs-game-changing-potential-and-the-rising-global-interest-in-its-ico)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cratd2c-ico-revolutionizing-blockchain-with-innovation-and-potential/1e8de7c97bab4518226cb6a986283689) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/25/cratd2c-unleashing-the-transformative-power-of-blockchain)
+ 
 
 
 

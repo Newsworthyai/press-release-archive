@@ -56,7 +56,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/regenerative-
 [Original/Source Press Release](https://newsdirect.com/news/regenerative-medicine-technology-group-otc-mssv-capitalizing-on-the-growth-in-regenerative-medicine-329846562)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/regenerative-medicine-technology-group-otc-mssv-leading-the-way-in-regenerative-medicine/e1b8e099a27213d4965640885c1713e1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/regenerative-medicine-technology-group-mssv-poised-to-capitalize-on-booming-market)
+
+Pickup - [fishervista.com](https://fishervista.com/en/regenerative-medicine-technology-group-poised-to-lead-in-rapidly-growing-market/20245488)
+
+Pickup - [advos.io](https://advos.io/en/regenerative-medicine-technology-group-seizes-growth-in-booming-sector/20245488)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/regenerative-medicine-technology-group-poised-for-growth-in-expanding-market)
+ 
 
 
 

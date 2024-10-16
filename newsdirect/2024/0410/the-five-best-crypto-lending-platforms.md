@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-five-best
 [Original/Source Press Release](https://newsdirect.com/news/the-five-best-crypto-lending-platforms-871370771)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-five-best-crypto-lending-platforms-ledn-binance-aave-compound-and-crypto-com/6a11b9aec518376e48be325a63e79a5f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/the-five-best-crypto-lending-platforms-a-comprehensive-overview)
+ 
 
 
 

@@ -39,7 +39,21 @@ Useful links: Website, Twitter, LinkedIn, Github
 [Original/Source Press Release](https://blockchainwire.io/press-release/valory-announces-agents-unleashed-singapore---night-at-the-museum-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/agents-unleashed-singapore-night-at-the-museum-the-convergence-of-ai-and-web3/271c71196c309a5359f8aaca0c4367af) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/agents-unleashed-singapore-night-at-the-museum-the-convergence-of-ai-and-web3)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/agents-unleashed-singapore-night-at-the-museum-the-convergence-of-ai-and-web3)
+
+Pickup - [fishervista.com](https://fishervista.com/en/valory-announces-agents-unleashed-singapore-night-at-the-museum-event/20246688)
+
+Pickup - [advos.io](https://advos.io/en/valory-announces-agents-unleashed-singapore-night-at-the-museum/20246688)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/agents-unleashed-singapore-event-to-explore-ai-and-web3-convergence/20246688)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/agents-unleashed-singapore-event-to-explore-ai-and-web3-convergence)
+ 
 
 
 

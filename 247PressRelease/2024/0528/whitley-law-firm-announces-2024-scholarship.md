@@ -7,7 +7,9 @@ RALEIGH, NC, May 28, 2024 /24-7PressRelease/ -- The legal professionals with Whi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511196/whitley-law-firm-announces-2024-scholarship)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/whitley-law-firm-announces-community-commitment-scholarship/d29d993eb3bed70ddb956a07fcd7a40e) 
+
+ 
 
 
 

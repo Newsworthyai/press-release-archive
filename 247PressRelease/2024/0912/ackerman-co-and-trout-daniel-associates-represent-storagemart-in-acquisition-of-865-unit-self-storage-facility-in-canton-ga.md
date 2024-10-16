@@ -7,7 +7,17 @@ ATLANTA, GA, September 12, 2024 /24-7PressRelease/ -- Ackerman & Co. and Trout D
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514234/ackerman-co-and-trout-daniel-associates-represent-storagemart-in-acquisition-of-865-unit-self-storage-facility-in-canton-ga)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/storagemart-acquires-new-self-storage-facility-in-canton-ga/b6033104b7c98572dd89c51468c31c6f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/storagemart-expands-georgia-presence-with-acquisition-of-865-unit-self-storage-facility-in-canton)
+
+Pickup - [fishervista.com](https://fishervista.com/en/storagemart-expands-georgia-presence-with-acquisition-of-865-unit-facility-in-canton/20246758)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/storagemart-expands-georgia-presence-with-acquisition-of-865-unit-facility-in-canton/20246758)
+
+Pickup - [advos.io](https://advos.io/en/storagemart-expands-georgia-presence-with-acquisition-of-865-unit-facility-in-canton/20246758)
+ 
 
 
 

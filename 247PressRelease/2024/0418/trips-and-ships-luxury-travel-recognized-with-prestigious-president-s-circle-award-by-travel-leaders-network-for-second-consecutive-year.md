@@ -7,7 +7,9 @@ ORLANDO, FL, April 18, 2024 /24-7PressRelease/ -- Trips and Ships Luxury Travel,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510122/trips-and-ships-luxury-travel-recognized-with-prestigious-presidents-circle-award-by-travel-leaders-network-for-second-consecutive-year)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trips-and-ships-luxury-travel-receives-president-s-circle-distinction-for-second-consecutive-year/a16d4e86ca028a95486a87be6d4716b2) 
+
+ 
 
 
 

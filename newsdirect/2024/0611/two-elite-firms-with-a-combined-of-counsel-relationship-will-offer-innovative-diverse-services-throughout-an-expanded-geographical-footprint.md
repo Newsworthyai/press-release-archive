@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/two-elite-fir
 [Original/Source Press Release](https://newsdirect.com/news/two-elite-firms-with-a-combined-of-counsel-relationship-will-offer-innovative-diverse-services-throughout-an-expanded-geographical-footprint-710442832)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mintz-gold-llp-and-slc-law-form-strategic-of-counsel-relationship/54352d1c4a1a94f6ad5e71a4d60cb65b) 
+
+
+Pickup - [advos.io](https://advos.io/en/mintz-gold-llp-and-slc-law-announce-strategic-of-counsel-relationship-to-expand-services-across-u-s-and-europe/20244025)
+ 
 
 
 

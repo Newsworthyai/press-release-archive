@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ese-entertain
 [Original/Source Press Release](https://newsdirect.com/news/ese-entertainment-otc-entef-partner-metapro-launches-mpro-cryptocurrency-further-cementing-eses-position-at-the-cross-section-of-gaming-and-cryptocurrency-856137572)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ese-entertainment-inc-and-metapro-launch-mpro-cryptocurrency/c37b98b3952da5e92a47bb71972f03e0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/ese-entertainment-otc-entef-partner-metapro-launches-mpro-cryptocurrency-further-cementing-ese-s-position-at-the-cross-section-of-gaming-and-cryptocurrency)
+ 
 
 
 

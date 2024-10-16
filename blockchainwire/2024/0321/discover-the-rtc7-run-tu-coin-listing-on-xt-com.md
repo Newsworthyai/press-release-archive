@@ -49,7 +49,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-rtc7-run-tu-coin-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-announces-listing-of-rtc7-bridging-cultural-heritage-and-blockchain-innovation/d86c05b0160afe06191c87c59052f32a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/xt-com-embraces-cultural-innovation-with-rtc7-listing)
+ 
 
 
 

@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/gaming-realms
 [Original/Source Press Release](https://newsdirect.com/news/gaming-realms-reports-record-2023-driven-by-strong-content-licensing-growth-106535581)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gaming-realms-plc-ceo-mark-segal-discusses-record-breaking-2023-results/18a98f14284de50fd9f5c7fb01a29ae1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/gaming-realms-soars-with-record-breaking-2023-fueled-by-content-licensing-growth)
+ 
 
 
 

@@ -23,7 +23,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-digital-economy-platform-usdcbtc-has-reached-a-record-high-in-trading-volume-and-has-received-positive-feedback-in-major-global-markets)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/usdcbtc-achieves-record-high-trading-volume-solidifies-position-in-global-market/c9322f36fbadfc4e523f0a01a999cb15) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/usdcbtc-achieves-record-high-trading-volume-and-global-market-acclaim/20244610)
+
+Pickup - [advos.io](https://advos.io/en/usdcbtc-achieves-record-high-trading-volume-strengthens-global-market-presence/20244610)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/usdcbtc-achieves-record-high-trading-volume-solidifies-position-in-global-market)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/usdcbtc-achieves-record-high-trading-volume-solidifies-position-in-global-market)
+ 
 
 
 

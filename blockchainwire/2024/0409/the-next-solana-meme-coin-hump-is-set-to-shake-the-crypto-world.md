@@ -47,7 +47,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-next-solana-meme-coin-hump-is-set-to-shake-the-crypto-world)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/discover-hump-the-new-meme-coin-taking-the-crypto-market-by-storm/8e590813ab32774b459e97059e1f2004) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/hump-the-next-solana-meme-coin-shaking-up-the-crypto-world)
+ 
 
 
 

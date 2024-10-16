@@ -21,7 +21,11 @@ For media inquiries or further information about SalesNexus and its initiatives,
 [Original/Source Press Release](https://newsworthy.ai/news/202404021137/take-control-of-your-online-experience-salesnexus-releases-step-by-step-guide-for-moving-away-from-censoring-big-tech-giants)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/salesnexus-releases-guide-to-leaving-big-tech-to-empower-users/39699e6295ca08e11f92fffa05bb0680) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/take-control-of-your-digital-life-salesnexus-offers-guide-to-leaving-big-tech)
+ 
 
 
 

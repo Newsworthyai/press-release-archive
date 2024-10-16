@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/live-nation-t
 [Original/Source Press Release](https://newsdirect.com/news/live-nation-taps-flashs-parkwhiz-as-official-parking-provider-for-41-premier-venues-nationwide-595485592)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/flash-s-parkwhiz-becomes-official-parking-provider-for-41-premier-live-nation-venues-nationwide/14ec0d76e0e0767a2fc27b61126b359a) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/live-nation-partners-with-flashs-parkwhiz-for-streamlined-parking-at-41-venues-nationwide/20245590)
+
+Pickup - [advos.io](https://advos.io/en/live-nation-partners-with-flash-s-parkwhiz-for-seamless-parking-at-41-premier-venues-nationwide/20245590)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/live-nation-partners-with-flash-s-parkwhiz-for-streamlined-parking-at-41-venues/20245590)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/live-nation-partners-with-flash-s-parkwhiz-to-revolutionize-parking-at-41-major-venues)
+ 
 
 
 

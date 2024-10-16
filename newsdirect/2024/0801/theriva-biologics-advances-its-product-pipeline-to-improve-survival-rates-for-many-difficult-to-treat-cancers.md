@@ -55,7 +55,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/theriva-biolo
 [Original/Source Press Release](https://newsdirect.com/news/theriva-biologics-advances-its-product-pipeline-to-improve-survival-rates-for-many-difficult-to-treat-cancers-152214568)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/theriva-biologics-advances-oncolytic-virus-therapies-to-improve-survival-rates-for-difficult-to-treat-cancers/7abf6e9e5085a76bfaaeb35cb8e926a1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/theriva-biologics-makes-strides-in-treating-hard-to-cure-cancers-with-oncolytic-virus-therapies)
+
+Pickup - [fishervista.com](https://fishervista.com/en/theriva-biologics-advances-pipeline-to-tackle-difficult-to-treat-cancers/20245427)
+
+Pickup - [advos.io](https://advos.io/en/theriva-biologics-advances-pipeline-to-tackle-difficult-to-treat-cancers/20245427)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/theriva-biologics-makes-strides-in-treating-hard-to-cure-cancers-with-oncolytic-virus-therapies)
+ 
 
 
 

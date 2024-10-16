@@ -45,7 +45,9 @@ Brett.Milotte@icrinc.com
 [Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-s-division-meridianbet-expands-sports-wagering-product-suite-7076129)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-matrix-group-expands-meridianbet-product-lineup-with-170-new-games-and-2000-additional-betting-selections/c02f9de1a087f361ebab9961aea5471a) 
+
+ 
 
 
 

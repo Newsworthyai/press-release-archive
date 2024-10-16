@@ -68,7 +68,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bscs-secures-k300-ventures-investment-positioned-as-leading-launchpad-in-asia)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bscs-secures-strategic-investment-from-k300-ventures/25a9631c65515baab3250c4f5f1917f8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/bscs-receives-strategic-investment-from-k300-ventures-aims-to-become-leading-launchpad-in-asia)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bscs-secures-major-investment-from-k300-ventures-aiming-to-lead-blockchain-innovation-in-asia/20245937)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bscs-receives-strategic-investment-from-k300-ventures-aims-to-become-leading-launchpad-in-asia/20245937)
+
+Pickup - [advos.io](https://advos.io/en/bscs-secures-strategic-investment-from-k300-ventures-aiming-to-lead-in-asian-blockchain-launchpad-market/20245937)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bscs-secures-strategic-investment-from-k300-ventures)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bscs-secures-strategic-investment-from-k300-ventures)
+ 
 
 
 

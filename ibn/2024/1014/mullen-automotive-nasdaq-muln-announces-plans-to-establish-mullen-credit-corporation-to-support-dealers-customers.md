@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-announces-plans-to-establish-mullen-credit-corporation-to-support-dealers-customers/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-nasdaq-muln-announces-establishment-of-mullen-credit-corporation-as-wholly-owned-subsidiary/b23590863bf65ba389a0647b4b3f185d) 
+
+ 
 
 
 

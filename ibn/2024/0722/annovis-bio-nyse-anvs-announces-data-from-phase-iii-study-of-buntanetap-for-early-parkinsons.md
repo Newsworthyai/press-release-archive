@@ -34,7 +34,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-announces-data-from-phase-iii-study-of-buntanetap-for-early-parkinsons/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annovis-bio-releases-positive-data-from-phase-iii-parkinson-s-disease-study/4dc94c5433542616c5a3bbe9ce4b4aaf) 
+
+ 
 
 
 

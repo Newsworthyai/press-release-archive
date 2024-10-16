@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/lisata-therap
 [Original/Source Press Release](https://newsdirect.com/news/lisata-therapeutics-ceo-encouraged-by-progress-on-pancreatic-cancer-trial-526646802)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lisata-therapeutics-ceo-encouraged-by-progress-on-pancreatic-cancer-trial/304808919aeaa5d298868dcf233c9f01) 
+
+
+Pickup - [advos.io](https://advos.io/en/lisata-therapeutics-makes-strides-in-pancreatic-cancer-trial/20244162)
+ 
 
 
 

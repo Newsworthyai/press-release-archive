@@ -47,7 +47,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/dr-anosh-ahme
 [Original/Source Press Release](https://newsdirect.com/news/dr-anosh-ahmeds-anosh-inc-foundation-announces-major-expansion-of-philanthropic-efforts-931262057)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/anosh-inc-foundation-announces-major-expansion-of-philanthropic-efforts/334f65cf0e5f481803f64207f6b75bfb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/anosh-inc-foundation-unveils-ambitious-expansion-of-philanthropic-programs)
+
+Pickup - [fishervista.com](https://fishervista.com/en/anosh-inc-foundation-announces-largest-expansion-in-philanthropic-efforts/20245514)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/anosh-inc-foundation-unveils-ambitious-expansion-of-community-programs)
+
+Pickup - [advos.io](https://advos.io/en/anosh-inc-foundation-expands-philanthropic-programs-to-tackle-critical-community-issues/20245514)
+ 
 
 
 

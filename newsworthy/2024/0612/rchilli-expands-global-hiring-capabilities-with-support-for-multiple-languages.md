@@ -29,7 +29,13 @@ RChilli also has its multilingual resume parsing app available on Oracle Cloud M
 [Original/Source Press Release](https://newsworthy.ai/news/202406121194/rchilli-expands-global-hiring-capabilities-with-support-for-multiple-languages)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-expands-language-support-for-resume-parsing-and-matching/82e7303a08f429df0f74a9ca6f3c003d) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-expands-language-support-to-enhance-global-recruitment-capabilities/20244069)
+
+Pickup - [advos.io](https://advos.io/en/rchilli-enhances-global-hiring-with-multilingual-support/20244069)
+ 
 
 
 

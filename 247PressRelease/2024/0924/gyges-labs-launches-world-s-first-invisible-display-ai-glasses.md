@@ -7,7 +7,9 @@ KAKI BUKIT, SINGAPORE, September 24, 2024 /24-7PressRelease/ -- At the China Int
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514567/gyges-labs-launches-worlds-first-invisible-display-ai-glasses)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gyges-labs-unveils-digiwindow-world-s-first-ai-glasses-with-invisible-display/f8cfc0c6acbb143bb4c7964d9bd89edc) 
+
+ 
 
 
 

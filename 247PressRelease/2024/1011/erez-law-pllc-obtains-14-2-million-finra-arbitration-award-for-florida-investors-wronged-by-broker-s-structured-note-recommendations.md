@@ -7,7 +7,9 @@ MIAMI, FL, October 11, 2024 /24-7PressRelease/ -- Erez Law, PLLC, announced toda
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515170/erez-law-pllc-obtains-142-million-finra-arbitration-award-for-florida-investors-wronged-by-brokers-structured-note-recommendations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/finra-orders-stifel-to-pay-14-2-million-due-to-alleged-broker-misconduct/870022a8bebaac87afddf9c4b634d7cd) 
+
+ 
 
 
 

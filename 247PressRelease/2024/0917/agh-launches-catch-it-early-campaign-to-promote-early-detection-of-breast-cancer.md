@@ -7,7 +7,17 @@ ARTESIA, NM, September 17, 2024 /24-7PressRelease/ -- Artesia General Hospital i
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514368/agh-launches-catch-it-early-campaign-to-promote-early-detection-of-breast-cancer)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/artesia-general-hospital-launches-catch-it-early-breast-cancer-awareness-campaign/23e0eeb7b976782c149039bcefdbaa39) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/artesia-general-hospital-launches-catch-it-early-campaign-for-breast-cancer-awareness)
+
+Pickup - [fishervista.com](https://fishervista.com/en/artesia-general-hospital-launches-breast-cancer-early-detection-campaign/20246888)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/artesia-general-hospital-launches-breast-cancer-early-detection-campaign/20246888)
+
+Pickup - [advos.io](https://advos.io/en/artesia-general-hospital-launches-breast-cancer-early-detection-campaign/20246888)
+ 
 
 
 

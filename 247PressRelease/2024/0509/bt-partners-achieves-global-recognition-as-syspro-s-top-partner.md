@@ -7,7 +7,9 @@ CHICAGO, IL, May 09, 2024 /24-7PressRelease/ -- BT Partners is proud to announce
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510754/bt-partners-achieves-global-recognition-as-syspros-top-partner)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bt-partners-named-top-global-sales-partner-by-syspro-in-2023/2af7cdb311ec260456796b8dbdfaee5e) 
+
+ 
 
 
 

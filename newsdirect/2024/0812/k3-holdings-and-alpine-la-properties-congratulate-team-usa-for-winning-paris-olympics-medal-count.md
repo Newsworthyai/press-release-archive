@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/k3-holdings-a
 [Original/Source Press Release](https://newsdirect.com/news/k3-holdings-and-alpine-la-properties-congratulate-team-usa-for-winning-paris-olympics-medal-count-594732340)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/k3-holdings-and-alpine-la-properties-congratulate-team-usa-for-winning-paris-olympics-medal-count/fa9f335b59fb05fa423142d7f2e27edb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/team-usa-tops-medal-count-at-paris-olympics-praised-by-real-estate-firms)
+
+Pickup - [fishervista.com](https://fishervista.com/en/k3-holdings-and-alpine-la-properties-celebrate-team-usa-s-olympic-triumph/20245661)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/team-usa-leads-medal-count-at-paris-olympics-inspiring-real-estate-firms/20245661)
+
+Pickup - [advos.io](https://advos.io/en/k3-holdings-and-alpine-la-properties-applaud-team-usa-s-dominance-in-paris-olympics/20245661)
+ 
 
 
 

@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/san-juan-domi
 [Original/Source Press Release](https://newsdirect.com/news/san-juan-domino-challenge-distrito-t-mobile-thursday-october-17th-2024-770183405)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exciting-domino-challenge-set-for-san-juan-puerto-rico-in-october-2024/6ed7c3a3dc24edcc9efd500d7b556bef) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/san-juan-to-host-international-domino-challenge-with-20000-prize-pool)
+
+Pickup - [fishervista.com](https://fishervista.com/en/san-juan-domino-challenge-to-take-place-at-distrito-t-mobile/20245691)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/san-juan-to-host-exciting-20000-domino-challenge-at-distrito-t-mobile/20245691)
+
+Pickup - [advos.io](https://advos.io/en/san-juan-to-host-international-domino-challenge-at-distrito-t-mobile/20245691)
+ 
 
 
 

@@ -57,7 +57,9 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/firsdtea/news_release/1459)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/firsd-tea-report-reveals-lack-of-sustainability-priority-in-tea-industry/c15bb60c74152c90e656ef6b9dbe28f7) 
+
+ 
 
 
 

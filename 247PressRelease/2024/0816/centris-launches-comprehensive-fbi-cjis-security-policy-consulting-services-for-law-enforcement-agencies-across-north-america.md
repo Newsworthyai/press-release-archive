@@ -7,7 +7,17 @@ DALLAS, TX, August 16, 2024 /24-7PressRelease/ -- Centris, a leading provider of
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513427/centris-launches-comprehensive-fbi-cjis-security-policy-consulting-services-for-law-enforcement-agencies-across-north-america)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/centris-launches-fbi-cjis-security-policy-consulting-services/27fb2b2d59c8d7f5c4f2770926ef2777) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/16/centris-unveils-fbi-cjis-security-policy-consulting-services-for-north-american-law-enforcement)
+
+Pickup - [fishervista.com](https://fishervista.com/en/centris-unveils-fbi-cjis-security-policy-consulting-services-for-north-american-law-enforcement/20245778)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/centris-unveils-fbi-cjis-security-policy-consulting-services-for-north-american-law-enforcement/20245778)
+
+Pickup - [advos.io](https://advos.io/en/centris-introduces-fbi-cjis-security-policy-consulting-for-north-american-law-enforcement/20245778)
+ 
 
 
 

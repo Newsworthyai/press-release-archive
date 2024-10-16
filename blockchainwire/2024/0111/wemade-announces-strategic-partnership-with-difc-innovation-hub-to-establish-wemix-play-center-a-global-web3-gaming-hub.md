@@ -40,7 +40,11 @@ For further information, please visit our website: difc.ae, or follow us on Li
 [Original/Source Press Release](https://blockchainwire.io/press-release/wemade-announces-strategic-partnership-with-difc-innovation-hub-to-establish-wemix-play-center-a-global-web3-gaming-hub-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemade-and-difc-innovation-hub-partner-to-build-global-web3-gaming-hub/cd73bed0fd73727e78dd99131c5a00f5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/11/wemade-establishes-global-web3-gaming-hub-in-dubai)
+ 
 
 
 

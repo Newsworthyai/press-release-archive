@@ -25,7 +25,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/tnr-golds-kir
 [Original/Source Press Release](https://newsdirect.com/news/tnr-golds-kirill-klip-discusses-70m-financing-for-mcewens-los-azules-copper-project-in-argentina-640270320)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tnr-gold-s-kirill-klip-discusses-70m-financing-for-mcewen-s-los-azules-copper-project/4fe94dfba833e7562bd1f82d9d3cf301) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/tnr-gold-discusses-70m-financing-for-los-azules-copper-project-in-argentina/20244730)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/tnr-gold-s-los-azules-copper-project-receives-70-million-boost)
+
+Pickup - [advos.io](https://advos.io/en/tnr-gold-discusses-70m-financing-for-mcewen-s-los-azules-copper-project-in-argentina/20244730)
+ 
 
 
 

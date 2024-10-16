@@ -7,7 +7,17 @@ OTTAWA, ON, August 03, 2024 /24-7PressRelease/ -- Aleen Inc. ("Aleen" or the "Co
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513038/how-ai-revolutionizing-health-and-wellness)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aleen-inc-empowers-individuals-with-ai-driven-health-insights/096527618ade63d46059592d009a4815) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/03/aleen-inc-introduces-ai-powered-health-assessment-platform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ai-technology-by-aleen-inc-enhances-health-and-wellness-access/20245473)
+
+Pickup - [advos.io](https://advos.io/en/aleen-inc-unveils-ai-powered-health-and-wellness-platform/20245473)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ai-powered-health-platform-aleen-revolutionizes-self-assessment-and-wellness-management)
+ 
 
 
 

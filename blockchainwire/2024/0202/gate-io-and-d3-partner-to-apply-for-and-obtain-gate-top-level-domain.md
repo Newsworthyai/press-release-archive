@@ -35,7 +35,11 @@ Learn more about D3 at https://www.d3.app/
 [Original/Source Press Release](https://blockchainwire.io/press-release/gateio-and-d3-partner-to-apply-for-and-obtain-gate-top-level-domain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gate-io-announces-partnership-with-d3-global-to-pursue-gate-top-level-domain/64a14e6697374a856fd917e7c1811f7a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/02/gate-io-and-d3-join-forces-to-revolutionize-digital-identities)
+ 
 
 
 

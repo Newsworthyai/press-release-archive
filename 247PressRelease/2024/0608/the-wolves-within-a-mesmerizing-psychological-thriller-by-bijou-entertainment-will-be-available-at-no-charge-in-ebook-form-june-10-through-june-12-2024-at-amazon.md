@@ -7,7 +7,11 @@ WILMINGTON, NC, June 08, 2024 /24-7PressRelease/ -- J Bartell and Ginger Marin o
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511493/the-wolves-within-a-mesmerizing-psychological-thriller-by-bijou-entertainment-will-be-available-at-no-charge-in-ebook-form-june-10-through-june-12-2024-at-amazon)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bijou-entertainment-offers-free-ebook-of-the-wolves-within/243a49e9219a910ac03667d68d9d91b7) 
+
+
+Pickup - [advos.io](https://advos.io/en/bijou-entertainment-offers-the-wolves-within-psychological-thriller-ebook-for-free/20243953)
+ 
 
 
 

@@ -7,7 +7,9 @@ Bend, OR (Newsworthy.ai) Wednesday Feb 14, 2024 @ 12:00 PM Eastern — Soul Psyc
 [Original/Source Press Release](https://newsworthy.ai/news/20240214965/new-hope-for-mental-health-ketamine-infusion-therapy-offers-promising-treatment-options)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/soul-psychedelic-systems-introduces-ketamine-assisted-psychotherapy-kap/c12f078ee62ccd121fad4be2d1c21a9d) 
+
+ 
 
 
 

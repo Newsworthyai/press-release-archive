@@ -7,7 +7,11 @@ NEWPORT, NC, June 13, 2024 /24-7PressRelease/ -- In this heartfelt and compellin
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511692/telia-galloways-new-release-servant-of-the-king-is-an-inspiring-journey-of-faith-and-spiritual-awakening)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/discovering-true-freedom-through-faith-the-tale-of-jody/8a2b64d9ff554a462da639fad9183fd9) 
+
+
+Pickup - [advos.io](https://advos.io/en/telia-galloway-s-servant-of-the-king-chronicles-an-inspiring-journey-of-faith/20244110)
+ 
 
 
 

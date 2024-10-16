@@ -32,7 +32,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blofin-marks-progress-with-new-token-listings-and-upgraded-security-features)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blofin-announces-groundbreaking-updates-in-cryptocurrency-trading-industry/8a5a8f4b250332dbcf3e0a6dad6fb121) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/blofin-expands-offerings-and-enhances-security-in-cryptocurrency-trading)
+
+Pickup - [fishervista.com](https://fishervista.com/en/blofin-advances-with-new-token-listings-and-enhanced-security-features/20245850)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/blofin-expands-token-offerings-and-enhances-security-in-crypto-trading-platform/20245850)
+
+Pickup - [advos.io](https://advos.io/en/blofin-expands-token-listings-and-enhances-security-features/20245850)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blofin-announces-groundbreaking-updates-in-cryptocurrency-trading-industry)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blofin-announces-groundbreaking-updates-in-cryptocurrency-trading-industry)
+ 
 
 
 

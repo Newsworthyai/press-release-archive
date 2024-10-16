@@ -58,7 +58,13 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1542)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/joanne-gore-communications-to-showcase-expanded-capabilities-at-printing-united-expo-2024/920666ccdeae744ac37dd5804c6e9bb2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/joanne-gore-communications-set-to-make-waves-at-printing-united-expo-2024)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/joanne-gore-communications-set-to-showcase-expanded-capabilities-at-printing-united-expo-2024/20246424)
+ 
 
 
 

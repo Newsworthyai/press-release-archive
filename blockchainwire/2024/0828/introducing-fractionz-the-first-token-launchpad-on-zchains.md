@@ -43,7 +43,21 @@ Discord: https://discord.com/invite/fqfanc7SzP Instagram: https://www.instagram.
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-fractionz-the-first-token-launchpad-on-zchains)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fractionz-teased-tokenization-project-unveiled-on-zchains/c78f472fc4f9b5925622cd20dc744f1e) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/fractionz-teased-tokenization-project-unveiled-on-zchains)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/fractionz-teased-tokenization-project-unveiled-on-zchains)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/fractionz-emerges-as-pioneering-token-launchpad-on-zchains-promising-to-revolutionize-asset-tokenization)
+
+Pickup - [fishervista.com](https://fishervista.com/en/fractionz-pioneering-token-launchpad-on-zchains-nears-completion/20246332)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/fractionz-emerges-as-pioneering-token-launchpad-on-zchains/20246332)
+
+Pickup - [advos.io](https://advos.io/en/fractionz-pioneering-token-launchpad-on-zchains-nears-completion/20246332)
+ 
 
 
 

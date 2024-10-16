@@ -25,7 +25,17 @@ Since mid-2022, StandUp Ventures has been deploying capital out of Fund 2, of wh
 [Original/Source Press Release](https://blockchainwire.io/press-release/standup-ventures-adds-meredith-powell-to-team-receives-fresh-funding-to-support-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/standup-ventures-welcomes-new-leadership-and-expands-investments/678e247c37ed9267cd41d8377acffd49) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/standup-ventures-expands-team-and-funding-to-boost-women-led-startups)
+
+Pickup - [fishervista.com](https://fishervista.com/en/standup-ventures-strengthens-leadership-and-expands-investment-reach/20245448)
+
+Pickup - [advos.io](https://advos.io/en/standup-ventures-strengthens-team-and-expands-investment-reach/20245448)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/standup-ventures-expands-team-and-secures-new-funding-to-boost-women-led-startups)
+ 
 
 
 

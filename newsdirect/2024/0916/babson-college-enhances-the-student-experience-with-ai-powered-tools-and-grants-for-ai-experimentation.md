@@ -29,7 +29,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/babson-colleg
 [Original/Source Press Release](https://newsdirect.com/news/babson-college-enhances-the-student-experience-with-ai-powered-tools-and-grants-for-ai-experimentation-368198315)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/babson-college-empowers-students-with-ai-tools-and-grants-for-ai-experimentation/fb2907822fe76f31b281936f15f72752) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/babson-college-introduces-ai-powered-tools-and-grants-to-enhance-student-learning)
+
+Pickup - [fishervista.com](https://fishervista.com/en/babson-college-introduces-ai-powered-tools-and-grants-to-enhance-student-learning/20246859)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/babson-college-introduces-ai-powered-tools-and-grants-to-enhance-student-learning/20246859)
+
+Pickup - [advos.io](https://advos.io/en/babson-college-introduces-ai-tools-and-grants-to-enhance-student-learning/20246859)
+ 
 
 
 

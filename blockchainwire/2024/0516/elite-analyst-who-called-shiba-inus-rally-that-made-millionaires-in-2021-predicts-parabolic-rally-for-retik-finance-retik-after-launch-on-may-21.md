@@ -31,7 +31,13 @@ Media Contact:Team Retik[bd@retik.com](mailto:bd@retik.com)[https://retik.com/](
 [Original/Source Press Release](https://blockchainwire.io/press-release/elite-analyst-who-called-shiba-inus-rally-that-made-millionaires-in-2021-predicts-parabolic-rally-for-retik-finance-retik-after-launch-on-may-21)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/retik-finance-retik-poised-for-explosive-growth-in-cryptocurrency-market/5e7610629faf636829caa65865a224bd) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/retik-finance-retik-poised-for-explosive-growth-in-cryptocurrency-market)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/retik-finance-retik-poised-for-explosive-growth-in-cryptocurrency-market)
+ 
 
 
 

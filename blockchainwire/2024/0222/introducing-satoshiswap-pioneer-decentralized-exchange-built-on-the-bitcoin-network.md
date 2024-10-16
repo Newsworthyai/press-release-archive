@@ -27,7 +27,11 @@ SatoshiSwap, operating on the Stacks Layer 2 chain, is a groundbreaking DeFi pro
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-satoshiswap-pioneer-decentralized-exchange-built-on-the-bitcoin-network)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/satoshiswap-bringing-defi-innovation-to-the-bitcoin-blockchain/231356a63b464d572e8e3e53c823327a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/22/satoshiswap-pioneering-decentralized-exchange-on-the-bitcoin-blockchain)
+ 
 
 
 

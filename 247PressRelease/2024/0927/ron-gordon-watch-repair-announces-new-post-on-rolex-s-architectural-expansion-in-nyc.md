@@ -7,7 +7,9 @@ NEW YORK, NY, September 27, 2024 /24-7PressRelease/ -- Ron Gordon Watch Repair, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514747/ron-gordon-watch-repair-announces-new-post-on-rolexs-architectural-expansion-in-nyc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exciting-architectural-developments-from-rolex-in-new-york-city-revealed/69a148133af80da124af1f5eb5d9be4f) 
+
+ 
 
 
 

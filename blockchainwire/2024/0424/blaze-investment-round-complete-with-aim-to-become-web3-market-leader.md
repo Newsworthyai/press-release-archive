@@ -23,7 +23,11 @@ Forward-looking statements are based on the current opinions and expectations of
 [Original/Source Press Release](https://blockchainwire.io/press-release/blaze-investment-round-complete-with-aim-to-become-web3-market-leader)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/storyfire-concludes-blaze-token-investment-round/f34821b8b288335790a937a99476a893) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/blaze-investment-round-complete-with-aim-to-become-web3-market-leader)
+ 
 
 
 

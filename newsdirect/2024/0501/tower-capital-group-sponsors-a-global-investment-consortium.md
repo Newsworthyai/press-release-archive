@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/tower-capital
 [Original/Source Press Release](https://newsdirect.com/news/tower-capital-group-sponsors-a-global-investment-consortium-747613235)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tower-capital-group-sponsors-global-women-s-health-investment-consortium/f083552f881e6016d740a81aca88e0a6) 
+
+ 
 
 
 

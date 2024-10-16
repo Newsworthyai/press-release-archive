@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/financial-cri
 [Original/Source Press Release](https://newsdirect.com/news/financial-crisis-1-in-3-americans-max-out-credit-cards-to-survive-426617290)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/historic-surge-in-credit-card-debt-hits-americans-hard/97e87e3828419f3ad7694cc1e4cce5db) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/credit-card-debt-crisis-americans-struggle-to-stay-afloat)
+ 
 
 
 

@@ -51,7 +51,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-ssnt-starnest-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-lists-ssnt-on-its-socially-infused-trading-platform-in-the-metaverse/c29f8fd370ffb125d45b60321abf1bd8) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/xt-lists-ssnt-on-its-socially-infused-trading-platform-in-the-metaverse)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/xt-lists-ssnt-on-its-socially-infused-trading-platform-in-the-metaverse)
+ 
 
 
 

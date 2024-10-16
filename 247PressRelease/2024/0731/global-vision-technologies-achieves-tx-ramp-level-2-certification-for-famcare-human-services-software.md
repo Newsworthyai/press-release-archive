@@ -7,7 +7,17 @@ ST. LOUIS, MO, July 31, 2024 /24-7PressRelease/ -- Global Vision Technologies (G
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512938/global-vision-technologies-achieves-tx-ramp-level-2-certification-for-famcare-human-services-software)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gvt-achieves-tx-ramp-level-2-certification-for-famcare-platform/45ee868ef9dd38a58f0afc15b2bc524a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/global-vision-technologies-famcare-software-achieves-tx-ramp-level-2-certification)
+
+Pickup - [fishervista.com](https://fishervista.com/en/global-vision-technologies-achieves-tx-ramp-level-2-certification-for-famcare-human-services-software/20245375)
+
+Pickup - [advos.io](https://advos.io/en/global-vision-technologies-achieves-tx-ramp-level-2-certification-for-famcare-human-services-software/20245375)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/global-vision-technologies-famcare-software-achieves-tx-ramp-level-2-certification)
+ 
 
 
 

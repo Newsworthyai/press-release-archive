@@ -19,7 +19,17 @@ Emerging Growth ConferenceSpeaker:   David Dodd, Chairman & CEODate/Time:   Se
 [Original/Source Press Release](https://www.newmediawire.com/news/geovax-to-participate-in-upcoming-investor-conferences-in-september-7075992)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/geovax-labs-ceo-to-present-at-investor-events/3eb51bf572bf10c87e9604eea98f5ab3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/geovax-labs-to-present-at-two-investor-conferences-in-september)
+
+Pickup - [fishervista.com](https://fishervista.com/en/geovax-to-present-at-key-investor-conferences-in-september/20246481)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/geovax-labs-to-present-at-two-major-investor-conferences-in-september/20246481)
+
+Pickup - [advos.io](https://advos.io/en/geovax-to-present-at-key-september-investor-conferences/20246481)
+ 
 
 
 

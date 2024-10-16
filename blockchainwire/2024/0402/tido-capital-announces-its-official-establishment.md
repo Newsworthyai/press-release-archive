@@ -17,7 +17,11 @@ For media inquiries or further information, please contact evan@tidocapital.comW
 [Original/Source Press Release](https://blockchainwire.io/press-release/tido-capital-announces-its-official-establishment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tido-capital-officially-established-as-a-pioneering-force-in-blockchain-and-web3-0-investment/9f619b2a7fec976fbcdc30b5c29a279b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/tido-capital-emerges-as-a-pioneering-force-in-blockchain-and-web3-0-investment)
+ 
 
 
 

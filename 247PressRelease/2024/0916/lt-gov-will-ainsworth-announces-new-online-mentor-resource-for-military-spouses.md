@@ -7,7 +7,17 @@ MONTGOMERY, AL, September 16, 2024 /24-7PressRelease/ -- In his ongoing effort t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514335/lt-gov-will-ainsworth-announces-new-online-mentor-resource-for-military-spouses)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alabama-launches-mentorship-program-for-military-families/57ff5d794a22fc2414bd2cf4153dee0f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/alabama-launches-online-mentorship-program-for-military-spouses)
+
+Pickup - [fishervista.com](https://fishervista.com/en/alabama-launches-innovative-online-mentorship-program-for-military-spouses/20246842)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/alabama-launches-innovative-online-mentorship-program-for-military-spouses/20246842)
+
+Pickup - [advos.io](https://advos.io/en/alabama-launches-innovative-online-mentorship-program-for-military-spouses/20246842)
+ 
 
 
 

@@ -51,7 +51,17 @@ Other important factors that may cause actual results and outcomes to differ mat
 [Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-inc-announces-debt-conversion-by-meridianbet-founder-to-equity-7076030)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-matrix-group-inc-converts-2-million-debt-to-equity-demonstrating-confidence-in-company-s-growth/bcecba7eee36367c25deff56ac790a1e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/golden-matrix-group-strengthens-financial-position-as-meridianbet-founder-converts-2-million-debt-to-equity)
+
+Pickup - [fishervista.com](https://fishervista.com/en/golden-matrix-group-reduces-debt-through-equity-conversion-by-meridianbet-founder/20246662)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/golden-matrix-group-strengthens-financial-position-as-meridianbet-founder-converts-2-million-debt-to-equity/20246662)
+
+Pickup - [advos.io](https://advos.io/en/golden-matrix-group-converts-2-million-debt-to-equity-strengthening-financial-position/20246662)
+ 
 
 
 

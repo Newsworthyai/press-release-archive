@@ -7,7 +7,17 @@ DALLAS, TX, September 13, 2024 /24-7PressRelease/ -- MorganHill, a leading provi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514263/morganhill-launches-comprehensive-iso-27001-isms-certification-scoping-gap-assessment-workbook)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/morganhill-launches-innovative-iso-27001-isms-certification-scoping-gap-assessment-workbook/afedc879c0b7e4c4da88bb7ff3874c55) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/morganhill-unveils-iso-27001-certification-workbook-to-streamline-isms-compliance)
+
+Pickup - [fishervista.com](https://fishervista.com/en/morganhill-introduces-new-tool-to-streamline-iso-27001-certification-process/20246813)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/morganhill-unveils-iso-27001-certification-workbook-to-streamline-compliance-process/20246813)
+
+Pickup - [advos.io](https://advos.io/en/morganhill-introduces-iso-27001-certification-workbook-to-streamline-compliance-process/20246813)
+ 
 
 
 

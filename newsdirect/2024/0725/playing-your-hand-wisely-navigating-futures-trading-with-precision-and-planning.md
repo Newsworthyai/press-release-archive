@@ -59,7 +59,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/playing-your-
 [Original/Source Press Release](https://newsdirect.com/news/playing-your-hand-wisely-navigating-futures-trading-with-precision-and-planning-828356290)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/navigating-futures-trading-building-a-successful-trading-plan-with-edgeclear/ef4dd35967fe9109daa1e203e85d11fb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/mastering-futures-trading-the-importance-of-strategic-planning-and-risk-management)
+
+Pickup - [fishervista.com](https://fishervista.com/en/navigating-futures-trading-with-precision-and-planning/20245248)
+
+Pickup - [advos.io](https://advos.io/en/edgeclear-offers-vital-insights-for-crafting-effective-futures-trading-plans/20245248)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/edgeclear-outlines-key-steps-for-developing-a-successful-futures-trading-plan)
+ 
 
 
 

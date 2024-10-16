@@ -7,7 +7,11 @@ IRVINE, CA, March 28, 2024 /24-7PressRelease/ -- The 2024 Gold Nugget Awards inv
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509598/the-art-of-designas-good-as-gold)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-gold-nugget-awards-now-open-for-submissions/2ed98a8cef0cf3b7c2ee36d9c5af5ad8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/the-gold-nugget-awards-celebrating-excellence-in-real-estate-design-and-planning)
+ 
 
 
 

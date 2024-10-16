@@ -51,7 +51,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/flashift-announces-new-ai-powered-non-custodial-platform-for-seamless-cryptocurrency-swaps)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/flashift-launches-ai-driven-cryptocurrency-swapping-system/fbe0b750ed5262a3c03ce9639c04d81a) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/flashift-launches-ai-driven-cryptocurrency-swapping-system)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/flashift-launches-ai-driven-cryptocurrency-swapping-system)
+ 
 
 
 

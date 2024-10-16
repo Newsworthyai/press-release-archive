@@ -21,7 +21,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/hive-digital-
 [Original/Source Press Release](https://newsdirect.com/news/hive-digital-technologies-to-establish-major-100mw-digital-asset-mining-operation-in-paraguay-192434489)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hive-digital-technologies-to-establish-major-100mw-digital-asset-mining-operation-in-paraguay/df520fe4e83c5ea9aec579dddd2c55d9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/hive-digital-technologies-announces-100mw-digital-asset-mining-operation-in-paraguay)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hive-digital-technologies-to-launch-major-100mw-digital-asset-mining-operation-in-paraguay/20245222)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/hive-digital-technologies-to-establish-major-100mw-digital-asset-mining-operation-in-paraguay)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/hive-digital-technologies-to-establish-major-100mw-digital-asset-mining-operation-in-paraguay)
+
+Pickup - [advos.io](https://advos.io/en/hive-digital-technologies-to-launch-100mw-digital-asset-mining-operation-in-paraguay/20245222)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hive-digital-technologies-plans-100mw-digital-asset-mining-operation-in-paraguay)
+ 
 
 
 

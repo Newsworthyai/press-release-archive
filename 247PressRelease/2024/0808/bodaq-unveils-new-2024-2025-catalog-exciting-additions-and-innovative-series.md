@@ -7,7 +7,17 @@ VANCOUVER, BC, August 08, 2024 /24-7PressRelease/ -- Bodaq Finishes, a leading p
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513236/bodaq-unveils-new-2024-2025-catalog-exciting-additions-and-innovative-series)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bodaq-finishes-unveils-2024-2025-catalog-with-new-design-possibilities/2404025788987cc7cabf4504305786a9) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bodaq-finishes-releases-2024-2025-catalog-with-innovative-interior-film-additions/20245570)
+
+Pickup - [advos.io](https://advos.io/en/bodaq-unveils-new-2024-2025-catalog-featuring-innovative-interior-design-solutions/20245570)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bodaq-finishes-launches-expanded-2024-2025-catalog-with-innovative-interior-film-collections/20245570)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/bodaq-finishes-launches-expanded-2024-2025-catalog-with-innovative-interior-film-collections)
+ 
 
 
 

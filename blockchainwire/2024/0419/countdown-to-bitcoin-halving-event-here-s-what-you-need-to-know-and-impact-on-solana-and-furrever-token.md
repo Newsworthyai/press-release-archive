@@ -39,7 +39,11 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/countdown-to-bitcoin-halving-event-heres-what-you-need-to-know-and-impact-on-solana-and-furrever-token)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-halving-impact-sol-and-furr-in-the-spotlight/44ed3d344c17ef8da625cd310dc1fee7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/countdown-to-bitcoin-halving-implications-for-solana-and-furrever-token)
+ 
 
 
 

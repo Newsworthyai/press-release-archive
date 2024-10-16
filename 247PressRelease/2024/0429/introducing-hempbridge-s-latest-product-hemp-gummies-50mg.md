@@ -7,7 +7,9 @@ ST. PETERSBURG, FL, April 29, 2024 /24-7PressRelease/ -- Hempbridge proudly intr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510369/introducing-hempbridges-latest-product-hemp-gummies-50mg)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hempbridge-introduces-hemp-gummies-50mg-brain-physical-health-and-mood-benefits/82faa3f8736f08a694db1c55f901e5a3) 
+
+ 
 
 
 

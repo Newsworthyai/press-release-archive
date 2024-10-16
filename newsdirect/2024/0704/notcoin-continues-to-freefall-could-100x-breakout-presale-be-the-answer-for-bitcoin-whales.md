@@ -37,7 +37,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/notcoin-conti
 [Original/Source Press Release](https://newsdirect.com/news/notcoin-continues-to-freefall-could-100x-breakout-presale-be-the-answer-for-bitcoin-whales-281798060)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/notcoin-s-decline-and-the-rise-of-raboo-s-100x-breakout-presale/4154432691851b1cbfb46b80cb7729a6) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/notcoin-faces-market-turmoil-as-raboo-s-100x-breakout-presale-attracts-bitcoin-whales/20244717)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/04/notcoin-s-decline-sparks-interest-in-raboo-s-100x-breakout-presale)
+
+Pickup - [advos.io](https://advos.io/en/notcoin-s-decline-spurs-interest-in-raboo-s-100x-breakout-presale-among-bitcoin-whales/20244717)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/notcoin-s-decline-and-the-rise-of-raboo-s-100x-breakout-presale)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/notcoin-s-decline-and-the-rise-of-raboo-s-100x-breakout-presale)
+ 
 
 
 

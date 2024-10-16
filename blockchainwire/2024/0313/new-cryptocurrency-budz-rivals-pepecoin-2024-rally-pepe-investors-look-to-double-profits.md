@@ -45,7 +45,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/new-cryptocurrency-budz-rivals-pepecoin-2024-rally-pepe-investors-look-to-double-profits)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiba-budz-a-new-challenger-emerges/5a75113e4410c1b5c2c9a77e35d0531b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/13/shiba-budz-emerges-as-a-formidable-rival-to-pepecoin-s-2024-rally)
+ 
 
 
 

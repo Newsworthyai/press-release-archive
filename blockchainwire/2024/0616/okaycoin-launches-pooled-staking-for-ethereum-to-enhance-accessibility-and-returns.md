@@ -50,7 +50,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/okaycoin-launches-pooled-staking-for-ethereum-to-enhance-accessibility-and-returns)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/okaycoin-introduces-pooled-staking-for-ethereum-making-staking-more-accessible/45a8aebb149b9a9df495905e9aa27985) 
+
+
+Pickup - [advos.io](https://advos.io/en/okaycoin-democratizes-ethereum-staking-with-innovative-pooled-offering/20244187)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/okaycoin-introduces-pooled-staking-for-ethereum-making-staking-more-accessible)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/okaycoin-introduces-pooled-staking-for-ethereum-making-staking-more-accessible)
+ 
 
 
 

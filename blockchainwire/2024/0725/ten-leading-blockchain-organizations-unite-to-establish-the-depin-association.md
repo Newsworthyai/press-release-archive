@@ -69,7 +69,21 @@ The DePIN Association is a collective of leading organizations dedicated to adva
 [Original/Source Press Release](https://blockchainwire.io/press-release/ten-leading-blockchain-organizations-unite-to-establish-the-depin-association)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/depin-association-formed-with-ten-pioneering-organizations/68a607df3b81f0546fcc940d00f3d015) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/depin-association-formed-with-ten-pioneering-organizations)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/depin-association-formed-with-ten-pioneering-organizations)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/ten-blockchain-pioneers-form-depin-association-to-advance-decentralized-infrastructure)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ten-leading-blockchain-organizations-form-the-depin-association-to-advance-decentralized-infrastructure/20245256)
+
+Pickup - [advos.io](https://advos.io/en/ten-leading-blockchain-organizations-unite-to-establish-depin-association/20245256)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/depin-association-launches-with-ten-blockchain-pioneers-to-advance-decentralized-infrastructure)
+ 
 
 
 

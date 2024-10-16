@@ -63,7 +63,11 @@ Disclaimer: Not affiliated with or endorsed by Marvel Comics, Marvel Cinematic U
 [Original/Source Press Release](https://blockchainwire.io/press-release/artfi-launches-genesis-offering-pass-sale-democratizing-art-access-for-just-10-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/artfi-launches-genesis-offering-pass-sale-making-art-ownership-accessible-for-all/f132be187a7d06695422ff798b041103) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/08/artfi-democratizes-art-ownership-with-10-genesis-offering-pass)
+ 
 
 
 

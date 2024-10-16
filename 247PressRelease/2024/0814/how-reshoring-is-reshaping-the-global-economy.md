@@ -7,7 +7,17 @@ SYDNEY, AUSTRALIA, August 14, 2024 /24-7PressRelease/ -- From shortages of medic
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513384/how-reshoring-is-reshaping-the-global-economy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/robobai-ceo-julian-harris-discusses-trend-toward-reshoring-manufacturing-and-supply-chains/eb7e20525ebfdb3cef0cc8f19d970993) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/reshoring-trend-reshapes-global-economy-offers-key-benefits-for-businesses)
+
+Pickup - [fishervista.com](https://fishervista.com/en/reshoring-initiatives-reshape-global-supply-chains/20245710)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/reshoring-trend-transforms-global-manufacturing-and-supply-chains/20245710)
+
+Pickup - [advos.io](https://advos.io/en/reshoring-trend-gains-momentum-transforming-global-supply-chains/20245710)
+ 
 
 
 

@@ -7,7 +7,9 @@ LOS ANGELES, CA, April 19, 2024 /24-7PressRelease/ --   Introduction: Perry Lieb
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510172/embracing-innovation-perry-liebers-quest-for-cutting-edge-technologies-and-architectural-trends)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/perry-lieber-s-visionary-leadership-in-construction-and-architecture/bd69200944031a77293658acc44b4c9f) 
+
+ 
 
 
 

@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/fathom-nickel
 [Original/Source Press Release](https://newsdirect.com/news/fathom-nickel-reports-promising-drill-results-from-gochager-lake-project-925677895)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fathom-nickel-reports-promising-drill-results-at-gochager-lake-project/c85f2e10018203358b633ce36242288e) 
+
+ 
 
 
 

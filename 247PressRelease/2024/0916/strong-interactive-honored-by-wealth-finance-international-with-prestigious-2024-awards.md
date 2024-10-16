@@ -7,7 +7,17 @@ MIAMI BEACH, FL, September 16, 2024 /24-7PressRelease/ -- Strong Interactive, a 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514314/strong-interactive-honored-by-wealth-finance-international-with-prestigious-2024-awards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/strong-interactive-wins-best-augmented-reality-web3-business-2024-usa-award/8395804a2df49ac87c281260d39405a1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/strong-interactive-wins-multiple-awards-for-web3-innovation-and-leadership)
+
+Pickup - [fishervista.com](https://fishervista.com/en/strong-interactive-receives-multiple-awards-for-web3-innovation-and-leadership/20246843)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/strong-interactive-secures-multiple-awards-for-web3-innovation-and-leadership/20246843)
+
+Pickup - [advos.io](https://advos.io/en/strong-interactive-wins-multiple-awards-for-web3-and-ar-innovation/20246843)
+ 
 
 
 

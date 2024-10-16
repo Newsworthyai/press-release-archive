@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/correcting-an
 [Original/Source Press Release](https://newsdirect.com/news/correcting-and-replacing-hondogo-strengthens-market-position-as-tesla-scales-back-its-ev-charging-team-188334812)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hondogo-strengthens-market-position-as-tesla-scales-back-its-ev-charging-team/a10e550548c8d722d70b6e409811b941) 
+
+ 
 
 
 

@@ -13,7 +13,9 @@ Ketamine infusion therapy, with its ability to combat treatment-resistant condit
 [Original/Source Press Release](https://newsworthy.ai/news/202401241025/upstate-ketamine-center-a-game-changer-in-depression-research)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-ketamine-infusion-therapy-gains-momentum-in-treating-severe-psychiatric-disorders-and-chronic-pain/ef0083fb8aad64259dc6bf3924141589) 
+
+ 
 
 
 

@@ -7,7 +7,17 @@ NEW YORK, NY, August 10, 2024 /24-7PressRelease/ -- Amerigo Scientific, a distri
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513282/amerigo-scientific-supplies-vast-selection-of-glycan-standards-to-cover-analytical-needs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amerigo-scientific-announces-availability-of-glycan-standards-for-analytical-applications/7a16519e89245cf809009f1c27be93af) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/10/amerigo-scientific-expands-glycan-standards-offering-for-enhanced-analytical-precision)
+
+Pickup - [fishervista.com](https://fishervista.com/en/amerigo-scientific-expands-glycan-standards-portfolio-for-enhanced-analytical-precision/20245631)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/amerigo-scientific-expands-glycan-standards-offering-for-enhanced-analytical-precision/20245631)
+
+Pickup - [advos.io](https://advos.io/en/amerigo-scientific-enhances-glycan-analysis-with-comprehensive-glycan-standards/20245631)
+ 
 
 
 

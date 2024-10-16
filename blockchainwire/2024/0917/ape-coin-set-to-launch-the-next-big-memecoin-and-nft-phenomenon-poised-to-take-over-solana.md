@@ -58,7 +58,17 @@ https://originalapecoin.com.  Disclaimer: The information provided in this pres
 [Original/Source Press Release](https://blockchainwire.io/press-release/ape-coin-set-to-launch-the-next-big-memecoin-and-nft-phenomenon-poised-to-take-over-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ape-coin-set-to-dominate-as-next-major-memecoin-and-nft-project-on-solana-blockchain/aa26da04ff647e85523d3165e903c956) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/ape-coin-prepares-for-launch-on-solana-a-new-era-for-memecoins-and-nfts)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ape-coin-emerges-as-potential-game-changer-in-memecoin-and-nft-markets-on-solana/20246906)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-memecoin-ape-aims-to-revolutionize-solana-s-crypto-landscape/20246906)
+
+Pickup - [advos.io](https://advos.io/en/new-memecoin-ape-set-to-launch-on-solana-aiming-for-billion-dollar-valuation/20246906)
+ 
 
 
 

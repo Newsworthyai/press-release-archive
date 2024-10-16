@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/westwater-res
 [Original/Source Press Release](https://newsdirect.com/news/westwater-resources-hails-white-house-decision-on-critical-mineral-tariffs-370177255)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/westwater-resources-endorses-white-house-decision-on-critical-mineral-tariffs/247c6ccbe0f695ec43e9511efdd1a103) 
+
+ 
 
 
 

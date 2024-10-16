@@ -39,7 +39,9 @@ Contact: info@hr.com HR.com Newsroom
 [Original/Source Press Release](https://newsworthy.ai/news/202409261285/hr-com-announces-formation-of-2025-advisory-board-for-future-of-hr-skills-and-strategies)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-launches-2025-future-of-hr-skills-and-strategies-advisory-board/69af41ebbe21dea5e55cbfea400b3d53) 
+
+ 
 
 
 

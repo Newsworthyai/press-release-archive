@@ -45,7 +45,9 @@ October 9, 2024, 12:30 pm ET
 [Original/Source Press Release](https://www.newmediawire.com/news/geovax-to-participate-in-the-3rd-annual-roth-healthcare-opportunities-conference-7076141)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/geovax-ceo-to-discuss-innovative-cancer-therapies-at-roth-healthcare-conference/a277b6a92b1ede77bf1b0a9302ee5343) 
+
+ 
 
 
 

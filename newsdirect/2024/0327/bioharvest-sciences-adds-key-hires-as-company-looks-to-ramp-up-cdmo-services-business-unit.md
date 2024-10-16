@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bioharvest-sc
 [Original/Source Press Release](https://newsdirect.com/news/bioharvest-sciences-adds-key-hires-as-company-looks-to-ramp-up-cdmo-services-business-unit-357567576)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bioharvest-sciences-adds-key-hires-to-ramp-up-cdmo-services-business-unit/72e3b104ed26e02b46b67e9764b96ca5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/bioharvest-sciences-bolsters-cdmo-services-with-strategic-hires)
+ 
 
 
 

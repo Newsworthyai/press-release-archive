@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/scaling-new-heights-defiquants-crypto-bot-sets-benchmark-for-automated-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-launches-revolutionary-automated-trading-bot/58b629c599100523124224dc26a4ea22) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/26/defiquant-s-crypto-trading-bot-redefines-automated-trading)
+ 
 
 
 

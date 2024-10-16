@@ -7,7 +7,17 @@ ATLANTA, GA, July 25, 2024 /24-7PressRelease/ -- Atlanta Golf & Social will brin
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512833/atlanta-golf-social-opening-new-location-at-lee-white)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atlanta-golf-social-to-open-new-experiential-sports-venue-at-lee-white/a17de0aff99ebf9d5bc9adf527c87816) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/atlanta-golf-social-expands-to-lee-white-development-enhancing-west-end-s-entertainment-scene)
+
+Pickup - [fishervista.com](https://fishervista.com/en/atlanta-golf-social-expands-to-lee-white-development-in-west-end/20245233)
+
+Pickup - [advos.io](https://advos.io/en/atlanta-golf-social-to-open-new-location-at-lee-white/20245233)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/atlanta-golf-social-expands-to-lee-white-development-bringing-indoor-golf-experience-to-west-end)
+ 
 
 
 

@@ -38,7 +38,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/an-inherited-
 [Original/Source Press Release](https://newsdirect.com/news/an-inherited-condition-could-be-the-cause-of-your-early-heart-disease-or-stroke-but-your-doctor-is-probably-not-testing-for-it-573486185)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-research-reveals-lack-of-screening-for-life-threatening-genetic-heart-condition/04c8611c3792fad9a2b367cf3f956b7d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/elevated-lipoprotein-a-levels-the-overlooked-culprit-behind-early-heart-disease-and-strokes)
+ 
 
 
 

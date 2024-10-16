@@ -23,7 +23,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/us-gold-corp-
 [Original/Source Press Release](https://newsdirect.com/news/us-gold-corp-ceo-highlights-ck-gold-projects-strategic-and-environmental-advantages-897132771)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/us-gold-corp-ceo-highlights-strategic-and-environmental-advantages-of-ck-gold-project/2026779e6def7f268a80e994528629bf) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/us-gold-corp-ceo-highlights-strategic-and-environmental-benefits-of-ck-gold-project/20244768)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/us-gold-corp-s-ck-gold-project-advances-with-environmental-and-strategic-advantages-in-wyoming)
+
+Pickup - [advos.io](https://advos.io/en/us-gold-corp-ceo-highlights-strategic-and-environmental-advantages-of-ck-gold-project/20244768)
+ 
 
 
 

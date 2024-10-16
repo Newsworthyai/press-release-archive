@@ -7,7 +7,15 @@ BALTIMORE, MD, July 16, 2024 /24-7PressRelease/ -- Author Kevin D. McCall takes 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512565/kevin-d-mccall-releases-uplifting-memoir-my-good-government-job-vol-1-offering-hope-and-inspiration-in-the-workplace)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-my-good-government-job-vol-1-offers-resilience-and-inspiration-for-overcoming-workplace-challenges/4664939fd277f87d4c5ede6c82501569) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/government-employee-s-memoir-offers-hope-and-guidance-for-workplace-challenges)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kevin-d-mccall-releases-inspiring-memoir-on-overcoming-workplace-challenges/20244980)
+
+Pickup - [advos.io](https://advos.io/en/kevin-d-mccall-unveils-memoir-my-good-government-job-vol-1-offering-workplace-resilience-and-inspiration/20244980)
+ 
 
 
 

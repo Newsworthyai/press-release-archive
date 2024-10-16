@@ -7,7 +7,11 @@ FORT WORTH, TX, March 26, 2024 /24-7PressRelease/ -- The 917 Industrial Park rec
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509343/recently-completed-office-warehouse-spaces-at-alvarado-tx-business-park-ready-for-lease)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/917-industrial-park-completes-300000-square-foot-expansion-offering-commercial-property-for-lease/262842128b71301381399a5774c60d97) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/new-commercial-space-available-at-917-industrial-park-in-alvarado)
+ 
 
 
 

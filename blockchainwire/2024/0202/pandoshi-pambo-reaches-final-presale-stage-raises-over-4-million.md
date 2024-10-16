@@ -37,7 +37,11 @@ Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/pandoshi-pambo-reaches-final-presale-stage-raises-over-4-million)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pandoshi-pambo-raises-over-4-million-in-presale-gears-up-for-exchange-launch/31645b6212d30944fb07b27b21691720) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/02/pandoshi-cryptocurrency-presale-raises-over-4-million-nears-exchange-listing)
+ 
 
 
 

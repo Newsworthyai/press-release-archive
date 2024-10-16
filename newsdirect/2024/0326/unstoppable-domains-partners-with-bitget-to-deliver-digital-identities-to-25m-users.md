@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/unstoppable-d
 [Original/Source Press Release](https://newsdirect.com/news/unstoppable-domains-partners-with-bitget-to-deliver-digital-identities-to-25m-users-314100986)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-partners-with-unstoppable-domains-to-provide-digital-identities-to-25m-users/74b6419bdce585ee991f4308e2fbce50) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/bitget-and-unstoppable-domains-join-forces-to-bring-web3-identities-to-millions)
+ 
 
 
 

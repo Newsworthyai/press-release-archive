@@ -7,7 +7,9 @@ NEWARK, NJ, October 01, 2024 /24-7PressRelease/ -- The new Artificial Intelligen
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514803/punyam-academy-is-thrilled-to-launched-iso-42001-lead-implementer-training-course-for-artificial-intelligence-management)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/punyam-academy-launches-iso-42001-lead-implementer-training-course-for-artificial-intelligence-management-systems/318b0d88aa88c811c6a60edc3fe52dae) 
+
+ 
 
 
 

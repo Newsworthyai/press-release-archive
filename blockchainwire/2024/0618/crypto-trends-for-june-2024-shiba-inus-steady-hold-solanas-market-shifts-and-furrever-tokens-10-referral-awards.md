@@ -29,7 +29,17 @@ Media Contact:Robert Smith[https://furrevertoken.com/](https://furrevertoken.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-trends-for-june-2024-shiba-inus-steady-hold-solanas-market-shifts-and-furrever-tokens-10-referral-awards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-market-shifts-shiba-inu-solana-and-furrever-token-in-focus/6468a47928180ad013471d0b3efdc2c4) 
+
+
+Pickup - [advos.io](https://advos.io/en/crypto-trends-shiba-inu-s-etf-bid-solana-s-market-volatility-and-furrever-token-s-innovative-referral-rewards/20244241)
+
+Pickup - [fishervista.com](https://fishervista.com/en/crypto-trends-for-june-2024-shiba-inu-s-etf-momentum-solanas-market-instability-and-furrever-tokens-referral-rewards/20244241)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cryptocurrency-market-shifts-shiba-inu-solana-and-furrever-token-in-focus)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cryptocurrency-market-shifts-shiba-inu-solana-and-furrever-token-in-focus)
+ 
 
 
 

@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/xtreme-trucki
 [Original/Source Press Release](https://newsdirect.com/news/xtreme-trucking-selects-hopteks-dispatch-engine-r-solution-for-real-time-visibility-and-optimization-of-fleet-operations-987144069)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xtreme-trucking-selects-hoptek-s-dispatch-engine-r-for-real-time-visibility-and-optimization-of-fleet-operations/8d86051121298ee85a859ad53aec5131) 
+
+ 
 
 
 

@@ -27,7 +27,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/slumboio-hits-2m-marketcap-shortly-after-launch-eyes-coingecko-and-coinmarketcap-listings)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/slumbo-io-achieves-2m-marketcap-post-launch-gains-momentum-in-the-digital-ecosystem/d05df47732ce776260cb407a14573fd8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/slumbo-io-reaches-2m-marketcap-shortly-after-launch-eyes-major-listings/20244378)
+
+Pickup - [advos.io](https://advos.io/en/slumbo-io-reaches-2m-market-cap-in-just-two-hours-sets-sights-on-major-listings/20244378)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/slumbo-io-achieves-2m-marketcap-post-launch-gains-momentum-in-the-digital-ecosystem)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/slumbo-io-achieves-2m-marketcap-post-launch-gains-momentum-in-the-digital-ecosystem)
+ 
 
 
 

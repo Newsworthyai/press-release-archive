@@ -59,7 +59,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/texicare-part
 [Original/Source Press Release](https://newsdirect.com/news/texicare-partners-with-tempopay-to-make-paying-for-health-care-simpler-and-more-accessible-for-small-business-groups-in-texas-475755536)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/texicare-partners-with-tempopay-to-make-paying-for-health-care-simpler-and-more-accessible-for-small-business-groups-in-texas/afad3499fc8bd87ca0edd0129f48a7e1) 
+
+ 
 
 
 

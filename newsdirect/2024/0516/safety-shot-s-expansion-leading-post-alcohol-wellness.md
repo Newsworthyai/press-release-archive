@@ -59,7 +59,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/safety-shots-
 [Original/Source Press Release](https://newsdirect.com/news/safety-shots-expansion-leading-post-alcohol-wellness-523389011)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/safety-shot-inc-introduces-innovative-alcohol-recovery-beverage-into-7-elevens-in-los-angeles/3ad28650d1606454e9927c94edfe2001) 
+
+ 
 
 
 

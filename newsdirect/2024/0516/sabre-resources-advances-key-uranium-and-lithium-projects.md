@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/sabre-resourc
 [Original/Source Press Release](https://newsdirect.com/news/sabre-resources-advances-key-uranium-and-lithium-projects-857146649)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sabre-resources-advances-key-uranium-and-lithium-projects-in-australia/21a38d29c1e96f3d296b43eec5ca8e50) 
+
+ 
 
 
 

@@ -23,7 +23,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/solvation-memecoin-launches-to-revolutionise-community-engagement-on-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solvation-launches-as-a-pioneering-solana-based-memecoin/8fed9754da835d0a633545723b691d19) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/solvation-memecoin-launches-on-solana-to-foster-community-engagement)
+ 
 
 
 

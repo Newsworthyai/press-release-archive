@@ -15,7 +15,11 @@ As a distinguished provider of comprehensive mental health services, Strategies 
 [Original/Source Press Release](https://newsworthy.ai/news/202401261036/strategies-for-success-tms-therapy-offers-hope-for-a-healthier-life)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-mental-health-solution-strategies-for-success-introduces-tms-therapy/f7c34c325a8f1812bedf149d665fad46) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/26/transcranial-magnetic-stimulation-offers-new-hope-for-mental-health)
+ 
 
 
 

@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-reveals-the-dynamics-behind-bitcoin--ethereums-remarkable-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-analysis-reveals-factors-driving-bitcoin-and-ethereum-growth/2c161ce3681d946f8ec310515815e80a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/stakingfarm-unveils-insights-into-bitcoin-and-ethereum-s-meteoric-rise)
+ 
 
 
 

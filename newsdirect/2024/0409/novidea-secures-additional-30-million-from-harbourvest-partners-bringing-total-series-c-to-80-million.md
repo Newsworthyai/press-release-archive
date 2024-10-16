@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/novidea-secur
 [Original/Source Press Release](https://newsdirect.com/news/novidea-secures-additional-30-million-from-harbourvest-partners-bringing-total-series-c-to-80-million-633753773)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/novidea-secures-30-million-investment-from-harbourvest-partners/d88950e63c4ee30dda814e53b20664f6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/novidea-raises-80-million-to-accelerate-digital-transformation-in-insurance-industry)
+ 
 
 
 

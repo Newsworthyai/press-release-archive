@@ -43,7 +43,9 @@ ronb@rjdgreen.com
 [Original/Source Press Release](http://www.newmediawire.com/news/rjd-green-inc-s-silex-holdings-division-acquires-the-assets-of-jsi-interiors-7076083)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/silex-holdings-inc-acquires-assets-of-jsi-interiors-to-expand-operations/72e3744159a6a8b599530df5c53dfc9b) 
+
+ 
 
 
 

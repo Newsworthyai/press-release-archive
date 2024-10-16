@@ -29,7 +29,11 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/furrever-token-presale-roi-soars-catching-attention-of-bitcoin-btc-and-ethereum-eth-enthusiasts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/furrever-token-furr-presale-hype-amid-bitcoin-and-ethereum-halving-excitement/57d977f14ea98b70f50ae33e5792fe28) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/furrever-token-presale-roi-soars-catching-attention-of-bitcoin-btc-and-ethereum-eth-enthusiasts)
+ 
 
 
 

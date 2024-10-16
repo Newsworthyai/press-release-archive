@@ -7,7 +7,11 @@ COLORADO SPRINGS, CO, March 15, 2024 /24-7PressRelease/ -- Skiing, a beloved win
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509259/death-of-skiing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/skiing-industry-faces-crisis-myskilessons-com-report-reveals-declining-interest-and-threatened-livelihoods/47dc0ef58d0a7695fef6c18ed5cca5ef) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/skiing-industry-faces-existential-crisis-as-interest-plummets)
+ 
 
 
 

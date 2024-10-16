@@ -7,7 +7,9 @@ SEOUL, KOREA, September 21, 2024 /24-7PressRelease/ -- From September 18, 2024, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514556/peace-projects-in-170-countries-hwpl-celebrates-decade-of-global-commitment-to-peace)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hwpl-world-peace-summit-marks-10th-anniversary-with-global-celebrations-and-regional-collaboration/d270ac23ad3325ba905fa8c1df8e8f40) 
+
+ 
 
 
 

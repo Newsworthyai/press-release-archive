@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/db-schenker-a
 [Original/Source Press Release](https://newsdirect.com/news/db-schenker-americas-earns-iata-lithium-battery-transport-certification-367920787)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/db-schenker-americas-earns-iata-lithium-battery-transport-certification/02049925b0df9f01959c26b150ff8d85) 
+
+ 
 
 
 

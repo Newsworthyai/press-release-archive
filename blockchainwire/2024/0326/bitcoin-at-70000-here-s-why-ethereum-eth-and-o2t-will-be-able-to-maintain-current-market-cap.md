@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-at-70000---heres-why-ethereum-eth-and-o2t-will-be-able-to-maintain-current-market-cap)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-eth-and-option2trade-o2t-stand-strong-amid-bitcoin-s-volatility/f071cebf1bfd3c4a8fe3fb46b3b55fdb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/ethereum-and-option2trade-poised-to-maintain-market-cap-amid-bitcoin-s-surge)
+ 
 
 
 

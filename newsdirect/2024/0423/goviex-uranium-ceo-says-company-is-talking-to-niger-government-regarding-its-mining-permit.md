@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/goviex-uraniu
 [Original/Source Press Release](https://newsdirect.com/news/goviex-uranium-ceo-says-company-is-talking-to-niger-government-regarding-its-mining-permit-132714608)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/goviex-uranium-ceo-in-talks-with-niger-government-on-mining-permit/c57d2796f209e94d5d386b0c50b4ff50) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/goviex-uranium-ceo-says-company-is-talking-to-niger-government-regarding-its-mining-permit)
+ 
 
 
 

@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/lash-lift-sto
 [Original/Source Press Release](https://newsdirect.com/news/lash-lift-store-launches-comprehensive-training-and-certification-program-for-beauty-professionals-589349098)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lash-lift-store-launches-new-training-and-certification-program-for-beauty-professionals/1a0af7e2ec53fb0c616d6609683fa426) 
+
+ 
 
 
 

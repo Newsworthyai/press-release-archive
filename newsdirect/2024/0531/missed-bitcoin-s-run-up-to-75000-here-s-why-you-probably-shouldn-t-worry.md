@@ -67,7 +67,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/missed-bitcoi
 [Original/Source Press Release](https://newsdirect.com/news/missed-bitcoins-run-up-to-75-000-heres-why-you-probably-shouldnt-worry-536743292)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/understanding-bitcoin-s-recent-surge-and-market-dynamics/f01d67d22ef7593880efec68b1cdf1c8) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/understanding-bitcoin-s-recent-surge-and-market-dynamics)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/understanding-bitcoin-s-recent-surge-and-market-dynamics)
+ 
 
 
 

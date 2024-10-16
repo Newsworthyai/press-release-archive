@@ -45,7 +45,11 @@ Verity One TRUTH MATTERS™ has solved the FAKE Problem:https://verity.one/the-v
 [Original/Source Press Release](https://blockchainwire.io/press-release/verity-one-truth-matters-solves-the-fake-luxury-watch-problem-using-ai-blockchain-with-vrty-token-binance-bsc-polygon-matic-ibm-hyperledger)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/verity-one-introduces-vrty-token-to-combat-counterfeit-luxury-watches/4f41127e8835a52a4816935a325b2523) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/12/verity-one-unveils-blockchain-powered-solution-to-combat-counterfeit-luxury-watches)
+ 
 
 
 

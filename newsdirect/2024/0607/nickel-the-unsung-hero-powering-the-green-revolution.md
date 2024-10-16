@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nickel-the-un
 [Original/Source Press Release](https://newsdirect.com/news/nickel-the-unsung-hero-powering-the-green-revolution-114044203)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nickel-the-unsung-hero-powering-the-green-revolution/bb90eaeec5e1926554237a7659fc7351) 
+
+ 
 
 
 

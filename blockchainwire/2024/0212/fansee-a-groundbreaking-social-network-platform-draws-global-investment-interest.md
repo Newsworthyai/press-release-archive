@@ -29,7 +29,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/fansee-a-groundbreaking-social-network-platform-draws-global-investment-interest)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fansee-emerges-as-pioneering-social-network-platform-attracts-global-investment/6b26d073f2b70ed7039713b10105c789) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/12/fansee-pioneering-social-network-attracts-global-investment-interest)
+ 
 
 
 

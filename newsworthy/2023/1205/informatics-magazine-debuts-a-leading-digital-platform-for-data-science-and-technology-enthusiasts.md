@@ -23,7 +23,11 @@ Elevate your understanding of the digital world by visiting www.InformaticsMagaz
 [Original/Source Press Release](https://newsworthy.ai/news/20231205826/informatics-magazine-debuts-a-leading-digital-platform-for-data-science-and-technology-enthusiasts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/informatics-magazine-launches-a-new-digital-hub-for-data-science-enthusiasts/a5b675db9f88c2f0aae23dd09f99d1d6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/05/informatics-magazine-debuts-as-premier-digital-destination-for-data-science-enthusiasts)
+ 
 
 
 

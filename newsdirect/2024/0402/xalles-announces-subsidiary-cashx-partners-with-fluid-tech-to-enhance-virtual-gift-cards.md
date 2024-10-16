@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/xalles-announ
 [Original/Source Press Release](https://newsdirect.com/news/xalles-announces-subsidiary-cashx-partners-with-fluid-tech-to-enhance-virtual-gift-cards-693750453)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cashxai-and-fluid-tech-partner-to-revolutionize-financial-services/545f0f5c5b9aa6e4eeeadaf78a321293) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/cashx-elevates-gifting-experience-with-fluid-tech-partnership)
+ 
 
 
 

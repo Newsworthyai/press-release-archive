@@ -50,7 +50,9 @@ Visit Our Website
 [Original/Source Press Release](https://newsroom.prkarma.com/lumer-timeless-health-clinic/news_release/1474)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lumer-timeless-health-clinic-announces-grand-opening-of-second-location-in-mississauga-ontario/aa2b4a2c768a30afcfff344d514aba6e) 
+
+ 
 
 
 

@@ -51,7 +51,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/elon-musk-boo
 [Original/Source Press Release](https://newsdirect.com/news/elon-musk-boosts-doge-declares-he-knows-dogwifhat-raboo-surges-60-537701695)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elon-musk-s-influence-on-doge-and-dogwifhat-raboo-s-rapid-growth/8ccdb54d8d9fb1676c1d58229e291889) 
+
+
+Pickup - [advos.io](https://advos.io/en/raboo-s-presale-skyrockets-amidst-elon-musk-s-crypto-influence/20244153)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/elon-musk-s-influence-on-doge-and-dogwifhat-raboo-s-rapid-growth)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/elon-musk-s-influence-on-doge-and-dogwifhat-raboo-s-rapid-growth)
+ 
 
 
 

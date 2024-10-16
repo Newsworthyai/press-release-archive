@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/supra-boats-i
 [Original/Source Press Release](https://newsdirect.com/news/supra-boats-introduces-the-2025-lineup-designed-to-raise-watersports-with-innovation-and-luxury-463573731)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/supra-boats-unveils-2025-lineup-for-enhanced-watersports-experience/5b533dc9306173fb7ef741f1d878df94) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/supra-boats-unveils-2025-lineup-elevating-watersports-with-cutting-edge-innovation-and-luxury)
+
+Pickup - [fishervista.com](https://fishervista.com/en/supra-boats-unveils-innovative-2025-lineup-for-enhanced-watersports-experience/20245899)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/supra-boats-unveils-2025-lineup-advancing-watersports-with-cutting-edge-technology-and-luxury/20245899)
+
+Pickup - [advos.io](https://advos.io/en/supra-boats-unveils-2025-lineup-with-advanced-features-and-luxury/20245899)
+ 
 
 
 

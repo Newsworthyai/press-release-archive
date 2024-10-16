@@ -7,7 +7,13 @@ With the passage of Financial Innovation and Technology for the 21st Century Act
 [Original/Source Press Release](https://blockchainwire.io/press-release/sarson-funds-announces-public-launch-of-casper-stablecoin-csprusd-and-swiss-stablecoin-consortium-association)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-stablecoin-legislation-gains-momentum-with-launch-of-csprusd/4d5501d2ae223a0c029928517631726d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/u-s-stablecoin-legislation-gains-momentum-with-launch-of-csprusd)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/u-s-stablecoin-legislation-gains-momentum-with-launch-of-csprusd)
+ 
 
 
 

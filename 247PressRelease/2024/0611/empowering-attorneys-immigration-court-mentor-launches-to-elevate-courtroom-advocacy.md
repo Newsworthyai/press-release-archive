@@ -7,7 +7,11 @@ ORLANDO, FL, June 11, 2024 /24-7PressRelease/ -- Immigration Court Mentor is pro
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511596/empowering-attorneys-immigration-court-mentor-launches-to-elevate-courtroom-advocacy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/immigration-court-mentor-launches-specialized-consulting-services-for-immigration-attorneys/9246231b086799e0ee933bbe6b4fff6c) 
+
+
+Pickup - [advos.io](https://advos.io/en/immigration-court-mentor-launches-to-elevate-courtroom-advocacy-for-attorneys/20244011)
+ 
 
 
 

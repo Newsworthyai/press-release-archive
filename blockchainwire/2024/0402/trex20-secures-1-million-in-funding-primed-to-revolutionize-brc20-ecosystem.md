@@ -47,7 +47,11 @@ Website | Twitter | Telegram Chat | Telegram Ann | Medium
 [Original/Source Press Release](https://blockchainwire.io/press-release/trex20-secures-1-million-in-funding-primed-to-revolutionize-brc20-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trex20-secures-1-million-in-funding-ready-to-revolutionize-brc20-ecosystem/e9f886d968de33a289c8bb7918ba97ed) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/trex20-secures-1-million-funding-poised-to-transform-brc20-ecosystem)
+ 
 
 
 

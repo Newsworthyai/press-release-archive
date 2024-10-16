@@ -37,7 +37,9 @@ Enterprise Digitization Company Develops and Releases Four-Part, Comprehensive D
 [Original/Source Press Release](http://www.newmediawire.com/news/jumptech-reimagines-and-launches-new-digital-service-ecosystem-for-global-car-manufacturer-audi-7076082)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jumptech-solutions-corp-launches-comprehensive-digital-platform-for-audi/1c966ee4949982a39fda24b45340eb36) 
+
+ 
 
 
 

@@ -23,7 +23,11 @@ Media Contact: rair@transformgroup.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/rair-technologies-launches-rairmarket-a-white-label-web3-marketplace-and-integrated-management-platform-for-enterprises)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rair-technologies-releases-rair-market-suite-for-enterprises/802cc6e31a68319798844d8060e40b4c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/28/rair-technologies-unveils-web3-marketplace-for-enterprises)
+ 
 
 
 

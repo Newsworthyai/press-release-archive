@@ -29,7 +29,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/kinetiko-ener
 [Original/Source Press Release](https://newsdirect.com/news/kinetiko-energy-achieves-milestone-in-south-african-onshore-gas-power-generation-434336352)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kinetiko-energy-achieves-milestone-in-south-african-onshore-gas-power-generation/800622c3ebe96c1279130aa6db4d49d3) 
+
+ 
 
 
 

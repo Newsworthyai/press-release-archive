@@ -53,7 +53,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-issues-se
 [Original/Source Press Release](https://newsdirect.com/news/htx-issues-security-alert-regarding-exchange-accounts-amid-rising-cyber-treats-320435323)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-issues-urgent-security-alert-amid-rising-cyber-threats/979c99955bc43e0435ac097c3678775e) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-issues-urgent-security-alert-amid-rising-cyber-threats)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-issues-urgent-security-alert-amid-rising-cyber-threats)
+ 
 
 
 

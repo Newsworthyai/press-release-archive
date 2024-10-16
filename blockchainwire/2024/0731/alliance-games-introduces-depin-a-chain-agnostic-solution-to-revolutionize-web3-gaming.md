@@ -51,7 +51,21 @@ You can learn more about Alliance Games and stay up-to-date with its development
 [Original/Source Press Release](https://blockchainwire.io/press-release/alliance-games-introduces-depin---a-chain-agnostic-solution-to-revolutionize-web3-gaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alliance-games-introduces-depin-network-for-decentralized-gaming-infrastructure/2efe3b13871752e22d2a144cea22886a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/alliance-games-unveils-depin-a-game-changing-decentralized-infrastructure-for-web3-gaming)
+
+Pickup - [fishervista.com](https://fishervista.com/en/alliance-games-unveils-depin-network-to-transform-web3-gaming-infrastructure/20245402)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/alliance-games-introduces-depin-network-for-decentralized-gaming-infrastructure)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/alliance-games-introduces-depin-network-for-decentralized-gaming-infrastructure)
+
+Pickup - [advos.io](https://advos.io/en/alliance-games-unveils-depin-a-decentralized-solution-for-web3-gaming/20245402)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/alliance-games-unveils-depin-a-decentralized-solution-for-web3-gaming-infrastructure)
+ 
 
 
 

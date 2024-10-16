@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/introducing-f
 [Original/Source Press Release](https://newsdirect.com/news/introducing-filter-experience-revolutionizing-ar-filters-for-tiktok-instagram-and-snapchat-769157938)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/filter-experience-revolutionizes-ar-filters-for-tiktok-instagram-and-snapchat/259bd5503186c4603e55647a89dbdd21) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/filter-experience-brings-augmented-reality-to-social-media)
+ 
 
 
 

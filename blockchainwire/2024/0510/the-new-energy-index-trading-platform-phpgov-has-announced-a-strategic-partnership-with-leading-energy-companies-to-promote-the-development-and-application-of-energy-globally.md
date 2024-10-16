@@ -23,7 +23,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-new-energy-index-trading-platform-phpgov-has-announced-a-strategic-partnership-with-leading-energy-companies-to-promote-the-development-and-application-of-energy-globally)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/phpgov-announces-strategic-partnerships-with-top-energy-companies-to-advance-new-energy-development-globally/03ed97438f9602af11d7156213d2b4b8) 
+
+ 
 
 
 

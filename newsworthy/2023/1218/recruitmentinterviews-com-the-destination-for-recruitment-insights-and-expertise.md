@@ -23,7 +23,13 @@ Discover a world of recruitment wisdom at www.RecruitmentInterviews.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231218870/recruitmentinterviews-com-the-destination-for-recruitment-insights-and-expertise)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/recruitmentinterviews-com-revolutionizes-hiring-landscape-with-digital-debut/220efbf86463f8c36401fa4fad8c5e6d) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/recruitmentinterviews-com-launches-as-premier-resource-for-hiring-professionals/2023339)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/18/recruitmentinterviews-com-revolutionizing-the-recruitment-landscape)
+ 
 
 
 

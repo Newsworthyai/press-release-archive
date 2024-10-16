@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/eth-whales-drop-ethereum-profits-into-new-budz-cryptocurrency-positioned-for-green-rally)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-whales-shift-focus-to-shiba-budz-budz-in-anticipation-of-green-rally/56de0597e963745854de9bef55f2338d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/ethereum-whales-dive-into-shiba-budz-a-strategic-shift-towards-green-rally)
+ 
 
 
 

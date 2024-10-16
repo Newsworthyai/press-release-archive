@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-hashgraph
 [Original/Source Press Release](https://newsdirect.com/news/the-hashgraph-association-and-inacta-ventures-launch-50-million-sustainability-venture-studio-under-the-green-block-initiative-442899214)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-hashgraph-association-and-inacta-ventures-launch-50-million-sustainability-venture-studio/294572d9fea074f20a623f843a3784fe) 
+
+
+Pickup - [advos.io](https://advos.io/en/the-hashgraph-association-and-inacta-ventures-unveil-50-million-sustainability-venture-studio/20244092)
+ 
 
 
 

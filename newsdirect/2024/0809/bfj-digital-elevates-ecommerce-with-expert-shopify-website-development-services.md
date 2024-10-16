@@ -53,7 +53,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/bfj-digital-e
 [Original/Source Press Release](https://newsdirect.com/news/bfj-digital-elevates-ecommerce-with-expert-shopify-website-development-services-931538742)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bfj-digital-elevates-ecommerce-with-expert-shopify-website-development-services/5055dd661f61035ac21f29fb949d1302) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/bfj-digital-launches-advanced-shopify-development-services-to-boost-ecommerce-success)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bfj-digital-elevates-ecommerce-with-expert-shopify-website-development-services/20245623)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bfj-digital-launches-comprehensive-shopify-development-services-to-boost-ecommerce-success/20245623)
+
+Pickup - [advos.io](https://advos.io/en/bfj-digital-enhances-ecommerce-with-specialized-shopify-development-services/20245623)
+ 
 
 
 

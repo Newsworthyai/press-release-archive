@@ -9,7 +9,11 @@ Following in Notcoin's footsteps, $NOTINU aims to become the biggest Dog-themed 
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-golden-dog-on-telegrams-ton-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/notcoin-inu-the-golden-dog-of-ton-blockchain/9fbe31e3460c0766add5bff559424ea2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/the-golden-dog-of-ton-blockchain-notcoin-inu-aims-to-shine-bright)
+ 
 
 
 

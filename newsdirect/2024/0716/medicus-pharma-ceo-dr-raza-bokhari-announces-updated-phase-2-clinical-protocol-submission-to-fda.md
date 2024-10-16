@@ -21,7 +21,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/medicus-pharm
 [Original/Source Press Release](https://newsdirect.com/news/medicus-pharma-ceo-dr-raza-bokhari-announces-updated-phase-2-clinical-protocol-submission-to-fda-649563376)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/medicus-pharma-ceo-announces-updated-phase-2-clinical-protocol-submission-to-fda/592e0ca3bee309edeeda9f1cd36f9560) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/medicus-pharma-submits-updated-phase-2-protocol-to-fda-for-innovative-skin-cancer-treatment)
+
+Pickup - [fishervista.com](https://fishervista.com/en/medicus-pharma-ceo-submits-updated-phase-2-clinical-protocol-to-fda-for-skin-cancer-treatment/20244999)
+
+Pickup - [advos.io](https://advos.io/en/medicus-pharma-submits-updated-phase-2-clinical-protocol-for-skin-cancer-treatment-to-fda/20244999)
+ 
 
 
 

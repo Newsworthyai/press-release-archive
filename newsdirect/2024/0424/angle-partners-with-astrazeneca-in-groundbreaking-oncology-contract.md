@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/angle-partner
 [Original/Source Press Release](https://newsdirect.com/news/angle-partners-with-astrazeneca-in-groundbreaking-oncology-contract-929912541)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/angle-plc-enters-groundbreaking-contract-with-astrazeneca-in-oncology/6bee749d48afeac0692ecd55b1dc663e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/angle-partners-with-astrazeneca-in-groundbreaking-oncology-contract)
+ 
 
 
 

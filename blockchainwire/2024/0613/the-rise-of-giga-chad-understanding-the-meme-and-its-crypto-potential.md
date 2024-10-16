@@ -9,7 +9,15 @@ Giga Chad and Crypto: The $GIGA CoinThe Giga Chad meme made its way into the cry
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-rise-of-giga-chad-understanding-the-meme-and-its-crypto-potential)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/giga-chad-the-meme-the-coin-the-future/2e8a77c54c5461ee926e11f31d1ba0c8) 
+
+
+Pickup - [advos.io](https://advos.io/en/the-rise-of-giga-chad-exploring-the-meme-inspired-crypto-phenomenon/20244143)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/giga-chad-the-meme-the-coin-the-future)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/giga-chad-the-meme-the-coin-the-future)
+ 
 
 
 

@@ -29,7 +29,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/meow-gangs-announces-its-meowg-presale-on-raydium-on-april-16-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meow-gangs-announces-meowg-presale-on-raydium-for-crypto-enthusiasts/857a8b5e09cd947e82b0abd8873f39d2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/meow-gangs-announces-meowg-presale-on-raydium)
+ 
 
 
 

@@ -7,7 +7,11 @@ LONDON, ENGLAND, June 02, 2024 /24-7PressRelease/ -- Leathwaite, a pioneer in ex
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511342/leathwaite-reveals-coo-driven-2024-business-insights-and-projections)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leathwaite-unveils-2024-coo-insights-report/dd4054d3e9183a9c0391ca9b411ea27c) 
+
+
+Pickup - [advos.io](https://advos.io/en/leathwaite-reveals-coo-driven-2024-business-insights-and-projections/20243606)
+ 
 
 
 

@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/hiru-corp-otc
 [Original/Source Press Release](https://newsdirect.com/news/hiru-corp-otc-hiru-forging-a-path-in-metal-mining-exploration-885268119)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hiru-corp-otc-hiru-forging-a-path-in-metal-mining-exploration/1b32fa15815a1a9b89f67c1f4c25ebe1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/hiru-corp-otc-hiru-forging-a-path-in-metal-mining-exploration)
+ 
 
 
 

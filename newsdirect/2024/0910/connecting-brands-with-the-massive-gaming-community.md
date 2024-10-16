@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/connecting-br
 [Original/Source Press Release](https://newsdirect.com/news/connecting-brands-with-the-massive-gaming-community-578998697)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gamesquare-ceo-justin-kenna-talks-revolutionizing-brand-connections-in-gaming-community/687a32f82862230faa4910ec741e5248) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/gamesquare-holdings-aims-to-bridge-gap-between-brands-and-gaming-community)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gamesquare-holdings-inc-aims-to-revolutionize-brand-engagement-in-gaming/20246663)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gamesquare-holdings-inc-aims-to-bridge-gap-between-brands-and-gaming-community/20246663)
+
+Pickup - [advos.io](https://advos.io/en/gamesquare-holdings-inc-aims-to-revolutionize-brand-connections-in-gaming-community/20246663)
+ 
 
 
 

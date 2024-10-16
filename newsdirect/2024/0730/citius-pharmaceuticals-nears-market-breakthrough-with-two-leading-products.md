@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/citius-pharma
 [Original/Source Press Release](https://newsdirect.com/news/citius-pharmaceuticals-nears-market-breakthrough-with-two-leading-products-409919572)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/citius-pharmaceuticals-nears-market-breakthrough-with-two-leading-products/b70f75513ce9a23ba0060072f1f443a9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/citius-pharmaceuticals-poised-for-major-market-breakthroughs-with-two-leading-products)
+
+Pickup - [fishervista.com](https://fishervista.com/en/citius-pharmaceuticals-on-the-verge-of-market-breakthrough-with-key-products/20245365)
+
+Pickup - [advos.io](https://advos.io/en/citius-pharmaceuticals-advances-toward-market-with-groundbreaking-treatments/20245365)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/citius-pharmaceuticals-poised-for-major-breakthroughs-with-two-key-products)
+ 
 
 
 

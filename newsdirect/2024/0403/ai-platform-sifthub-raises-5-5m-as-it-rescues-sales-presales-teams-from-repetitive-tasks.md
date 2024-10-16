@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ai-platform-s
 [Original/Source Press Release](https://newsdirect.com/news/ai-platform-sifthub-raises-5-5m-as-it-rescues-sales-and-presales-teams-from-repetitive-tasks-606622955)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-platform-sifthub-raises-5-5m-to-rescue-sales-and-presales-teams/24a10d8d42057c0d1de213708e7d3fc3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/sifthub-raises-5-5m-to-empower-sales-teams-with-ai-powered-knowledge-discovery)
+ 
 
 
 

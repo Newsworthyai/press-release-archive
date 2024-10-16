@@ -7,7 +7,9 @@ LOGANVILLE, GA, May 27, 2024 /24-7PressRelease/ -- Excitement is sweeping throug
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511177/daniel-ragers-the-abbey-gate-13-flag-draped-coffins-now-available-on-leading-platforms-worldwide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/daniel-rager-s-debut-novel-the-abbey-gate-now-available-on-major-platforms/30eb26d19192adf5ed280f31ee7478c7) 
+
+ 
 
 
 

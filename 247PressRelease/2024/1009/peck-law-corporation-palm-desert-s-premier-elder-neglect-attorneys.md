@@ -7,7 +7,9 @@ PALM DESERT, CA, October 09, 2024 /24-7PressRelease/ -- Peck Law Corporation sta
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515083/peck-law-corporation-palm-deserts-premier-elder-neglect-attorneys)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peck-law-corporation-leading-the-fight-for-elder-neglect-victims-in-palm-desert-ca/4886ebebebba324de8a40cfb57346bfa) 
+
+ 
 
 
 

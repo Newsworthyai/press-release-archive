@@ -37,7 +37,9 @@ Passive income with the help of staking, validation of transactions in Proof of 
 [Original/Source Press Release](https://blockchainwire.io/press-release/okaycoin-introduces-game-changing-innovations-in-2024-bringing-the-best-in-class-crypto-staking-experience-to-the-next-level)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/okaycoin-becomes-world-s-largest-crypto-exchange-and-staking-platform-in-2024/890520b31065b5611efe94133e48cdbc) 
+
+ 
 
 
 

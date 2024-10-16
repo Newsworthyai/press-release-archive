@@ -27,7 +27,11 @@ Disclaimer: Cryptocurrency investments come with inherent risks. Potential inve
 [Original/Source Press Release](https://blockchainwire.io/press-release/cyberdoge-emerges-as-the-next-dogecoin--skyrockets-300x-in-72-hours)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/soaring-to-new-heights-cyberdoge-s-unprecedented-success/70b280e2afc0cf12d1013e6a8790e642) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/06/cyberdoge-skyrockets-as-the-next-dogecoin-phenomenon)
+ 
 
 
 

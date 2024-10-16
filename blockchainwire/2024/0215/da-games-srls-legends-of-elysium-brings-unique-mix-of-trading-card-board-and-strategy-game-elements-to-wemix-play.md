@@ -37,7 +37,11 @@ Wemade is at the forefront of the next wave of Web3 game developers that are inn
 [Original/Source Press Release](https://blockchainwire.io/press-release/da-games-srls-legends-of-elysium-brings-unique-mix-of-trading-card-board-and-strategy-game-elements-to-wemix-play)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemade-announces-launch-of-fantasy-strategy-card-game-legends-of-elysium-on-blockchain-platform/d6b02d952652cf001c2f22840736719c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/15/legends-of-elysium-a-unique-blend-of-trading-card-board-and-strategy-game-elements)
+ 
 
 
 

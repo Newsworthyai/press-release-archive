@@ -51,7 +51,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/aiconnect-foundation-announces-10-million-ecosystem-support-fund-to-boost-global-blockchain-innovation-and-applications)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aiconnect-foundation-announces-10-million-ecosystem-support-fund-for-blockchain-projects-worldwide/72ecd682d21ed4515a46dc5b3d1bfc4c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/aiconnect-foundation-launches-10-million-fund-to-propel-blockchain-innovation/20244584)
+
+Pickup - [advos.io](https://advos.io/en/aiconnect-foundation-launches-10-million-fund-to-support-global-blockchain-innovation/20244584)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/aiconnect-foundation-announces-10-million-ecosystem-support-fund-for-blockchain-projects-worldwide)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/aiconnect-foundation-announces-10-million-ecosystem-support-fund-for-blockchain-projects-worldwide)
+ 
 
 
 

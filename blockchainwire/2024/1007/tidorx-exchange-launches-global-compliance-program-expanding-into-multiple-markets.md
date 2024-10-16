@@ -53,7 +53,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/tidorx-exchange-launches-global-compliance-program-expanding-into-multiple-markets)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tidorx-launches-global-compliance-program-to-expand-international-presence/ef83251a26feecc36bd26a0f7dfb847e) 
+
+ 
 
 
 

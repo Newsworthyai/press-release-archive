@@ -48,7 +48,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/elf-labs-ceo-
 [Original/Source Press Release](https://newsdirect.com/news/elf-labs-ceo-opening-live-qanda-for-investors-amid-private-capital-raise-820822983)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elf-labs-ceo-to-host-exclusive-investor-presentation-and-q-a/57427de3400fd1f847122b8f86c16985) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/elf-labs-announces-investor-webinar-for-capital-raise-offering-bonus-shares)
+
+Pickup - [fishervista.com](https://fishervista.com/en/elf-labs-announces-investor-q-a-amidst-strategic-capital-raise/20245653)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/elf-labs-announces-investor-presentation-and-q-a-session-amid-capital-raise/20245653)
+
+Pickup - [advos.io](https://advos.io/en/elf-labs-announces-live-q-a-for-investors-amid-capital-raise/20245653)
+ 
 
 
 

@@ -53,7 +53,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-ryo-ryo-coin-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-announces-listing-of-ryo-coin-with-ryo-usdt-trading-pair/8c2445f6ac3d8ee69510233a745c03ab) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/xt-announces-listing-of-ryo-coin-with-ryo-usdt-trading-pair)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/xt-announces-listing-of-ryo-coin-with-ryo-usdt-trading-pair)
+ 
 
 
 

@@ -30,7 +30,11 @@ ConclusionThe ERC-7621 introduces a range of functionalities designed to enhance
 [Original/Source Press Release](https://blockchainwire.io/press-release/alvara-leads-with-implementation-of-new-erc-7621-token-standard)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/erc-7621-revolutionizing-fund-management-with-new-token-standard/254453be6268c688b108691b4eefced1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/20/alvara-pioneers-new-erc-7621-token-standard-for-tokenized-investment-funds)
+ 
 
 
 

@@ -45,7 +45,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/basehaven-ready-to-onboard-the-new-wave-of-users-to-base-chain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/basehaven-enhances-defi-experience-with-basechain-updates/ae47bcb3e8a18aa623793a53fab162a6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/basehaven-emerges-as-first-all-in-one-defi-hub-on-coinbase-s-enhanced-base-chain)
+
+Pickup - [fishervista.com](https://fishervista.com/en/basehaven-leverages-enhanced-basechain-for-improved-defi-experience/20245539)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/basehaven-emerges-as-first-all-in-one-defi-hub-on-base-chain)
+
+Pickup - [advos.io](https://advos.io/en/basehaven-enhances-defi-experience-with-basechain-integration/20245539)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/basehaven-enhances-defi-experience-with-basechain-updates)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/basehaven-enhances-defi-experience-with-basechain-updates)
+ 
 
 
 

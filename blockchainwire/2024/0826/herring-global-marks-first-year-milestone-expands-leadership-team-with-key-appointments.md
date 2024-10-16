@@ -17,7 +17,17 @@ Both Christian Fischer and Benjamin Toh will report directly to Ervin.About Herr
 [Original/Source Press Release](https://blockchainwire.io/press-release/herring-global-marks-first-year-milestone-expands-leadership-team-with-key-appointments)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/herring-global-strengthens-leadership-with-key-appointments-as-it-celebrates-first-anniversary)
+
+Pickup - [fishervista.com](https://fishervista.com/en/herring-global-expands-leadership-team-with-key-appointments/20245938)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/herring-global-strengthens-leadership-with-new-cto-and-compliance-head/20245938)
+
+Pickup - [advos.io](https://advos.io/en/herring-global-expands-leadership-team-amidst-first-year-milestone/20245938)
+ 
 
 
 

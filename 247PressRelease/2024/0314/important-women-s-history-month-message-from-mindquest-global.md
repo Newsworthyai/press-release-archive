@@ -7,7 +7,11 @@ VICTORIA, BC, March 14, 2024 /24-7PressRelease/ -- The International Coaching Fe
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509252/important-womens-history-month-message-from-mindquest-global)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/female-executive-coaching-unlocking-opportunities-for-growth-and-advancement/c9df869352f489c4bc2c0bc80ab3c640) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/empowering-women-through-executive-coaching-a-call-to-action)
+ 
 
 
 

@@ -52,7 +52,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/pstake-is-exp
 [Original/Source Press Release](https://newsdirect.com/news/pstake-is-expanding-bitcoin-liquid-staking-on-babylon-to-bnb-chain-382748848)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pstake-announces-bitcoin-liquid-staking-for-bnb-chain/c7361e90323cd5b88349fa956906e0bb) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/pstake-announces-bitcoin-liquid-staking-for-bnb-chain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/pstake-announces-bitcoin-liquid-staking-for-bnb-chain)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/pstake-finance-expands-bitcoin-liquid-staking-to-bnb-chain-boosting-defi-opportunities)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pstake-expands-bitcoin-liquid-staking-to-bnb-chain-enhancing-defi-opportunities/20246560)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/pstake-finance-expands-bitcoin-liquid-staking-to-bnb-chain-enhancing-defi-opportunities/20246560)
+
+Pickup - [advos.io](https://advos.io/en/pstake-expands-bitcoin-liquid-staking-to-bnb-chain/20246560)
+ 
 
 
 

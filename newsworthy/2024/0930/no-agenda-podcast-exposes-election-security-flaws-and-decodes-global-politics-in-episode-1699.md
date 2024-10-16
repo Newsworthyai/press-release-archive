@@ -46,7 +46,9 @@ About No Agenda: The No Agenda Show is a bi-weekly podcast hosted by Adam Curry 
 [Original/Source Press Release](https://newsworthy.ai/news/202409301290/no-agenda-podcast-exposes-election-security-flaws-and-decodes-global-politics-in-episode-1699)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/no-agenda-show-s-1699th-episode-climate-politics-and-ai-analysis/3eaa3d609efbdb270a8e6f93ff5b9680) 
+
+ 
 
 
 

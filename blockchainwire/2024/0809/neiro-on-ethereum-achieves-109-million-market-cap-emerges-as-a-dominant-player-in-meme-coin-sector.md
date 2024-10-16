@@ -31,7 +31,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/neiro-on-ethereum-achieves-109-million-market-cap-emerges-as-a-dominant-player-in-meme-coin-sector)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/neiro-on-ethereum-a-memorable-milestone-in-cryptocurrency-market/c12d57948dec509bcbde44796179e824) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/neiro-on-ethereum-reaches-109-million-market-cap-marking-significant-growth-in-meme-coin-sector)
+
+Pickup - [fishervista.com](https://fishervista.com/en/neiro-on-ethereum-reaches-109-million-market-cap-redefines-meme-coin-sector/20245627)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/neiro-on-ethereum-surges-to-109-million-market-cap-reshaping-meme-coin-landscape/20245627)
+
+Pickup - [advos.io](https://advos.io/en/neiro-on-ethereum-hits-109-million-market-cap-becoming-a-key-player-in-meme-coin-market/20245627)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/neiro-on-ethereum-a-memorable-milestone-in-cryptocurrency-market)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/neiro-on-ethereum-a-memorable-milestone-in-cryptocurrency-market)
+ 
 
 
 

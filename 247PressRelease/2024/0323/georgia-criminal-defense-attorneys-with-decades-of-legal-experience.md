@@ -7,7 +7,11 @@ MARIETTA, GA, March 23, 2024 /24-7PressRelease/ -- The Frye Law Group is a Marie
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509464/georgia-criminal-defense-attorneys-with-decades-of-legal-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/frye-law-group-experienced-criminal-defense-in-marietta-georgia/f7950b1afee1b4e7674775f339b302b3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/23/frye-law-group-dedicated-criminal-defense-attorneys-in-marietta-georgia)
+ 
 
 
 

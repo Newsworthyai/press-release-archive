@@ -7,7 +7,11 @@ MOORESVILLE, NC, March 20, 2024 /24-7PressRelease/ -- Rocky River Orthodontics, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509350/transforming-smiles-rocky-river-orthodontics-the-premier-orthodontic-expert-in-mooresville-nc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rocky-river-orthodontics-offers-tailored-high-quality-orthodontic-treatments-in-mooresville/09bc857f07a6e899ad6e9eac748dbc0d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/transforming-smiles-and-lives-rocky-river-orthodontics-commitment-to-excellence)
+ 
 
 
 

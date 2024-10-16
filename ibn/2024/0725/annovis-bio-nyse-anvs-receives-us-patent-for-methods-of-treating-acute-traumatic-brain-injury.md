@@ -31,7 +31,9 @@ Annovis Bio (NYSE: ANVS), a late-stage, drug-platform company developing novel 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-receives-us-patent-for-methods-of-treating-acute-traumatic-brain-injury/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annovis-bio-receives-u-s-patent-for-lead-drug-candidate-targeting-neurodegenerative-diseases/5657dfc2a624cb1acf490718e21f1ebe) 
+
+ 
 
 
 

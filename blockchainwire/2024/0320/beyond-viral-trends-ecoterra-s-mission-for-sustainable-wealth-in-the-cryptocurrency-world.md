@@ -9,7 +9,11 @@ A New Era of Crypto: Beyond Meme CoinsWhile meme coins can offer quick returns b
 [Original/Source Press Release](https://blockchainwire.io/press-release/beyond-viral-trends-ecoterras-mission-for-sustainable-wealth-in-the-cryptocurrency-world)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ecoterra-a-sustainable-cryptocurrency-with-global-potential/c09961159e7b12819255645160a925c4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/ecoterra-pioneering-sustainable-wealth-in-the-crypto-landscape)
+ 
 
 
 

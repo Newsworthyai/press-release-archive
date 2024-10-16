@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/morning-brief
 [Original/Source Press Release](https://newsdirect.com/news/morning-brief-actelis-networks-asns-achieves-positive-ebitda-and-major-revenue-growth-q2-2024-803530985)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/actelis-networks-achieves-positive-ebitda-and-major-revenue-growth-in-q2-2024/b88fd7234fbb4f0fb47cef22261b0a05) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/actelis-networks-reports-positive-ebitda-and-372-revenue-growth-in-q2-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/actelis-networks-reports-positive-ebitda-and-substantial-revenue-growth-in-q2-2024/20245753)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/actelis-networks-achieves-positive-ebitda-and-372-revenue-growth-in-q2-2024/20245753)
+
+Pickup - [advos.io](https://advos.io/en/actelis-networks-achieves-positive-ebitda-and-significant-revenue-growth-in-q2-2024/20245753)
+ 
 
 
 

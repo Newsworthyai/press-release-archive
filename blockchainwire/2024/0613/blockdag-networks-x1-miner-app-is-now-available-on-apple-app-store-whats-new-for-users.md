@@ -49,7 +49,15 @@ Discord: https://discord.gg/Q7BxghMVyu
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-networks-x1-miner-app-is-now-available-on-apple-app-store-whats-new-for-users)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-launches-x1-miner-app-for-smart-mining-revolution/81cb2756d4292c3239deb8e546ef8bef) 
+
+
+Pickup - [advos.io](https://advos.io/en/blockdag-network-s-x1-miner-app-now-available-on-apple-app-store-heralds-smart-mining-revolution/20244130)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blockdag-network-launches-x1-miner-app-for-smart-mining-revolution)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blockdag-network-launches-x1-miner-app-for-smart-mining-revolution)
+ 
 
 
 

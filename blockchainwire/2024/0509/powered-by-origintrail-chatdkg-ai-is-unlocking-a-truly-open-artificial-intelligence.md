@@ -31,7 +31,9 @@ Those looking to build the next big thing with ChatDKG’s trusted AI solution o
 [Original/Source Press Release](https://blockchainwire.io/press-release/powered-by-origintrail-chatdkgai-is-unlocking-a-truly-open-artificial-intelligence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chatdkg-introduces-truly-open-ai-approach-and-initial-paranet-offering/8244bd593228e3701c2ebe5d65c0aa1c) 
+
+ 
 
 
 

@@ -29,7 +29,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/fuelrod-launc
 [Original/Source Press Release](https://newsdirect.com/news/fuelrod-launches-free-battery-swaps-at-austin-bergstrom-international-airport-188026768)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fuelrod-launches-free-battery-swaps-at-austin-bergstrom-international-airport/8e22f1fc14437ec1e75c36662e985706) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/fuelrod-introduces-free-battery-swaps-at-austin-bergstrom-international-airport/20244327)
+
+Pickup - [advos.io](https://advos.io/en/fuelrod-introduces-free-battery-swaps-at-austin-bergstrom-international-airport/20244327)
+ 
 
 
 

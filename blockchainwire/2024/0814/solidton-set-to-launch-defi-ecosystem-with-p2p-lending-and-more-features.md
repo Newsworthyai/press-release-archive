@@ -52,7 +52,21 @@ As the official launch approaches, learning more about Solidton through its offi
 [Original/Source Press Release](https://blockchainwire.io/press-release/solidton-set-to-launch-defi-ecosystem-with-p2p-lending-and-more-features)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solidton-son-launches-innovative-defi-ecosystem-with-exciting-features/e63b8f8e17921bf2fba478830e4efc45) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/solidton-son-launches-innovative-defi-ecosystem-with-exciting-features)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/solidton-son-launches-innovative-defi-ecosystem-with-exciting-features)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/solidton-unveils-comprehensive-defi-ecosystem-with-p2p-lending-and-advanced-features)
+
+Pickup - [fishervista.com](https://fishervista.com/en/solidton-to-launch-comprehensive-defi-ecosystem-with-p2p-lending-and-more/20245706)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/solidton-unveils-comprehensive-defi-ecosystem-with-p2p-lending-and-advanced-features/20245706)
+
+Pickup - [advos.io](https://advos.io/en/solidton-introduces-comprehensive-defi-ecosystem-with-p2p-lending-and-more/20245706)
+ 
 
 
 

@@ -7,7 +7,9 @@ KINGSTON, NY, April 13, 2024 /24-7PressRelease/ -- The New York Injury & Malprac
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510028/2023-sams-legacy-scholarship-winner-re-imagines-ways-to-reduce-drunk-driving)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-solutions-to-end-drunk-driving-jackson-aldaya-receives-sam-s-legacy-scholarship/a1d635132a686aaa6a8c0b620fcc2e13) 
+
+ 
 
 
 

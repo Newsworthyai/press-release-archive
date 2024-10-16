@@ -71,7 +71,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/middle-easts-
 [Original/Source Press Release](https://newsdirect.com/news/middle-easts-9-billion-ev-opportunity-reaffirms-potential-in-these-stocks-803034430)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/middle-east-s-ev-growth-attracts-attention-of-key-players/3292963192ccd5bb65cdd638c26e4894) 
+
+ 
 
 
 

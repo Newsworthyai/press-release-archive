@@ -40,7 +40,9 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/ycommunicate/news_release/1464)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/argo-vibes-announces-debut-of-the-spring-song-by-8ries/9ec7c9427ef373e11f660d7485913168) 
+
+ 
 
 
 

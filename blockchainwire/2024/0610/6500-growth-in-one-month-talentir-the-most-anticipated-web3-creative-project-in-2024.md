@@ -31,7 +31,15 @@ Talentir is actively building on its recent spectacular growth. So make sure to 
 [Original/Source Press Release](https://blockchainwire.io/press-release/6500-growth-in-one-month---talentir-the-most-anticipated-web3-creative-project-in-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/talentir-records-staggering-6500-growth-in-earnings-via-blockchain/3c2b6aab35ff760eb502ec21c8369db2) 
+
+
+Pickup - [advos.io](https://advos.io/en/talentir-experiences-6500-growth-in-one-month-revolutionizing-creative-industry-with-blockchain-technology/20243969)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/talentir-records-staggering-6500-growth-in-earnings-via-blockchain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/talentir-records-staggering-6500-growth-in-earnings-via-blockchain)
+ 
 
 
 

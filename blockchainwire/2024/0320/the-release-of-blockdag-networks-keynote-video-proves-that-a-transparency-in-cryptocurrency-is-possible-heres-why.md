@@ -35,7 +35,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-release-of-blockdag-networks-keynote-video-proves-that-a-transparency-in-cryptocurrency-is-possibleheres-why)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-releases-keynote-video-emphasizing-transparency-and-democratization-of-cryptocurrency-industry/d48cb043d92c0b53aa58fd8faa611298) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/blockdag-network-s-viral-keynote-video-showcases-transparency-in-cryptocurrency)
+ 
 
 
 

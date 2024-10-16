@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/angle-achieve
 [Original/Source Press Release](https://newsdirect.com/news/angle-achieves-breakthrough-with-eu-patent-for-cellkeep-technology-with-the-us-to-follow-719200265)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/angle-plc-ceo-announces-breakthrough-in-cellkeep-technology/51e61dbfd1c843b450f9957c26f7d340) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/angle-achieves-breakthrough-with-eu-patent-for-cellkeep-technology-with-the-us-to-follow)
+ 
 
 
 

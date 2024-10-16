@@ -7,7 +7,17 @@ KENNEDALE, TX, July 31, 2024 /24-7PressRelease/ -- Kennedale Alliance of Busines
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512999/kennedale-proposes-massive-changes-in-new-comprehensive-plan-eliminating-all-industrial-businesses-on-the-south-side-of-town)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kennedale-alliance-of-business-owners-opposes-proposed-zoning-changes/277a573ab5815ad57c1b82c89fadc2e4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/kennedale-s-new-comprehensive-plan-proposes-major-shift-from-industrial-to-commercial-zoning)
+
+Pickup - [advos.io](https://advos.io/en/kennedale-s-new-comprehensive-plan-proposes-major-shift-from-industrial-to-commercial-zoning/20245379)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kennedale-s-new-comprehensive-plan-proposes-major-changes-sparks-controversy/20245379)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/kennedale-s-new-comprehensive-plan-proposes-drastic-zoning-changes-sparking-business-community-concerns)
+ 
 
 
 

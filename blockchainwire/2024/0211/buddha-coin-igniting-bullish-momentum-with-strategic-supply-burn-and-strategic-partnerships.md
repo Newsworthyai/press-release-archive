@@ -33,7 +33,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/buddha-coin-igniting-bullish-momentum-with-strategic-supply-burn-and-strategic-partnerships)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/buddha-coin-cryptocurrency-project-surges-with-supply-burn-and-strategic-partnerships/0f3505fb41774640e06928948506e8c5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/11/buddha-coin-igniting-mindfulness-and-unity-in-the-web3-era)
+ 
 
 
 

@@ -32,7 +32,13 @@ At Trusaic, we’re on a mission to empower organizations to create a more equit
 [Original/Source Press Release](https://newsworthy.ai/news/202404241109/trusaic-aca-complete-software-provides-comprehensive-visibility-into-irs-penalty-risk-1-in-4-organizations-are-audited-for-aca-non-compliance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trusaic-announces-enhancements-to-aca-complete-software-for-aca-compliance/298bd2465f76f1cc2b1fd93ac613acc7) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/trusaic-enhances-aca-complete-software-to-address-rising-compliance-challenges/20242174)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/trusaic-aca-complete-r-software-provides-comprehensive-visibility-into-irs-penalty-risk-1-in-4-organizations-are-audited-for-aca-non-compliance)
+ 
 
 
 

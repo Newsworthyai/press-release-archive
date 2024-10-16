@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/coniagas-batt
 [Original/Source Press Release](https://newsdirect.com/news/coniagas-battery-metals-secures-new-key-ground-with-focus-on-copper-nickel-cobalt-platinum-556950563)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coniagas-battery-metals-expands-footprint-with-strategic-acquisition-in-quebec/e8a4e08cc46d79737467c70945a2f8fc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/coniagas-battery-metals-expands-footprint-with-strategic-acquisition)
+ 
 
 
 

@@ -27,7 +27,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/top-u-s-sport
 [Original/Source Press Release](https://newsdirect.com/news/top-u-s-sportsbooks-lost-out-on-160-7-million-in-handle-last-nfl-season-according-to-latest-report-from-sports-odds-intelligence-firm-bettormetrics-714116544)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/top-u-s-sportsbooks-lose-160-7m-in-handle-last-nfl-season/cd44545d507a9946cc750288d40b3d4d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/major-sportsbooks-missed-out-on-160-7-million-during-nfl-season-bettormetrics-report-reveals)
+
+Pickup - [fishervista.com](https://fishervista.com/en/top-u-s-sportsbooks-potentially-lost-160-7-million-last-nfl-season-due-to-poor-strategies/20246557)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/major-u-s-sportsbooks-miss-out-on-160-7-million-during-nfl-season-due-to-inefficient-strategies/20246557)
+
+Pickup - [advos.io](https://advos.io/en/top-u-s-sportsbooks-lost-160-7-million-last-nfl-season-due-to-poor-strategies/20246557)
+ 
 
 
 

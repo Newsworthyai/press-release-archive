@@ -63,7 +63,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/seanergy-mari
 [Original/Source Press Release](https://newsdirect.com/news/seanergy-maritime-nasdaq-ship-raises-dividend-following-record-breaking-q2-and-h1-results-united-maritime-nasdaq-usea-rises-through-strategic-investments-982905948)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/seanergy-maritime-reports-record-q2-and-h1-results-boosts-dividend-united-maritime-rises-through-strategic-investments/9960b8530fcb84a955ec91c86a76d597) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/seanergy-maritime-reports-record-q2-results-boosts-dividend)
+
+Pickup - [fishervista.com](https://fishervista.com/en/seanergy-maritime-boosts-dividend-following-record-breaking-financial-performance/20246524)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/seanergy-maritime-reports-record-q2-results-boosts-dividend-payout/20246524)
+
+Pickup - [advos.io](https://advos.io/en/seanergy-maritime-announces-record-results-and-higher-dividends-united-maritime-makes-strategic-investments/20246524)
+ 
 
 
 

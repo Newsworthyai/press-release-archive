@@ -7,7 +7,9 @@ LOS ANGELES, CA, May 31, 2024 /24-7PressRelease/ -- NCFM is commemorating the 10
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511310/the-national-coalition-for-men-ncfm-again-sues-the-selective-service-system-for-not-requiring-women-to-register-for-the-draft)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ncfm-challenges-mandatory-male-draft-registration-in-lawsuit/9c4d78850b85a6a75a4ab77e2b0434c9) 
+
+ 
 
 
 

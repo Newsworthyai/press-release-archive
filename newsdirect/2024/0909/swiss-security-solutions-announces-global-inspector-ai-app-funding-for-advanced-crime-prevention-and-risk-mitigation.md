@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/swiss-securit
 [Original/Source Press Release](https://newsdirect.com/news/swiss-security-solutions-announces-global-inspector-ai-app-funding-for-advanced-crime-prevention-and-risk-mitigation-914639575)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/swiss-security-solutions-launches-global-inspector-ai-app-funding-for-crime-prevention-and-risk-mitigation/8ae35025098ad8246fda0766ba94025e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/swiss-security-solutions-unveils-global-inspector-ai-app-to-combat-digital-fraud)
+
+Pickup - [fishervista.com](https://fishervista.com/en/swiss-security-solutions-unveils-global-inspector-ai-app-for-crime-prevention-and-risk-mitigation/20246627)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/swiss-security-solutions-launches-global-inspector-ai-app-for-enhanced-digital-trust-and-verification/20246627)
+
+Pickup - [advos.io](https://advos.io/en/swiss-security-solutions-launches-global-inspector-ai-app-for-crime-prevention-and-risk-mitigation/20246627)
+ 
 
 
 

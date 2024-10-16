@@ -57,7 +57,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/analysts-fore
 [Original/Source Press Release](https://newsdirect.com/news/analysts-forecast-impending-rise-for-ada-and-sol-kangamoon-to-reach-new-milestone-soon-608880602)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/p-crypto-analysts-project-impending-rise-for-ada-and-sol-kangamoon-to-reach-new-milestone-soon-p/46c89382ebda4910ec19d7c6a8a45503) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/14/analysts-forecast-impending-rise-for-ada-and-sol-kangamoon-to-reach-new-milestone-soon)
+ 
 
 
 

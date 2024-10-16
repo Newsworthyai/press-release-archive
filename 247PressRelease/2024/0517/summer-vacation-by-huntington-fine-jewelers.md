@@ -7,7 +7,9 @@ OKLAHOMA CITY, OK, May 17, 2024 /24-7PressRelease/ -- Huntington Fine Jewelers a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510967/summer-vacation-by-huntington-fine-jewelers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/huntington-fine-jewelers-offers-free-7-night-resort-getaway-with-purchase/fbc30888d0a11f7c3c1a5b6ca3fb3eb7) 
+
+ 
 
 
 

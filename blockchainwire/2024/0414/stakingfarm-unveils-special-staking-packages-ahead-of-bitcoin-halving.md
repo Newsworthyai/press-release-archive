@@ -70,7 +70,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-unveils-special-staking-packages-ahead-of-bitcoin-halving)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-releases-special-staking-packages-to-leverage-bitcoin-halving-event/6a2fc07673c7c237e097bc4daf37b326) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/14/stakingfarm-unveils-special-staking-packages-ahead-of-bitcoin-halving)
+ 
 
 
 

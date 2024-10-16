@@ -45,7 +45,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/metacene-and-mantle-unite-metacenes-gold-rush-launches-on-mantle)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metacene-and-mantle-join-forces-to-revolutionize-gaming/0b25e85f06faa49c59909d72a8eea4e3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/metacene-and-mantle-forge-strategic-partnership-to-revolutionize-blockchain-gaming)
+
+Pickup - [fishervista.com](https://fishervista.com/en/metacene-and-mantle-revolutionize-blockchain-gaming-with-the-gold-rush/20245331)
+
+Pickup - [advos.io](https://advos.io/en/metacene-and-mantle-collaborate-to-revolutionize-blockchain-gaming-with-the-gold-rush/20245331)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/metacene-and-mantle-join-forces-to-revolutionize-gaming)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/metacene-and-mantle-join-forces-to-revolutionize-gaming)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/metacene-and-mantle-partner-to-transform-blockchain-gaming-with-3-million-reward-pool)
+ 
 
 
 

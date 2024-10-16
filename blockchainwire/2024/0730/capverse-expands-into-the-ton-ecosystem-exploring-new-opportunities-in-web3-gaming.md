@@ -27,7 +27,21 @@ Howard, TON’s Dev Rel Asia Lead, highlighted the potential of TON & Telegram i
 [Original/Source Press Release](https://blockchainwire.io/press-release/capverse-expands-into-the-ton-ecosystem-exploring-new-opportunities-in-web3-gaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/capverse-expands-to-ton-blockchain-with-innovative-gameplay/d85ee901251930af1d42b18800955888) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/capverse-expands-into-ton-blockchain-revolutionizing-web3-gaming)
+
+Pickup - [fishervista.com](https://fishervista.com/en/capverse-expands-into-ton-ecosystem-enhancing-web3-gaming-landscape/20245346)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/capverse-expands-to-ton-blockchain-with-innovative-gameplay)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/capverse-expands-to-ton-blockchain-with-innovative-gameplay)
+
+Pickup - [advos.io](https://advos.io/en/capverse-expands-into-ton-ecosystem-enhances-web3-gaming-experience/20245346)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/capverse-expands-into-ton-blockchain-bringing-innovative-web3-gaming)
+ 
 
 
 

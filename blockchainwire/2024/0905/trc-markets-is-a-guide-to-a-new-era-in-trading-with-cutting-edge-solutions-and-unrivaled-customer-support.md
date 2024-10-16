@@ -41,7 +41,15 @@ Address:  The Minster Building, 21 Mincing Lane, London, United Kingdom, EC3R 7
 [Original/Source Press Release](https://blockchainwire.io/press-release/trc-markets-is-a-guide-to-a-new-era-in-trading-with-cutting-edge-solutions-and-unrivaled-customer-support-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trc-markets-revolutionizing-online-trading-with-innovative-solutions/39a804695a1d97c0d3b8592c7a6adcd2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/trc-markets-revolutionizes-online-trading-with-advanced-platform-and-exceptional-support)
+
+Pickup - [advos.io](https://advos.io/en/trc-markets-revolutionizes-online-trading-with-advanced-platform-and-superior-customer-support/20246710)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/trc-markets-revolutionizes-online-trading-with-innovative-solutions-and-24-7-customer-support/20246710)
+ 
 
 
 

@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/with-demand-f
 [Original/Source Press Release](https://newsdirect.com/news/with-demand-for-japanese-beauty-products-growing-yoshitsu-sets-its-sights-on-the-us-gears-up-for-more-brick-and-mortar-expansion-976134674)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/japanese-beauty-market-growth-sparks-expansion-for-yoshitsu-co-ltd/6c537bf2e7cc03b04c284a282b979acd) 
+
+ 
 
 
 

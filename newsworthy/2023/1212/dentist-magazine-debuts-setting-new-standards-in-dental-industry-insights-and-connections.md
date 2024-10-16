@@ -23,7 +23,11 @@ Stay informed and inspired with www.DentistMagazine.co.
 [Original/Source Press Release](https://newsworthy.ai/news/20231212807/dentist-magazine-debuts-setting-new-standards-in-dental-industry-insights-and-connections)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dentist-magazine-launches-a-mecca-for-dental-professionals/32ba6c3ffe7ec0c66ff87d41794e074a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/12/dentist-magazine-emerges-as-premier-platform-for-dental-professionals)
+ 
 
 
 

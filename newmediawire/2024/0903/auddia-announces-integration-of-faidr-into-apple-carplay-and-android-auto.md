@@ -43,7 +43,17 @@ www.pcgadvisory.com
 [Original/Source Press Release](https://www.newmediawire.com/news/auddia-announces-integration-of-faidr-into-apple-carplay-and-android-auto-7075989)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/auddia-launches-apple-carplay-and-android-auto-interfaces-for-faidr-mobile-app/ea4d12b976aa8ee9213f3c292938aacc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/auddia-expands-reach-with-apple-carplay-and-android-auto-integration-for-faidr-app)
+
+Pickup - [fishervista.com](https://fishervista.com/en/auddia-integrates-faidr-with-apple-carplay-and-android-auto-expands-reach-in-audio-streaming/20246474)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/auddia-expands-faidr-app-to-apple-carplay-and-android-auto-enhancing-in-vehicle-audio-experience/20246474)
+
+Pickup - [advos.io](https://advos.io/en/auddia-integrates-faidr-with-apple-carplay-and-android-auto-expanding-reach-in-automotive-audio/20246474)
+ 
 
 
 

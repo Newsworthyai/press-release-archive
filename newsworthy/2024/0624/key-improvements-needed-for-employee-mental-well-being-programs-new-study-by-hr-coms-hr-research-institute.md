@@ -29,7 +29,15 @@ Contact: info@hr.com HR.com Newsroom
 [Original/Source Press Release](https://newsworthy.ai/news/202406241201/key-improvements-needed-for-employee-mental-well-being-programs-new-study-by-hr-coms-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-research-reveals-promising-trends-in-workplace-mental-health-support/c34480663f875ec22c38fdfd816e2f5c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-study-highlights-critical-gaps-and-trends-in-workplace-mental-health-support/20244418)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-com-study-reveals-critical-gaps-in-workplace-mental-health-programs/20244418)
+
+Pickup - [advos.io](https://advos.io/en/new-study-highlights-urgent-need-for-improved-employee-mental-well-being-programs/20244418)
+ 
 
 
 

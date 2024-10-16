@@ -7,7 +7,9 @@ PRAIRIE VILLAGE, KS, May 29, 2024 /24-7PressRelease/ -- The Big Biscuit®, a mod
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511244/new-western-sodas-all-the-buzz-at-the-big-biscuit)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-big-biscuit-introduces-new-line-of-western-sodas-and-expanded-beverage-menu/440ad252b655a3ff00a6592398eb88ad) 
+
+ 
 
 
 

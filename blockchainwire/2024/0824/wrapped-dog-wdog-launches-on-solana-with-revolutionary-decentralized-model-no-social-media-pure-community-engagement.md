@@ -51,7 +51,21 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/wrapped-dog-wdog-launches-on-solana-with-revolutionary-decentralized-model-no-social-media-pure-community-engagement)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wrapped-dog-wdog-the-future-of-decentralized-memecoins/df033f44e070b634375ff798553ff4f0) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/wrapped-dog-wdog-the-future-of-decentralized-memecoins)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/wrapped-dog-wdog-the-future-of-decentralized-memecoins)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/24/wrapped-dog-wdog-launches-on-solana-pioneering-true-decentralization-in-cryptocurrency)
+
+Pickup - [fishervista.com](https://fishervista.com/en/wrapped-dog-wdog-launches-on-solana-pioneers-pure-decentralized-model/20245929)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/wrapped-dog-wdog-launches-on-solana-pioneering-a-new-era-of-decentralized-cryptocurrencies/20245929)
+
+Pickup - [advos.io](https://advos.io/en/wrapped-dog-wdog-launches-on-solana-with-a-community-driven-decentralized-model/20245929)
+ 
 
 
 

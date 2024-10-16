@@ -39,7 +39,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/investments-a
 [Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-academy-wins-best-in-industry-association-in-the-wealthmanagement-com-2024-wealthie-awards-168429986)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investments-wealth-institute-wins-best-in-industry-association-in-the-wealthmanagement-com-2024-wealthie-awards/5219fff910344411bd5b30e81d1c0242) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/investments-wealth-academy-clinches-top-industry-association-award-at-2024-wealthies)
+
+Pickup - [fishervista.com](https://fishervista.com/en/investments-wealth-academy-wins-best-in-industry-association-at-wealthmanagement-com-2024-wealthie-awards/20246595)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/investments-wealth-academy-recognized-as-top-industry-association-by-wealthmanagement-com/20246595)
+
+Pickup - [advos.io](https://advos.io/en/investments-wealth-academy-wins-top-honor-at-2024-wealthmanagement-com-awards/20246595)
+ 
 
 
 

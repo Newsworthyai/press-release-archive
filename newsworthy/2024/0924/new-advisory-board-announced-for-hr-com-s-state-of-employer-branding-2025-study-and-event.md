@@ -39,7 +39,9 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202409241274/new-advisory-board-announced-for-hr-com-s-state-of-employer-branding-2025-study-and-event)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-announces-2025-advisory-board-for-state-of-employer-branding/dee4e7957acfd7f2969b81f307acb73d) 
+
+ 
 
 
 

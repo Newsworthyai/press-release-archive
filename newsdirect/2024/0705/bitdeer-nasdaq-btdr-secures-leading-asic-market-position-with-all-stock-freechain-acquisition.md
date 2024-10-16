@@ -55,7 +55,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitdeer-nasda
 [Original/Source Press Release](https://newsdirect.com/news/bitdeer-nasdaq-btdr-secures-leading-asic-market-position-with-all-stock-freechain-acquisition-703928801)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitdeer-acquires-freechain-in-140m-all-stock-deal-bolsters-leading-asic-market-position/3b97fd7e00c44b711d1bbe9f0e32ada0) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitdeer-secures-leading-asic-market-position-with-140-million-freechain-acquisition/20244731)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/bitdeer-acquires-freechain-in-140-million-all-stock-deal-boosting-asic-market-position)
+
+Pickup - [advos.io](https://advos.io/en/bitdeer-secures-leading-asic-market-position-with-140m-freechain-acquisition/20244731)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitdeer-acquires-freechain-in-140m-all-stock-deal-bolsters-leading-asic-market-position)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitdeer-acquires-freechain-in-140m-all-stock-deal-bolsters-leading-asic-market-position)
+ 
 
 
 

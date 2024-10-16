@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ocean-restori
 [Original/Source Press Release](https://newsdirect.com/news/ocean-restoring-bitcoin-mining-decentralization-177177279)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ocean-launches-datum-protocol-to-restore-bitcoin-mining-decentralization/adcc319142e1f418baaca3a3196190c2) 
+
+ 
 
 
 

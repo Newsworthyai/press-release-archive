@@ -43,7 +43,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-wallet
 [Original/Source Press Release](https://newsdirect.com/news/bitget-wallet-unveils-bitget-onchain-layer-rolls-out-10m-bwb-ecosystem-fund-812466683)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-wallet-unveils-bitget-onchain-layer-rolls-out-10m-bwb-ecosystem-fund/83978109e228eb0d0ee57f8e2163ab1a) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitget-wallet-unveils-bitget-onchain-layer-rolls-out-10m-bwb-ecosystem-fund)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitget-wallet-unveils-bitget-onchain-layer-rolls-out-10m-bwb-ecosystem-fund)
+ 
 
 
 

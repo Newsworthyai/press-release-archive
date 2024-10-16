@@ -33,7 +33,11 @@ Official Website | Telegram | Twitter | LinkedIn | Instagram | YouTube
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-gnus-token-presale-goes-live-engaging-buyers-with-sizable-bounties)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gnus-ai-announces-presale-for-gnus-tokens-incentivizing-users-to-contribute-gpu-power/8499ace91b9b77e82e7117e4bf1aab3a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/04/gnus-ai-launches-presale-for-innovative-blockchain-based-token)
+ 
 
 
 

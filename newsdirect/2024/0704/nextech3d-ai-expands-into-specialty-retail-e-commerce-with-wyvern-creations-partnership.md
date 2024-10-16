@@ -19,7 +19,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-
 [Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-expands-into-specialty-retail-e-commerce-with-wyvern-creations-partnership-761282147)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nextech3d-ai-expands-into-specialty-retail-e-commerce-with-wyvern-creations-partnership/69423cf9160d4ff9bf27af8050b1410d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/nextech3d-ai-partners-with-wyvern-creations-to-revolutionize-specialty-retail-e-commerce/20244712)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/04/nextech3d-ai-partners-with-wyvern-creations-to-revolutionize-specialty-retail-e-commerce)
+
+Pickup - [advos.io](https://advos.io/en/nextech3d-ai-partners-with-wyvern-creations-to-revolutionize-specialty-retail-e-commerce/20244712)
+ 
 
 
 

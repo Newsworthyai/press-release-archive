@@ -7,7 +7,9 @@ LOS ANGELES, CA, May 26, 2024 /24-7PressRelease/ -- HBO Max, the widely acclaime
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511180/hbo-executive-casey-bloys-accounts-for-industry-success)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hbo-max-ceo-casey-bloys-driving-exponential-growth-and-acclaim/f868524e1814d0a87b35d81f49566280) 
+
+ 
 
 
 

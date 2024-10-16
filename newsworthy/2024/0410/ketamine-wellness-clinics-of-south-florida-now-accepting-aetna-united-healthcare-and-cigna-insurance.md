@@ -23,7 +23,9 @@ Ketamine & Wellness Clinics of South Florida is a leading provider of ketamine i
 [Original/Source Press Release](https://newsworthy.ai/news/202404101143/ketamine-wellness-clinics-of-south-florida-now-accepting-aetna-united-healthcare-and-cigna-insurance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ketamine-wellness-clinics-of-south-florida-now-accepting-insurance-from-major-providers/c41b2a1a777c570d001e44ffd3428bde) 
+
+ 
 
 
 

@@ -25,7 +25,15 @@ Contact InformationWebsite: https://digifolios.com Socials: https://linktr.ee/di
 [Original/Source Press Release](https://blockchainwire.io/press-release/digifolio-announces-new-advisory-board-members-to-propel-growth-and-innovation-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/digifolio-welcomes-five-industry-leaders-to-advisory-board/87270059225897d2f7e9dce477bd7f5f) 
+
+
+Pickup - [advos.io](https://advos.io/en/digifolio-expands-advisory-board-with-five-industry-experts-to-enhance-growth-and-innovation/20244170)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/digifolio-welcomes-five-industry-leaders-to-advisory-board)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/digifolio-welcomes-five-industry-leaders-to-advisory-board)
+ 
 
 
 

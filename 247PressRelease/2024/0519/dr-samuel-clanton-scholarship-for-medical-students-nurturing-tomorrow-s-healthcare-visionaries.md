@@ -7,7 +7,9 @@ GAINESVILLE, FL, May 19, 2024 /24-7PressRelease/ -- The prestigious Dr. Samuel C
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511006/dr-samuel-clanton-scholarship-for-medical-students-nurturing-tomorrows-healthcare-visionaries)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-samuel-clanton-scholarship-for-medical-students-now-open-for-applications/e0d98885a5bd2fe72c031debde04fa55) 
+
+ 
 
 
 

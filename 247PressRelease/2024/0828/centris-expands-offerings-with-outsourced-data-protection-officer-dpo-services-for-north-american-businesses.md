@@ -7,7 +7,17 @@ DALLAS, TX, August 28, 2024 /24-7PressRelease/ -- Centris, a leading provider of
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513819/centris-expands-offerings-with-outsourced-data-protection-officer-dpo-services-for-north-american-businesses)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/centris-launches-outsourced-data-protection-officer-dpo-services-for-north-american-businesses/3cf923d69160a0daf43e343b148dcf29) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/centris-launches-outsourced-data-protection-officer-services-for-north-american-businesses)
+
+Pickup - [fishervista.com](https://fishervista.com/en/centris-launches-outsourced-dpo-services-for-north-american-businesses/20246327)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/centris-introduces-outsourced-data-protection-officer-services-for-north-american-businesses/20246327)
+
+Pickup - [advos.io](https://advos.io/en/centris-introduces-outsourced-dpo-services-for-north-american-businesses/20246327)
+ 
 
 
 

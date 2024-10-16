@@ -25,7 +25,9 @@ Somnia is creating a virtual society with an L1 blockchain and a set of omnichai
 [Original/Source Press Release](https://blockchainwire.io/press-release/somnia-launches-betanet-ushering-in-a-new-era-of-interoperability-in-the-metaverse)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/somnia-launches-betanet-protocol-for-connected-metaverse/be753987e64cec169465ced787f66763) 
+
+ 
 
 
 

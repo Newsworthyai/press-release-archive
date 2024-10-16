@@ -57,7 +57,11 @@ Sales: hello@diamondstandard.co
 [Original/Source Press Release](https://blockchainwire.io/press-release/diamond-standard-carats-now-available-globally---lists-on-bitrue-as-the-first-fungible-commodity-currency)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/diamond-standard-co-announces-listing-of-carats-the-first-fungible-commodity-currency-on-bitrue/faf17bdecf0d6dde2990c6798761d9e4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/diamond-standard-launches-carats-the-world-s-first-fungible-commodity-currency)
+ 
 
 
 

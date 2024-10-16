@@ -45,7 +45,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-prolifera
 [Original/Source Press Release](https://newsdirect.com/news/the-proliferation-of-ai-has-brought-with-it-new-security-risks-ilearningengines-is-finding-new-ways-to-enable-security-for-an-ai-world-192263286)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ilearningengines-addresses-ai-security-concerns-with-differentiated-approach/d109467149e4d8e52c93738bc149a805) 
+
+
+Pickup - [advos.io](https://advos.io/en/ai-proliferation-brings-new-security-risks-ilearningengines-leads-with-innovative-solutions/20244874)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ilearningengines-innovates-security-solutions-for-ai-powered-world/20244874)
+
+Pickup - [citybuzz.co](https://citybuzz.co/ilearningengines-addresses-ai-security-risks-with-innovative-approach)
+ 
 
 
 

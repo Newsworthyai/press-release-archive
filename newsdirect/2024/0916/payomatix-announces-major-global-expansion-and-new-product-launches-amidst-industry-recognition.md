@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/payomatix-ann
 [Original/Source Press Release](https://newsdirect.com/news/payomatix-announces-major-global-expansion-and-new-product-launches-amidst-industry-recognition-709610132)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/payomatix-unveils-global-expansion-and-new-product-launches/2f52f2390b549e7a240c8496e4462cc5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/payomatix-expands-globally-launches-new-products-and-gains-industry-recognition)
+
+Pickup - [fishervista.com](https://fishervista.com/en/payomatix-expands-globally-launches-new-products-in-digital-payments-sector/20246861)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/payomatix-expands-globally-launches-new-products-in-digital-payments-sector/20246861)
+
+Pickup - [advos.io](https://advos.io/en/payomatix-expands-globally-launches-new-products-in-digital-payment-sector/20246861)
+ 
 
 
 

@@ -31,7 +31,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/meme-coin-madness-hobbes-surpasses-100-million-in-just-24-hours-hoping-to-become-first-cat-token-to-reach-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hobbes-meme-coin-shatters-records-with-100-million-trading-volume-in-24-hours/eda630818dd78f2f1ed8ff2059e1a4b1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/hobbes-meme-coin-skyrockets-past-100-million-in-24-hours)
+ 
 
 
 

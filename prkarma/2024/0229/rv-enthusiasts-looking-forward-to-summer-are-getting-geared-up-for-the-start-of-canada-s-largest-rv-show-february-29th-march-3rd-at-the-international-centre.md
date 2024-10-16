@@ -59,7 +59,11 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/thebigrvshow/news_release/1410)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/excitement-grows-for-the-2024-toronto-spring-camping-and-rv-show/83dcd748b0d7db83a90b069b0b2b2ac3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/29/canada-s-largest-rv-show-returns-to-mississauga)
+ 
 
 
 

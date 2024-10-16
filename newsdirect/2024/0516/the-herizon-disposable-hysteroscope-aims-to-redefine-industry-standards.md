@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-herizon-d
 [Original/Source Press Release](https://newsdirect.com/news/the-herizon-disposable-hysteroscope-aims-to-redefine-industry-standards-295518902)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/minerva-surgical-unveils-revolutionary-i-her-i-izon-disposable-hysteroscope-at-acog-meeting/402fb89fb9a7aa3d0efdfe7e687a80c3) 
+
+ 
 
 
 

@@ -39,7 +39,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/investors-rush-to-buy-pandoshi-pambo-in-phase-3-as-it-nears-80-sold-out)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investor-interest-surges-as-pandoshi-pambo-nears-80-sold-out-in-presale-phase-3/567eb48d54d62723bb32e00aa90ca2e6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/18/pandoshi-s-presale-frenzy-investors-race-to-secure-pambo-tokens)
+ 
 
 
 

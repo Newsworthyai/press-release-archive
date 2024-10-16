@@ -7,7 +7,13 @@ BOISE, ID, June 19, 2024 /24-7PressRelease/ -- Brett Anthon, a trusted family la
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511818/brett-anthon-launches-client-centric-website)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trusted-family-law-attorney-launches-new-website-for-enhanced-online-experience/56e55f64325d273b9bad50caf9df8c3f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/brett-anthon-launches-enhanced-client-centric-website-for-family-law-services/20244274)
+
+Pickup - [advos.io](https://advos.io/en/brett-anthon-unveils-user-centric-website-for-enhanced-family-law-services/20244274)
+ 
 
 
 

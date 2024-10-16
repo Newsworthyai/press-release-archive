@@ -59,7 +59,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-cyber-a-social-layer-2-with-restaking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cyberconnect-announces-launch-of-cyber-the-first-restaked-modular-ethereum-layer-2-for-social/70dd77caf5690e5f4fa82cec3c347aa2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/08/cyber-a-social-layer-2-for-web3-mass-adoption)
+ 
 
 
 

@@ -49,7 +49,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-at-c
 [Original/Source Press Release](https://newsdirect.com/news/tron-dao-at-cornell-blockchain-conference-584816179)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tron-dao-showcases-leadership-at-cornell-blockchain-conference/b7b7988f40d97e7e162d4c10d96813da) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tron-dao-showcases-leadership-at-cornell-blockchain-conference)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tron-dao-showcases-leadership-at-cornell-blockchain-conference)
+ 
 
 
 

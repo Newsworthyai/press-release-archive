@@ -30,7 +30,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-quantum-nyse-qbts-hosting-first-ever-qubits-event-in-uae/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-to-host-first-ever-qubits-uae-2024-quantum-computing-event-in-dubai/036b4818d2c6950eb86722b1202c68c3) 
+
+ 
 
 
 

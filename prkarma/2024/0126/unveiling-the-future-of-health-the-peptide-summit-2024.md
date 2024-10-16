@@ -45,7 +45,11 @@ Canada
 [Original/Source Press Release](https://newsroom.prkarma.com/drtalks/news_release/1396)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/drtalks-announces-peptide-summit-2024-featuring-renowned-integrative-medicine-expert-jen-pfleghaar/95ba5f7af689ffe34b73456187d6a934) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/26/peptide-summit-2024-unveiling-the-future-of-health)
+ 
 
 
 

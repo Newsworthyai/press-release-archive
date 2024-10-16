@@ -31,7 +31,15 @@ This press release may contain forward-looking statements. Forward-looking state
 [Original/Source Press Release](https://blockchainwire.io/press-release/db-wealth-institute-cillian-millers-legacy-of-financial-education-and-social-impact)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/db-wealth-institute-nurturing-financial-professionals-and-promoting-social-welfare/475824be0436dd0165c0837c1a0d7834) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/db-wealth-institute-shaping-financial-education-and-social-progress-under-cillian-miller-s-vision)
+
+Pickup - [fishervista.com](https://fishervista.com/en/db-wealth-institute-a-decade-of-financial-education-and-social-responsibility/20245058)
+
+Pickup - [advos.io](https://advos.io/en/db-wealth-institute-cillian-miller-s-legacy-of-financial-education-and-social-impact/20245058)
+ 
 
 
 

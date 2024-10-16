@@ -17,7 +17,9 @@ Dr. Scott encourages patients with CRPS to explore the benefits of Ketamine ther
 [Original/Source Press Release](https://newsworthy.ai/news/20231124892/scott-integrated-pain-management-introduces-ketamine-therapy-for-crps-pain-management)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-ketamine-therapy-introduced-for-complex-regional-pain-syndrome-at-scott-integrated-pain-management/e57403a9f07e84ef8b830b7e045c8f45) 
+
+ 
 
 
 

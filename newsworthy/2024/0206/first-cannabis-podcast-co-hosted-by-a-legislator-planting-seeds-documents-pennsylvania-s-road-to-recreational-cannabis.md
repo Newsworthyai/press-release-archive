@@ -45,7 +45,9 @@ With North America’s largest distribution footprint, cannabis edibles producer
 [Original/Source Press Release](https://newsworthy.ai/news/202402061055/first-cannabis-podcast-co-hosted-by-a-legislator-planting-seeds-documents-pennsylvania-s-road-to-recreational-cannabis)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pennsylvania-senator-co-hosts-cannabis-podcast-amid-legalization-proposal/2a81e82f932837fa30340f5bdb58b260) 
+
+ 
 
 
 

@@ -11,7 +11,17 @@ FZF Ventures has secured a blockchain and ecosystem through an investment of 12M
 [Original/Source Press Release](https://blockchainwire.io/press-release/fzf-ventures-has-the-mission-to-lead-innovation-in-nft-and-blockchain-technology-through-different-ways)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fzf-ventures-forms-crypto-fund-invests-12m-in-10-portfolios/1a37b890f5c616dcf7413cd45c46568a) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/fzf-ventures-launches-12m-crypto-fund-targets-250-irr/20244453)
+
+Pickup - [advos.io](https://advos.io/en/fzf-ventures-invests-12m-in-blockchain-and-nft-ecosystem/20244453)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/fzf-ventures-forms-crypto-fund-invests-12m-in-10-portfolios)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/fzf-ventures-forms-crypto-fund-invests-12m-in-10-portfolios)
+ 
 
 
 

@@ -7,7 +7,17 @@ WILMINGTON, NC, September 13, 2024 /24-7PressRelease/ -- Bullying can have serio
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514262/media-bullying-a-call-for-respect-and-protection-for-individuals-with-special-needs-by-bestselling-author-jody-sharpe)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-jody-sharpe-advocates-for-children-s-rights-and-respect-in-the-face-of-bullying/7ca67b0e6a8d4c9d600a39d28b6598e0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/bestselling-author-jody-sharpe-addresses-media-bullying-of-individuals-with-special-needs)
+
+Pickup - [fishervista.com](https://fishervista.com/en/author-jody-sharpe-addresses-media-bullying-of-special-needs-individuals/20246812)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bestselling-author-jody-sharpe-condemns-media-bullying-of-special-needs-individuals/20246812)
+
+Pickup - [advos.io](https://advos.io/en/bestselling-author-jody-sharpe-addresses-media-bullying-of-special-needs-individuals/20246812)
+ 
 
 
 

@@ -7,7 +7,9 @@ HONG KONG, September 26, 2024 /24-7PressRelease/ -- FlipHTML5 has announced the 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514666/fliphtml5s-free-ai-ebook-generator-has-elevated-users-ebook-creation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fliphtml5-launches-free-ai-ebook-generator-to-revolutionize-ebook-publishing/c4e5cf81a7d7edb48d7b67c16a148538) 
+
+ 
 
 
 

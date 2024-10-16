@@ -34,7 +34,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bios-nyse-anvs-lead-compound-shows-synergistic-cognitive-enhancement/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annovis-bio-s-buntanetap-shows-synergistic-cognitive-enhancement-with-dulaglutide-in-preclinical-study/53843deab38bb62f80921d851c9f220a) 
+
+ 
 
 
 

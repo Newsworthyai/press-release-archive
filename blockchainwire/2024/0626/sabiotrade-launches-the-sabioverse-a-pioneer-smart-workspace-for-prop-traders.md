@@ -51,7 +51,13 @@ Facebook: https://www.facebook.com/profile.php?id=100075852953720
 [Original/Source Press Release](https://blockchainwire.io/press-release/sabiotrade-launches-the-sabioverse-a-pioneer-smart-workspace-for-prop-traders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sabiotrade-launches-new-trader-centric-sabio-dashboard-with-enhanced-features/61163d5bab9fdcb9927c5208fc704648) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/sabiotrade-unveils-sabioverse-a-new-era-for-prop-traders/20244510)
+
+Pickup - [advos.io](https://advos.io/en/sabiotrade-unveils-sabioverse-a-revolutionary-smart-workspace-for-prop-traders/20244510)
+ 
 
 
 

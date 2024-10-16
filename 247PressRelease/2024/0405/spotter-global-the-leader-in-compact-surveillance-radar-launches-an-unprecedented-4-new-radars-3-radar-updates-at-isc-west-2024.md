@@ -7,7 +7,11 @@ OREM, UT, April 05, 2024 /24-7PressRelease/ -- To better safeguard critical infr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509815/spotter-global-the-leader-in-compact-surveillance-radar-launches-an-unprecedented-4-new-radars-3-radar-updates-at-isc-west-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/spotter-global-launches-new-and-updated-radars-for-enhanced-security-solutions/1308cb6e7f86cee60cb340c3ce631bb8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/spotter-global-unveils-advanced-radar-solutions-for-enhanced-perimeter-security)
+ 
 
 
 

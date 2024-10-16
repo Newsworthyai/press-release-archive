@@ -65,7 +65,11 @@ johnv@otcmarkets.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/defi-technologies-to-present-at-the-blockchain--digital-asset-virtual-investor-conference-april-25th-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defi-technologies-to-present-at-blockchain-digital-asset-virtual-investor-conference/f5897084e366c39f90d553976c7b2c2a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/defi-technologies-to-present-at-the-blockchain-digital-asset-virtual-investor-conference-april-25th)
+ 
 
 
 

@@ -55,7 +55,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/monster-lord-released-in-asia-with-trendy-gaming-and-metaverse-nft-benefits)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/monster-lord-a-metaverse-gaming-platform-revolutionizing-social-gaming/a8524c917a095a1b7cb56489f9ebbacd) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/monster-lord-launches-in-asia-integrating-blockchain-and-metaverse-nft-benefits/20245759)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/monster-lord-launches-in-asia-blending-gaming-and-metaverse-with-nft-benefits/20245759)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/monster-lord-launches-in-asia-merging-gaming-and-metaverse-with-nft-benefits)
+
+Pickup - [advos.io](https://advos.io/en/monster-lord-launches-in-asia-blending-gaming-with-metaverse-and-nft-innovation/20245759)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/monster-lord-a-metaverse-gaming-platform-revolutionizing-social-gaming)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/monster-lord-a-metaverse-gaming-platform-revolutionizing-social-gaming)
+ 
 
 
 

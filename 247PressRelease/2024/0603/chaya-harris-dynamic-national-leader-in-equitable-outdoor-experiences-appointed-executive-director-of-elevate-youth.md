@@ -7,7 +7,11 @@ BOSTON, MA, June 03, 2024 /24-7PressRelease/ -- Elevate Youth, a local nonprofit
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511322/chaya-harris-dynamic-national-leader-in-equitable-outdoor-experiences-appointed-executive-director-of-elevate-youth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elevate-youth-appoints-chaya-harris-as-new-executive-director/f36e4b7f8d093cc525d77aa67fa419c8) 
+
+
+Pickup - [advos.io](https://advos.io/en/chaya-harris-appointed-executive-director-of-elevate-youth-continuing-mission-of-outdoor-empowerment/20243613)
+ 
 
 
 

@@ -7,7 +7,9 @@ BARDONIA, NY, May 02, 2024 /24-7PressRelease/ -- Dr. Ira Bernstein, esteemed pod
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510594/dr-ira-bernstein-presents-prestigious-scholarship-for-healthcare-students-applications-now-open)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-ira-bernstein-announces-inaugural-healthcare-scholarship-for-students/6393c4e72a90fb70b0b366b597563801) 
+
+ 
 
 
 

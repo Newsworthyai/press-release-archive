@@ -45,7 +45,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/valuezone-demystifies-quantitative-trading-for-enhanced-investor-understanding)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/valuezone-launches-initiative-to-educate-investors-on-quantitative-trading/54ebc4f9967b933a9911d75b9e774d3c) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/valuezone-launches-initiative-to-educate-investors-on-quantitative-trading)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/valuezone-launches-initiative-to-educate-investors-on-quantitative-trading)
+ 
 
 
 

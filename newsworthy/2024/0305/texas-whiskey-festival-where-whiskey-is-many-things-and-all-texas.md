@@ -40,7 +40,11 @@ The festival's mission is simple: To create events, collaborations, and blends t
 [Original/Source Press Release](https://newsworthy.ai/news/202403051104/texas-whiskey-festival-where-whiskey-is-many-things-and-all-things-texan)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/7th-annual-texas-whiskey-festival-returns-to-celebrate-the-spirit-of-texas-whiskey/f796e2e9b056895b09d2072c0be97d50) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/05/texas-whiskey-festival-a-multifaceted-celebration-of-liquid-artistry)
+ 
 
 
 

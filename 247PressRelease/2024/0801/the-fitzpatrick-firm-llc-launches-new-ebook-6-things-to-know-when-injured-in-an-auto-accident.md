@@ -7,7 +7,17 @@ ATLANTA, GA, August 01, 2024 /24-7PressRelease/ -- The Fitzpatrick Firm, LLC, a 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512979/the-fitzpatrick-firm-llc-launches-new-ebook-6-things-to-know-when-injured-in-an-auto-accident)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atlanta-personal-injury-law-firm-releases-free-ebook-on-auto-accident-injuries/a4a3cd7764e1503c4af30d0c7fe9c5ed) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/atlanta-law-firm-releases-free-ebook-on-auto-accident-injury-guidance)
+
+Pickup - [fishervista.com](https://fishervista.com/en/the-fitzpatrick-firm-llc-releases-essential-ebook-on-auto-accident-guidance/20245421)
+
+Pickup - [advos.io](https://advos.io/en/the-fitzpatrick-firm-llc-releases-free-ebook-on-navigating-auto-accidents/20245421)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/atlanta-law-firm-releases-free-ebook-on-auto-accident-injury-guidance)
+ 
 
 
 

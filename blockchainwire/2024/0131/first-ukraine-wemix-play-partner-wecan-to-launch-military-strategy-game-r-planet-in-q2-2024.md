@@ -26,7 +26,11 @@ Part of the first generation of Korean PC online game developers and Korean mobi
 [Original/Source Press Release](https://blockchainwire.io/press-release/first-ukraine-wemix-play-partner-wecan-to-launch-military-strategy-game-r-planet-in-q2-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemade-unveils-wecan-as-first-ukrainian-studio-to-join-wemix-play/55e605962279ea61382aee9159494c43) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/31/ukraine-s-wecan-to-launch-innovative-military-strategy-game-r-planet-on-wemix-play)
+ 
 
 
 

@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/brand-engagem
 [Original/Source Press Release](https://newsdirect.com/news/brand-engagement-network-announces-private-placement-and-promotion-of-paul-chang-to-co-ceo-440973667)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ben-secures-5m-in-funding-appoints-paul-chang-as-co-ceo/c168a4873ce39d2afac6572ec3899dd1) 
+
+ 
 
 
 

@@ -39,7 +39,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/zifi-token-announces-strategic-partnership-with-sats-revolutionizing-the-brc20-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zifi-token-and-sats-announce-strategic-partnership-to-revolutionize-brc20-ecosystem/fe7ddb530f48c4ea858676730e609638) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/24/zifi-token-and-sats-join-forces-to-revolutionize-brc20-trading)
+ 
 
 
 

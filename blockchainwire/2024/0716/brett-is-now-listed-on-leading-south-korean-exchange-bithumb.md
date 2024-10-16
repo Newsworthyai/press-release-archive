@@ -37,7 +37,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/brett-is-now-listed-on-leading-south-korean-exchange-bithumb)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/popular-memecoin-brett-listed-on-bithumb-expands-into-asian-market/df2e7c01413b5be72117ad4802c62d37) 
+
+
+Pickup - [advos.io](https://advos.io/en/brett-memecoin-now-listed-on-major-south-korean-exchange-bithumb/20245065)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/memecoin-brett-expands-to-asian-market-with-listing-on-bithumb-exchange)
+
+Pickup - [fishervista.com](https://fishervista.com/en/brett-listed-on-leading-south-korean-exchange-bithumb/20245065)
+ 
 
 
 

@@ -7,7 +7,17 @@ ORLANDO, FL, August 01, 2024 /24-7PressRelease/ -- CareWork Inc. a premier SaaS 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512989/carework-achieves-significant-revenue-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/carework-inc-achieves-over-500-revenue-growth-in-2024/d584e587b6690931dc485f4f9129567d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/carework-inc-reports-over-500-revenue-growth-in-2024-solidifying-position-in-senior-care-tech)
+
+Pickup - [fishervista.com](https://fishervista.com/en/carework-inc-reports-over-500-revenue-growth-in-early-2024/20245410)
+
+Pickup - [advos.io](https://advos.io/en/carework-inc-achieves-over-500-revenue-growth-in-2024/20245410)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/carework-inc-reports-over-500-revenue-growth-in-senior-living-tech-sector)
+ 
 
  
 

@@ -25,7 +25,15 @@ XLINK is a pioneering bridge designed to enable seamless interoperability betwee
 [Original/Source Press Release](https://blockchainwire.io/press-release/alex-acquires-the-stacks-assets-xbtc-and-xusd-of-wrappedcom-and-integrates-them-into-abtc-and-susdt-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alex-and-wrapped-com-acquire-xbtc-and-xusd-enhancing-bitcoin-defi-services/58cc5110586d355bdd24fa0e7dc64dd0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/alex-acquires-stacks-assets-xbtc-and-xusd-integrating-them-into-abtc-and-susdt)
+
+Pickup - [fishervista.com](https://fishervista.com/en/alex-acquires-wrapped-coms-stacks-assets-and-integrates-them-into-defi-ecosystem/20245064)
+
+Pickup - [advos.io](https://advos.io/en/alex-acquires-and-integrates-wrapped-coms-xbtc-and-xusd-into-bitcoin-defi-ecosystem/20245064)
+ 
 
 
 

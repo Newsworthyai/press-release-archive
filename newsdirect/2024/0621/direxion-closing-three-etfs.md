@@ -63,7 +63,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/direxion-clos
 [Original/Source Press Release](https://newsdirect.com/news/direxion-closing-three-etfs-621527165)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/direxion-to-close-three-etfs/2bf9586502b5130ad5306b462ec43a6c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/direxion-to-close-three-etfs-due-to-insufficient-investment-assets/20244382)
+
+Pickup - [advos.io](https://advos.io/en/direxion-to-liquidate-and-close-three-etfs-by-july-2024/20244382)
+ 
 
 
 

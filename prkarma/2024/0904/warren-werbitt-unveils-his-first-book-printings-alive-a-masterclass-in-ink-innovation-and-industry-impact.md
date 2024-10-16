@@ -47,7 +47,17 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1553)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-print-expert-warren-werbitt-releases-debut-book-and-leads-industry-event-at-printing-united-expo-2024/094bb57095636a5d547d077eb9bf0669) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/print-industry-veteran-warren-werbitt-releases-debut-book-printing-s-alive)
+
+Pickup - [fishervista.com](https://fishervista.com/en/warren-werbitt-releases-debut-book-printings-alive-a-masterclass-in-ink-innovation-and-industry-impact/20246575)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/print-industry-veteran-warren-werbitt-releases-debut-book-on-innovation-and-leadership/20246575)
+
+Pickup - [advos.io](https://advos.io/en/warren-werbitt-releases-debut-book-printings-alive-a-masterclass-in-ink-innovation-and-industry-impact/20246575)
+ 
 
 
 

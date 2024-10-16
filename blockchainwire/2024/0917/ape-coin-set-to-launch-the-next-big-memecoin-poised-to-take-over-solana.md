@@ -48,7 +48,17 @@ Website | Twitter | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/ape-coin-set-to-launch-the-next-big-memecoin-poised-to-take-over-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/groundbreaking-ape-coin-set-to-dominate-memecoin-space-on-solana-blockchain/994bdac5c80667d215406415aec6f30c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/solana-based-ape-coin-prepares-for-launch-aims-to-revolutionize-memecoin-market)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-memecoin-ape-prepares-for-launch-on-solana-blockchain/20246910)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-memecoin-ape-launches-on-solana-aims-for-billion-dollar-valuation/20246910)
+
+Pickup - [advos.io](https://advos.io/en/new-memecoin-ape-prepares-for-launch-on-solana-aims-for-billion-dollar-valuation/20246910)
+ 
 
 
 

@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ftn-network-r
 [Original/Source Press Release](https://newsdirect.com/news/ftn-network-releases-2024-nfl-draft-team-grades-and-rookie-fantasy-scouting-guide-following-2024-nfl-draft-828828244)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ftn-network-releases-2024-nfl-draft-team-grades-and-rookie-fantasy-scouting-guide/e089794c2dc877ee5b82af2035e9a3b3) 
+
+ 
 
 
 

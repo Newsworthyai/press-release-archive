@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/teccryptos-ai-enhancement-transforming-cloud-mining-for-greater-earnings-and-efficiency)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionizing-cloud-mining-with-artificial-intelligence/d8c7b0246cd49ad4d8c99aff769c225c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/31/teccrypto-unleashes-ai-powered-cloud-mining-for-maximum-profitability)
+ 
 
 
 

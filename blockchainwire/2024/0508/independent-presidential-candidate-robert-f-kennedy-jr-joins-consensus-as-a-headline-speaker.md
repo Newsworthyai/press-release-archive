@@ -31,7 +31,9 @@ Published by [Proficient PR](https://proficientpr.com/)
 [Original/Source Press Release](https://blockchainwire.io/press-release/independent-presidential-candidate-robert-f-kennedy-jr-joins-consensus-as-a-headline-speaker)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/robert-f-kennedy-jr-to-speak-at-consensus-2024-affirming-support-for-cryptocurrency-and-self-custody/3be2a07230964c6a1cf81c153ef0a73f) 
+
+ 
 
 
 

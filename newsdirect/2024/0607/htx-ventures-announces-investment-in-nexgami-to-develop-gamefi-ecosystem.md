@@ -47,7 +47,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-
 [Original/Source Press Release](https://newsdirect.com/news/htx-ventures-announces-investment-in-nexgami-to-develop-gamefi-ecosystem-608832793)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-ventures-invests-in-nexgami-to-develop-gamefi-ecosystem/ac3668af81501a221639db52f9a2c1d0) 
+
+
+Pickup - [advos.io](https://advos.io/en/htx-ventures-invests-in-nexgami-to-propel-web3-gaming-ecosystem/20243917)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-ventures-invests-in-nexgami-to-develop-gamefi-ecosystem)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-ventures-invests-in-nexgami-to-develop-gamefi-ecosystem)
+ 
 
 
 

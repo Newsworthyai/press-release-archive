@@ -39,7 +39,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/embrace-the-revolution-meme-cult-rallies-the-solana-meme-coin-brotherhood)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meme-cult-revolutionizing-the-solana-meme-coin-community/fcf25db14ca4349548318bb8c846269a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/meme-cult-rallying-the-solana-meme-coin-brotherhood)
+ 
 
 
 

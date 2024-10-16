@@ -89,7 +89,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/rising-global
 [Original/Source Press Release](https://newsdirect.com/news/rising-global-tensions-drive-demand-for-defense-metals-key-players-to-watch-898630912)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rising-global-tensions-drive-demand-for-defense-metals-key-players-to-watch/32b88b43c376055cec9841a08c3e77b0) 
+
+ 
 
 
 

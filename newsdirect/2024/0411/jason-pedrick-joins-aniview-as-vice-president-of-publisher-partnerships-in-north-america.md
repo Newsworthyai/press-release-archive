@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/jason-pedrick
 [Original/Source Press Release](https://newsdirect.com/news/jason-pedrick-joins-aniview-as-vice-president-of-publisher-partnerships-in-north-america-366317090)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aniview-appoints-jason-pedrick-as-vice-president-of-publisher-partnerships/1399732d65d30a90b8a77921612826a3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/jason-pedrick-joins-aniview-as-vice-president-of-publisher-partnerships-in-north-america)
+ 
 
 
 

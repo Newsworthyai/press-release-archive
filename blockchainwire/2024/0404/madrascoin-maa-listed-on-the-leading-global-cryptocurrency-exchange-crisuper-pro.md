@@ -53,7 +53,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/madrascoin-maa-listed-on-the-leading-global-cryptocurrency-exchange-crisuper-pro)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/madrascoin-listed-on-crisuper-pro-driving-web3-0-era/e574a7ab34c67a9c64a9440fba008fe0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/madrascoin-achieves-major-milestone-with-listing-on-crisuper-pro-exchange)
+ 
 
 
 

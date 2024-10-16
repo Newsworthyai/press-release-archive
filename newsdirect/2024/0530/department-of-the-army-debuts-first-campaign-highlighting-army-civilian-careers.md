@@ -55,7 +55,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/department-of
 [Original/Source Press Release](https://newsdirect.com/news/department-of-the-army-debuts-first-campaign-highlighting-army-civilian-careers-970355419)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/department-of-the-army-launches-groundbreaking-campaign-to-spotlight-army-civilian-careers/01a03c75a9df6c581c80a1f5be017d50) 
+
+ 
 
 
 

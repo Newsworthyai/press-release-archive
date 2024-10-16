@@ -77,7 +77,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/4-stocks-to-w
 [Original/Source Press Release](https://newsdirect.com/news/4-stocks-to-watch-with-rising-copper-prices-685902463)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/seismic-shift-in-global-copper-market-key-players-and-investments/169e525bac3cc3a3be0b9d2791246bf2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/copper-mining-stocks-shine-as-demand-surges)
+ 
 
 
 

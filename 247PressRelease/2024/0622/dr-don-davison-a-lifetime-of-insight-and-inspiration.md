@@ -7,7 +7,13 @@ YOUNG, AZ, June 22, 2024 /24-7PressRelease/ -- Dr. Davison is not just an educat
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511943/dr-don-davison-a-lifetime-of-insight-and-inspiration)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-educator-and-consultant-dr-davison-shares-wisdom-and-insight-through-new-books-and-course/7e801d1af5537148b6f77e199f87f6ed) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-don-davison-a-beacon-of-wisdom-and-inspiration-through-education-and-literature/20244393)
+
+Pickup - [advos.io](https://advos.io/en/dr-don-davison-four-decades-of-educational-and-literary-excellence/20244393)
+ 
 
 
 

@@ -66,7 +66,17 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/-trade24sevencom-review---empowering-traders-in-india-and-japan-with-a-robust-platform-and-financial-education-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/empowering-traders-in-india-and-japan-with-trade24seven-com/ecbf919253d6e7f7e9c5c3252bf3ccbd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/trade24seven-com-launches-comprehensive-trading-platform-for-india-and-japan)
+
+Pickup - [fishervista.com](https://fishervista.com/en/trade24seven-launches-comprehensive-trading-platform-for-india-and-japan/20246826)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/trade24seven-launches-comprehensive-trading-platform-for-indian-and-japanese-markets/20246826)
+
+Pickup - [advos.io](https://advos.io/en/trade24seven-com-launches-cfd-trading-platform-for-india-and-japan/20246826)
+ 
 
 
 

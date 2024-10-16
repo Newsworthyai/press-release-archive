@@ -7,7 +7,15 @@ MILWAUKEE, WI, July 18, 2024 /24-7PressRelease/ -- Concurrency, Inc. is thrilled
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512641/a-decade-and-a-half-of-leadership-nathan-lasnoski-named-microsoft-mvp-for-15th-year-dual-awarded-for-ai-and-azure)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nathan-lasnoski-named-microsoft-mvp-for-15th-consecutive-year/b391608337169c2fb7f2e239315ae1ea) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/nathan-lasnoski-achieves-milestone-15-years-as-microsoft-mvp-with-dual-recognition-in-ai-and-azure)
+
+Pickup - [fishervista.com](https://fishervista.com/en/nathan-lasnoski-earns-15th-microsoft-mvp-award-dual-recognition-in-ai-and-azure/20245046)
+
+Pickup - [advos.io](https://advos.io/en/nathan-lasnoski-honored-as-microsoft-mvp-for-15th-year-receives-dual-awards-in-ai-and-azure/20245046)
+ 
 
 
 

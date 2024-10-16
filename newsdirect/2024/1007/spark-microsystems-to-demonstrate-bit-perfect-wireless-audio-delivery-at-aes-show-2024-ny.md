@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/spark-microsy
 [Original/Source Press Release](https://newsdirect.com/news/spark-microsystems-to-demonstrate-bit-perfect-wireless-audio-delivery-at-aes-show-2024-ny-767053739)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/spark-microsystems-to-demonstrate-bit-perfect-wireless-audio-delivery-at-aes-show-2024-ny/daddfc97233af278a4e44c62930cb15c) 
+
+ 
 
 
 

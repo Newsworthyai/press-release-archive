@@ -57,7 +57,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nmtc-funded-3
 [Original/Source Press Release](https://newsdirect.com/news/nmtc-funded-322-projects-nearly-60-000-jobs-across-the-u-s-in-2023-640480853)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nmtc-report-shows-322-projects-and-nearly-60000-jobs-created-in-2023/8909ae56387cc07e6c27e371dec51fb2) 
+
+ 
 
 
 

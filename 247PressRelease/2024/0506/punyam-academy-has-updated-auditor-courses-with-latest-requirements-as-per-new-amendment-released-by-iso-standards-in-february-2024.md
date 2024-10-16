@@ -7,7 +7,9 @@ VANCOUVER, WA, May 06, 2024 /24-7PressRelease/ -- Punyam Academy is happy to ann
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510569/punyam-academy-has-updated-auditor-courses-with-latest-requirements-as-per-new-amendment-released-by-iso-standards-in-february-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/punyam-academy-integrates-2024-iso-standards-amendments-for-climate-change/2534ef600a8b93b34f0d97a74e1ed997) 
+
+ 
 
 
 

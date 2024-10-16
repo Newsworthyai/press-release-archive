@@ -7,7 +7,17 @@ ATLANTA, GA, August 15, 2024 /24-7PressRelease/ -- To celebrate 50+ years of Geo
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513116/see-kabuki-theater-and-a-modern-take-on-classic-japanese-comedy-at-japanfest-atlanta)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/japanfest-2024-celebrating-50-years-of-georgia-japan-ties/1f79d0b794e28e131f8189b4fe91fbc3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/japanfest-atlanta-2024-celebrates-50-years-of-georgia-japan-ties-with-kabuki-theater-and-modern-japanese-comedy)
+
+Pickup - [fishervista.com](https://fishervista.com/en/japanfest-atlanta-2024-celebrates-georgia-japan-ties-with-kabuki-theater-and-more/20245742)
+
+Pickup - [advos.io](https://advos.io/en/japanfest-atlanta-2024-to-celebrate-50-years-of-georgia-japan-ties-with-unique-performances-and-cultural-exhibits/20245742)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/japanfest-atlanta-2024-to-showcase-kabuki-theater-and-modern-japanese-comedy/20245742)
+ 
 
 
 

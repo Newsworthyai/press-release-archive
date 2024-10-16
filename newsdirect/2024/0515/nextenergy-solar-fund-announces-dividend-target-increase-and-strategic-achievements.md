@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nextenergy-so
 [Original/Source Press Release](https://newsdirect.com/news/nextenergy-solar-fund-announces-dividend-target-increase-and-strategic-achievements-382299899)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nextenergy-solar-fund-announces-dividend-increase-and-strategic-achievements/ea5283bf004891a3a70e107080d510c2) 
+
+ 
 
 
 

@@ -7,7 +7,17 @@ KNOXVILLE, TN, August 28, 2024 /24-7PressRelease/ -- Cherished Mom, a renowned n
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513838/cherished-mom-announces-the-launch-of-ismomokorg)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cherished-mom-launches-ismomok-org-to-address-maternal-suicide-and-mortality/059f7b6de84e74228de120a112730d04) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/cherished-mom-launches-ismomok-org-to-address-maternal-suicide-and-mental-health)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cherished-mom-launches-ismomok-org-to-combat-maternal-suicide-and-mortality/20246321)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cherished-mom-launches-ismomok-org-to-combat-maternal-suicide-and-mortality/20246321)
+
+Pickup - [advos.io](https://advos.io/en/cherished-mom-launches-ismomok-org-to-combat-maternal-suicide-and-mortality/20246321)
+ 
 
  
 

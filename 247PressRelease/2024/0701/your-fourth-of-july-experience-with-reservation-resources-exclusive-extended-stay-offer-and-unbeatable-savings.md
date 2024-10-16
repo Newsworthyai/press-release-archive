@@ -7,7 +7,13 @@ NEW YORK, NY, July 01, 2024 /24-7PressRelease/ -- As Fourth of July festivities 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512100/your-fourth-of-july-experience-with-reservation-resources-exclusive-extended-stay-offer-and-unbeatable-savings)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/save-big-on-extended-stays-in-nyc-with-reservation-resources-exclusive-fourth-of-july-offer/6fcc185aa31d10fccd82e63e0ead810d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/reservation-resources-unveils-exclusive-extended-stay-offer-for-fourth-of-july/20244652)
+
+Pickup - [advos.io](https://advos.io/en/reservation-resources-announces-up-to-30-savings-for-extended-stays-over-fourth-of-july-in-nyc/20244652)
+ 
 
 
 

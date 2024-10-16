@@ -29,7 +29,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/alexander-spe
 [Original/Source Press Release](https://newsdirect.com/news/alexander-spellanes-the-right-wing-voice-podcast-features-pastor-john-amanchukwu-on-protecting-our-children-846656608)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-right-wing-voice-podcast-features-pastor-john-amanchukwu-on-protecting-children-from-indoctrination/192ca81dcf10854c2f53bed4efadc4b5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/the-right-wing-voice-podcast-tackles-educational-reform-with-pastor-john-amanchukwu)
+
+Pickup - [fishervista.com](https://fishervista.com/en/the-right-wing-voice-podcast-pastor-john-amanchukwu-discusses-protecting-children-in-public-schools/20245447)
+
+Pickup - [advos.io](https://advos.io/en/the-right-wing-voice-podcast-features-pastor-john-amanchukwu-on-parental-involvement-in-education/20245447)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/pastor-john-amanchukwu-discusses-protecting-children-from-indoctrination-on-the-right-wing-voice-podcast)
+ 
 
 
 

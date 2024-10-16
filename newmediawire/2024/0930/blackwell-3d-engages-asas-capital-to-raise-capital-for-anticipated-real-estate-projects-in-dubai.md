@@ -35,7 +35,9 @@ IR@BLACKWELL3D.COM
 [Original/Source Press Release](https://www.newmediawire.com/news/blackwell-3d-engages-asas-capital-to-raise-capital-for-anticipated-real-estate-projects-in-dubai-7076123)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blackwell-3d-engages-asas-capital-for-real-estate-ventures-in-dubai/1183b9041d47cd147833e2e374b772cd) 
+
+ 
 
 
 

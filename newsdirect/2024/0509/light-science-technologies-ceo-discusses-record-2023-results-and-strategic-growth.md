@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/light-science
 [Original/Source Press Release](https://newsdirect.com/news/light-science-technologies-ceo-discusses-record-2023-results-and-strategic-growth-751391147)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/light-science-technologies-ceo-discusses-record-2023-results-and-strategic-growth/52f4c3790eb19fbbcc7a88defbd35f19) 
+
+ 
 
 
 

@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/pegasus-resou
 [Original/Source Press Release](https://newsdirect.com/news/pegasus-resources-engages-dahrouge-geological-for-comprehensive-geological-model-exploration-791985838)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pegasus-resources-engages-dahrouge-geological-for-comprehensive-geological-model-exploration/68285a69c833850470915b3d1af05c41) 
+
+ 
 
 
 

@@ -17,7 +17,11 @@ Individuals seeking support for depression treatment in California can now benef
 [Original/Source Press Release](https://newsworthy.ai/news/202401221013/promising-outlook-introduces-personalized-depression-treatment-program-in-california)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/promising-outlook-launches-intensive-outpatient-program-for-personalized-depression-treatment-in-california/c018075e2c7e733de52a63830b936a2b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/22/promising-outlook-introduces-personalized-depression-treatment-program-in-california)
+ 
 
 
 

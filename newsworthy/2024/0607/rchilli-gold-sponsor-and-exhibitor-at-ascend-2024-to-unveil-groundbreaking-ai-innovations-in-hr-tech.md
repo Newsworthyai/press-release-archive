@@ -23,7 +23,13 @@ RChilli is the trusted partner for parsing, matching, and data enrichment, provi
 [Original/Source Press Release](https://newsworthy.ai/news/202406071190/rchilli-gold-sponsor-and-exhibitor-at-ascend-2024-to-unveil-groundbreaking-ai-innovations-in-hr-tech)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-announces-gold-sponsorship-and-exhibitor-role-at-ascend-2024/69f4f3f2dae0b21750925b33772e275f) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-to-showcase-ai-driven-hr-tech-innovations-at-ascend-2024/20243946)
+
+Pickup - [advos.io](https://advos.io/en/rchilli-to-unveil-ai-innovations-in-hr-tech-at-ascend-2024-conference/20243946)
+ 
 
 
 

@@ -36,7 +36,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/2024-global-a
 [Original/Source Press Release](https://newsdirect.com/news/2024-global-architecture-engineering-and-construction-aec-industry-report-benchmark-international-unveils-critical-insights-967768851)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-releases-2024-global-aec-industry-report/33a8888ac9010f463204a04c1d4f88c5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/benchmark-international-releases-comprehensive-2024-aec-industry-report)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-releases-in-depth-2024-global-aec-industry-report/20245031)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-releases-2024-global-aec-industry-report-with-vital-insights/20245031)
+ 
 
 
 

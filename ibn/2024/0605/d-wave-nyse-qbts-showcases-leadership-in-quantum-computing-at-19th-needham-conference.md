@@ -29,7 +29,9 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-showcases-leadership-in-quantum-computing-at-19th-needham-conference/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-inc-shares-fireside-chat-at-needham-conference/465314f7a1d4754f7685c958c10b9ec2) 
+
+ 
 
 
 

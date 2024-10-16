@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-wallet
 [Original/Source Press Release](https://newsdirect.com/news/bitget-wallet-deepens-ties-with-pendle-launches-bwb-points-airdrop-for-pendle-users-482129871)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-wallet-launches-bwb-points-airdrop-campaign-for-pendle-users/54e3ad6638bf9271bcb513bf80c171f8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/bitget-wallet-partners-with-pendle-finance-offers-bwb-points-airdrop)
+ 
 
 
 

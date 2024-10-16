@@ -7,7 +7,17 @@ NEW ORLEANS, LA, August 12, 2024 /24-7PressRelease/ -- Ben E. Hunter has recorde
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513316/ben-e-hunters-world-release-of-cross-roads-his-musical-journey-during-the-worst-natural-disaster-of-all-time-katrina-ben-has-recorded-five-studio-albums-in-this-pioneering-new-orleans-genre)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/reggae-legend-ben-e-hunter-makes-a-comeback-after-overcoming-epilepsy/08573d9e10d30750946263f2e051f43a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/new-orleans-musician-ben-e-hunter-returns-with-cross-roads-album-reflecting-on-katrina-experience)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ben-e-hunter-releases-cross-roads-chronicling-his-musical-journey-post-katrina/20245642)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ben-e-hunter-returns-with-new-orleans-sound-in-cross-roads-album/20245642)
+
+Pickup - [advos.io](https://advos.io/en/ben-e-hunter-returns-with-new-album-cross-roads-post-katrina-and-health-battles/20245642)
+ 
 
 
 

@@ -7,7 +7,17 @@ MUMBAI, INDIA, August 16, 2024 /24-7PressRelease/ -- Destiny Securities Ltd is p
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513496/destiny-securities-ltd-joins-siri-systematic-strategys-800-stock-plan)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/destiny-securities-ltd-to-collaborate-with-siri-systematic-strategy-in-ambitious-800-stock-plan/26314a1bfd9716fef50a433f30f9d840) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/16/destiny-securities-ltd-partners-with-siri-systematic-strategy-in-ambitious-800-stock-plan)
+
+Pickup - [fishervista.com](https://fishervista.com/en/destiny-securities-ltd-joins-forces-with-siri-systematic-strategy-for-ambitious-800-stock-plan/20245776)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/destiny-securities-ltd-partners-with-siri-systematic-strategy-in-ambitious-800-stock-plan/20245776)
+
+Pickup - [advos.io](https://advos.io/en/destiny-securities-ltd-partners-with-siri-systematic-strategy-on-ambitious-800-stock-plan/20245776)
+ 
 
 
 

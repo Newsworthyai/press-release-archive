@@ -7,7 +7,9 @@ AUSTIN, TX, March 16, 2024 /24-7PressRelease/ -- Grassroots Harvest, a leading p
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509271/grassroots-harvest-announces-exclusive-st-patricks-day-sale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/grassroots-harvest-announces-exclusive-st-patrick-s-day-sale-25-off-cbd-products-site-wide/5f18a4701b5c5d9fc82d373e89637db3) 
+
+ 
 
 
 

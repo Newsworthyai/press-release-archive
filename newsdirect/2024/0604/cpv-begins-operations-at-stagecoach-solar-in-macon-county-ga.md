@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cpv-begins-op
 [Original/Source Press Release](https://newsdirect.com/news/cpv-begins-operations-at-stagecoach-solar-in-macon-county-ga-389023782)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cpv-stagecoach-solar-commences-operations-in-macon-county-georgia/6836911736a5c1f25f4412dfdf3b765c) 
+
+ 
 
 
 

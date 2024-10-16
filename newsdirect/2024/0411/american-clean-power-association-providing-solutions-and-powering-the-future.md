@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/american-clea
 [Original/Source Press Release](https://newsdirect.com/news/american-clean-power-association-providing-solutions-and-powering-the-future-219017955)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-clean-power-association-leading-the-way-in-clean-energy-growth/2c068033fec8df2fb9af63683eaeb461) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/american-clean-power-association-leading-the-way-to-a-sustainable-future)
+ 
 
 
 

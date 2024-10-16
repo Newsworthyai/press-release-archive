@@ -7,7 +7,11 @@ Are you ready to embark on a journey to financial freedom? Look no further becau
 [Original/Source Press Release](https://blockchainwire.io/press-release/welcome-to-earn-finance---earn-ethereum-effortlessly)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/earn-finance-revolutionizing-passive-income-in-the-crypto-space/9f40d7aaf62fd4b1b18033f70141b863) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/06/earn-finance-effortless-ethereum-rewards-on-base-chain-network)
+ 
 
 
 

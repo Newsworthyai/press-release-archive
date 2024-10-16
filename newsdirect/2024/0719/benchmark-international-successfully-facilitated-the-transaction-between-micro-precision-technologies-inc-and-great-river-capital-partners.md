@@ -35,7 +35,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-micro-precision-technologies-inc-and-great-river-capital-partners-296952335)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-facilitates-transaction-between-mpt-and-great-river-capital-partners/cdd6e2019cf0ef844676b80e4d209288) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/19/micro-precision-technologies-acquired-by-great-river-capital-partners-in-strategic-m-a-deal)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-strategic-acquisition-between-micro-precision-technologies-and-great-river-capital-partners/20245111)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-acquisition-of-micro-precision-technologies-by-great-river-capital-partners/20245111)
+ 
 
 
 

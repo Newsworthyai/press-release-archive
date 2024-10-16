@@ -7,7 +7,9 @@ VANCOUVER, BC, April 29, 2024 /24-7PressRelease/ -- PhaseOne Health President an
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510465/phaseone-health-highlights-long-term-outcomes-of-using-hypochlorous-acid-at-the-aesthetic-meeting-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/phaseone-health-to-present-innovative-hocl-application-at-the-aesthetic-meeting-2024/4b87f1d42c32512e693f4fab393b7c5c) 
+
+ 
 
 
 

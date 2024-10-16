@@ -59,7 +59,11 @@ Contact us if you need more information or have an interview request.
 [Original/Source Press Release](https://blockchainwire.io/press-release/night-crows-one-of-2024s-most-anticipated-games-lands-in-170-countries-worldwide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/night-crows-takes-flight-wemade-s-first-multi-chain-game-drops-worldwide/58b732ed17ca1f1adf03f0ba4574839e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/night-crows-takes-flight-with-groundbreaking-multi-chain-gaming-experience)
+ 
 
 
 

@@ -7,7 +7,15 @@ DALLAS, TX, July 09, 2024 /24-7PressRelease/ -- Hustle Beauty, and co-founders H
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512355/introducing-hustle-beauty-and-the-cavinder-twins-newest-innovation-the-brightening-under-eye-balm)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hustle-beauty-launches-revolutionary-brightening-under-eye-balm/6c60dac0f5d172e18faf8bcc9bc6ea99) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/hustle-beauty-and-cavinder-twins-launch-innovative-brightening-under-eye-balm/20244785)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/hustle-beauty-launches-innovative-brightening-under-eye-balm)
+
+Pickup - [advos.io](https://advos.io/en/hustle-beauty-and-cavinder-twins-launch-innovative-brightening-under-eye-balm/20244785)
+ 
 
 
 

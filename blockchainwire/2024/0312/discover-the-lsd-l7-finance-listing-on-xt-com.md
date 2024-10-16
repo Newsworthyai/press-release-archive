@@ -53,7 +53,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-lsd-l7-finance-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-lsd-l7-finance-on-its-socially-infused-trading-platform/89aaa827644bfa9c73b900bc65253c2b) 
+
+ 
 
 
 

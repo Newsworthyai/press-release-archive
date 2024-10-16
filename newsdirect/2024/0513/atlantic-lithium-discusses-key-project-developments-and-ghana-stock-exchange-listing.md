@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/atlantic-lith
 [Original/Source Press Release](https://newsdirect.com/news/atlantic-lithium-discusses-key-project-developments-and-ghana-stock-exchange-listing-312113339)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atlantic-lithium-discusses-key-project-developments-and-ghana-stock-exchange-listing/90ffbb66630bd0eeed2e84c36994a91f) 
+
+ 
 
 
 

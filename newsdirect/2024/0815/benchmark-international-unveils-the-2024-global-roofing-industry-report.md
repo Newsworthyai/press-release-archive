@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-unveils-the-2024-global-roofing-industry-report-741804955)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-unveils-2024-global-roofing-industry-report/9fb7a544c895a5cd5dc32846b196da3e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/benchmark-international-releases-comprehensive-2024-global-roofing-industry-report)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-releases-comprehensive-2024-global-roofing-industry-report/20245760)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/global-roofing-industry-set-for-steady-growth-sustainability-focus-benchmark-international-report/20245760)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-releases-2024-global-roofing-industry-report-highlighting-growth-and-trends/20245760)
+ 
 
 
 

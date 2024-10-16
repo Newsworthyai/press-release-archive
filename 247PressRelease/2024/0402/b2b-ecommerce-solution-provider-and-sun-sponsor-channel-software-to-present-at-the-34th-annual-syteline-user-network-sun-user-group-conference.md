@@ -7,7 +7,11 @@ MINNEAPOLIS, MN, April 02, 2024 /24-7PressRelease/ -- Channel Software will pres
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509719/b2b-ecommerce-solution-provider-and-sun-sponsor-channel-software-to-present-at-the-34th-annual-syteline-user-network-sun-user-group-conference)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/channel-software-to-present-and-sponsor-at-34th-annual-sun-conference/410d25696beeec4b8442a4b15f79e039) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/channel-software-to-showcase-b2b-ecommerce-solutions-at-syteline-user-network-conference)
+ 
 
 
 

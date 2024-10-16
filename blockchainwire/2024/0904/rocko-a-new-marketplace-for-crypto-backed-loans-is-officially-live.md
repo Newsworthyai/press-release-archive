@@ -29,7 +29,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/rocko-a-new-marketplace-for-crypto-backed-loans-is-officially-live)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rocko-launches-new-marketplace-for-crypto-backed-loans/7c26487e90c999bc4cc439eb7289104e) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/rocko-launches-new-marketplace-for-crypto-backed-loans-simplifying-defi-borrowing/20246719)
+ 
 
 
 

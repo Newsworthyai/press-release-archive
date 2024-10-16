@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/lunnon-metals
 [Original/Source Press Release](https://newsdirect.com/news/lunnon-metals-reports-promising-update-on-foster-south-nickel-project-progresses-gold-exploration-389361710)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lunnon-metals-reports-promising-update-on-foster-south-nickel-project-progresses-gold-exploration/d5340a72af65ea4571613ec47371a8c0) 
+
+ 
 
 
 

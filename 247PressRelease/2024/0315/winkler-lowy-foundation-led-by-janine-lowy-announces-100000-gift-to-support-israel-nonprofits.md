@@ -7,7 +7,11 @@ LOS ANGELES, CA, March 15, 2024 /24-7PressRelease/ -- "The Winkler Lowy Foundati
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509279/winkler-lowy-foundation-led-by-janine-lowy-announces-100000-gift-to-support-israel-nonprofits)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/winkler-lowy-foundation-announces-major-gift-to-support-israeli-organizations/91f5e33d4ffcdc689b645296255aecb1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/winkler-lowy-foundation-pledges-100000-to-support-israeli-nonprofits)
+ 
 
 
 

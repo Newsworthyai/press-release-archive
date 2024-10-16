@@ -20,7 +20,11 @@ BitMart is the premier global digital asset trading platform. With millions of u
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-celebrates-bitcoin-halving-with-btc-halving-celebration-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmart-announces-btc-halving-celebration/24778b116f5dc2550bb7bcf9e7dc9655) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/bitmart-celebrates-bitcoin-halving-with-btc-halving-celebration)
+ 
 
 
 

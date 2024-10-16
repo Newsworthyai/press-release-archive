@@ -7,7 +7,9 @@ CHARLOTTE, NC, May 24, 2024 /24-7PressRelease/ -- Elijah's Xtreme Gourmet Sauces
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511169/1-fastest-growing-hot-sauce-brand-online-elijahs-xtreme-expands-reach-further-into-the-south-and-canada)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elijah-s-xtreme-gourmet-sauces-expands-into-new-retail-locations-across-the-southeast/7c4b0910087ff4c993f025b9d7fd2f49) 
+
+ 
 
 
 

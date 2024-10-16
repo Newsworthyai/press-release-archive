@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/cleantech-lit
 [Original/Source Press Release](https://newsdirect.com/news/cleantech-lithium-on-track-with-laguna-verde-project-as-it-updates-contract-application-880798972)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cleantech-lithium-ceo-updates-contract-applications-in-chile/451b8ab2f9e054862bb85f68ec354e61) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/cleantech-lithium-stays-on-course-with-laguna-verde-project-after-updating-contract-application)
+ 
 
 
 

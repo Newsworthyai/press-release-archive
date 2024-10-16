@@ -49,7 +49,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/investments-a
 [Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-institute-announces-changes-to-its-cima-r-certification-839963048)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investments-wealth-institute-announces-updates-to-cima-certification-program/c35b298b3c9f7b5f1c1792fc685029cf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/investments-wealth-institute-announces-significant-changes-to-cima-certification-program)
+ 
 
 
 

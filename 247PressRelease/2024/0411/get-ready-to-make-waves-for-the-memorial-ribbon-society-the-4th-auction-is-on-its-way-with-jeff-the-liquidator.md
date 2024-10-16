@@ -7,7 +7,11 @@ VANCOUVER, BC, April 11, 2024 /24-7PressRelease/ -- Get ready to be swept off yo
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509940/get-ready-to-make-waves-for-the-memorial-ribbon-society-the-4th-auction-is-on-its-way-with-jeff-the-liquidator)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jeff-schwarz-announces-year-long-auctions-to-support-fallen-officers/7e225c85286ad4209b8a7c882208fea0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/get-ready-to-make-waves-for-the-memorial-ribbon-society-the-4th-auction-is-on-its-way-with-jeff-the-liquidator)
+ 
 
 
 

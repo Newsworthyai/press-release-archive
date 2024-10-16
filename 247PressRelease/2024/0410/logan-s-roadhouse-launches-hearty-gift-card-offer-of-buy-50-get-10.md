@@ -7,7 +7,11 @@ HOUSTON, TX, April 10, 2024 /24-7PressRelease/ -- Logan's Roadhouse, the leading
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509934/logans-roadhouse-launches-hearty-gift-card-offer-of-buy-50-get-10)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/logan-s-roadhouse-offers-special-deal-on-gift-cards-for-moms-dads-and-grads/915fc70e386bd5f58392298128722fc2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/logan-s-roadhouse-offers-hearty-gift-card-promotion-buy-50-get-10)
+ 
 
 
 

@@ -41,7 +41,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-stays-strong-ethereum-revamps-gas-fees-and-furrever-token-boosts-engagement-with-20000-contest)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-news-bitcoin-resilience-ethereum-gas-fee-overhaul-furrever-token-competition/d86497083d50d6df68645a0ed167c379) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cryptocurrency-news-bitcoin-resilience-ethereum-gas-fee-overhaul-furrever-token-competition)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cryptocurrency-news-bitcoin-resilience-ethereum-gas-fee-overhaul-furrever-token-competition)
+ 
 
 
 

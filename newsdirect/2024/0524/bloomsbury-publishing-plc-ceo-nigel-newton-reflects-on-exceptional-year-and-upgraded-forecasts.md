@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/bloomsbury-pu
 [Original/Source Press Release](https://newsdirect.com/news/bloomsbury-publishing-plc-ceo-nigel-newton-reflects-on-exceptional-year-and-upgraded-forecasts-624249784)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bloomsbury-publishing-plc-ceo-nigel-newton-reflects-on-exceptional-year-and-upgraded-forecasts/8f15778f9bdfaafc3708875651bcc334) 
+
+ 
 
 
 

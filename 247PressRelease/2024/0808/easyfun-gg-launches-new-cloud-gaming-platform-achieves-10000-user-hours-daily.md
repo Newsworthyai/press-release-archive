@@ -7,7 +7,17 @@ NEW YORK, NY, August 08, 2024 /24-7PressRelease/ -- Easyfun.gg, a cloud-based ga
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513207/easyfungg-launches-new-cloud-gaming-platform-achieves-10000-user-hours-daily)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/easyfun-gg-cloud-based-gaming-site-reaches-10000-user-hours-daily/69a2aee5498dd514ac5301fca6fc5d80) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/easyfun-gg-launches-cloud-gaming-platform-surpasses-10000-daily-user-hours/20245568)
+
+Pickup - [advos.io](https://advos.io/en/easyfun-gg-achieves-10000-daily-user-hours-with-new-cloud-gaming-platform/20245568)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/easyfun-gg-s-cloud-gaming-platform-surges-to-10000-daily-user-hours-in-just-three-months/20245568)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/easyfun-gg-cloud-gaming-platform-reaches-10000-daily-user-hours-in-just-three-months)
+ 
 
 
 

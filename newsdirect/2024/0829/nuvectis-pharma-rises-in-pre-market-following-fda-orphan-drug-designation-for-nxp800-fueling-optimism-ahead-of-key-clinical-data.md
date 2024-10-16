@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/nuvectis-phar
 [Original/Source Press Release](https://newsdirect.com/news/nuvectis-pharma-rises-in-pre-market-following-fda-orphan-drug-designation-for-nxp800-fueling-optimism-ahead-of-key-clinical-data-693388467)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nuvectis-pharma-receives-fda-orphan-drug-designation-for-nxp800/432fe33c005f41181fdf049246613201) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/nuvectis-pharma-secures-fda-orphan-drug-designation-for-nxp800-advancing-treatment-for-rare-ovarian-cancers)
+
+Pickup - [fishervista.com](https://fishervista.com/en/nuvectis-pharma-gains-momentum-with-fda-orphan-drug-designation-for-nxp800/20246379)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/fda-grants-orphan-drug-designation-to-nuvectis-pharma-s-nxp800-for-rare-ovarian-cancers/20246379)
+
+Pickup - [advos.io](https://advos.io/en/nuvectis-pharma-gains-momentum-with-fda-orphan-drug-designation-for-nxp800/20246379)
+ 
 
 
 

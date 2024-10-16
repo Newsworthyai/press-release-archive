@@ -23,7 +23,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/sintana-energ
 [Original/Source Press Release](https://newsdirect.com/news/sintana-energy-expands-footprint-with-strategic-acquisitions-and-partnerships-278243375)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sintana-energy-expands-footprint-with-strategic-acquisitions-and-partnerships/99e0b65b64adeff43e4b096dfcbe3bef) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/sintana-energy-expands-footprint-with-strategic-acquisitions-and-partnerships/20244290)
+
+Pickup - [advos.io](https://advos.io/en/sintana-energy-strengthens-position-with-key-acquisitions-and-partnerships/20244290)
+ 
 
 
 

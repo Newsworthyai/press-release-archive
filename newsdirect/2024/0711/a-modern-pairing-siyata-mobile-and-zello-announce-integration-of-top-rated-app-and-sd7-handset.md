@@ -41,7 +41,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/a-modern-pair
 [Original/Source Press Release](https://newsdirect.com/news/a-modern-pairing-siyata-mobile-and-zello-announce-integration-of-top-rated-app-and-sd7-handset-615000900)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/siyata-mobile-integrates-zello-ptt-app-on-sd7-handset-disrupting-two-way-radio-market/2afe69ae4bac8c4d34db1cd352df9559) 
+
+
+Pickup - [advos.io](https://advos.io/en/siyata-mobile-and-zello-integrate-push-to-talk-app-with-sd7-handset/20244878)
+
+Pickup - [fishervista.com](https://fishervista.com/en/siyata-mobile-integrates-zello-app-with-sd7-handset-revolutionizing-push-to-talk-over-cellular-industry/20244878)
+
+Pickup - [citybuzz.co](https://citybuzz.co/siyata-mobile-integrates-zello-push-to-talk-app-with-sd7-handset-enhancing-communication-for-first-responders)
+ 
 
 
 

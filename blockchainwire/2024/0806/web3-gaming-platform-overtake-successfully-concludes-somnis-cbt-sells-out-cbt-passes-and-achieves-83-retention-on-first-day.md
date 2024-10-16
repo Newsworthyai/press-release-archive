@@ -9,7 +9,21 @@
 [Original/Source Press Release](https://blockchainwire.io/press-release/web3-gaming-platform-overtake-successfully-concludes-somnis-cbt-sells-out-cbt-passes-and-achieves-83-retention-on-first-day)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/overtake-s-somnis-rumble-rush-cbt-concludes-successfully-with-high-retention-rate/ca5293c56e22c43336dd8d2b345ab2d7) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/overtake-concludes-successful-somnis-cbt-with-high-engagement-and-retention-rates/20245535)
+
+Pickup - [advos.io](https://advos.io/en/web3-gaming-platform-overtake-successfully-concludes-somnis-cbt-achieves-high-player-retention/20245535)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/overtake-s-somnis-rumble-rush-cbt-concludes-successfully-with-high-retention-rate)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/overtake-s-somnis-rumble-rush-cbt-concludes-successfully-with-high-retention-rate)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/overtake-s-somnis-cbt-achieves-remarkable-success-with-high-retention-rates)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/overtake-s-somnis-cbt-achieves-remarkable-success-with-high-retention-rates)
+ 
 
 
 

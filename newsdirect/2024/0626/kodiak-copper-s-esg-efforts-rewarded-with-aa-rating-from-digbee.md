@@ -21,7 +21,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/kodiak-copper
 [Original/Source Press Release](https://newsdirect.com/news/kodiak-coppers-esg-efforts-rewarded-with-aa-rating-from-digbee-740621139)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kodiak-copper-s-esg-efforts-rewarded-with-aa-rating-from-digbee/69891153a803b7978afa74bba4d20e87) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/kodiak-copper-achieves-aa-esg-rating-from-digbee-setting-new-standards-in-mining-industry/20244506)
+
+Pickup - [advos.io](https://advos.io/en/kodiak-copper-earns-aa-rating-for-esg-efforts-from-digbee/20244506)
+ 
 
 
 

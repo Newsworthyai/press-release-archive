@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/stanton-chase
 [Original/Source Press Release](https://newsdirect.com/news/stanton-chase-expands-to-burgeoning-huntsville-alabama-through-its-new-office-126081591)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stanton-chase-expands-to-burgeoning-huntsville-alabama-through-its-new-office/4f0d21872cac0687e3de0089be54765c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/stanton-chase-establishes-presence-in-huntsville-s-thriving-business-landscape)
+ 
 
 
 

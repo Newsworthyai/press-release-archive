@@ -34,7 +34,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/american-outd
 [Original/Source Press Release](https://newsdirect.com/news/american-outdoor-brands-to-present-at-share-series-event-898141833)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-outdoor-brands-inc-to-present-at-share-series-event/d1ad804c721e9fe9b30d3fef20c96c87) 
+
+ 
 
 
 

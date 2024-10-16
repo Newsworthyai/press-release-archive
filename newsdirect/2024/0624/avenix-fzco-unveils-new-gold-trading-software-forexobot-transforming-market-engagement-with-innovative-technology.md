@@ -35,7 +35,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/avenix-fzco-u
 [Original/Source Press Release](https://newsdirect.com/news/avenix-fzco-unveils-new-gold-trading-software-forexobot-transforming-market-engagement-with-innovative-technology-897985352)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-forexobot-launches-for-gold-trading-on-mt4-platform/80b0f9576a642ef875cef8d6c2dc2d44) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/avenix-fzco-launches-forexobot-innovative-gold-trading-software-for-mt4-platform/20244423)
+
+Pickup - [advos.io](https://advos.io/en/avenix-fzco-launches-innovative-gold-trading-software-forexobot/20244423)
+ 
 
 
 

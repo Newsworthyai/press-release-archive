@@ -39,7 +39,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-lincoln-protocol-redefining-freedom-in-the-digital-age)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-lincoln-protocol-pioneering-financial-liberation/1c5cebca68c418087363663fa0866be5) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/the-lincoln-protocol-pioneering-financial-liberation)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/the-lincoln-protocol-pioneering-financial-liberation)
+ 
 
 
 

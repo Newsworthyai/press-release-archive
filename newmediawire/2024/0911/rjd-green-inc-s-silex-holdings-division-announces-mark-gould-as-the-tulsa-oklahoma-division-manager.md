@@ -45,7 +45,17 @@ ronb@rjdgreen.com
 [Original/Source Press Release](https://www.newmediawire.com/news/rjd-green-inc-s-silex-holdings-division-announces-mark-gould-as-the-tulsa-oklahoma-division-manager-7076037)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/silex-holdings-inc-hires-mark-gould-as-tulsa-division-manager/ca45f65309490b838ec5bad66d9e2c0f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/rjd-green-inc-appoints-mark-gould-as-tulsa-division-manager-for-silex-holdings)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rjd-green-inc-s-silex-holdings-division-appoints-mark-gould-as-tulsa-division-manager/20246744)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/rjd-green-inc-appoints-mark-gould-as-tulsa-division-manager-for-silex-holdings/20246744)
+
+Pickup - [advos.io](https://advos.io/en/rjd-greens-silex-holdings-division-appoints-mark-gould-as-tulsa-division-manager/20246744)
+ 
 
 
 

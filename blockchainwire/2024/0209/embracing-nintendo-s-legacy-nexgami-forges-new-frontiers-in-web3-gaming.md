@@ -35,7 +35,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/embracing-nintendos-legacy-nexgami-forges-new-frontiers-in-web3-gaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nexgami-revolutionizes-web3-gaming-with-nintendo-inspired-vision/1ba48ed2510ff03009c3eb67c1bd8f7f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/09/nexgami-embracing-nintendo-s-legacy-to-forge-new-frontiers-in-web3-gaming)
+ 
 
 
 

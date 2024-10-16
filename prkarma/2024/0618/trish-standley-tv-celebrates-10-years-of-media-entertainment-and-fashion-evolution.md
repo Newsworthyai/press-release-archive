@@ -40,7 +40,9 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/ycommunicate/news_release/1489)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trish-standley-tv-relaunches-as-a-dynamic-tv-platform/63b5914ab7c950f1506f88aed59e4105) 
+
+ 
 
 
 

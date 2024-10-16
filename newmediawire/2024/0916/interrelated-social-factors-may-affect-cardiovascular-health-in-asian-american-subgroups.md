@@ -98,7 +98,17 @@ Statement Highlights:
 [Original/Source Press Release](https://www.newmediawire.com/news/interrelated-social-factors-may-affect-cardiovascular-health-in-asian-american-subgroups-7076054)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-statement-highlights-social-determinants-of-cardiovascular-health-in-asian-americans/f4646aefc43683479b77938140b3b519) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/social-factors-influence-cardiovascular-health-in-asian-american-subgroups-study-finds)
+
+Pickup - [fishervista.com](https://fishervista.com/en/social-factors-significantly-impact-cardiovascular-health-among-asian-american-subgroups/20246871)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/social-factors-significantly-impact-cardiovascular-health-among-asian-american-subgroups/20246871)
+
+Pickup - [advos.io](https://advos.io/en/new-study-highlights-social-factors-affecting-cardiovascular-health-in-asian-american-subgroups/20246871)
+ 
 
 
 

@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/fitfast-devel
 [Original/Source Press Release](https://newsdirect.com/news/fitfast-develops-intermittent-fasting-app-changing-the-narratives-of-health-and-wellness-industry-540804324)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fitfast-launches-ai-powered-app-to-revolutionize-intermittent-fasting/d3bfa38b66ad8a17784fc7ce294119e9) 
+
+ 
 
 
 

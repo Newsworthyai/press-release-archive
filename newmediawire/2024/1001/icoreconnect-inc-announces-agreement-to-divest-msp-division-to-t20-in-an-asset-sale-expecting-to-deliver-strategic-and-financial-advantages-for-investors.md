@@ -49,7 +49,9 @@ IR@icoreconnect.com
 [Original/Source Press Release](https://www.newmediawire.com/news/icoreconnect-inc-announces-agreement-to-divest-msp-division-to-t20-in-an-asset-sale-expecting-to-deliver-strategic-and-financial-advantages-for-investors-7076134)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/icoreconnect-inc-announces-divestiture-of-msp-division-to-the-20-llc/6ccfa10d44df354194cf9c03cccb1e1a) 
+
+ 
 
 
 

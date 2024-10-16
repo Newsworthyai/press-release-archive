@@ -19,7 +19,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/nevada-lithiu
 [Original/Source Press Release](https://newsdirect.com/news/nevada-lithium-launches-2024-drill-program-at-bonnie-claire-project-995706420)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nevada-lithium-initiates-2024-drill-program-at-bonnie-claire-project/487f3bcca0a14616b94b1c62c54cb9be) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/nevada-lithium-commences-2024-drill-program-at-bonnie-claire-aiming-to-expand-high-grade-lithium-boron-resource)
+
+Pickup - [fishervista.com](https://fishervista.com/en/nevada-lithium-kicks-off-2024-drill-program-to-expand-bonnie-claire-project/20245259)
+
+Pickup - [advos.io](https://advos.io/en/nevada-lithium-initiates-2024-drill-program-at-bonnie-claire-project/20245259)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/nevada-lithium-initiates-2024-drill-program-at-bonnie-claire-lithium-project)
+ 
 
 
 

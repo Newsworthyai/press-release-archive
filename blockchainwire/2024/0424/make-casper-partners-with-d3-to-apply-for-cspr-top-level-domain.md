@@ -37,7 +37,11 @@ Learn more about D3 at [https://www.d3.app/](https://d3.app/?utm_source=shibvic&
 [Original/Source Press Release](https://blockchainwire.io/press-release/make-casper-partners-with-d3-to-apply-for-cspr-top-level-domain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockchain-firm-make-partners-with-d3-global-to-obtain-cspr-top-level-domain/4453d570629cfcdecee9c47451c17a03) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/make-casper-partners-with-d3-to-apply-for-cspr-top-level-domain)
+ 
 
 
 

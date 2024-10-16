@@ -13,7 +13,11 @@ Also part of the many services The Synergy of Monticello offers to its clients i
 [Original/Source Press Release](https://newsworthy.ai/news/20240118996/synergy-of-monticello-introduces-comprehensive-child-psychiatry-services-for-mental-health-care)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/synergy-of-monticello-introduces-child-psychiatry-services/1510c8cc9f4a73544b8759b1113ddd71) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/18/synergy-of-monticello-expands-mental-health-services-with-child-psychiatry)
+ 
 
 
 

@@ -19,7 +19,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/europacific-m
 [Original/Source Press Release](https://newsdirect.com/news/europacific-metals-advances-high-grade-copper-project-in-portugal-525718162)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/europacific-metals-advances-high-grade-copper-project-in-portugal/d5b675fad9fafdfa12155087aeb6dba3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/europacific-metals-reports-high-grade-copper-discoveries-at-miguel-vacas-project-in-portugal)
+
+Pickup - [fishervista.com](https://fishervista.com/en/europacific-metals-advances-high-grade-copper-project-in-portugal/20245258)
+
+Pickup - [advos.io](https://advos.io/en/europacific-metals-announces-promising-drill-results-at-portuguese-copper-project/20245258)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/europacific-metals-reports-high-grade-copper-findings-in-portuguese-mining-project)
+ 
 
 
 

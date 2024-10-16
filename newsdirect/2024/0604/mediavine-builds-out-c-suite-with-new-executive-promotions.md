@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/mediavine-bui
 [Original/Source Press Release](https://newsdirect.com/news/mediavine-builds-out-c-suite-with-new-executive-promotions-525493247)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mediavine-appoints-amanda-martin-as-cro-and-jamie-lieberman-as-clo-coo/357b28dd56e9dce1d3b5233849836232) 
+
+ 
 
 
 

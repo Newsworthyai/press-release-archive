@@ -7,7 +7,9 @@ PALM BEACH COUNTY, FL, April 22, 2024 /24-7PressRelease/ -- Today, Payments visi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510210/payments-expert-and-former-banking-executive-launches-new-advisory-firm)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/payments-visionary-peter-gordon-launches-atlantic-fintech-advisors-afa/54a3781a46711cc8488807d005bf5970) 
+
+ 
 
 
 

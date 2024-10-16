@@ -59,7 +59,9 @@
 [Original/Source Press Release](https://www.newmediawire.com/news/grant-teaff-receives-paul-bear-bryant-lifetime-achievement-award-7076159)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/grant-teaff-to-receive-2025-paul-bear-bryant-lifetime-achievement-award/699cd542bf6fd73545d2cc83e0db0356) 
+
+ 
 
 
 

@@ -64,7 +64,9 @@ High Level Health Weed Dispensary, established in 2023, is a leading name in Den
 [Original/Source Press Release](https://newsworthy.ai/news/202402011051/high-level-health-market-st-elevating-denver-s-weed-experience-with-quality-products-and-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/high-level-health-weed-dispensary-continues-to-thrive-in-denver-s-cannabis-community/350636e24326073fa9c75bd604923a74) 
+
+ 
 
 
 

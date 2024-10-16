@@ -79,7 +79,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/government-em
 [Original/Source Press Release](https://newsdirect.com/news/government-employees-in-geneva-switzerland-accused-of-genocide-and-crimes-against-humanity-in-a-comprehensive-communication-filed-at-the-international-criminal-court-at-the-hague-863773288)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/geneva-child-protective-services-accused-of-genocide-and-crimes-against-humanity/7ba1dd0943f03b512476517c8153a1e8) 
+
+
+Pickup - [advos.io](https://advos.io/en/geneva-officials-accused-of-genocide-and-crimes-against-humanity-in-icc-filing/20243993)
+ 
 
 
 

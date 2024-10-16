@@ -19,7 +19,11 @@ IV Vitamin Therapy is gaining popularity due to its ability to deliver efficient
 [Original/Source Press Release](https://newsworthy.ai/news/20231228947/iv-vitamin-therapy-the-ultimate-solution-for-efficient-and-quick-results)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/expert-touts-benefits-of-iv-vitamin-therapy-for-health-and-well-being/f2e43ee1b18c6063e7df783a8bf207e9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/28/iv-vitamin-therapy-the-fast-track-to-optimal-health-and-wellness)
+ 
 
 
 

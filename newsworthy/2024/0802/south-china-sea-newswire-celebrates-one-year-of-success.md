@@ -17,7 +17,17 @@ Find the South China Sea NewsWire at the following link HERE.
 [Original/Source Press Release](https://newsworthy.ai/news/202408021224/south-china-sea-newswire-celebrates-one-year-of-success)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/south-china-sea-newswire-celebrates-first-anniversary-with-expanded-offerings/97a9759541aa5ae75cfabb4fcaf73038) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/south-china-sea-newswire-marks-first-anniversary-with-expanded-offerings-and-growing-readership)
+
+Pickup - [fishervista.com](https://fishervista.com/en/south-china-sea-newswire-celebrates-first-anniversary-with-expanding-impact/20245466)
+
+Pickup - [advos.io](https://advos.io/en/south-china-sea-newswire-celebrates-first-anniversary-of-success/20245466)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/south-china-sea-newswire-marks-first-anniversary-with-expanded-offerings-and-growing-readership)
+ 
 
 
 

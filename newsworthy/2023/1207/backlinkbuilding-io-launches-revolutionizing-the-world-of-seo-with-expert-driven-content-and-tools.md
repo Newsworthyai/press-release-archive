@@ -23,7 +23,11 @@ Unearth the secrets of SEO and backlink mastery at www.BacklinkBuilding.io. Emba
 [Original/Source Press Release](https://newsworthy.ai/news/20231207778/backlinkbuilding-io-launches-revolutionizing-the-world-of-seo-with-expert-driven-content-and-tools)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/backlinkbuilding-io-the-ultimate-resource-for-backlink-strategies-and-seo-expertise/430ee42a150159ef6b4c9da1fdc7ef9e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/07/backlinkbuilding-io-empowering-seo-mastery-through-expert-insights)
+ 
 
 
 

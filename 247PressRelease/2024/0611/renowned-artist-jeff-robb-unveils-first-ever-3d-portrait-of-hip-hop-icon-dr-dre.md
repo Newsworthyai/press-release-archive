@@ -7,7 +7,11 @@ LONDON, ENGLAND, June 11, 2024 /24-7PressRelease/ -- Acclaimed artist Jeff Robb 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511472/renowned-artist-jeff-robb-unveils-first-ever-3d-portrait-of-hip-hop-icon-dr-dre)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/acclaimed-artist-jeff-robb-unveils-groundbreaking-3d-portrait-of-dr-dre/a58658ab1e9ccd07f782b455c5660067) 
+
+
+Pickup - [advos.io](https://advos.io/en/jeff-robb-unveils-revolutionary-3d-portrait-of-hip-hop-legend-dr-dre/20244013)
+ 
 
 
 

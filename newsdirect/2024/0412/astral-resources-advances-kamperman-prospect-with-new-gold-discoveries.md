@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/astral-resour
 [Original/Source Press Release](https://newsdirect.com/news/astral-resources-advances-kamperman-prospect-with-new-gold-discoveries-273541436)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/astral-resources-advances-kamperman-prospect-with-new-gold-discoveries/8818c6332a75ec56b88531e968cbdea9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/astral-resources-advances-kamperman-prospect-with-new-gold-discoveries)
+ 
 
 
 

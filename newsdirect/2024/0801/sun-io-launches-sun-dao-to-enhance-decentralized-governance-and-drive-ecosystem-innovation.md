@@ -57,7 +57,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/sun-io-launch
 [Original/Source Press Release](https://newsdirect.com/news/sun-io-launches-sun-dao-to-enhance-decentralized-governance-and-drive-ecosystem-innovation-759577292)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sun-io-launches-sun-dao-to-enhance-decentralized-governance-and-drive-ecosystem-innovation/5bb075e5f5696982e20bfc4e47950f65) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/sun-io-introduces-sun-dao-a-new-era-of-decentralized-governance-in-defi)
+
+Pickup - [fishervista.com](https://fishervista.com/en/sun-io-launches-sun-dao-to-enhance-decentralized-governance-and-drive-ecosystem-innovation/20245405)
+
+Pickup - [advos.io](https://advos.io/en/sun-io-introduces-sun-dao-to-strengthen-decentralized-governance-and-foster-innovation/20245405)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/sun-io-launches-sun-dao-to-enhance-decentralized-governance-and-drive-ecosystem-innovation)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/sun-io-launches-sun-dao-to-enhance-decentralized-governance-and-drive-ecosystem-innovation)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/sun-io-unveils-sun-dao-a-new-era-of-decentralized-governance-in-defi)
+ 
 
 
 

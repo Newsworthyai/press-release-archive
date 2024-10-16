@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/novidea-wins-
 [Original/Source Press Release](https://newsdirect.com/news/novidea-wins-technology-innovation-award-from-propertycasualty360-629306956)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/novidea-named-to-propertycasualty360s-insurance-luminaries-class-of-2024/4d7c5f3c6245c6c9ece7b1456a07230c) 
+
+ 
 
 
 

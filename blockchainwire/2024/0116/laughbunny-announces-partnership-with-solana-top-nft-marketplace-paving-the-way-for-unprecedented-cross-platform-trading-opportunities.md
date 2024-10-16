@@ -39,7 +39,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/laughbunny-announces-partnership-with-solana-top-nft-marketplace-paving-the-way-for-unprecedented-cross-platform-trading-opportunities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/laughbunny-announces-partnership-with-solana-top-nft-marketplace/932e4af1621f81f797c9bc60cc21fd4b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/16/laughbunny-forges-strategic-alliance-with-solana-top-nft-marketplace)
+ 
 
 
 

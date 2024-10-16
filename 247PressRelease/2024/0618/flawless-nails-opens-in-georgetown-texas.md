@@ -7,7 +7,13 @@ GEORGETOWN, TX, June 18, 2024 /24-7PressRelease/ -- Prescilla Robin, a new tenan
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511770/flawless-nails-opens-in-georgetown-texas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-nail-salon-flawless-nails-opens-in-georgetown-tx/e9d23f511a1c1090d85ca2b473665c24) 
+
+
+Pickup - [advos.io](https://advos.io/en/flawless-nails-salon-opens-in-georgetown-tx-with-support-from-hill-country-salon-suites/20244229)
+
+Pickup - [fishervista.com](https://fishervista.com/en/flawless-nails-opens-in-georgetown-texas/20244229)
+ 
 
 
 

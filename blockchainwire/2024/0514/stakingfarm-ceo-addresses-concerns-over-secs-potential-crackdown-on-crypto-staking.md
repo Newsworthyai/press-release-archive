@@ -52,7 +52,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-ceo-addresses-concerns-over-secs-potential-crackdown-on-crypto-staking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-addresses-regulatory-concerns-in-crypto-staking-industry/513bab65c577c967953c2778fc337cde) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/stakingfarm-addresses-regulatory-concerns-in-crypto-staking-industry)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/stakingfarm-addresses-regulatory-concerns-in-crypto-staking-industry)
+ 
 
 
 

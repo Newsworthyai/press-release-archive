@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/eth-liquid-restaking-protocol-yieldnest-raises-52m-in-contribution-round)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/yieldnest-set-to-launch-yneth-after-5-2m-contribution-round/680e9d50bc4a913c4f66659deeb7bbb8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/yieldnest-raises-5-2m-to-revolutionize-liquid-restaking)
+ 
 
 
 

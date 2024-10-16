@@ -7,7 +7,15 @@ EDMONTON, AB, July 08, 2024 /24-7PressRelease/ -- Insight Works proudly celebrat
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512255/business-central-enhances-manufacturing-efficiency-with-free-graphical-scheduler-app)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/insight-works-celebrates-4th-anniversary-of-graphical-scheduler-app/971ba2cf5830e0da18e9315203bb30d5) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/business-central-boosts-manufacturing-with-free-graphical-scheduler-app/20244747)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/insight-works-celebrates-4-years-of-free-graphical-scheduler-app-for-business-central)
+
+Pickup - [advos.io](https://advos.io/en/business-central-boosts-manufacturing-with-free-graphical-scheduler-app/20244747)
+ 
 
 
 

@@ -71,7 +71,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitname-develops-a-name-service-specifically-designed-for-the-bitcoin-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitname-introduces-innovative-name-service-for-bitcoin-ecosystem/f0c5047f57f8c064d5cce88a256781c0) 
+
+
+Pickup - [advos.io](https://advos.io/en/bitname-launches-innovative-name-service-for-bitcoin-ecosystem/20243992)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitname-introduces-innovative-name-service-for-bitcoin-ecosystem)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitname-introduces-innovative-name-service-for-bitcoin-ecosystem)
+ 
 
 
 

@@ -75,7 +75,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/electronic-cr
 [Original/Source Press Release](https://newsdirect.com/news/electronic-credit-trading-approaching-inflection-point-in-ig-982354676)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/electronification-of-u-s-investment-grade-bond-trading-approaching-inflection-point/e1aeadbcd195d15d2e72f605334adb5e) 
+
+ 
 
 
 

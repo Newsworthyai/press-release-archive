@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-facilitated-the-transaction-of-deluxe-plumbing-and-heating-to-homex-services-group-214770336)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/deluxe-plumbing-heating-partners-with-homex-services-group-to-expand-services-and-opportunities/b93b127c3418b09700a8e1ab55a3c302) 
+
+ 
 
 
 

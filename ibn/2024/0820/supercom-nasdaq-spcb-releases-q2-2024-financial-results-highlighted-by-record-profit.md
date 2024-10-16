@@ -31,7 +31,13 @@ SuperCom (NASDAQ: SPCB), a global provider of secured solutions for the e-govern
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/supercom-nasdaq-spcb-releases-q2-2024-financial-results-highlighted-by-record-profit/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/supercom-nasdaq-spcb-reports-strong-q2-2024-financial-results/b72acd6421ef965315cb39dfd93e4f2e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/supercom-reports-record-profit-in-q2-2024-financial-results)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/supercom-reports-record-profit-in-q2-2024-financial-results/20246103)
+ 
 
 
 

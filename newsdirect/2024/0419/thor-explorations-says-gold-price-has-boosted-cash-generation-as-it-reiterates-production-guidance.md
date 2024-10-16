@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/thor-explorat
 [Original/Source Press Release](https://newsdirect.com/news/thor-explorations-says-gold-price-has-boosted-cash-generation-as-it-reiterates-production-guidance-130584243)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/thor-explorations-ltd-on-track-to-meet-gold-production-target-in-nigeria/f7e015373c6d4e33fa7de56af22e9ae3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/thor-explorations-says-gold-price-has-boosted-cash-generation-as-it-reiterates-production-guidance)
+ 
 
 
 

@@ -47,7 +47,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/influencers-a
 [Original/Source Press Release](https://newsdirect.com/news/influencers-are-driving-consumers-to-discount-clubs-and-major-retailers-like-costco-finds-izeas-latest-survey-258045693)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/influencers-driving-consumers-to-discount-clubs-and-major-retailers-like-costco-finds-izea-s-latest-survey/471b19510937aedefedb31acc904add4) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/influencers-drive-consumers-to-discount-clubs-and-major-retailers-reports-izea/20244455)
+
+Pickup - [advos.io](https://advos.io/en/influencers-drive-consumer-traffic-to-discount-clubs-and-retail-giants-finds-izea-survey/20244455)
+ 
 
 
 

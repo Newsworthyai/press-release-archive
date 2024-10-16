@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-next-6-mo
 [Original/Source Press Release](https://newsdirect.com/news/the-next-6-months-could-be-big-for-this-lithium-miner-282967398)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/li-ft-power-ceo-discusses-mineral-exploration-projects-on-benzinga-s-all-access/b841c2f25c8e603343d8a174b5f930be) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/li-ft-power-s-yellowknife-lithium-project-shows-promise-in-recent-data-release)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/li-ft-power-reports-promising-lithium-findings-at-yellowknife-project/20245609)
+
+Pickup - [advos.io](https://advos.io/en/li-ft-power-reports-promising-lithium-discoveries-in-yellowknife-project/20245609)
+
+Pickup - [fishervista.com](https://fishervista.com/en/li-ft-power-s-promising-lithium-discoveries-could-transform-the-industry/20245609)
+ 
 
 
 

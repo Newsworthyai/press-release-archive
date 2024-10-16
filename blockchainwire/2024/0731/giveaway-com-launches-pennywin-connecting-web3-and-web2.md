@@ -39,7 +39,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/giveawaycom-launches-pennywin-connecting-web3-and-web2)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/giveaway-com-launches-pennywin-revolutionizing-sweepstakes-with-cryptocurrency-rewards/f6e0c372ba149330fe3f62b91cab9f46) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/giveaway-com-introduces-pennywin-bridging-web2-and-web3-with-innovative-sweepstakes-platform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/giveaway-com-unveils-pennywin-to-bridge-web2-and-web3-with-engaging-sweepstakes/20245399)
+
+Pickup - [advos.io](https://advos.io/en/giveaway-com-unveils-pennywin-to-bridge-web2-and-web3-with-engaging-sweepstakes/20245399)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/giveaway-com-launches-pennywin-revolutionizing-sweepstakes-with-cryptocurrency-rewards)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/giveaway-com-launches-pennywin-revolutionizing-sweepstakes-with-cryptocurrency-rewards)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/giveaway-com-launches-pennywin-bridging-web2-and-web3-through-innovative-sweepstakes-platform)
+ 
 
 
 

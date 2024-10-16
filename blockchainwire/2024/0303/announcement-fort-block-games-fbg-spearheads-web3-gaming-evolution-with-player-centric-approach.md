@@ -7,7 +7,11 @@ Florida USA, 29th of February, 2024 - Lion’s Share Group proudly unveils Fort 
 [Original/Source Press Release](https://blockchainwire.io/press-release/announcement-fort-block-games-fbg-spearheads-web3-gaming-evolution-with-player-centric-approach)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fort-block-games-pioneering-gamefi-initiative-revolutionizes-gaming-sector/12cca04e65fc22942b082a45f16737ab) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/03/fort-block-games-pioneers-web3-gaming-with-player-centric-approach)
+ 
 
 
 

@@ -260,7 +260,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/sigma-announc
 [Original/Source Press Release](https://newsdirect.com/news/sigma-announces-24-70mm-f2-8-dg-dn-ii-art-lens-an-upgraded-follow-up-to-its-popular-standard-zoom-for-full-frame-mirrorless-cameras-492585571)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sigma-unveils-upgraded-24-70mm-f2-8-dg-dn-ii-art-lens-for-full-frame-mirrorless-cameras/15574384b92b019396775356e62bec95) 
+
+ 
 
 
 

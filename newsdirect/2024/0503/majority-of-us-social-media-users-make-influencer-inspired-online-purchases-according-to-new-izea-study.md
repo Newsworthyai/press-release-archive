@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/majority-of-u
 [Original/Source Press Release](https://newsdirect.com/news/majority-of-us-social-media-users-make-influencer-inspired-online-purchases-according-to-new-izea-study-636697276)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-izea-study-reveals-majority-of-us-social-media-users-make-influencer-inspired-online-purchases/dbe9f4582a0e1a2ee4a4061fbfe7392d) 
+
+ 
 
 
 

@@ -51,7 +51,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ai-doctor-eme
 [Original/Source Press Release](https://newsdirect.com/news/ai-doctor-emerges-on-bitget-transforming-healthcare-and-crypto-with-unice-737378882)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-ai-healthcare-token-unice-emerges-on-bitget/3664459679f611e2c8ca48b9de10c58c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/ai-doctor-emerges-on-bitget-transforming-healthcare-and-crypto-with-unice)
+ 
 
 
 

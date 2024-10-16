@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kme-insurance
 [Original/Source Press Release](https://newsdirect.com/news/kme-insurance-brokerage-partners-with-icon-915767602)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/icon-partners-with-kme-insurance-brokerage-to-expand-services-and-resources/1bd6e87660603197437f426636b2ba65) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/kme-insurance-brokerage-partners-with-icon-to-strengthen-services)
+ 
 
 
 

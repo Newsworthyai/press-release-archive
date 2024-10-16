@@ -17,7 +17,13 @@ View original content to download multimedia: https://newsdirect.com/news/whats-
 [Original/Source Press Release](https://newsdirect.com/news/whats-trending-now-summer-must-haves-284758297)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/summer-must-haves-what-s-trending-now/1fe92ca5e8b98a20cb0586a5804a8cc9) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/summer-must-haves-what-s-trending-now/20244541)
+
+Pickup - [advos.io](https://advos.io/en/what-s-trending-now-essential-summer-must-haves/20244541)
+ 
 
 
 

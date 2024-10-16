@@ -69,7 +69,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/seal-coins-pinksale-fair-launch-dive-into-the-memecoin-craze-until-april-18th-ride-the-wave-of-opportunity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/seal-coin-launches-pinksale-fairlaunch-for-crypto-enthusiasts/32b476a53441c300ace0706f5940870d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/seal-coin-s-pinksale-fair-launch-riding-the-memecoin-wave)
+ 
 
 
 

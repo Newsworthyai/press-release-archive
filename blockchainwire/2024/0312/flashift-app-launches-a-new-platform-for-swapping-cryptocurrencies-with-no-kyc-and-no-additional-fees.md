@@ -53,7 +53,11 @@ Yes, Flashift partners exclusively with reputable cryptocurrency swap exchanges.
 [Original/Source Press Release](https://blockchainwire.io/press-release/flashiftapp-launches-a-new-platform-for-swapping-cryptocurrencies-with-no-kyc-and-no-additional-fees)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/flashift-transforming-cryptocurrency-exchanges/1d88725959fe4ee548670716e7aec52f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/flashift-revolutionizes-cryptocurrency-swapping-with-no-kyc-and-zero-fees)
+ 
 
 
 

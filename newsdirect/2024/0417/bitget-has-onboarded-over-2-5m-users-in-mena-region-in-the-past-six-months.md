@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-has-on
 [Original/Source Press Release](https://newsdirect.com/news/bitget-has-onboarded-over-2-5m-users-in-mena-region-in-the-past-six-months-165061077)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-reports-rapid-growth-in-mena-region-plans-to-strengthen-operations/f773da483691a8c8c8b2ca72a7c6aecc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/bitget-expands-crypto-reach-in-middle-east-and-north-africa)
+ 
 
 
 

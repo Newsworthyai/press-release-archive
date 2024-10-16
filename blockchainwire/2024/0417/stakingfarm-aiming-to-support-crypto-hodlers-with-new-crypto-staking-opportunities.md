@@ -62,7 +62,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-aiming-to-support-crypto-hodlers-with-new-crypto-staking-opportunities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-launches-new-staking-packages-to-support-hodlers/df7327a93a8e38c0e874eba4cd7bfea3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/stakingfarm-aiming-to-support-crypto-hodlers-with-new-crypto-staking-opportunities)
+ 
 
 
 

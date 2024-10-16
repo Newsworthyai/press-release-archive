@@ -15,7 +15,9 @@ With IV Ketamine Therapy, residents of McKinney now have access to a cutting-edg
 [Original/Source Press Release](https://newsworthy.ai/news/202401231019/mckinney-introduces-groundbreaking-iv-ketamine-therapy-a-rapid-and-effective-treatment-for-mental-health-conditions-and-chronic-pain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/groundbreaking-iv-ketamine-therapy-now-available-in-mckinney/b4dbf6b42dbb07a5980d9944f7aa815e) 
+
+ 
 
 
 

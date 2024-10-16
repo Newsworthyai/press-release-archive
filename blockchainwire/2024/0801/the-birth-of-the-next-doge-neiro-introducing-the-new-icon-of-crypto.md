@@ -57,7 +57,21 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-birth-of-the-next-doge-neiro-introducing-the-new-icon-of-crypto)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rescue-dog-neiro-inspires-new-neiro-cryptocurrency-on-solana-blockchain/4cd93e52e898135b641780db2c46b958) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-cryptocurrency-neiro-launched-inspired-by-dogecoin-legacy/20245458)
+
+Pickup - [advos.io](https://advos.io/en/new-cryptocurrency-neiro-inspired-by-rescue-dog-neiro-gains-momentum-on-solana/20245458)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/rescue-dog-neiro-inspires-new-neiro-cryptocurrency-on-solana-blockchain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/rescue-dog-neiro-inspires-new-neiro-cryptocurrency-on-solana-blockchain)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/new-cryptocurrency-neiro-emerges-as-potential-successor-to-dogecoin)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/rescue-dog-neiro-inspires-new-cryptocurrency-neiro-on-solana-blockchain)
+ 
 
 
 

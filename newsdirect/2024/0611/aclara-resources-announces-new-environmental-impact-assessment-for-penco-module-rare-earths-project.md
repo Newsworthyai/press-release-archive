@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/aclara-resour
 [Original/Source Press Release](https://newsdirect.com/news/aclara-resources-announces-new-environmental-impact-assessment-for-penco-module-rare-earths-project-152854685)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aclara-resources-announces-new-environmental-impact-assessment-for-penco-module-rare-earths-project/2f3f5d7eb42d31ccb01a767285e433c3) 
+
+
+Pickup - [advos.io](https://advos.io/en/aclara-resources-files-new-eia-for-penco-module-rare-earths-project/20244042)
+ 
 
 
 

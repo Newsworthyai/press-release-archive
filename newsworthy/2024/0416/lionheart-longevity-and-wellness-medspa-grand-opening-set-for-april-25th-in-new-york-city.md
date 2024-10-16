@@ -35,7 +35,11 @@ leonhardtventures.com
 [Original/Source Press Release](https://newsworthy.ai/news/20240416981/lionheart-longevity-wellness-medspa-grand-opening-set-for-march-31-2024-new-york-manhattan-location)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lionheart-health-opens-flagship-medspa-in-nyc-with-cutting-edge-regenerative-aesthetics/347554fcf216a393870afdf2b396bd8e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/lionheart-longevity-and-wellness-medspa-announces-grand-opening-in-new-york-city)
+ 
 
 
 

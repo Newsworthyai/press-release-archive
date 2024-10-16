@@ -7,7 +7,11 @@ NEWPORT, OR, April 03, 2024 /24-7PressRelease/ -- Julia M. Carlson has been hono
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509764/julia-m-carlson-named-by-barrons-as-one-of-americas-top-financial-advisors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/julia-m-carlson-honored-as-barron-s-2024-top-financial-advisor/7597b71d5caffc508a2e82bc8505bd5b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/julia-m-carlson-honored-as-top-financial-advisor-by-barron-s)
+ 
 
 
 

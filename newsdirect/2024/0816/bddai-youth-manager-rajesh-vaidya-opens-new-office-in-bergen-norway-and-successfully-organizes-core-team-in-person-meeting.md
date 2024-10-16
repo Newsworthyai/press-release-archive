@@ -59,7 +59,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/bddai-youth-m
 [Original/Source Press Release](https://newsdirect.com/news/bddai-youth-manager-rajesh-vaidya-opens-new-office-in-bergen-norway-and-successfully-organizes-core-team-in-person-meeting-165935133)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bddai-youth-manager-rajesh-vaidya-opens-new-office-in-bergen-norway-and-organizes-core-team-meeting/bde9af1b3b492f248a06fc371252d4ac) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/16/bddai-expands-global-presence-with-new-office-in-bergen-norway)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bddai-expands-to-bergen-norway-with-new-office-and-strategic-in-person-meeting/20245792)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bddai-expands-to-norway-with-new-office-in-bergen/20245792)
+
+Pickup - [advos.io](https://advos.io/en/bddai-expands-to-nordic-market-with-new-office-in-bergen-norway/20245792)
+ 
 
 
 

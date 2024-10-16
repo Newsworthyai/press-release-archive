@@ -64,7 +64,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/rising-credit
 [Original/Source Press Release](https://newsdirect.com/news/rising-credit-card-debt-fuels-unprecedented-stress-levels-aggravating-mental-health-issues-272658105)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rising-credit-card-debt-fuels-unprecedented-stress-levels-aggravating-mental-health-issues/586d04d6c6e009151a9ce06fcd63548a) 
+
+ 
 
 
 

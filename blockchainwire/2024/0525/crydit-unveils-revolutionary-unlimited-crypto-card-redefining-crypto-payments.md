@@ -70,7 +70,13 @@ https://www.youtube.com/channel/UCuhDgAan7HQhvdftRb-DnfA
 [Original/Source Press Release](https://blockchainwire.io/press-release/crydit-unveils-revolutionary-unlimited-crypto-card-redefining-crypto-payments)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crydit-launches-first-unlimited-crypto-card-to-revolutionize-payment-industry/c88df1980320e8b2c07751b735771292) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/crydit-launches-first-unlimited-crypto-card-to-revolutionize-payment-industry)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/crydit-launches-first-unlimited-crypto-card-to-revolutionize-payment-industry)
+ 
 
 
 

@@ -31,7 +31,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitharvest-introduces-bitbooster---bridging-the-market-gap-between-mining-farms-and-miners)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitharvest-launches-revolutionary-bitbooster-program/b00d740ea13b5b1a52f5da41925de22d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/02/bitharvest-unveils-bitbooster-revolutionizing-digital-mining-accessibility)
+ 
 
 
 

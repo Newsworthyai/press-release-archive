@@ -47,7 +47,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/teccrypto-sets-industry-standards-with-carbon-neutral-mining-operations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teccrypto-com-transitions-to-carbon-neutral-operations-in-landmark-move-for-sustainable-bitcoin-mining/be58c7734d66e3fa64b6443087c7be94) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/20/teccrypto-pioneers-carbon-neutral-bitcoin-mining)
+ 
 
 
 

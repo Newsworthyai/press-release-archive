@@ -37,7 +37,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/valuezone-anticipates-ethereum-surge-as-etfs-expected-to-drive-4b-inflows)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/valuezone-prepares-for-surge-in-ethereum-trading-due-to-etf-influx/0c4071badeef045ac189f9effa0695a8) 
+
+
+Pickup - [advos.io](https://advos.io/en/valuezone-anticipates-ethereum-surge-with-4b-inflows-expected-from-etfs/20243964)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/valuezone-prepares-for-surge-in-ethereum-trading-due-to-etf-influx)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/valuezone-prepares-for-surge-in-ethereum-trading-due-to-etf-influx)
+ 
 
 
 

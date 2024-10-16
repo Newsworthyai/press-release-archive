@@ -67,7 +67,21 @@ About The Bitcoin Startup Lab: The Bitcoin Startup Lab is a premier accelerator 
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitangels-network-hosts-blockchain-pitch-competition-in-nashville)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitangels-network-announces-bitcoin-2024-pitch-competition-in-nashville/99214397310f11674ed907be14aee9b1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/bitangels-network-to-host-major-blockchain-pitch-competition-at-bitcoin-2024-in-nashville)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitangels-network-to-host-blockchain-pitch-competition-at-bitcoin-2024-in-nashville/20245199)
+
+Pickup - [advos.io](https://advos.io/en/bitangels-network-to-host-blockchain-pitch-competition-in-nashville/20245199)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitangels-network-announces-bitcoin-2024-pitch-competition-in-nashville)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitangels-network-announces-bitcoin-2024-pitch-competition-in-nashville)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bitangels-network-to-host-major-blockchain-pitch-competition-at-bitcoin-2024-in-nashville)
+ 
 
 
 

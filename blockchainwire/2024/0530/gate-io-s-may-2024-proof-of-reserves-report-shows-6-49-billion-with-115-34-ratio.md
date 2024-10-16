@@ -11,7 +11,13 @@ Gate.io Total Reserves: $6,492,214,095Excess Reserves: $863,807,685Reserve-Depos
 [Original/Source Press Release](https://blockchainwire.io/press-release/gateios-may-2024-proof-of-reserves-report-shows-649-billion-with-11534-ratio)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gate-io-publishes-may-2024-proof-of-reserves-report/aa7e2d6a58dda2b1e819dc182c0f588d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gate-io-publishes-may-2024-proof-of-reserves-report)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gate-io-publishes-may-2024-proof-of-reserves-report)
+ 
 
 
 

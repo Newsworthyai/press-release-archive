@@ -7,7 +7,9 @@ COLLIE, AUSTRALIA, September 19, 2024 /24-7PressRelease/ -- PCRS proudly announc
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514472/faith-in-action)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/groundbreaking-book-the-key-unlocking-christianity-transforms-lives-in-the-christian-community/005c0add010a7641c12716a4651ab1c3) 
+
+ 
 
 
 

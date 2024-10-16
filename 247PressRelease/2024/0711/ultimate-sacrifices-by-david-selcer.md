@@ -7,7 +7,15 @@ COLUMBUS, OH, July 11, 2024 /24-7PressRelease/ -- "Ultimate Sacrifices," a rivet
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512447/ultimate-sacrifices-by-david-selcer)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-release-ultimate-sacrifices-a-riveting-political-thriller-by-david-selcer-now-available-nationwide/3d3267a259bf383f914857604fd2b4f2) 
+
+
+Pickup - [advos.io](https://advos.io/en/ultimate-sacrifices-by-david-selcer-a-riveting-political-thriller-now-available-nationwide/20244861)
+
+Pickup - [fishervista.com](https://fishervista.com/en/david-selcer-releases-gripping-political-thriller-ultimate-sacrifices/20244861)
+
+Pickup - [citybuzz.co](https://citybuzz.co/david-selcer-s-ultimate-sacrifices-explores-political-intrigue-and-personal-courage-in-new-thriller)
+ 
 
 
 

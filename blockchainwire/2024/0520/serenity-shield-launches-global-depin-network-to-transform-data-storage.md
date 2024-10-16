@@ -39,7 +39,13 @@ About Serenity Shield
 [Original/Source Press Release](https://blockchainwire.io/press-release/serenity-shield-launches-global-depin-network-to-transform-data-storage)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/serenity-shield-launches-inaugural-decentralized-storage-facility-in-muscat-oman/c6bb45afe1a191f27bb755aae4da1a44) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/serenity-shield-launches-inaugural-decentralized-storage-facility-in-muscat-oman)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/serenity-shield-launches-inaugural-decentralized-storage-facility-in-muscat-oman)
+ 
 
 
 

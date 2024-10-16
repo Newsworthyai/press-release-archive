@@ -44,7 +44,19 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202409031252/hr-com-announces-2025-future-of-learning-technologies-advisory-board-to-lead-groundbreaking-research-and-virtual-event)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-announces-future-of-learning-technologies-advisory-board-2025/66710102d483f6be16f0c4ea062464c8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/hr-com-unveils-2025-future-of-learning-technologies-advisory-board-for-cutting-edge-research)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hr-com-announces-2025-future-of-learning-technologies-advisory-board-to-lead-industry-research-and-virtual-event/20246479)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/hr-com-unveils-2025-future-of-learning-technologies-advisory-board-for-cutting-edge-research/20246479)
+
+Pickup - [advos.io](https://advos.io/en/hr-com-unveils-2025-future-of-learning-technologies-advisory-board/20246479)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-com-unveils-2025-future-of-learning-technologies-advisory-board-for-cutting-edge-research/20246479)
+ 
 
 
 

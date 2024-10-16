@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/blofin-sponso
 [Original/Source Press Release](https://newsdirect.com/news/blofin-sponsors-token2049-dubai-and-celebrates-the-sideevent-whalesnight-afterparty-2024-665341179)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blofin-shines-at-token2049-dubai-and-whalesnight-afterparty-2024/1d49b47215fee859d7a5708cad4c99b1) 
+
+ 
 
 
 

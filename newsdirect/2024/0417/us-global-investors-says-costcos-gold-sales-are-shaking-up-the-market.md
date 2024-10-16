@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/us-global-inv
 [Original/Source Press Release](https://newsdirect.com/news/us-global-investors-says-costcos-gold-sales-are-shaking-up-the-market-692699741)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-global-investors-ceo-discusses-enduring-allure-of-gold-and-recent-market-dynamics/cc857c5f806af57e7827d89e6e580949) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/us-global-investors-says-costco-s-gold-sales-are-shaking-up-the-market)
+ 
 
 
 

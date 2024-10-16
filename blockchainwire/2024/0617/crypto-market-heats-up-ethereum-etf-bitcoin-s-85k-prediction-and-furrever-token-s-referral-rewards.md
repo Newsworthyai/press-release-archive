@@ -29,7 +29,15 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-market-heats-up-ethereum-etf-bitcoins-85k-prediction-and-furrever-tokens-referral-rewards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-etf-bitcoin-surge-and-furrever-token-referral-rewards-shake-up-crypto-market/7f8f1e685840df00d0a0134f3f7ecacf) 
+
+
+Pickup - [advos.io](https://advos.io/en/crypto-landscape-heats-up-with-ethereum-etf-bitcoin-s-85k-prediction-and-furrever-token-s-referral-rewards/20244207)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ethereum-etf-bitcoin-surge-and-furrever-token-referral-rewards-shake-up-crypto-market)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ethereum-etf-bitcoin-surge-and-furrever-token-referral-rewards-shake-up-crypto-market)
+ 
 
 
 

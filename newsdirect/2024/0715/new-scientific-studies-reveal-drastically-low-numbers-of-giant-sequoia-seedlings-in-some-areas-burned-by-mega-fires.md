@@ -61,7 +61,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-scientifi
 [Original/Source Press Release](https://newsdirect.com/news/new-scientific-studies-reveal-drastically-low-numbers-of-giant-sequoia-seedlings-in-some-areas-burned-by-mega-fires-909574922)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/recent-studies-uncover-drastically-low-numbers-of-giant-sequoia-seedlings-in-areas-burned-by-mega-fires/a6cb0803100dc34cb290e0acc74fd99d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/giant-sequoia-recovery-in-jeopardy-new-studies-reveal-alarming-seedling-shortage-after-mega-fires)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-studies-show-alarming-decline-in-giant-sequoia-seedlings-post-mega-fires/20244963)
+
+Pickup - [advos.io](https://advos.io/en/studies-show-alarming-decline-in-giant-sequoia-seedlings-post-mega-fires/20244963)
+ 
 
 
 

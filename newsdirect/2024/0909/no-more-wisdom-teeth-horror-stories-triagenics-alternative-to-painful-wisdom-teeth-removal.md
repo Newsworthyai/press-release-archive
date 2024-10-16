@@ -61,7 +61,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/no-more-wisdo
 [Original/Source Press Release](https://newsdirect.com/news/no-more-wisdom-teeth-horror-stories-triagenics-alternative-to-painful-wisdom-teeth-removal-906655691)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/triagenics-disrupts-wisdom-teeth-removal-with-zero3-tba-technology/f9c43d8136a585d44fab301ff4e45272) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/revolutionary-dental-technology-aims-to-prevent-wisdom-teeth-formation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/triagenics-introduces-zero3-tba-a-potential-end-to-painful-wisdom-teeth-removal/20246620)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/revolutionary-dental-technology-aims-to-prevent-wisdom-teeth-formation/20246620)
+
+Pickup - [advos.io](https://advos.io/en/triagenics-unveils-zero3-tba-a-potential-game-changer-in-wisdom-teeth-management/20246620)
+ 
 
 
 

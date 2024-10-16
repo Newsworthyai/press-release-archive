@@ -7,7 +7,9 @@ WASHINGTON, DC, October 15, 2024 /24-7PressRelease/ -- Export Controls and Sanct
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515158/former-usg-export-control-veterans-create-new-international-advisory-and-public-benefit-company)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ecs-advisors-celebrates-first-anniversary-as-leading-international-export-controls-and-sanctions-consulting-firm/7d3f26e9a248b278ea74c85b580fec87) 
+
+ 
 
 
 

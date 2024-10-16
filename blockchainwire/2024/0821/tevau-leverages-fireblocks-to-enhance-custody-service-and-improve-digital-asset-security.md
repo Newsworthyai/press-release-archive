@@ -9,7 +9,17 @@ Tevau is committed to providing its users with seamless access to financial serv
 [Original/Source Press Release](https://blockchainwire.io/press-release/tevau-leverages-fireblocks-to-enhance-custody-service-and-improve-digital-asset-security)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/tevau-enhances-digital-asset-security-with-fireblocks-integration)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tevau-enhances-digital-asset-security-with-fireblocks-partnership/20245870)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/tevau-enhances-digital-asset-security-through-fireblocks-partnership/20245870)
+
+Pickup - [advos.io](https://advos.io/en/tevau-collaborates-with-fireblocks-to-strengthen-digital-asset-security/20245870)
+ 
 
 
 

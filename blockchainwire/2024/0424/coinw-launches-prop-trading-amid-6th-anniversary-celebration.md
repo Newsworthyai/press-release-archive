@@ -37,7 +37,11 @@ CoinW PropTrading is now accepting applications and has launched the "Warriors o
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-launches-prop-trading-amid-6th-anniversary-celebration-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-exchange-marks-6th-year-with-rebranding-and-introduction-of-proprietary-trading-product/3590f7427e4cd0f650e94c9e15f80fba) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/coinw-launches-prop-trading-amid-6th-anniversary-celebration)
+ 
 
 
 

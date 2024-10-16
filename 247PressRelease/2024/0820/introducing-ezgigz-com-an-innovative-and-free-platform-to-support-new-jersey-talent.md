@@ -7,7 +7,17 @@ OCEAN GROVE, NJ, August 20, 2024 /24-7PressRelease/ -- EZGigz.com, an innovative
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513547/introducing-ezgigzcom-an-innovative-and-free-platform-to-support-new-jersey-talent)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-platform-ezgigz-com-connects-new-jersey-venues-with-local-entertainment-and-food-trucks/8d685bbeae800776ddde59c1d56e3726) 
+
+
+Pickup - [advos.io](https://advos.io/en/ezgigz-com-launches-to-support-new-jersey-talent-with-free-event-booking-platform/20245825)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/ezgigz-com-launches-free-platform-to-connect-new-jersey-venues-with-local-talent)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ezgigz-com-launches-to-revolutionize-local-entertainment-scene-in-new-jersey/20245825)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ezgigz-com-launches-free-platform-to-connect-new-jersey-venues-with-local-talent/20245825)
+ 
 
 
 

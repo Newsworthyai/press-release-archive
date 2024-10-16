@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/volt-resource
 [Original/Source Press Release](https://newsdirect.com/news/volt-resources-pursues-non-dilutive-funding-programs-eyes-over-150-million-in-potential-funding-210758897)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/volt-resources-secures-funding-and-explores-grant-opportunities/51f7944e77beb70d55370ee63e837f28) 
+
+ 
 
 
 

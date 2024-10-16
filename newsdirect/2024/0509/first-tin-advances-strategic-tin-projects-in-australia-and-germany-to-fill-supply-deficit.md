@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/first-tin-adv
 [Original/Source Press Release](https://newsdirect.com/news/first-tin-advances-strategic-tin-projects-in-australia-and-germany-to-fill-supply-deficit-638681539)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/first-tin-plc-advances-strategic-tin-projects-in-australia-and-germany/d723468869dd114ef56a9a41301fe432) 
+
+ 
 
 
 

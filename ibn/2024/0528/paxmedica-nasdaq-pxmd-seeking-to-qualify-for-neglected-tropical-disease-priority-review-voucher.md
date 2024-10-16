@@ -25,7 +25,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/paxmedica-nasdaq-pxmd-seeking-to-qualify-for-neglected-tropical-disease-priority-review-voucher/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/paxmedica-receives-urgent-plea-from-malawi-ministry-of-health-for-iv-suramin-access/930a56219c86b29bd0c52eb29a399d81) 
+
+ 
 
 
 

@@ -37,7 +37,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/box-gamefi-innovation-in-entertainment-integration-of-blockchain-technology-and-monopoly)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/box-gamefi-revolutionizes-gaming-with-blockchain-enabled-monopoly-platform/5b0410e461cc777a1b3ea44869644062) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/box-gamefi-revolutionizes-gaming-with-blockchain-enabled-monopoly-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/box-gamefi-revolutionizes-gaming-with-blockchain-enabled-monopoly-platform)
+ 
 
 
 

@@ -7,7 +7,13 @@ WILMINGTON, NC, June 22, 2024 /24-7PressRelease/ -- Richard McMaster, author of 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511874/historical-fiction-ebook-aarons-war-a-gripping-tale-of-one-jewish-soldiers-moral-dilemma-and-struggles-with-ptsd-during-wwii-available-at-no-charge-june-24-through-june-26-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aaron-s-war-ebook-available-for-free-on-amazon/f37e9d2a22b2440d5da72c65e7718244) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/aaron-s-war-a-wwii-tale-of-moral-conflict-and-ptsd-available-for-free/20244394)
+
+Pickup - [advos.io](https://advos.io/en/aaron-s-war-wwii-historical-fiction-ebook-free-on-amazon-june-24-26-2024/20244394)
+ 
 
 
 

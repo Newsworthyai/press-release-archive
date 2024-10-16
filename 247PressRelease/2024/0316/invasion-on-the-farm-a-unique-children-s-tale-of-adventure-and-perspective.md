@@ -7,7 +7,11 @@ SPRINGFIELD, MO, March 16, 2024 /24-7PressRelease/ -- Amazon Kindle is thrilled 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509315/invasion-on-the-farm-a-unique-childrens-tale-of-adventure-and-perspective)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-children-s-book-invasion-on-the-farm-takes-readers-on-an-epic-adventure/76df63a841ce1e8b0bf0ca647437aece) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/16/invasion-on-the-farm-a-whimsical-journey-through-a-child-s-eyes)
+ 
 
 
 

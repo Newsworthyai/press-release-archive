@@ -7,7 +7,9 @@ NEW YORK, NY, June 04, 2024 /24-7PressRelease/ -- A wrongful death attorney has 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510847/what-a-wrongful-death-attorney-can-do-for-you-in-new-york)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/experienced-wrongful-death-attorney-in-new-york-offers-guidance-and-representation/159541cd0149af2abb317368a29c2a03) 
+
+ 
 
 
 

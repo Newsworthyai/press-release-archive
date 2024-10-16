@@ -33,7 +33,13 @@ Scinai Immunotherapeutics (NASDAQ: SCNI), a biopharmaceutical company focused o
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/scinai-immunotherapeutics-nasdaq-scni-eib-close-on-loan-restructuring-agreement/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scinai-immunotherapeutics-closes-loan-restructuring-agreement-with-european-investment-bank/5b7e390483737107ab06e821e99a06ad) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/scinai-immunotherapeutics-finalizes-loan-restructuring-agreement-with-european-investment-bank)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/scinai-immunotherapeutics-finalizes-loan-restructuring-with-european-investment-bank/20246096)
+ 
 
 
 

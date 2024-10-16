@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/quetzal-coppe
 [Original/Source Press Release](https://newsdirect.com/news/quetzal-copper-announces-positive-sampling-results-and-upcoming-drill-program-at-cristinas-project-118840566)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quetzal-copper-ceo-announces-positive-results-at-cristinas-project/1298756f33408efc607a5b65008c6af1) 
+
+ 
 
 
 

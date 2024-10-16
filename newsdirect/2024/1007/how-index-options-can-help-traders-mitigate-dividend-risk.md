@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-index-opt
 [Original/Source Press Release](https://newsdirect.com/news/how-index-options-can-help-traders-mitigate-dividend-risk-203931959)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/options-trading-volume-rises-impact-of-dividends-and-mitigating-assignment-risk/1e3c8115c9689d3b14fd72e9f497d541) 
+
+ 
 
 
 

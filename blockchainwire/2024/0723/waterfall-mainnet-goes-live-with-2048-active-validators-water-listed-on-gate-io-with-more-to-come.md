@@ -23,7 +23,19 @@ Media contact: bluewave@transformgroup.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/waterfall-mainnet-goes-live-with-2048--active-validators-water-listed-on-gateio-with-more-to-come)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/waterfall-network-mainnet-launch-and-water-token-listing-on-gate-io/5edf59c4f1a7f4cf0545d115964eac7f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/waterfall-network-launches-mainnet-with-2048-active-validators-water-token-listed-on-gate-io)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/waterfall-network-mainnet-launch-and-water-token-listing-on-gate-io)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/waterfall-network-mainnet-launch-and-water-token-listing-on-gate-io)
+
+Pickup - [fishervista.com](https://fishervista.com/en/waterfall-mainnet-launches-with-over-2000-validators-and-water-token-listed-on-gate-io/20245178)
+
+Pickup - [advos.io](https://advos.io/en/waterfall-mainnet-launches-with-2048-active-validators-water-token-debuts-on-gate-io/20245178)
+ 
 
 
 

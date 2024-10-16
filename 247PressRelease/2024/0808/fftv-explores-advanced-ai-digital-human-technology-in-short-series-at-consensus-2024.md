@@ -7,7 +7,21 @@ AUSTIN, TX, August 08, 2024 /24-7PressRelease/ -- At Consensus 2024, a gathering
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513161/fftv-explores-advanced-ai-digital-human-technology-in-short-series-at-consensus-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-digital-human-technology-revolutionizes-short-series-production/a204d18cf869d68f0e318d67e68194fc) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ai-digital-human-technology-revolutionizes-short-series-production)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ai-digital-human-technology-revolutionizes-short-series-production)
+
+Pickup - [fishervista.com](https://fishervista.com/en/fftv-unveils-advanced-ai-digital-human-technology-at-consensus-2024/20245575)
+
+Pickup - [advos.io](https://advos.io/en/fftv-unveils-ai-digital-human-technology-at-consensus-2024/20245575)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/fftv-unveils-ai-digital-human-technology-for-short-series-at-consensus-2024/20245575)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/fftv-unveils-revolutionary-ai-digital-human-technology-for-short-series-at-consensus-2024)
+ 
 
 
 

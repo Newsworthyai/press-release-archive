@@ -17,7 +17,9 @@ NTX is proud to give individuals in Eugene, OR, access to cutting-edge ketamine 
 [Original/Source Press Release](https://newsworthy.ai/news/202402191072/ntx-presents-ketamine-treatment-a-promising-solution-for-mental-health-conditions-in-eugene-or)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-ketamine-treatment-offers-hope-for-mental-health-conditions/a2aeda483ca3a1b2426fb03eeb420dc9) 
+
+ 
 
 
 

@@ -7,7 +7,19 @@ NEW YORK, NY, July 19, 2024 /24-7PressRelease/ -- The recent surge in market cap
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512667/jpmorgans-bitcoin-miner-market-cap-surges-22-following-ai-hosting-deal)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jpmorgan-bitcoin-mining-market-cap-surges-industry-leaders-weigh-in/f7a835c1914558702354ee1aca392cd5) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/jpmorgan-bitcoin-mining-market-cap-surges-industry-leaders-weigh-in)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/jpmorgan-bitcoin-mining-market-cap-surges-industry-leaders-weigh-in)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/19/jpmorgan-s-bitcoin-mining-venture-sees-22-market-cap-surge-after-ai-hosting-deal)
+
+Pickup - [fishervista.com](https://fishervista.com/en/jpmorgan-s-bitcoin-miner-market-cap-soars-by-22-following-strategic-ai-hosting-deal/20245103)
+
+Pickup - [advos.io](https://advos.io/en/jpmorgan-s-bitcoin-miner-market-cap-skyrockets-22-post-ai-hosting-deal/20245103)
+ 
 
 
 

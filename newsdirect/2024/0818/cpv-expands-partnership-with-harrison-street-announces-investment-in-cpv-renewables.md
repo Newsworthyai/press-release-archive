@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/cpv-expands-p
 [Original/Source Press Release](https://newsdirect.com/news/cpv-expands-partnership-with-harrison-street-announces-investment-in-cpv-renewables-609705313)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cpv-group-and-harrison-street-expand-strategic-partnership/3740a81317c1dad7f59c888890198182) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/18/cpv-and-harrison-street-expand-partnership-to-accelerate-renewable-energy-development)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cpv-and-harrison-street-expand-strategic-partnership-to-boost-renewable-energy-initiatives/20245804)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cpv-and-harrison-street-expand-partnership-to-accelerate-renewable-energy-development/20245804)
+
+Pickup - [advos.io](https://advos.io/en/cpv-expands-partnership-with-harrison-street-announces-investment-in-cpv-renewables/20245804)
+ 
 
 
 

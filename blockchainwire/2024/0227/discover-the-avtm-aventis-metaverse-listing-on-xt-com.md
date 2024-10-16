@@ -56,7 +56,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-avtmaventis-metaverse-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-avtm-token-empowering-learners-in-the-aventis-metaverse/77e733056a9aa66f4bc56db35365fa25) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/27/avtm-token-listing-on-xt-com-unlocks-new-frontier-for-aventis-metaverse)
+ 
 
 
 

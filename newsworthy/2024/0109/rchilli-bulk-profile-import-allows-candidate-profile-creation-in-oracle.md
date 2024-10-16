@@ -27,7 +27,13 @@ RChilli is the trusted partner for parsing, matching, and data enrichment, provi
 [Original/Source Press Release](https://newsworthy.ai/news/20240109973/rchilli-bulk-profile-import-allows-candidate-profile-creation-in-oracle)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-launches-innovative-bulk-profile-import-plugin-for-oracle-recruiting/c63c38dd06c470f8cd3d0abe07469982) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-introduces-bulk-profile-import-for-oracle-streamlining-candidate-profile-creation/2024277)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/09/rchilli-streamlines-candidate-profile-creation-in-oracle-with-bulk-import-plugin)
+ 
 
 
 

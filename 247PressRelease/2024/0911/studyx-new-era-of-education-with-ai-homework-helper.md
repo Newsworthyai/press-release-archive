@@ -7,7 +7,17 @@ DOVER, DE, September 11, 2024 /24-7PressRelease/ -- StudyX, an innovative AI hom
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514187/studyx-new-era-of-education-with-ai-homework-helper)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-ai-homework-helper-studyx-offers-quick-and-accurate-answers-across-various-subjects/e3dfe9c67b258993e7c3aa12a6476cde) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/studyx-revolutionizes-education-with-advanced-ai-homework-helper/20246677)
+
+Pickup - [advos.io](https://advos.io/en/studyx-unveils-ai-powered-homework-helper-to-revolutionize-education/20246677)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/studyx-introduces-ai-powered-homework-helper-transforming-education-landscape/20246677)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/studyx-revolutionizes-education-with-ai-powered-homework-assistant)
+ 
 
 
 

@@ -46,7 +46,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/alvarez-and-m
 [Original/Source Press Release](https://newsdirect.com/news/alvarez-and-marsal-report-top-private-brand-retailers-outperform-the-market-7-out-of-top-10-retailers-by-grocery-dollar-share-are-top-private-brand-players-990596463)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/private-label-market-set-to-surge-report-shows-grocers-need-clear-strategy/baa9a5f9353509fe172ef8990066df48) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/private-brand-retailers-dominate-grocery-market-poised-for-further-growth)
+
+Pickup - [fishervista.com](https://fishervista.com/en/alvarez-marsal-report-highlights-growth-and-importance-of-private-brand-retailers/20246673)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/private-brand-retailers-dominate-grocery-market-outperform-competitors/20246673)
+
+Pickup - [advos.io](https://advos.io/en/alvarez-marsal-report-highlights-private-brand-retailers-market-outperformance/20246673)
+ 
 
 
 

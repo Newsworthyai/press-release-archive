@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/over-25-000-i
 [Original/Source Press Release](https://newsdirect.com/news/over-25-000-individuals-demand-fcc-hearing-on-petition-to-deny-fox-affiliate-broadcast-license-482027135)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/over-25000-individuals-demand-fcc-hearing-on-petition-to-deny-fox-affiliate-broadcast-license/b1c16dd70a8751af4c862b965fd48a9c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/over-25000-citizens-join-call-for-fcc-hearing-on-fox-affiliate-license-renewal)
+
+Pickup - [fishervista.com](https://fishervista.com/en/over-25000-individuals-demand-fcc-hearing-on-fox-affiliate-broadcast-license/20245245)
+
+Pickup - [advos.io](https://advos.io/en/over-25000-individuals-demand-fcc-hearing-on-fox-broadcast-license-renewal/20245245)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/over-25000-citizens-urge-fcc-to-investigate-fox-affiliate-s-broadcast-license-renewal)
+ 
 
 
 

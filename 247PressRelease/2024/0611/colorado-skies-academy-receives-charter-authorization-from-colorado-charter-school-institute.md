@@ -7,7 +7,11 @@ ENGLEWOOD, CO, June 11, 2024 /24-7PressRelease/ -- Colorado SKIES Academy (CSA),
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511566/colorado-skies-academy-receives-charter-authorization-from-colorado-charter-school-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/colorado-skies-academy-receives-official-charter-authorization-from-colorado-charter-school-institute/20c50fb99c7e7b211c67d73d3685706d) 
+
+
+Pickup - [advos.io](https://advos.io/en/colorado-skies-academy-granted-charter-by-colorado-charter-school-institute/20244005)
+ 
 
 
 

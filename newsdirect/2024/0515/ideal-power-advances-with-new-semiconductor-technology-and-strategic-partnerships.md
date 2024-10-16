@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ideal-power-a
 [Original/Source Press Release](https://newsdirect.com/news/ideal-power-advances-with-new-semiconductor-technology-and-strategic-partnerships-304606760)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ideal-power-ceo-discusses-advancements-in-semiconductor-technology/e1d67eb191046bfefa98ec7d4d950788) 
+
+ 
 
 
 

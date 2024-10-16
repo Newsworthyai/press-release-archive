@@ -7,7 +7,11 @@ KIRKLAND, WA, April 02, 2024 /24-7PressRelease/ -- Stephanie E. Kim, DPM, has be
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509685/podiatrist-stephanie-kim-named-a-2024-castle-connolly-top-doctor)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-stephanie-e-kim-dpm-named-2024-castle-connolly-top-doctor/70f82cec7d4f271c2e64b1d65ee97043) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/podiatrist-stephanie-kim-honored-as-top-doctor-for-2024)
+ 
 
 
 

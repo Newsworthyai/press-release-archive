@@ -7,7 +7,17 @@ AUSTIN, TX, August 11, 2024 /24-7PressRelease/ -- TexasPlans.com has released an
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513309/texasplanscom-unveils-comprehensive-guide-to-navigating-the-texas-health-exchange-obamacare-subsidy-income-chart)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/texasplans-com-releases-comprehensive-guide-to-navigate-health-exchange-subsidy-income-chart/e73a209fb89cbe88b1dde19ebd545b8d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/11/texasplans-com-launches-comprehensive-guide-to-texas-health-exchange-subsidies)
+
+Pickup - [fishervista.com](https://fishervista.com/en/texasplans-com-introduces-comprehensive-guide-to-texas-health-exchange-subsidy-income-chart/20245634)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/texasplans-com-releases-comprehensive-guide-to-texas-health-exchange-subsidies/20245634)
+
+Pickup - [advos.io](https://advos.io/en/texasplans-com-releases-essential-guide-for-navigating-texas-health-exchange-subsidies/20245634)
+ 
 
 
 

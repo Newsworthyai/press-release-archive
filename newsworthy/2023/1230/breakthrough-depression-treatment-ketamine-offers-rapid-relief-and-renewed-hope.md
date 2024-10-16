@@ -19,7 +19,9 @@ We know that seeking treatment can be an arduous and stressful process, that’s
 [Original/Source Press Release](https://newsworthy.ai/news/20231230968/breakthrough-depression-treatment-ketamine-offers-rapid-relief-and-renewed-hope)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ketamine-therapy-a-new-era-in-mental-health-care/0b90cba36023aa52d8092499cbb3f611) 
+
+ 
 
 
 

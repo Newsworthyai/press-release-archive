@@ -23,7 +23,11 @@ Immerse in the world of occupational therapy at www.OccupationalTherapist.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231208856/occupationaltherapist-io-in-depth-insights-in-occupational-therapy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-platform-occupationaltherapist-io-revolutionizes-occupational-therapy-discourse/eb97f4ddc39616fbe5150d1f137923c3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/08/occupationaltherapist-io-a-pioneering-platform-for-expert-insights-in-occupational-therapy)
+ 
 
 
 

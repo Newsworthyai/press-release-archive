@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/award-winning
 [Original/Source Press Release](https://newsdirect.com/news/award-winning-total-sonics-celebrates-an-addition-and-a-depar-ture-long-serving-director-of-engineering-matt-easley-retires-af-ter-18-years-audio-industry-veteran-rich-spina-takes-over-418933754)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/industry-veteran-rich-spina-joins-total-sonics-team/d2fb2d80d17581ac39bfe514fb6f018d) 
+
+
+Pickup - [advos.io](https://advos.io/en/total-sonics-welcomes-audio-veteran-rich-spina-as-new-engineering-lead/20244165)
+ 
 
 
 

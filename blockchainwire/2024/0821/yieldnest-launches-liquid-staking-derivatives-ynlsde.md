@@ -48,7 +48,21 @@ For more information, please visit https://www.yieldnest.finance/
 [Original/Source Press Release](https://blockchainwire.io/press-release/yieldnest-launches-liquid-staking-derivatives-ynlsde-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/yieldnest-launches-ynlsde-token-for-liquid-staking-derivatives/f090db87f3e38f801df467b6652e76b6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/yieldnest-introduces-ynlsde-token-for-enhanced-liquid-staking-derivatives)
+
+Pickup - [fishervista.com](https://fishervista.com/en/yieldnest-introduces-ynlsde-token-to-enhance-liquid-staking-derivatives/20245881)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/yieldnest-introduces-ynlsde-token-for-enhanced-liquid-staking-yields/20245881)
+
+Pickup - [advos.io](https://advos.io/en/yieldnest-launches-ynlsde-token-to-enhance-liquid-staking-derivatives/20245881)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/yieldnest-launches-ynlsde-token-for-liquid-staking-derivatives)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/yieldnest-launches-ynlsde-token-for-liquid-staking-derivatives)
+ 
 
 
 

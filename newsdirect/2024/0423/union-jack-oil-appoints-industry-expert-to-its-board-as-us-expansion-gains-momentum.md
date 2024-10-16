@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/union-jack-oi
 [Original/Source Press Release](https://newsdirect.com/news/union-jack-oil-appoints-industry-expert-to-its-board-as-us-expansion-gains-momentum-513008006)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/union-jack-oil-appoints-industry-expert-to-board-as-us-expansion-gains-momentum/37ec00db96c281555643a9f4b783450d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/union-jack-oil-appoints-industry-expert-to-its-board-as-us-expansion-gains-momentum)
+ 
 
 
 

@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/polymetals-fi
 [Original/Source Press Release](https://newsdirect.com/news/polymetals-finalises-acquisition-of-endeavor-silver-zinc-and-lead-mine-109928305)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/polymetals-resources-ltd-secures-acquisition-of-endeavor-mine/333770d7538aae7ed52f8bbd33209382) 
+
+ 
 
 
 

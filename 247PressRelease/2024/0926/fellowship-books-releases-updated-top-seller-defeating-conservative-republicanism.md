@@ -7,7 +7,9 @@ KINGSMAN, AZ, September 26, 2024 /24-7PressRelease/ -- Fellowship Books, a leadi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514712/fellowship-books-releases-updated-top-seller-defeating-conservative-republicanism)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-defeating-conservative-republicanism-takes-aim-at-trump-s-economic-policy-and-evangelical-support/96ceaedfab3c035bad8eb6b30ecfd0cf) 
+
+ 
 
 
 

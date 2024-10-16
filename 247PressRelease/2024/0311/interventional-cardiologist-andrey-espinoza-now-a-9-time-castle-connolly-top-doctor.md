@@ -7,7 +7,11 @@ FLEMINGTON, NJ, March 11, 2024 /24-7PressRelease/ -- Andrey Espinoza, MD, has be
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509152/interventional-cardiologist-andrey-espinoza-now-a-9-time-castle-connolly-top-doctor)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-andrey-espinoza-recognized-as-2024-castle-connolly-top-doctor/a496c3e43d29b04de59211d6f7043369) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/interventional-cardiologist-andrey-espinoza-honored-as-top-doctor-for-9th-year)
+ 
 
 
 

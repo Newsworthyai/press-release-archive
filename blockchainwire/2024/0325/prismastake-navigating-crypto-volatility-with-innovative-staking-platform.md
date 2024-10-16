@@ -41,7 +41,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/prismastake-navigating-crypto-volatility-with-innovative-staking-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prismastake-launches-innovative-multi-chain-staking-platform/e9a0cdecb6141164fb9f187223be21e7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/prismastake-launches-innovative-staking-platform-amid-bitcoin-halving-volatility)
+ 
 
 
 

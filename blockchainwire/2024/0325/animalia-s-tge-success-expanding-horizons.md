@@ -43,7 +43,11 @@ Animalia is an independent free-to-play NFT trading card game featuring crypto-i
 [Original/Source Press Release](https://blockchainwire.io/press-release/animalias-tge-success-expanding-horizons)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/animalia-accelerates-game-development-and-expands-team-in-2024/9f985343964dad7f612bbae96e9305c5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/animalia-embraces-the-future-of-web3-gaming)
+ 
 
 
 

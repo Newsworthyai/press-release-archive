@@ -77,7 +77,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/robot-dog-sav
 [Original/Source Press Release](https://newsdirect.com/news/robot-dog-saves-lives-in-massachusetts-standoff-186274967)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/robotic-dog-saves-lives-in-massachusetts-standoff/8c75540471bec4a7be15bdd083195532) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/robotic-dog-assists-in-defusing-dangerous-standoff)
+ 
 
 
 

@@ -7,7 +7,9 @@ BIRMINGHAM, AL, May 07, 2024 /24-7PressRelease/ -- Love Your Liver helps raise a
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510617/blue-faery-continues-its-love-your-liver-campaign-during-asian-american-and-pacific-islander-heritage-month)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/love-your-liver-campaign-raises-awareness-about-liver-cancer-risk-factors-in-the-asian-american-community/c63a4b8331f0a0b1f74b97ae7c3806d5) 
+
+ 
 
 
 

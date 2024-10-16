@@ -7,7 +7,17 @@ SACRAMENTO, CA, September 09, 2024 /24-7PressRelease/ -- BZBGEAR®, a global lea
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514119/bzbgear-partners-with-iris-to-revolutionize-cloud-based-camera-control)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bzbgear-announces-partnership-with-iris-for-cloud-camera-control-solutions/fb232e483827ab07802214b4b835071e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/bzbgear-and-iris-join-forces-to-offer-cloud-based-ptz-camera-control)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bzbgear-and-iris-join-forces-to-transform-cloud-based-camera-control/20246610)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bzbgear-and-iris-collaborate-to-introduce-cloud-based-camera-control/20246610)
+
+Pickup - [advos.io](https://advos.io/en/bzbgear-partners-with-iris-to-enhance-cloud-based-camera-control/20246610)
+ 
 
 
 

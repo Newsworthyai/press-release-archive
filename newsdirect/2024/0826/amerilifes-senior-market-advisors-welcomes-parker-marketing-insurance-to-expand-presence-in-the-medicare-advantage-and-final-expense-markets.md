@@ -48,7 +48,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/amerilifes-se
 [Original/Source Press Release](https://newsdirect.com/news/amerilifes-senior-market-advisors-welcomes-parker-marketing-insurance-to-expand-presence-in-the-medicare-advantage-and-final-expense-markets-635988758)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amerilife-s-senior-market-advisors-welcomes-parker-marketing-insurance/4e79ede019f82acb4d9d5eef9ed3715d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/senior-market-advisors-acquires-parker-marketing-insurance-expanding-medicare-and-final-expense-market-reach)
+
+Pickup - [fishervista.com](https://fishervista.com/en/senior-market-advisors-expands-with-parker-marketing-insurance-acquisition/20245964)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/senior-market-advisors-acquires-parker-marketing-insurance-expanding-medicare-and-final-expense-market-reach/20245964)
+
+Pickup - [advos.io](https://advos.io/en/amerilifes-senior-market-advisors-acquires-parker-marketing-insurance-to-strengthen-medicare-advantage-and-final-expense-markets/20245964)
+ 
 
 
 

@@ -29,7 +29,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/newrgy-imex-2024-strategic-plan-leading-the-global-fintech-frontier)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newrgy-imex-unveils-2024-strategic-plan-for-international-market-expansion-and-high-tech-investments/6ebb3daa3624391200514ec30433518e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/18/newrgy-imex-unveils-ambitious-2024-strategic-plan)
+ 
 
 
 

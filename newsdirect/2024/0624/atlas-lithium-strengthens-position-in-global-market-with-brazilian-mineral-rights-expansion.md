@@ -65,7 +65,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/atlas-lithium
 [Original/Source Press Release](https://newsdirect.com/news/atlas-lithium-strengthens-position-in-global-market-with-brazilian-mineral-rights-expansion-544477082)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atlas-lithium-strengthens-position-in-global-market-with-brazilian-mineral-rights-expansion/0c508144021bb3b3e77e642568905a39) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/atlas-lithium-expands-brazilian-mineral-rights-amid-rising-global-lithium-demand/20244421)
+
+Pickup - [advos.io](https://advos.io/en/atlas-lithium-expands-brazilian-mineral-rights-bolsters-global-market-position/20244421)
+ 
 
 
 

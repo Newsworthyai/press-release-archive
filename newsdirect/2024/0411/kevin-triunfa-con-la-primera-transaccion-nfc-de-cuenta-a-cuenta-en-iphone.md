@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kevin-triunfa
 [Original/Source Press Release](https://newsdirect.com/news/kevin-triunfa-con-la-primera-transaccion-nfc-de-cuenta-a-cuenta-en-iphone-212492984)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kevin-makes-history-with-first-nfc-account-to-account-transaction-on-iphone/7c447cd387762c95a583114b6d5d0115) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/kevin-makes-history-with-first-iphone-nfc-account-to-account-transaction)
+ 
 
 
 

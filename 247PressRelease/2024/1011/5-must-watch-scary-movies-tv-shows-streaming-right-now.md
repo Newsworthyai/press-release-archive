@@ -7,7 +7,9 @@ LOS ANGELES, CA, October 11, 2024 /24-7PressRelease/ -- From classic horror film
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515032/5-must-watch-scary-movies-tv-shows-streaming-right-now)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/5-must-watch-horror-movies-and-shows-streaming-now/a0e2829a3532171c1085e8f3eab4f340) 
+
+ 
 
 
 

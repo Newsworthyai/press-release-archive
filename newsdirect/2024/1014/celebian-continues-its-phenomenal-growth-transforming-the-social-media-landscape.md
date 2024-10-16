@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/celebian-cont
 [Original/Source Press Release](https://newsdirect.com/news/celebian-continues-its-phenomenal-growth-transforming-the-social-media-landscape-632881002)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/celebian-transforming-the-social-media-landscape/f262f229455d0674e8e4f65f820255f1) 
+
+ 
 
 
 

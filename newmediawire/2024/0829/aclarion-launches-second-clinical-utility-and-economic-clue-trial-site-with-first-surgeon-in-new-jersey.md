@@ -49,7 +49,13 @@ CLUE is a Multi-center Trial to Identify how Often Nociscan’s AI Data Changes 
 [Original/Source Press Release](https://www.newmediawire.com/news/aclarion-launches-second-clinical-utility-and-economic-clue-trial-site-with-first-surgeon-in-new-jersey)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aclarion-expands-clue-trial-to-new-jersey-with-dr-justin-kubeck-joining-the-network-of-surgeons/64cece40280fc8d482f7791cf8b8f789) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/aclarion-expands-clue-trial-to-new-jersey-advancing-chronic-low-back-pain-diagnosis)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/aclarion-expands-clue-trial-to-new-jersey-for-chronic-low-back-pain-diagnosis/20246449)
+ 
 
 
 

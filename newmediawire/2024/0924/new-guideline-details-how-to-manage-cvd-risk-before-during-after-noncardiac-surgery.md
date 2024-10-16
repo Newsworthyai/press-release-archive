@@ -92,7 +92,9 @@ Guideline highlights:
 [Original/Source Press Release](http://www.newmediawire.com/news/new-guideline-details-how-to-manage-cvd-risk-before-during-after-noncardiac-surgery-7076085)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-2024-guideline-for-cardiovascular-management-of-noncardiac-surgery-patients/25563717a8b1ab056584303f32880831) 
+
+ 
 
 
 

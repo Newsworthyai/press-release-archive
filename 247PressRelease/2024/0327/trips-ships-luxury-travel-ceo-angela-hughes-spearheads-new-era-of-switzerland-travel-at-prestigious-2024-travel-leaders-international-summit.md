@@ -7,7 +7,11 @@ LAKE LUGANO, SWITZERLAND, March 27, 2024 /24-7PressRelease/ -- Angela Hughes, CE
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509562/trips-ships-luxury-travel-ceo-angela-hughes-spearheads-new-era-of-switzerland-travel-at-prestigious-2024-travel-leaders-international-summit)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trips-ships-luxury-travel-ceo-angela-hughes-attends-2024-travel-leaders-international-summit-in-switzerland/3d5878b18c024f13a46b8ba3c3f5af7c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/angela-hughes-elevates-switzerland-travel-at-prestigious-summit)
+ 
 
 
 

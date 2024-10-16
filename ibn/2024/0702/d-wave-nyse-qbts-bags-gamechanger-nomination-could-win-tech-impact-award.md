@@ -25,7 +25,9 @@ D-Wave Quantum Inc. (NYSE: QBTS) has been nominated as a finalist for the 2024
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-bags-gamechanger-nomination-could-win-tech-impact-award/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-inc-nominated-for-2024-tech-impact-award/045ac4660b35868e94fd1dbae150bb4f) 
+
+ 
 
 
 

@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/surefire-reso
 [Original/Source Press Release](https://newsdirect.com/news/surefire-resources-developing-new-low-cost-eco-friendly-mining-technology-650541838)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/surefire-resources-developing-new-low-cost-eco-friendly-mining-technology/055899afb313f92c93d36ed1505f3ce0) 
+
+ 
 
 
 

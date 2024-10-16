@@ -1,0 +1,20 @@
+# The Big Indian: True Love in a False War – A Family's Journey from Saigon to Missouri, Now Available to Readers Worldwide
+
+SOLDIER, IA, October 16, 2024 /24-7PressRelease/ -- The Big Indian: True Love in a False War isn't just another wartime memoir. It's a powerful story of love, longing, and the determination to keep a family together while war raged thousands of miles away. This long-lost manuscript, written by Norma June "Juni" Allen and discovered by her son, Stephen Allen, was recently published and is now available on Amazon.   For over three decades, the manuscript lay dormant in a drawer, collecting dust. Stephen Allen had always assumed it was just a collection of his mother's notes. That all changed one winter afternoon when curiosity got the best of him. As he flipped through the typewritten pages, he realized he was holding a piece of his family's history—a story that, in his words, "drew me in so deep, I couldn't stop reading."   This memoir reads like an intimate conversation, drawing readers into the life of a family divided by the Vietnam War. Through Norma's eyes, we experience her daily struggles—raising children alone in the bitter Missouri winters while her husband, Douglas "The Big Indian" Allen, worked as a civilian contractor on the Tan Son Nhut Air Base. It was a time when the world felt chaotic, but her unwavering love for her husband held everything together.   While books like Crying in H Mart and The Nightingale explore family and relationships in extreme circumstances, The Big Indian is different. It's raw, real, and personal. It's about a woman who finds herself split between the comfort of home and the unknown horrors of war, as she prepares to reunite with the man she loves in the middle of a war zone. The Tet Offensive of 1968 looms large in the narrative, but so does hope.   Stephen Allen, who published the book posthumously to honor his mother's legacy, shares how he felt during the publishing process:   "Seeing this book finally published brought tears to my eyes. It was a real book now—our story, my family's story—ready to be shared with the world."   This memoir will appeal to readers who appreciate deeply human stories. It's a window into a moment in time that many have forgotten, but Norma June captures it in vivid detail. Whether you're drawn to the gripping history of war as seen in Unbroken or the personal reflections on family found in The Tattooist of Auschwitz, The Big Indian offers a fresh and unforgettable perspective.   Now available on Amazon, The Big Indian: True Love in a False War is a deeply moving tribute to love and resilience. It captures the beauty of a family's bond in a world fractured by war, a message that remains just as relevant today as it was in 1968.  Stephen Allen, the middle son of Norma June "Juni" Allen, is the publisher of The Big Indian: True Love in a False War, a memoir based on his family's real-life experiences during the Vietnam War. After discovering his mother's typewritten manuscript decades after it was written, Stephen realized the importance of sharing her story with the world. In her own words, Norma June chronicles the struggle of maintaining hope and love through the chaos of war.  The Big Indian is now available for readers worldwide. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515299/the-big-indian-true-love-in-a-false-war-a-familys-journey-from-saigon-to-missouri-now-available-to-readers-worldwide)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-memoir-the-big-indian-reveals-love-and-resilience-during-vietnam-war/fee64c578737782dd86ef6cf729ab45b) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1g4tmtw/new_memoir_the_big_indian_reveals_love_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/16/tallF_YJ.webp)

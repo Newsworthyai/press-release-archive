@@ -7,7 +7,15 @@ GLENDALE, CA, July 05, 2024 /24-7PressRelease/ -- Babaians Law Firm wants to inv
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512291/babaians-law-firm-announces-the-creating-your-future-scholarship)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/babaians-law-firm-offers-2500-creating-your-future-scholarship-for-students/316304516479d1347d3db6e893f7cea0) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/babaians-law-firm-launches-2500-creating-your-future-scholarship-for-students/20244721)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/babaians-law-firm-launches-2500-creating-your-future-scholarship-for-students)
+
+Pickup - [advos.io](https://advos.io/en/babaians-law-firm-launches-creating-your-future-scholarship-for-students/20244721)
+ 
 
 
 

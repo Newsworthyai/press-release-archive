@@ -43,7 +43,15 @@ Reddit: https://www.reddit.com/user/getblockio
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-faucets-launched-by-getblock-rpc-node-provider)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/getblock-launches-crypto-faucets-dashboard-for-web3-developers/197b1ba3f26713a163b5b672039b9dbd) 
+
+
+Pickup - [advos.io](https://advos.io/en/getblock-launches-comprehensive-crypto-faucets-dashboard-for-web3-developers/20243997)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/getblock-launches-crypto-faucets-dashboard-for-web3-developers)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/getblock-launches-crypto-faucets-dashboard-for-web3-developers)
+ 
 
 
 

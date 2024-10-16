@@ -19,7 +19,11 @@ For individuals struggling with Major Depressive Disorder, NeuroStar TMS Therapy
 [Original/Source Press Release](https://newsworthy.ai/news/202402261096/my-abilene-brain-neurostar-tms-therapy-provides-effective-alternative-treatment-for-major-depressive-disorder)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/abilene-brain-center-offers-innovative-therapy-for-major-depressive-disorder/03137fb99811af81c486a174ec3bf001) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/26/neurostar-tms-therapy-offers-new-hope-for-depression-patients)
+ 
 
 
 

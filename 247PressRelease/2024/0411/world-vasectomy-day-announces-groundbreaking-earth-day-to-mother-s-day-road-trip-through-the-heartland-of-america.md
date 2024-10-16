@@ -7,7 +7,11 @@ NEW YORK, NY, April 11, 2024 /24-7PressRelease/ -- World Vasectomy Day (WVD), th
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509959/world-vasectomy-day-announces-groundbreaking-earth-day-to-mothers-day-road-trip-through-the-heartland-of-america)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/world-vasectomy-day-announces-earth-day-to-mother-s-day-road-trip/0b8bd39fb8ba27f089041a7ae9b93ca6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/world-vasectomy-day-launches-groundbreaking-earth-day-to-mother-s-day-road-trip-through-america)
+ 
 
 
 

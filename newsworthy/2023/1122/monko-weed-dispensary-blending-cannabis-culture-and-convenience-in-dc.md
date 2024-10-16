@@ -37,7 +37,9 @@ As a trailblazer in the Washington cannabis industry, Monko continues to set hig
 [Original/Source Press Release](https://newsworthy.ai/news/20231122894/monko-weed-dispensary-blending-cannabis-culture-and-convenience-in-dc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/monko-weed-dispensary-redefines-cannabis-shopping-experience-in-washington-dc/987f1f782825af16073c54069b30aabe) 
+
+ 
 
 
 

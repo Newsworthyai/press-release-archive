@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/kootenay-silv
 [Original/Source Press Release](https://newsdirect.com/news/kootenay-silver-drilling-at-d-vein-shows-major-increase-in-strike-length-at-columba-silver-project-538763705)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kootenay-silver-ceo-discusses-promising-results-from-d-vein-drill-holes-at-columba-project/7ae02108afbd38f0cfc012b0305e71f6) 
+
+ 
 
 
 

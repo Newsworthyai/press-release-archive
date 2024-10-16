@@ -27,7 +27,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/traders-insur
 [Original/Source Press Release](https://newsdirect.com/news/traders-insurance-introduces-new-part-time-motor-trade-insurance-policies-567992260)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/traders-insurance-introduces-new-part-time-motor-trade-insurance-policies/7ee7e3dea78efe23d5a4e6efe05cc1bd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/traders-insurance-launches-innovative-part-time-motor-trade-insurance-policies)
+
+Pickup - [fishervista.com](https://fishervista.com/en/traders-insurance-launches-flexible-part-time-motor-trade-insurance-policies/20245088)
+
+Pickup - [advos.io](https://advos.io/en/traders-insurance-launches-part-time-motor-trade-insurance-policies/20245088)
+ 
 
 
 

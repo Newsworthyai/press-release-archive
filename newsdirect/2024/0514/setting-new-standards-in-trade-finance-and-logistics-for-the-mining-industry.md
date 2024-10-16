@@ -71,7 +71,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/setting-new-s
 [Original/Source Press Release](https://newsdirect.com/news/setting-new-standards-in-trade-finance-and-logistics-for-the-mining-industry-106354014)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/minehub-technologies-inc-revolutionizes-trade-finance-and-logistics-in-mining-and-metals-industry/2b73eb73c7cb842a476c37f7e882d223) 
+
+ 
 
 
 

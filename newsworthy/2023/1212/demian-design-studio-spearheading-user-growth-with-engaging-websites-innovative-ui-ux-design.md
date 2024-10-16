@@ -17,7 +17,11 @@ With this new initiative, Demian Design Studio is poised to set new benchmarks i
 [Original/Source Press Release](https://newsworthy.ai/news/20231212907/demian-design-studio-spearheading-user-growth-with-engaging-websites-innovative-ui-ux-design)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/demian-design-studio-unveils-new-initiative-to-drive-user-growth-and-engagement/f31bcf719eb587a2e897e6f0bd63222b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/12/demian-design-studio-unveils-new-approach-to-drive-user-growth)
+ 
 
 
 

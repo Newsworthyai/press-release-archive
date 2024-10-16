@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/together-in-h
 [Original/Source Press Release](https://newsdirect.com/news/together-in-healing-supporting-resilience-and-uplifting-community-534071535)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ace-resource-network-launches-together-in-healing-initiative/66ad29df239623e586032cae219e0acc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/ace-resource-network-s-together-in-healing-campaign-uplifts-sacramento-community)
+ 
 
 
 

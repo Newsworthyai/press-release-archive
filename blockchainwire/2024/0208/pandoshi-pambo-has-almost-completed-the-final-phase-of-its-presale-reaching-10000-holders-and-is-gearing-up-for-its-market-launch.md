@@ -29,7 +29,11 @@ Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/pandoshi-pambo-has-almost-completed-the-final-phase-of-its-presale-reaching-10000-holders-and-is-gearing-up-for-its-market-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pandoshi-pambo-prepares-for-public-trading-after-successful-presale-phase/918e46560f3e48537ecb7b2ad13ea6b4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/08/pandoshi-pambo-nears-presale-completion-with-10000-holders-gearing-up-for-market-launch)
+ 
 
 
 

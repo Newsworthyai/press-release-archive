@@ -7,7 +7,17 @@ PLANO, TX, September 03, 2024 /24-7PressRelease/ -- Dallas Business Journal reco
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513947/ashwini-patil-honored-with-prestigious-2024-women-in-business-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ashwini-patil-receives-2024-women-in-business-award/22e27fc31286b548d8304b80bc0c6633) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/ashwini-patil-receives-2024-women-in-business-award-from-dallas-business-journal)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ashwini-patil-awarded-2024-women-in-business-award-for-leadership-in-technology-sector/20246464)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/ashwini-patil-receives-2024-women-in-business-award-from-dallas-business-journal/20246464)
+
+Pickup - [advos.io](https://advos.io/en/ashwini-patil-receives-2024-women-in-business-award-for-leadership-in-technology/20246464)
+ 
 
 
 

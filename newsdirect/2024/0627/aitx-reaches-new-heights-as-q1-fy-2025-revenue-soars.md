@@ -43,7 +43,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/aitx-reaches-
 [Original/Source Press Release](https://newsdirect.com/news/aitx-reaches-new-heights-as-q1-fy-2025-revenue-soars-128374604)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aitx-reaches-new-heights-as-q1-fy-2025-revenue-soars/01675d74f860723916a6cdeb9b8ebc36) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/aitx-reports-significant-revenue-growth-in-q1-fy-2025/20244539)
+
+Pickup - [advos.io](https://advos.io/en/aitx-reports-record-breaking-q1-fy-2025-revenue-surge/20244539)
+ 
 
 
 

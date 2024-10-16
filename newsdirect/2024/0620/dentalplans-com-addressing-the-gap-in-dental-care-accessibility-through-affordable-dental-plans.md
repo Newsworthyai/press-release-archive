@@ -53,7 +53,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/dentalplans-c
 [Original/Source Press Release](https://newsdirect.com/news/dentalplans-com-addressing-the-gap-in-dental-care-accessibility-through-affordable-dental-plans-431546195)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dentalplans-com-making-dental-care-accessible-and-affordable-for-everyone/7b801c99809dddff6a075dce9f3de8fc) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dentalplans-com-tackles-dental-care-inequality-with-affordable-plans/20244317)
+
+Pickup - [advos.io](https://advos.io/en/dentalplans-com-strives-for-dental-care-equality-with-affordable-plans/20244317)
+ 
 
 
 

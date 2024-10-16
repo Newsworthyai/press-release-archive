@@ -43,7 +43,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/pawfury-presa
 [Original/Source Press Release](https://newsdirect.com/news/pawfury-presale-nears-5m-mark-dont-miss-your-chance-to-join-the-next-crypto-giant-211719825)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pawfury-paw-presale-surpasses-5m-mark-a-game-changing-crypto-project/98158e314fb03ab356ee4b37229e35e0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/pawfury-cryptocurrency-presale-surpasses-5-million-signaling-strong-investor-interest)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pawfury-presale-surpasses-5-million-signaling-strong-investor-confidence/20245666)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/pawfury-cryptocurrency-presale-reaches-5-million-milestone/20245666)
+
+Pickup - [advos.io](https://advos.io/en/pawfury-presale-reaches-5-million-milestone-signaling-strong-investor-confidence/20245666)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/pawfury-paw-presale-surpasses-5m-mark-a-game-changing-crypto-project)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/pawfury-paw-presale-surpasses-5m-mark-a-game-changing-crypto-project)
+ 
 
 
 

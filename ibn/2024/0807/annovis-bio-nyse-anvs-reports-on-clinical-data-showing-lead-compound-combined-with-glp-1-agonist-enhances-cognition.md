@@ -35,7 +35,9 @@ Annovis Bio (NYSE: ANVS), a late-stage, clinical-drug platform company pioneeri
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-reports-on-clinical-data-showing-lead-compound-combined-with-glp-1-agonist-enhances-cognition/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annovis-bio-reports-synergistic-effect-of-lead-compound-in-alzheimers-disease-model/f8f08d8a92cd84e27bf73f44ecc9eb65) 
+
+ 
 
 
 

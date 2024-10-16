@@ -7,7 +7,11 @@ NEW YORK, NY, March 21, 2024 /24-7PressRelease/ -- The Institute of Classical Ar
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509435/the-icaa-announces-winners-of-the-2024-arthur-ross-awards-for-excellence-in-the-classical-tradition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/icaa-announces-2024-arthur-ross-award-winners/00d3ab4605dec5b88653484b4a0aa3f5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/icaa-honors-diverse-talents-in-classical-tradition-with-2024-arthur-ross-awards)
+ 
 
 
 

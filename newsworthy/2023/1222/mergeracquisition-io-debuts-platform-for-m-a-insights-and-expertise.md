@@ -23,7 +23,11 @@ Navigate the intricate world of M&A at www.MergerAcquisition.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231222849/mergeracquisition-io-debuts-platform-for-m-a-insights-and-expertise)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-mergeracquisition-io-a-new-hub-for-m-a-intelligence/69740190cde886c179a650bfa494c1b3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/22/mergeracquisition-io-launches-as-premier-hub-for-m-a-insights-and-expertise)
+ 
 
 
 

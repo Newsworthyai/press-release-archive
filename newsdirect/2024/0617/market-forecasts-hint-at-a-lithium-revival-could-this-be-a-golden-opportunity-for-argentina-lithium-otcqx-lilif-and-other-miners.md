@@ -49,7 +49,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/market-foreca
 [Original/Source Press Release](https://newsdirect.com/news/market-forecasts-hint-at-a-lithium-revival-could-this-be-a-golden-opportunity-for-argentina-lithium-otcqx-lilif-and-other-miners-145899786)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/is-the-lithium-market-set-for-a-turnaround/de2d70b9a2578b30a3fd360fab2cab3b) 
+
+
+Pickup - [advos.io](https://advos.io/en/lithium-market-revival-presents-opportunity-for-argentina-lithium-and-other-miners/20244200)
+ 
 
 
 

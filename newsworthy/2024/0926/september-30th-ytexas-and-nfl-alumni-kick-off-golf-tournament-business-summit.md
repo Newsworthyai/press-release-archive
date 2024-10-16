@@ -36,7 +36,9 @@ NOTE: For media access to this event, please contact Aquila Mendez-Valdez at 210
 [Original/Source Press Release](https://newsworthy.ai/news/202409261287/september-30th-ytexas-and-nfl-alumni-kick-off-gol-tournament-business-summit)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ytexas-summit-and-nfl-alumni-association-host-2024-business-summit-at-cowboys-stadium/c038e556ae23eddec92bc154197b40dd) 
+
+ 
 
 
 

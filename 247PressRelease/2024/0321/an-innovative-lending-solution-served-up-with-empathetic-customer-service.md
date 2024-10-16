@@ -7,7 +7,11 @@ DES PLAINES, IL, March 21, 2024 /24-7PressRelease/ -- "Families who are struggli
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509388/an-innovative-lending-solution-served-up-with-empathetic-customer-service)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gocredit-me-offers-innovative-savings-and-installment-loan-to-help-families-build-financial-stability/d3258422c2532ac66ce6f5c1902c175f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/innovative-lending-solution-empowers-families-to-build-savings)
+ 
 
 
 

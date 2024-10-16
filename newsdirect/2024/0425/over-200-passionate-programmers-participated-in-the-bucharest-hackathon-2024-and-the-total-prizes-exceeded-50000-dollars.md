@@ -59,7 +59,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/over-200-pass
 [Original/Source Press Release](https://newsdirect.com/news/over-200-passionate-programmers-participated-in-the-bucharest-hackathon-2024-and-the-total-prizes-exceeded-50-000-dollars-431912262)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-bucharest-hackathon-2024-over-200-programmers-compete-for-50000-in-prizes/14e9bd1538eea70007f4dc8db6561996) 
+
+ 
 
 
 

@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, a
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-bollinger-partner-with-envirocharge-to-create-mobile-charging-solution/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-nasdaq-muln-partners-with-bollinger-motors-and-envirocharge-to-develop-innovative-mobile-charging-solution/5e804a36f9b07697e74448bd4d5efc3b) 
+
+ 
 
 
 

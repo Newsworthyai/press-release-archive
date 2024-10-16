@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/oncocytes-inn
 [Original/Source Press Release](https://newsdirect.com/news/oncocytes-innovative-approach-potential-in-precision-diagnostics-135744794)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/oncocyte-s-innovative-precision-diagnostics-and-strategic-partnerships/b6ea7bc135fc05c2f85124bf8c264dcc) 
+
+ 
 
 
 

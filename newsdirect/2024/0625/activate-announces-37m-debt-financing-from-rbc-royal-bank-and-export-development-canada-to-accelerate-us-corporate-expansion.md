@@ -39,7 +39,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/activate-anno
 [Original/Source Press Release](https://newsdirect.com/news/activate-announces-37m-debt-financing-from-rbc-royal-bank-and-export-development-canada-to-accelerate-us-corporate-expansion-980224054)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/activate-games-announces-global-expansion-plans-and-new-cfo/b0432b7536df04f22593af5cb911d8ad) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/activate-secures-37m-financing-to-propel-us-expansion/20244460)
+
+Pickup - [advos.io](https://advos.io/en/activate-secures-37m-financing-for-us-expansion-and-announces-new-cfo/20244460)
+ 
 
 
 

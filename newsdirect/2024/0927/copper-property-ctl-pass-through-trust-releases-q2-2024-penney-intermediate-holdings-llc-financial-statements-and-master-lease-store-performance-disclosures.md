@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/copper-proper
 [Original/Source Press Release](https://newsdirect.com/news/copper-property-ctl-pass-through-trust-releases-q2-2024-penney-intermediate-holdings-llc-financial-statements-and-master-lease-store-performance-disclosures-509991687)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/copper-property-ctl-trust-releases-q2-2024-financial-statements/6d878a359cc44cff9181a37e213a3d24) 
+
+ 
 
 
 

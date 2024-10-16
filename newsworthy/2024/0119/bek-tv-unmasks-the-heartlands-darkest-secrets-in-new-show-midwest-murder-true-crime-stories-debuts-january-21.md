@@ -17,7 +17,11 @@ Don't miss the gripping premiere of Midwest Murder: True Crime Stories. Learn mo
 [Original/Source Press Release](https://newsworthy.ai/news/20240119999/bek-tv-unmasks-the-heartlands-darkest-secrets-in-new-show-midwest-murder-true-crime-stories-debuts-january-21)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bek-tv-launches-new-true-crime-show-midwest-murder/f1e7eeb86e05ee4070c99b82e65ba313) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/19/bek-tv-unmasks-midwest-s-dark-secrets-in-new-true-crime-show)
+ 
 
 
 

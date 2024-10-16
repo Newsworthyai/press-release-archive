@@ -7,7 +7,9 @@ ANKARA, TURKEY, September 27, 2024 /24-7PressRelease/ -- Mustafa Demirören, a r
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514734/turkeys-top-investment-expert-mustafa-demir%C3%B6ren-to-represent-the-nation-in-worldwide-bourse-brilliance-challenge-k%C3%BCresel-borsa-getiri-yar%C4%B1%C5%9Fmas%C4%B1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-investment-expert-to-represent-turkey-in-prestigious-financial-competition/d4a29d863635ce9e8fd76b33abe0e875) 
+
+ 
 
 
 

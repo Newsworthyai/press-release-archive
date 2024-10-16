@@ -7,7 +7,9 @@ NEW YORK, NY, October 13, 2024 /24-7PressRelease/ -- Protheragen, a leading CRO 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515224/protheragen-introduces-disease-model-development-platform-to-empower-rare-disease-therapy-research)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/protheragen-launches-groundbreaking-rare-disease-model-development-platform/3e882f0d2c46f607493789cf64747b69) 
+
+ 
 
 
 

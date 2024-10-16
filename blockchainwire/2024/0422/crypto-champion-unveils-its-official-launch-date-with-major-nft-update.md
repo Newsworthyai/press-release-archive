@@ -64,7 +64,11 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-champion-unveils-its-official-launch-date-with-major-nft-update)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-champion-official-launch-dual-token-system-nfts/d1b4248d4b2c0caffe78d8809d6d8022) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/crypto-champion-unveils-its-official-launch-date-with-major-nft-update)
+ 
 
 
 

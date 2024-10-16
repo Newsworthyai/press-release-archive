@@ -44,7 +44,15 @@ Media ContactPerson: Alisia PrestonWebsite: [https://betfury.com/](https://betfu
 [Original/Source Press Release](https://blockchainwire.io/press-release/may-bfg-token-grow-by-100--the-best-ways-to-earn-bfg-on-its-rise)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bfg-token-sees-surge-in-investors-and-value-with-unique-utilities-and-cryptodrop-event/d28db49dfca485b9755b646de92d83ad) 
+
+
+Pickup - [advos.io](https://advos.io/en/may-bfg-token-grow-by-100-the-best-ways-to-earn-bfg-on-its-rise/20244210)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bfg-token-sees-surge-in-investors-and-value-with-unique-utilities-and-cryptodrop-event)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bfg-token-sees-surge-in-investors-and-value-with-unique-utilities-and-cryptodrop-event)
+ 
 
 
 

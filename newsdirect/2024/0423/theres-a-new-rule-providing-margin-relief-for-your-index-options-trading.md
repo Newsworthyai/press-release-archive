@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/theres-a-new-
 [Original/Source Press Release](https://newsdirect.com/news/theres-a-new-rule-providing-margin-relief-for-your-index-options-trading-538817085)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-rule-provides-margin-relief-for-index-options-trading/ec529ba24b25aafb445d1f7df3ba91fa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/there-s-a-new-rule-providing-margin-relief-for-your-index-options-trading)
+ 
 
 
 

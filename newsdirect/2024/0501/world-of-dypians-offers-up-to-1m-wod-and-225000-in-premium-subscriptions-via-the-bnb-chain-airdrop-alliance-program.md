@@ -100,7 +100,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/world-of-dypi
 [Original/Source Press Release](https://newsdirect.com/news/world-of-dypians-offers-up-to-1m-wod-and-225-000-in-premium-subscriptions-via-the-bnb-chain-airdrop-alliance-program-380501807)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/world-of-dypians-joins-bnb-chain-s-airdrop-alliance-program/f1e0ca727bfb0dfc8c4043a738242a9b) 
+
+ 
 
 
 

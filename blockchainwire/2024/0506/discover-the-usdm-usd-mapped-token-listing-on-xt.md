@@ -57,7 +57,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-usdm-usd-mapped-token-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-lists-usdm-usd-mapped-token-on-trading-platform/b0133e30b18e6f06879666b3c3c4b1f8) 
+
+ 
 
 
 

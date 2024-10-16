@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ac-milan-and-
 [Original/Source Press Release](https://newsdirect.com/news/ac-milan-and-web3-igaming-leader-tg-casino-sign-new-partnership-deal-397349637)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ac-milan-partners-with-tg-casino-to-elevate-fan-experiences/a64a9b0046c6361001aaae184845e6fb) 
+
+ 
 
 
 

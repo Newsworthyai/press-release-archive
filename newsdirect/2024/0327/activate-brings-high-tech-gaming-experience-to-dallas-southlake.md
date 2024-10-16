@@ -51,7 +51,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/activate-brin
 [Original/Source Press Release](https://newsdirect.com/news/activate-brings-high-tech-gaming-experience-to-dallas-southlake-828656195)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/activate-to-open-second-location-in-dallas-fort-worth/dc5ac950263b3b8ddc26c86ebdd7ea3b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/activate-brings-cutting-edge-live-action-gaming-to-southlake-texas)
+ 
 
 
 

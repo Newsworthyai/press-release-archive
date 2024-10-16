@@ -9,7 +9,11 @@
 [Original/Source Press Release](https://blockchainwire.io/press-release/spherex-commences-first-funding-round-with-fundamental-labs-as-anchor-investor-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/spherex-announces-grand-launch-and-30m-seed-round-with-fundamental-labs-as-anchor-investor/7aa5fb6aa34f0806d257c89e67abc631) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/15/spherex-secures-30m-seed-funding-with-fundamental-labs-as-anchor-investor)
+ 
 
 
 

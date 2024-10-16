@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/iofinas-strat
 [Original/Source Press Release](https://newsdirect.com/news/iofinas-strategic-success-revenue-surpasses-50-million-expansion-underway-128134394)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iofina-s-ceo-discusses-record-revenue-and-expansion-plans-for-2024/8a946a6daeb6f08ce22dd523148852ee) 
+
+ 
 
 
 

@@ -27,7 +27,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/osl-first-to-be-granted-amlo-licence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/osl-group-863-hk-granted-amlo-license-by-sfc-in-hong-kong/91bf0a6c622dde8ea89eab0114298cda) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/osl-first-to-be-granted-amlo-licence)
+ 
 
 
 

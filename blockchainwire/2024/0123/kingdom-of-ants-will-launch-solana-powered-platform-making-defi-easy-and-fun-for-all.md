@@ -49,7 +49,11 @@ X (Twitter) | Telegram | Discord
 [Original/Source Press Release](https://blockchainwire.io/press-release/kingdom-of-ants-will-launch-solana-powered-platform-making-defi-easy-and-fun-for-all)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kingdom-of-ants-koa-to-revolutionize-defi-with-solana-based-platform-and-sustainable-apy/3819402a00a61ceebd07e4ecfc6c1392) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/23/kingdom-of-ants-revolutionizing-defi-with-a-gamified-solana-powered-platform)
+ 
 
 
 

@@ -29,7 +29,17 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-quantum-nyse-qbts-extends-quantum-ai-product-roadmap/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-inc-extends-quantum-ai-product-roadmap-and-quantum-cloud-service-enhancements/bdc22521aad9937e4ce235aeefea5ae3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/d-wave-quantum-expands-quantum-ai-product-roadmap-enhancing-quantum-cloud-service)
+
+Pickup - [fishervista.com](https://fishervista.com/en/d-wave-quantum-extends-quantum-ai-product-roadmap/20246535)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/d-wave-quantum-expands-quantum-ai-product-roadmap-to-enhance-ai-and-machine-learning-capabilities/20246535)
+
+Pickup - [advos.io](https://advos.io/en/d-wave-quantum-expands-quantum-ai-product-roadmap/20246535)
+ 
 
 
 

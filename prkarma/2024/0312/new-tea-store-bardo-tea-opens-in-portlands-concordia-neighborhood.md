@@ -41,7 +41,11 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/crothersconsulting/news_release/1424)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bardo-tea-opens-first-retail-location-in-portland-or/fa52795fc7b77bba1a67094c85995635) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/bardo-tea-a-new-tea-experience-in-portland-s-concordia-neighborhood)
+ 
 
 
 

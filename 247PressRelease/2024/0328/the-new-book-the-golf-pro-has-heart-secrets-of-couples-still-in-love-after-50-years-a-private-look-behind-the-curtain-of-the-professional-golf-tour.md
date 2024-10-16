@@ -7,7 +7,11 @@ SCOTTSDALE, AZ, March 28, 2024 /24-7PressRelease/ -- In a world where relationsh
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509617/the-new-book-the-golf-pro-has-heart-secrets-of-couples-still-in-love-after-50-years-a-private-look-behind-the-curtain-of-the-professional-golf-tour)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-relationship-guru-releases-101-romantic-ideas-to-reignite-passion-and-foster-enduring-connections/61d6b515c9a8092e9f26157f31164fd0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/ignite-the-flames-of-love-with-101-romantic-ideas)
+ 
 
 
 

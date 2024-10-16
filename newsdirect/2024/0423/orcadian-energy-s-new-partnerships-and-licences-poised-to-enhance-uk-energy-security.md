@@ -29,7 +29,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/orcadian-ener
 [Original/Source Press Release](https://newsdirect.com/news/orcadian-energys-new-partnerships-and-licences-poised-to-enhance-uk-energy-security-163585289)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/orcadian-energy-s-new-partnerships-and-licenses-poised-to-enhance-uk-energy-security/8bcafddfc481481f8466139671c024bf) 
+
+ 
 
 
 

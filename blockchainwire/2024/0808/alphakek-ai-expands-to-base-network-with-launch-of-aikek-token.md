@@ -31,7 +31,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/alphakek-ai-expands-to-base-network-with-launch-of-aikek-token)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alphakek-ai-expands-aikek-token-to-base-network-enhancing-utility-and-accessibility/520d31f4f1f2a0a0cb532b45b1f7ae63) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/alphakek-ai-expands-aikek-token-to-coinbase-s-base-network/20245582)
+
+Pickup - [advos.io](https://advos.io/en/alphakek-ai-expands-aikek-token-to-coinbase-s-base-network/20245582)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/alphakek-ai-expands-aikek-token-to-base-network-enhancing-utility-and-accessibility)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/alphakek-ai-expands-aikek-token-to-base-network-enhancing-utility-and-accessibility)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/alphakek-ai-expands-aikek-token-to-base-network-enhancing-accessibility-and-utility/20245582)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/alphakek-ai-to-launch-aikek-token-on-base-network-expanding-reach-of-ai-powered-crypto-tools)
+ 
 
 
 

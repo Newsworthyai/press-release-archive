@@ -7,7 +7,11 @@ WEST PALM BEACH, FL, April 02, 2024 /24-7PressRelease/ -- Vast Coworking Groupâ„
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509711/vast-coworking-group-reports-significant-growth-in-2023-and-bolsters-leadership-team-following-record-breaking-year)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vast-coworking-grouptm-achieves-double-digit-growth-in-2023-expands-global-footprint/2b6836a7c5ae7402fa118f60c062b175) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/vast-coworking-group-surges-ahead-with-remarkable-growth-and-expanded-leadership)
+ 
 
 
 

@@ -7,7 +7,9 @@ SARASOTA, FL, May 26, 2024 /24-7PressRelease/ -- Sarasota AC repair experts at A
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511181/sarasota-ac-repair-replacement-and-installation-pros-at-acs-home-services-donate-air-conditioner-to-local-family)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sarasota-ac-repair-company-donates-free-a-c-unit-to-family-in-need/1d96c4a061976378ec144bd184a52c46) 
+
+ 
 
 
 

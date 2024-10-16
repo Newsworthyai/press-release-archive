@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bestgrowthsto
 [Original/Source Press Release](https://newsdirect.com/news/bestgrowthstocks-com-issues-comprehensive-evaluation-of-xti-aerospace-inc-275762893)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/best-growth-stocks-issues-comprehensive-evaluation-of-xti-aerospace-inc/18cf4217352cb41b1d7554d8bc9dcaa8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/xti-aerospace-gains-investor-attention-with-trifan-600-vtol-aircraft)
+ 
 
 
 

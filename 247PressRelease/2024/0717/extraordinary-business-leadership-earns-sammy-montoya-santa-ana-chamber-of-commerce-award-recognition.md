@@ -7,7 +7,15 @@ SANTA, ANA, CA, July 17, 2024 /24-7PressRelease/ -- The Executives' Association 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512589/extraordinary-business-leadership-earns-sammy-montoya-santa-ana-chamber-of-commerce-award-recognition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sammy-montoya-of-la-chiquita-restaurant-receives-difference-makers-award/845c4aa84a86187056f99cfba1ea0f7d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/santa-ana-chamber-of-commerce-honors-sammy-montoya-with-difference-makers-award)
+
+Pickup - [fishervista.com](https://fishervista.com/en/sammy-montoya-receives-santa-ana-chamber-of-commerce-difference-makers-award/20245014)
+
+Pickup - [advos.io](https://advos.io/en/sammy-montoya-honored-with-santa-ana-chamber-of-commerce-award/20245014)
+ 
 
 
 

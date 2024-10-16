@@ -55,7 +55,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/with-the-effe
 [Original/Source Press Release](https://newsdirect.com/news/with-the-effective-end-of-the-6-real-estate-commission-standard-realphas-ai-powered-homebuying-platform-hopes-to-shake-up-the-industry-142473341)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/real-estate-commission-standard-set-to-end-realpha-s-ai-powered-homebuying-platform-aims-to-shake-up-the-industry/37bd553e983ee523afbdb6b88efd3c27) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/realpha-s-ai-powered-platform-poised-to-disrupt-real-estate-industry-amid-commission-changes)
+
+Pickup - [fishervista.com](https://fishervista.com/en/realpha-s-ai-platform-poised-to-disrupt-real-estate-industry-amid-commission-changes/20246778)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/realpha-s-ai-platform-poised-to-disrupt-real-estate-industry-as-6-commission-standard-ends/20246778)
+
+Pickup - [advos.io](https://advos.io/en/realpha-s-ai-platform-poised-to-disrupt-real-estate-industry-amid-commission-changes/20246778)
+ 
 
 
 

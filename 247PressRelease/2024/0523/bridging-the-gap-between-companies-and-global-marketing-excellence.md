@@ -7,7 +7,9 @@ VANCOUVER, BC, May 23, 2024 /24-7PressRelease/ -- Today, Via Marketing Co. annou
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511087/bridging-the-gap-between-companies-and-global-marketing-excellence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/via-marketing-co-introduces-client-centric-shift-in-marketing-agency-model/46b9d41527567e06da37ba5e28eb78d4) 
+
+ 
 
 
 

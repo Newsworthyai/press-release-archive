@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/pre-market-bi
 [Original/Source Press Release](https://newsdirect.com/news/pre-market-bitget-adds-eigenlayer-eigen-tokens-for-its-users-before-launch-828936511)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-adds-eigenlayer-eigen-tokens-for-users-before-launch/b72ef9e0fa54a80a056e9f8dc83178a9) 
+
+ 
 
 
 

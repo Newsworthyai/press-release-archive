@@ -51,7 +51,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/smatl-ltd-sma-exchange-smatlcom-has-successfully-registered-with-the-sec-and-initiated-a-series-of-public-welfare-activities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/smatl-ltd-successfully-files-with-sec-and-launches-public-welfare-activities/c87d83f91b68e4701feed030124d2aac) 
+
+ 
 
 
 

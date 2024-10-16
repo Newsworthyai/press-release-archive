@@ -38,7 +38,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-new-fintopio-defi-wallet-launches-in-open-beta-on-telegram-and-web-app)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fintopio-launches-beta-version-of-defi-wallet-for-telegram-crypto-payments/95dafe490fe3ad2d5013646b944c09b2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/the-new-fintopio-defi-wallet-launches-in-open-beta-on-telegram-and-web-app)
+ 
 
 
 

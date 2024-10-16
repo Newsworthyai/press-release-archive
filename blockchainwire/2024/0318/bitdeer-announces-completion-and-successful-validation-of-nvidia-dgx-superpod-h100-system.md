@@ -21,7 +21,11 @@ This successful deployment signifies an important milestone in Bitdeer's dedicat
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitdeer-announces-completion-and-successful-validation-of-nvidia-dgx-superpod-h100-system)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitdeer-completes-deployment-of-nvidia-dgx-superpod-h100-system/de30bcc667db4d216d35742e9698dc8c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/bitdeer-accelerates-ai-and-high-performance-computing-with-nvidia-dgx-superpod-h100)
+ 
 
 
 

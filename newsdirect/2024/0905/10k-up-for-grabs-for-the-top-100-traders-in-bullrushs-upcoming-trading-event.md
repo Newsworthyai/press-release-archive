@@ -45,7 +45,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/10k-up-for-gr
 [Original/Source Press Release](https://newsdirect.com/news/10k-up-for-grabs-for-the-top-100-traders-in-bullrushs-upcoming-trading-event-372413977)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/join-bullrush-s-fantasy-trading-competition-and-win-a-share-of-10k-prize-pool/8579518b28b040bc35e8eeefb72d4a11) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/join-bullrush-s-fantasy-trading-competition-and-win-a-share-of-10k-prize-pool)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/join-bullrush-s-fantasy-trading-competition-and-win-a-share-of-10k-prize-pool)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/bullrush-launches-fantasy-trading-competition-with-10000-prize-pool)
+
+Pickup - [fishervista.com](https://fishervista.com/en/10k-prize-pool-announced-for-bullrush-s-trading-competition/20246564)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/bullrush-launches-fantasy-trading-competition-with-10000-prize-pool/20246564)
+
+Pickup - [advos.io](https://advos.io/en/10000-prize-pool-announced-for-bullrush-s-trading-competition/20246564)
+ 
 
 
 

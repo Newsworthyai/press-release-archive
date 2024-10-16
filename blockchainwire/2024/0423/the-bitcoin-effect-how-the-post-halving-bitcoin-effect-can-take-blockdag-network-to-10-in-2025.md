@@ -47,7 +47,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-bitcoin-effect-how-the-post-halving-bitcoin-effect-can-take-blockdag-network-to-10-in-2025)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-halving-sparks-crypto-interest/3cbe7ace3634b4d4b7b069506a1de205) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/the-bitcoin-effect-how-the-post-halving-bitcoin-effect-can-take-blockdag-network-to-10-in-2025)
+ 
 
 
 

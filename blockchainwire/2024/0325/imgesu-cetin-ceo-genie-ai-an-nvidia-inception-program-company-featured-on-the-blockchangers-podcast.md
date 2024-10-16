@@ -39,7 +39,11 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/imgesu-cetin-ceo-genie-ai-an-nvidia-inception-program-company-featured-on-the-blockchangers-podcast)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/enzo-villani-ceo-of-alpha-transform-holdings-interviews-genie-ai-ceo-imgesu-cetin/477f15628dde4b8ac3d2fead74a90289) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/genie-ai-ceo-imgesu-cetin-featured-on-blockchangers-podcast-by-alpha-transform)
+ 
 
 
 

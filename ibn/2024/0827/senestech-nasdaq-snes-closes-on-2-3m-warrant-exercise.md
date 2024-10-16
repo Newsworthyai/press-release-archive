@@ -7,7 +7,17 @@ SenesTech (NASDAQ: SNES), the rodent fertility control experts and inventors of 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestech-nasdaq-snes-closes-on-2-3m-warrant-exercise/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/senestech-closes-warrant-exercise-and-issues-new-shares/209c0654de54a71528d811bc0c9402cf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/senestech-secures-2-3-million-through-warrant-exercise-bolstering-rodent-fertility-control-efforts)
+
+Pickup - [fishervista.com](https://fishervista.com/en/senestech-secures-2-3m-through-warrant-exercise-to-advance-rodent-fertility-control-solutions/20246189)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/senestech-secures-2-3-million-through-warrant-exercise-bolstering-rodent-fertility-control-efforts/20246189)
+
+Pickup - [advos.io](https://advos.io/en/senestech-raises-2-3m-through-warrant-exercise/20246189)
+ 
 
 
 

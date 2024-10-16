@@ -19,7 +19,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/acarix-announ
 [Original/Source Press Release](https://newsdirect.com/news/acarix-announces-shares-are-now-being-traded-on-the-otcqb-under-the-ticker-acixf-960444671)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/acarix-ceo-announces-trading-on-otcqb-market-in-the-us/7e03645768e6463fde4e121c80172cc4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/acarix-expands-market-presence-with-otcqb-listing-advancing-coronary-artery-disease-diagnostics)
+
+Pickup - [fishervista.com](https://fishervista.com/en/acarix-shares-now-trading-on-otcqb-market-under-ticker-acixf/20245357)
+
+Pickup - [advos.io](https://advos.io/en/acarix-begins-trading-on-otcqb-expands-investor-base-in-the-us/20245357)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/acarix-expands-investor-access-with-otcqb-listing-targets-u-s-market-growth)
+ 
 
 
 

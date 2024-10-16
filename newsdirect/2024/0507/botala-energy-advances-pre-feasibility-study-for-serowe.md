@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/botala-energy
 [Original/Source Press Release](https://newsdirect.com/news/botala-energy-advances-pre-feasibility-study-for-serowe-293245491)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/botala-energy-advances-pre-feasibility-study-for-serowe/4c9b585147da2b3233d41335fd611038) 
+
+ 
 
 
 

@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/sovereign-met
 [Original/Source Press Release](https://newsdirect.com/news/sovereign-metals-steps-up-operations-with-new-cto-and-industrial-equipment-442674343)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sovereign-metals-accelerates-operations-with-new-cto-and-industrial-equipment/bb9c783ebe12bf2a40c9adc96edab423) 
+
+ 
 
 
 

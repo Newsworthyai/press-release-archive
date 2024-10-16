@@ -37,7 +37,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/repost-dog-launches-campaign-to-break-world-record-for-most-reposted-tweet)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/repost-the-dog-launches-campaign-to-break-world-record-for-most-reposted-tweet/31898c95dbf39b1d24b0e026a7c45d5a) 
+
+ 
 
 
 

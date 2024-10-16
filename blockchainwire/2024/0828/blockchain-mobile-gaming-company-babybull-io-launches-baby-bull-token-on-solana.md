@@ -53,7 +53,21 @@ X/Twitter: https://twitter.com/babybullfanpageYoutube: Baby Bull - YouTube
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockchain-mobile-gaming-company-babybullio-launches-baby-bull-token-on-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/babybull-io-launches-bull-token-and-innovative-mobile-games-on-solana-blockchain/e0ac627f948b0473c84a367969918ab0) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/babybull-io-launches-bull-token-and-innovative-mobile-games-on-solana-blockchain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/babybull-io-launches-bull-token-and-innovative-mobile-games-on-solana-blockchain)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/babybull-io-launches-bull-token-and-mobile-games-on-solana-blockchain)
+
+Pickup - [fishervista.com](https://fishervista.com/en/babybull-io-introduces-bull-token-and-mobile-games-on-solana-blockchain/20246331)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/babybull-io-launches-bull-token-and-mobile-games-on-solana-blockchain/20246331)
+
+Pickup - [advos.io](https://advos.io/en/blockchain-mobile-gaming-firm-babybull-io-unveils-bull-token-on-solana/20246331)
+ 
 
 
 

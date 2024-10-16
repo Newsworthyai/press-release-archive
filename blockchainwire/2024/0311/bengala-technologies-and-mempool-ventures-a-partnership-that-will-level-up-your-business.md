@@ -33,7 +33,11 @@ About BengalaTech.ioBengala Technologies combines deep industry knowledge and te
 [Original/Source Press Release](https://blockchainwire.io/press-release/bengala-technologies-and-mempool-ventures-a-partnership-that-will-level-up-your-business)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bengala-technologies-partners-with-mempool-ventures-to-fuel-unparalleled-growth/e0a2099d23ebc26f92c67ab952929cde) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/bengala-technologies-and-mempool-ventures-unlocking-unparalleled-business-growth)
+ 
 
 
 

@@ -7,7 +7,9 @@ NEW YORK, NY / MUMBAI, INDIA, October 01, 2024 /24-7PressRelease/ -- Digital Bui
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514835/digital-building-solutions-and-sigma-byte-computers-announce-strategic-partnership)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dbs-and-sigma-byte-form-strategic-partnership-for-smart-building-projects/b9f236dd5fd6a0fa9c038eed727b8a60) 
+
+ 
 
 
 

@@ -167,7 +167,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/brainers-announces-token-listing-on-mexc-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brainers-token-to-launch-on-mexc-a-new-era-for-social-media/f6d179e371a8f358d1640d2028415903) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/brainers-token-lists-on-mexc-exchange-unlocking-new-opportunities)
+ 
 
 
 

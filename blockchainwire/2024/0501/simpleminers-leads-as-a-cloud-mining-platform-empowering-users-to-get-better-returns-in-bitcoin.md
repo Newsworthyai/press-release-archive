@@ -41,7 +41,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/simpleminers-leads-as-a-cloud-mining-platform-empowering-users-to-get-better-returns-in-bitcoin)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/simpleminers-empowering-users-with-lucrative-bitcoin-mining-contracts/abd7d2fdc6c0c000f37d294167dd773d) 
+
+ 
 
 
 

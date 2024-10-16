@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/royal-charter
 [Original/Source Press Release](https://newsdirect.com/news/royal-charter-elevates-european-american-universitys-educational-offerings-388208847)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/european-american-university-receives-royal-charter-and-international-validation/6580a967fa7f5df27623c8d2dd3b9458) 
+
+
+Pickup - [advos.io](https://advos.io/en/european-american-university-receives-royal-charter-and-expands-global-educational-reach/20243958)
+ 
 
 
 

@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nickel-could-
 [Original/Source Press Release](https://newsdirect.com/news/nickel-could-ride-the-wave-of-rising-demand-for-clean-energy-and-evs-818251808)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nickel-could-ride-the-wave-of-rising-demand-for-clean-energy-and-evs/e6a2121a621da31eb08d74144715f201) 
+
+ 
 
 
 

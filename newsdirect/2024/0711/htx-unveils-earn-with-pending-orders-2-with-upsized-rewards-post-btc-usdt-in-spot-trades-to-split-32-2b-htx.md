@@ -55,7 +55,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-unveils-e
 [Original/Source Press Release](https://newsdirect.com/news/htx-unveils-earn-with-pending-orders-2-with-upsized-rewards-post-btc-usdt-in-spot-trades-to-split-32-2b-htx-562797900)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-unveils-earn-with-pending-orders-2-with-upsized-rewards/23739706893d5e43dd4352aaf8f6fb89) 
+
+
+Pickup - [advos.io](https://advos.io/en/htx-announces-second-phase-of-earn-with-pending-orders-with-enhanced-rewards/20244867)
+
+Pickup - [fishervista.com](https://fishervista.com/en/htx-launches-second-phase-of-earn-with-pending-orders-with-enhanced-rewards/20244867)
+
+Pickup - [citybuzz.co](https://citybuzz.co/htx-launches-second-phase-of-earn-with-pending-orders-event-with-increased-rewards)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-unveils-earn-with-pending-orders-2-with-upsized-rewards)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-unveils-earn-with-pending-orders-2-with-upsized-rewards)
+ 
 
 
 

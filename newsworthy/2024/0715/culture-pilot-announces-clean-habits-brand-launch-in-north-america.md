@@ -31,7 +31,15 @@ Contact:info@synbioconcept.com(832) 930-4313www.getcleanhabits.com
 [Original/Source Press Release](https://newsworthy.ai/news/202407151211/culture-pilot-announces-clean-habits-brand-launch-in-north-america)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clean-habits-revolutionizing-cleanliness-with-heiq-synbio-technology/0f0b24ba31e39906753a3e9c052b6c7d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/clean-habits-launches-revolutionary-cleaning-products-with-probiotic-technology-in-north-america)
+
+Pickup - [fishervista.com](https://fishervista.com/en/clean-habits-launches-in-north-america-with-revolutionary-heiq-synbio-technology/20244945)
+
+Pickup - [advos.io](https://advos.io/en/clean-habits-launches-innovative-cleaning-products-in-north-america/20244945)
+ 
 
 
 

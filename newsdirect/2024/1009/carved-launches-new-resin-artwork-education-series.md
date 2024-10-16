@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/carved-launch
 [Original/Source Press Release](https://newsdirect.com/news/carved-launches-new-resin-artwork-education-series-976194588)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/carved-launches-new-resin-artwork-education-series/bac4fb31392aace3bd7d16800831cd43) 
+
+ 
 
 
 

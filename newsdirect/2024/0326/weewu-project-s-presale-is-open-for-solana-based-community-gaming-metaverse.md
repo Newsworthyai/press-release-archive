@@ -40,7 +40,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/weewu-project
 [Original/Source Press Release](https://newsdirect.com/news/weewu-projects-presale-is-open-for-solana-based-community-gaming-metaverse-242932732)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/weewu-token-presale-underway-redefining-gaming-experience-with-blockchain/902b598ad8403ebbbdfd2dae2621726a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/weewu-token-presale-underway-for-solana-based-gaming-metaverse)
+ 
 
 
 

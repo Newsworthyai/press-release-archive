@@ -29,7 +29,17 @@ SenesTech’s (NASDAQ: SNES) flagship product, Evolve(TM), has repeatedly demons
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestechs-nasdaq-snes-evolvetm-offers-proactive-approach-to-rat-problem/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/senestech-s-evolve-tm-provides-humane-rat-control-alternative/d3f5eeedfa4152fc58ee42eaafc337e3) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/senestech-s-evolve-tm-introduces-humane-effective-rat-control-solution/20246091)
+
+Pickup - [advos.io](https://advos.io/en/senestechs-evolve-tm-introduces-humane-and-effective-approach-to-rat-control/20246091)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/23/senestech-s-evolvetm-offers-innovative-humane-solution-to-rat-population-control)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/senestech-s-evolvetm-offers-innovative-solution-to-rat-control/20246091)
+ 
 
 
 

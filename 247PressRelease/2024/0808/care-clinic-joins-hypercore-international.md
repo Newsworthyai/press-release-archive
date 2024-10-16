@@ -7,7 +7,17 @@ CALGARY, AB, August 08, 2024 /24-7PressRelease/ -- hyperCORE International is pl
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513226/care-clinic-joins-hypercore-international)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hypercore-international-welcomes-care-clinic-to-its-network/5b84c4d0969f9140884772cacc7007e7) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/care-clinic-joins-hypercore-international-s-global-clinical-trial-network/20245569)
+
+Pickup - [advos.io](https://advos.io/en/care-clinic-joins-hypercore-international-s-expanding-global-network/20245569)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/care-clinic-joins-hypercore-international-expanding-clinical-trial-capabilities-in-canada/20245569)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/care-clinic-joins-hypercore-international-expanding-global-clinical-trial-capabilities)
+ 
 
 
 

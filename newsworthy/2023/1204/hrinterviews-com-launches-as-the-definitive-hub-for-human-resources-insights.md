@@ -23,7 +23,13 @@ Discover the nuances of human resources by visiting www.HRInterviews.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231204825/hrinterviews-com-launches-as-the-definitive-hub-for-human-resources-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-digital-platform-hrinterviews-com-unveiled-to-enrich-hr-dynamics/30d505d8283fd14955469250bc7bf255) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hrinterviews-com-launches-as-comprehensive-resource-for-human-resources-professionals/2023404)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/04/hrinterviews-com-emerges-as-premier-hub-for-hr-insights)
+ 
 
 
 

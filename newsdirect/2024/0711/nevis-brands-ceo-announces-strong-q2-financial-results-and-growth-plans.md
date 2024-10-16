@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nevis-brands-
 [Original/Source Press Release](https://newsdirect.com/news/nevis-brands-ceo-announces-strong-q2-financial-results-and-growth-plans-714374713)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nevis-brands-ceo-announces-strong-q2-financial-results-and-growth-plans/6f364a59a04fef6761ad2e4c9884ddea) 
+
+ 
 
 
 

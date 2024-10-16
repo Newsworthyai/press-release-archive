@@ -7,7 +7,11 @@ TAMPA, FL, April 10, 2024 /24-7PressRelease/ -- Melone Hatley, P.C. is happy to 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509907/melone-hatley-pc-expands-its-footprint-in-tampa-florida)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/melone-hatley-p-c-expands-to-tampa-fl-with-new-office-led-by-attorney-peter-bradshaw/b8673d80ceaf6f32b60b5e1eab9f7c90) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/melone-hatley-p-c-expands-to-tampa-florida)
+ 
 
 
 

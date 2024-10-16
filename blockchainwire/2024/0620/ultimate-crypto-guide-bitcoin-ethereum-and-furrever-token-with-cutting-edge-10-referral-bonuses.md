@@ -23,7 +23,17 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/ultimate-crypto-guide-bitcoin-ethereum-and-furrever-token-with-cutting-edge-10-referral-bonuses)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/furrever-token-the-next-big-player-in-the-crypto-space/d1ff159b235f103c7af7026e19c0ce98) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/furrever-token-emerges-with-innovative-10-referral-bonuses-amidst-bitcoin-and-ethereum-market-fluctuations/20244344)
+
+Pickup - [advos.io](https://advos.io/en/furrever-token-the-new-contender-in-the-crypto-world-with-a-unique-referral-system/20244344)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/furrever-token-the-next-big-player-in-the-crypto-space)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/furrever-token-the-next-big-player-in-the-crypto-space)
+ 
 
 
 

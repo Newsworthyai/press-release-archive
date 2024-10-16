@@ -51,7 +51,11 @@ Email:pr@teccrypto.comCompany: Crypto Technology LimitedWebsite: https://teccry
 [Original/Source Press Release](https://blockchainwire.io/press-release/teccrypto-revolutionizing-cloud-mining-efficiency-with-new-asic-chip-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teccrypto-unveils-game-changing-asic-chip-technology-for-cloud-mining/a2dffd6f2f43c06557cc5400b50b2fdf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/19/teccrypto-unveils-groundbreaking-asic-chip-technology-for-efficient-cloud-mining)
+ 
 
 
 

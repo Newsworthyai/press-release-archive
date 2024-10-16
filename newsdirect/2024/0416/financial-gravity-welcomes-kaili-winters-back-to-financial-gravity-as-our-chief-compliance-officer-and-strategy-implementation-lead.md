@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/financial-gra
 [Original/Source Press Release](https://newsdirect.com/news/financial-gravity-welcomes-kaili-winters-back-to-financial-gravity-as-our-chief-compliance-officer-and-strategy-implementation-lead-407737170)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/financial-gravity-appoints-kaili-winters-as-chief-compliance-officer-and-strategy-implementation-lead/e5f2c3077e169f2dba61fb4ee140be39) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/financial-gravity-welcomes-kaili-winters-back-as-chief-compliance-officer-and-strategy-implementation-lead)
+ 
 
 
 

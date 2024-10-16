@@ -28,7 +28,9 @@ Justin McKenziejustin@buildingtexasshow.comwww.buildingtexasshow.com
 [Original/Source Press Release](https://newsworthy.ai/news/202409181264/boerne-little-league-celebrates-momentous-trip-to-the-2024-little-league-world-series-on-the-building-texas-show)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/building-texas-show-spotlights-boerne-little-league-s-journey-to-little-league-world-series/fb2de75a71bcd1733ad45c9e5ff55104) 
+
+ 
 
 
 

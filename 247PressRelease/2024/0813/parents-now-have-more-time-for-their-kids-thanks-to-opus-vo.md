@@ -7,7 +7,17 @@ BOCA RATON, FL, August 13, 2024 /24-7PressRelease/ -- Opus Virtual Offices, nati
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513350/parents-now-have-more-time-for-their-kids-thanks-to-opus-vo)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/opus-virtual-offices-helps-working-parents-reclaim-time-with-children/2a7ae269971a8c3142d4baca6d6fe56a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/opus-virtual-offices-empowers-working-parents-to-spend-more-time-with-children)
+
+Pickup - [fishervista.com](https://fishervista.com/en/opus-virtual-offices-empowers-working-parents-to-reclaim-family-time/20245678)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/opus-virtual-offices-helps-working-parents-balance-career-and-family/20245678)
+
+Pickup - [advos.io](https://advos.io/en/opus-virtual-offices-helps-parents-reclaim-family-time/20245678)
+ 
 
 
 

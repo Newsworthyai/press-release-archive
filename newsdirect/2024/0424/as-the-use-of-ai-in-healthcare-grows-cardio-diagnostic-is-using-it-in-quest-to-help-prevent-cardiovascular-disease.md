@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/as-the-use-of
 [Original/Source Press Release](https://newsdirect.com/news/as-the-use-of-ai-in-healthcare-grows-cardio-diagnostic-is-using-it-in-quest-to-help-prevent-cardiovascular-disease-276589081)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-telemedicine-and-cardio-diagnostics-transforming-cardiovascular-disease-care/9f91deb9aec79f9f92c18ac8d73e8c55) 
+
+ 
 
 
 

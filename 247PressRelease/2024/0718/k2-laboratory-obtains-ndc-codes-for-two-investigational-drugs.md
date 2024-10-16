@@ -7,7 +7,15 @@ LOS ANGELES, CA, July 18, 2024 /24-7PressRelease/ -- K2 Laboratory recently anno
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512633/k2-laboratory-obtains-ndc-codes-for-two-investigational-drugs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/k2-laboratory-milestone-ndc-numbers-obtained-for-investigational-drugs/03da56858cfcfb9422047bb7ad289960) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/k2-laboratory-advances-research-with-ndc-codes-for-two-investigational-drugs)
+
+Pickup - [fishervista.com](https://fishervista.com/en/k2-laboratory-secures-ndc-codes-for-alzheimer-s-and-cancer-investigational-drugs/20245034)
+
+Pickup - [advos.io](https://advos.io/en/k2-laboratory-secures-ndc-codes-for-alzheimer-s-and-cancer-investigational-drugs/20245034)
+ 
 
 
 

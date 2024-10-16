@@ -53,7 +53,17 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/battle-of-memes-sponsors-blockbuster-boxing-event-with-over-30m-live-views-shaking-up-the-crypto-world)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/battle-of-memes-announces-sponsorship-of-largest-celebrity-boxing-event/fcb61cf6617f3368f422ab874d1e6879) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/battle-of-memes-sponsors-record-breaking-celebrity-boxing-event-redefining-crypto-marketing/20244556)
+
+Pickup - [advos.io](https://advos.io/en/battle-of-memes-sponsors-major-celebrity-boxing-event-boosting-crypto-visibility/20244556)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/battle-of-memes-announces-sponsorship-of-largest-celebrity-boxing-event)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/battle-of-memes-announces-sponsorship-of-largest-celebrity-boxing-event)
+ 
 
 
 

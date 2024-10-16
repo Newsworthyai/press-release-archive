@@ -61,7 +61,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-holds-firm-above-69000-cryptoheap-navigates-market-selloff-with-resilience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-resilience-and-cryptoheap-s-strategic-positioning-amid-market-volatility/2cec4210fbae41c80095a2484e130781) 
+
+
+Pickup - [advos.io](https://advos.io/en/bitcoin-remains-strong-above-69000-amid-market-volatility-cryptoheap-navigates-with-resilience/20244125)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-resilience-and-cryptoheap-s-strategic-positioning-amid-market-volatility)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-resilience-and-cryptoheap-s-strategic-positioning-amid-market-volatility)
+ 
 
 
 

@@ -21,7 +21,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/10000000-transactions-per-week-cryptonica-reaches-a-new-milestone)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptonica-achieves-milestone-of-processing-10000000-transactions-per-week/c346241e452cc775d9b17bfa310217c0) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cryptonica-reaches-milestone-with-10-million-weekly-transactions/20245324)
+
+Pickup - [advos.io](https://advos.io/en/cryptonica-hits-10-million-weekly-transactions-sets-new-industry-standard/20245324)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cryptonica-achieves-milestone-of-processing-10000000-transactions-per-week)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cryptonica-achieves-milestone-of-processing-10000000-transactions-per-week)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/cryptonica-achieves-10-million-weekly-transactions-signaling-surge-in-crypto-atm-usage)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cryptonica-achieves-record-10-million-weekly-transactions-on-crypto-atms)
+ 
 
 
 

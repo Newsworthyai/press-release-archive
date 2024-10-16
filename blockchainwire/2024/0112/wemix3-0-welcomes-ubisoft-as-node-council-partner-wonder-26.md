@@ -28,7 +28,11 @@ The WEMIX blockchain mega-ecosystem features innovative services including WEMIX
 [Original/Source Press Release](https://blockchainwire.io/press-release/wemix30-welcomes-ubisoft-as-node-council-partner-wonder-26)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemade-welcomes-ubisoft-to-40-wonders-for-wemix3-0-mainnet/24f652d48289995620bd099e1b3c61a5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/12/wemix3-0-ecosystem-expands-with-ubisoft-as-new-node-council-partner)
+ 
 
 
 

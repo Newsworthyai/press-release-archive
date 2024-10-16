@@ -28,7 +28,15 @@ About Lunar StrategyLunar Strategy is an award-winning agency that has significa
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-leaders-to-unite-at-ai-lisbon-2024-presented-by-icp-hub--lunar-strategy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-ai-conference-2024-set-to-take-lisbon-by-storm/ad8263140b00302006453eeff212f260) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/crypto-ai-conference-2024-to-showcase-intersection-of-blockchain-and-artificial-intelligence-in-lisbon)
+
+Pickup - [fishervista.com](https://fishervista.com/en/crypto-ai-conference-2024-in-lisbon-to-unite-global-leaders-in-ai-and-blockchain/20245063)
+
+Pickup - [advos.io](https://advos.io/en/crypto-and-ai-leaders-to-convene-at-lisbon-s-ai-lisbon-2024/20245063)
+ 
 
 
 

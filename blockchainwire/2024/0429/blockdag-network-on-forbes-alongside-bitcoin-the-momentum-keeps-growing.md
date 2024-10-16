@@ -37,7 +37,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-network-on-forbes-alongside-bitcoin-the-momentum-keeps-growing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/forbes-spotlights-blockdag-network-in-the-cryptocurrency-industry/6ff23f44de307b6dbbae993ac1a2ccf5) 
+
+ 
 
 
 

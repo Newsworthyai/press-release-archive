@@ -55,7 +55,15 @@ Founded In 2021, RedBalloon has quickly become America’s largest woke-free job
 [Original/Source Press Release](https://newsworthy.ai/news/202406201200/its-a-game-of-hideology-for-conservatives-in-the-workplace-ai-tilts-hiring-toward-dei-california-leads-in-dei-hiring-discrimination)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-survey-reveals-workplace-discrimination-and-financial-struggles-for-us-job-seekers/63a60d3e4f44821e18195e7be3dd68d1) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-survey-reveals-dei-driven-hiring-discrimination-and-financial-struggles-among-american-job-seekers/20244315)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/ai-and-dei-practices-reshape-job-market-raising-concerns-among-conservative-job-seekers/20244315)
+
+Pickup - [advos.io](https://advos.io/en/survey-reveals-dei-discrimination-and-financial-struggles-for-u-s-job-seekers/20244315)
+ 
 
 
 

@@ -7,7 +7,9 @@ LONDON, ENGLAND, May 26, 2024 /24-7PressRelease/ -- In burgeoning urban landscap
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511182/the-urban-cyclists-conundrum-evaluating-bodywel-t16-vs-dyu-d3f-for-city-riding)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dyu-d3f-vs-bodywel-t16-a-comprehensive-comparison-of-electric-bikes-for-urban-living/25547d4df9208493380c168b6a05db1f) 
+
+ 
 
 
 

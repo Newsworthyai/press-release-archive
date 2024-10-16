@@ -7,7 +7,9 @@ SAN FRANCISCO, CA, May 22, 2024 /24-7PressRelease/ -- Medsien, a leading provide
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511078/medsien-named-veradigm-connects-app-of-the-month-expands-relationship-to-offer-unparalleled-remote-care-management-solutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/medsien-named-veradigm-connect-s-app-of-the-month/416a3fbd82600219c7ca41c62535213f) 
+
+ 
 
 
 

@@ -25,7 +25,9 @@ Visit Our Website
 [Original/Source Press Release](https://newsroom.prkarma.com/BirthdayFundraiserInc/news_release/1500)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/positive-difference-organization-hosts-third-annual-xmas-in-july-community-event/a97b4c615dc85bfb4c88164a7fb152c4) 
+
+ 
 
 
 

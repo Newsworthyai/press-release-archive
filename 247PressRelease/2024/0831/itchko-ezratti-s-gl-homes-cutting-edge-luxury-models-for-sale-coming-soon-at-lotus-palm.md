@@ -7,7 +7,17 @@ BOCA RATON, FL, August 31, 2024 /24-7PressRelease/ -- Itchko and Misha Ezratti's
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513950/itchko-ezrattis-gl-homes-cutting-edge-luxury-models-for-sale-coming-soon-at-lotus-palm)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/contemporary-model-homes-at-lotus-palm-unveiled-by-gl-homes-in-boca-raton/75251ec77d6397ea7e2963375ef637aa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/31/gl-homes-set-to-unveil-cutting-edge-luxury-models-at-lotus-palm-in-boca-raton)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gl-homes-announces-sale-of-cutting-edge-luxury-models-at-lotus-palm/20246416)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/gl-homes-to-launch-sale-of-luxury-model-homes-at-lotus-palm-in-boca-raton/20246416)
+
+Pickup - [advos.io](https://advos.io/en/gl-homes-announces-upcoming-sale-of-luxury-model-homes-at-lotus-palm/20246416)
+ 
 
 
 

@@ -7,7 +7,13 @@ BOSTON, MA, June 18, 2024 /24-7PressRelease/ -- iuvo has been named to Inc.'s an
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511690/iuvo-ranks-among-highest-scoring-businesses-on-incs-annual-list-of-best-workplaces-for-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iuvo-named-to-inc-s-best-workplaces-list-for-exceptional-company-culture/203c835b2d4cb2fb34028bf094bb474b) 
+
+
+Pickup - [advos.io](https://advos.io/en/iuvo-recognized-as-one-of-the-best-workplaces-by-inc-for-2024/20244226)
+
+Pickup - [fishervista.com](https://fishervista.com/en/iuvo-earns-spot-on-inc-s-2024-best-workplaces-list/20244226)
+ 
 
 
 

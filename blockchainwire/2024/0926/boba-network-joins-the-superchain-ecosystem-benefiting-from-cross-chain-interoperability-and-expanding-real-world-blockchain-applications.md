@@ -37,7 +37,9 @@ Learn more: https://boba.network/
 [Original/Source Press Release](https://blockchainwire.io/press-release/boba-network-joins-the-superchain-ecosystem-benefiting-from-cross-chain-interoperability-and-expanding-real-world-blockchain-applications)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boba-network-integrates-into-superchain-ecosystem/4f981ee706119ca1ea9f9992d7ef4c36) 
+
+ 
 
 
 

@@ -7,7 +7,19 @@ MEXICO CITY, MEXICO, July 20, 2024 /24-7PressRelease/ -- At Consensus 2024, a ga
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512683/fftv-media-technology-pioneers-voting-mechanism-with-blockchain-and-ai-ushering-in-the-web-30-era-for-short-series)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fftv-media-technology-unveils-blockchain-and-ai-integrated-voting-mechanism-at-consensus-2024/17821923e4b2b6b044a39599a8682244) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/fftv-media-technology-unveils-blockchain-and-ai-integrated-voting-mechanism-at-consensus-2024)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/fftv-media-technology-unveils-blockchain-and-ai-integrated-voting-mechanism-at-consensus-2024)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/20/fftv-media-technology-introduces-blockchain-and-ai-powered-voting-system-for-short-series)
+
+Pickup - [fishervista.com](https://fishervista.com/en/fftv-media-technology-introduces-blockchain-and-ai-voting-mechanism-ushering-in-web-3-0-for-short-dramas/20245129)
+
+Pickup - [advos.io](https://advos.io/en/fftv-media-technology-integrates-blockchain-and-ai-for-interactive-short-series/20245129)
+ 
 
 
 

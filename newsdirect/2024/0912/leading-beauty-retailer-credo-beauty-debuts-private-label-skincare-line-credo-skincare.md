@@ -59,7 +59,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/leading-beaut
 [Original/Source Press Release](https://newsdirect.com/news/leading-beauty-retailer-credo-beauty-debuts-private-label-skincare-line-credo-skincare-195024280)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/credo-beauty-introduces-new-clean-skincare-line-credo-skincare/4caf9b70891d6164b394d6441e84994b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/credo-beauty-launches-new-skincare-line-focused-on-hydration-and-sustainability)
+
+Pickup - [fishervista.com](https://fishervista.com/en/credo-beauty-launches-own-skincare-line-pushing-clean-beauty-standards-further/20246772)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/credo-beauty-launches-own-skincare-line-setting-new-standards-for-clean-beauty/20246772)
+
+Pickup - [advos.io](https://advos.io/en/credo-beauty-launches-own-skincare-line-pushing-clean-beauty-standards/20246772)
+ 
 
 
 

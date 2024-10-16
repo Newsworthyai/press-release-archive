@@ -7,7 +7,11 @@ SAN DIEGO, CA, June 07, 2024 /24-7PressRelease/ -- Go Skate Day, the biggest eve
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511494/goskate-celebrates-go-skateboarding-day-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/go-skate-day-2024-celebrating-skateboarding-s-global-impact/1bdb8185ef583e70b07298922fb0f5e4) 
+
+
+Pickup - [advos.io](https://advos.io/en/goskate-celebrates-go-skateboarding-day-2024-with-exciting-events-and-community-initiatives/20243920)
+ 
 
 
 

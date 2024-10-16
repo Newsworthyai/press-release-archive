@@ -33,7 +33,11 @@ Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/pandoshi-pambo-value-soars-500-since-initial-phase-currently-priced-at-001)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pandoshi-pambo-surges-by-500-in-value-redefining-defi-space/91fd8522d885df6e7d2b9ead9ec86e3f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/14/pandoshi-s-presale-success-signals-promising-future-in-decentralized-finance)
+ 
 
 
 

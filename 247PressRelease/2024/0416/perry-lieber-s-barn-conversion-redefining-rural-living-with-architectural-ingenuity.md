@@ -7,7 +7,9 @@ LOS ANGELES, CA, April 16, 2024 /24-7PressRelease/ --   Introduction: Nestled am
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510049/perry-liebers-barn-conversion-redefining-rural-living-with-architectural-ingenuity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/perry-lieber-s-barn-conversion-a-fusion-of-tradition-and-innovation/0664ae7fd07450390363ef3afcd3f613) 
+
+ 
 
 
 

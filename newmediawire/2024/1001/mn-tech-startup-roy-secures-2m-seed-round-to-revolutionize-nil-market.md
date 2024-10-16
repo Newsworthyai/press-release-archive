@@ -41,7 +41,9 @@ lindsey@joinroy.com
 [Original/Source Press Release](https://www.newmediawire.com/news/mn-tech-startup-roy-secures-2m-seed-round-to-revolutionize-nil-market-7076133)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/roy-secures-2-million-seed-funding-round-to-drive-nil-growth-and-innovation/4e2d111e8b77bcd29ff600ecea943276) 
+
+ 
 
 
 

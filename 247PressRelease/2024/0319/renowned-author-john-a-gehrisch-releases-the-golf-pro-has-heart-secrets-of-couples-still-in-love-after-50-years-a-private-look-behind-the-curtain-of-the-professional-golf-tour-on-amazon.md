@@ -7,7 +7,11 @@ SCOTTSDALE, AZ, March 19, 2024 /24-7PressRelease/ -- John A. Gehrisch, a celebra
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509355/renowned-author-john-a-gehrisch-releases-the-golf-pro-has-heart-secrets-of-couples-still-in-love-after-50-years-a-private-look-behind-the-curtain-of-the-professional-golf-tour-on-amazon)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/author-and-entrepreneur-john-a-gehrisch-launches-the-golf-pro-has-heart-on-amazon/4f953540ce10798920f9ab710e9bec53) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/renowned-author-unravels-secrets-of-lasting-love-and-professional-golf)
+ 
 
 
 

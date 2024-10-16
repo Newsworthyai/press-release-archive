@@ -49,7 +49,9 @@ Media Contact:Barbara Reececontact@snuke.wtf
 [Original/Source Press Release](https://blockchainwire.io/press-release/analysts-predicts-snuke-coin-could-outperform-bome-slerf-slot-and-dogwifhat-wif-on-solana-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-solana-based-meme-coin-snuke-announces-presale/54d732ec8716196b7664200fb1092aa0) 
+
+ 
 
 
 

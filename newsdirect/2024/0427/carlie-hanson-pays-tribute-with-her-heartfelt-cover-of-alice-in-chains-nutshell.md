@@ -69,7 +69,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/carlie-hanson
 [Original/Source Press Release](https://newsdirect.com/news/carlie-hanson-pays-tribute-with-her-heartfelt-cover-of-alice-in-chains-nutshell-929631304)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/carlie-hanson-pays-tribute-with-heartfelt-cover-of-alice-in-chains-nutshell/b3b83fbc58dfb2aac79d55e786c1764f) 
+
+ 
 
 
 

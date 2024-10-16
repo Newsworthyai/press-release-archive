@@ -72,7 +72,9 @@ Website: https://www.besagaming.comTelegram: https://t.me/GamingUmbrellaFacebook
 [Original/Source Press Release](https://blockchainwire.io/press-release/besa-gaming-revolutionizing-the-gaming-industry-with-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/besa-gaming-revolutionizing-blockchain-gaming-with-innovative-cryptocurrency-integration-and-immersive-experiences/87e21213f04e99e9a65eccb67ec18e7f) 
+
+ 
 
 
 

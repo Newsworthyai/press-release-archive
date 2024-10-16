@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-halving-and-blockdag-network-mining-explained-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-surges-to-all-time-high-blockdag-network-transforms-mining-industry/0a846d31bfe4c9f122cef01c7de8bea6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/bitcoin-halving-and-blockdag-network-reshaping-the-crypto-landscape)
+ 
 
 
 

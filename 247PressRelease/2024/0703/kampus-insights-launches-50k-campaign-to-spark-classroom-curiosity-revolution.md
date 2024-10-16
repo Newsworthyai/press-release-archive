@@ -7,7 +7,15 @@ ORLANDO, FL, July 03, 2024 /24-7PressRelease/ -- In an era of widespread student
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512245/kampus-insights-launches-50k-campaign-to-spark-classroom-curiosity-revolution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/education-company-launches-crowdfunding-campaign-to-revolutionize-classroom-engagement/da0dba1845ea6dfe142c9d535fb49181) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/kampus-insights-launches-50k-campaign-to-ignite-classroom-curiosity/20244683)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/education-startup-kampus-insights-launches-50k-crowdfunding-campaign-to-revolutionize-classroom-engagement)
+
+Pickup - [advos.io](https://advos.io/en/kampus-insights-launches-50k-campaign-to-spark-classroom-curiosity-revolution/20244683)
+ 
 
 
 

@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/this-online-g
 [Original/Source Press Release](https://newsdirect.com/news/this-online-gaming-and-sportsbook-company-is-looking-at-growing-in-brazil-677054316)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-matrix-group-ceo-discusses-growth-and-development-in-recent-interview/628b29e07a0308351154041c15589ae5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/golden-matrix-group-reports-strong-q2-growth-eyes-expansion-in-brazil)
+
+Pickup - [fishervista.com](https://fishervista.com/en/golden-matrix-group-eyes-expansion-into-brazil/20246198)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/golden-matrix-group-targets-expansion-into-brazilian-online-gaming-market/20246198)
+
+Pickup - [advos.io](https://advos.io/en/golden-matrix-group-eyes-expansion-in-brazil/20246198)
+ 
 
 
 

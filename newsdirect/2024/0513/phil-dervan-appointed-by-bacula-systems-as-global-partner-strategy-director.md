@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/phil-dervan-a
 [Original/Source Press Release](https://newsdirect.com/news/phil-dervan-appointed-by-bacula-systems-as-global-partner-strategy-director-459771487)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bacula-systems-appoints-phil-dervan-as-global-partner-strategy-director/5cc6bedee933d7a81dd303edaa8da9ba) 
+
+ 
 
 
 

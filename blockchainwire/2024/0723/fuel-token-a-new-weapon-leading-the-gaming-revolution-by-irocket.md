@@ -21,7 +21,19 @@ Disclaimer: This press release may contain forward-looking statements. Forward-l
 [Original/Source Press Release](https://blockchainwire.io/press-release/fuel-token-a-new-weapon-leading-the-gaming-revolution-by-irocket)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fuel-token-set-to-list-on-deepcoin-exchange-creating-buzz-in-cryptocurrency-and-gaming-communities/81e204bcb85ccf8f2177b98684462933) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/fuel-token-set-to-revolutionize-gaming-industry-with-early-deepcoin-listing)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/fuel-token-set-to-list-on-deepcoin-exchange-creating-buzz-in-cryptocurrency-and-gaming-communities)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/fuel-token-set-to-list-on-deepcoin-exchange-creating-buzz-in-cryptocurrency-and-gaming-communities)
+
+Pickup - [fishervista.com](https://fishervista.com/en/fuel-token-set-to-revolutionize-gaming-economy-with-early-listing-on-deepcoin/20245180)
+
+Pickup - [advos.io](https://advos.io/en/fuel-token-to-list-on-deepcoin-in-july-pioneering-change-in-gaming-economies/20245180)
+ 
 
 
 

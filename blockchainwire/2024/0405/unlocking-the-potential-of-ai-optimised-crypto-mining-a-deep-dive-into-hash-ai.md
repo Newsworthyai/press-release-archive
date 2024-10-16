@@ -7,7 +7,11 @@ In an industry where innovation is the currency of success, Hash AI emerges as a
 [Original/Source Press Release](https://blockchainwire.io/press-release/unlocking-the-potential-of-ai-optimised-crypto-mining-a-deep-dive-into-hash-ai-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hash-ai-revolutionizes-crypto-mining-with-ai-enhanced-solution/797dd09aa3b0d51d2d9ed6b8cf3cccec) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/hash-ai-pioneering-ai-driven-crypto-mining-solutions)
+ 
 
 
 

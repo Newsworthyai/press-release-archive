@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/olb-group-nas
 [Original/Source Press Release](https://newsdirect.com/news/olb-group-nasdaq-olb-preparing-for-strategic-spinoff-of-dmint-subsidiary-to-olb-shareholders-437443506)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/olb-group-to-spin-off-bitcoin-mining-subsidiary-dmint-to-shareholders/25fd02b5f45932cb56f327a32a2c5484) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/olb-group-unlocks-value-with-planned-spinoff-of-dmint-bitcoin-mining-subsidiary)
+ 
 
 
 

@@ -23,7 +23,11 @@ Stay updated and explore the expertise on offer by visiting www.PayrollTaxes.co.
 [Original/Source Press Release](https://newsworthy.ai/news/20231128859/payrolltaxes-co-launches-hub-for-all-things-payroll-taxes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-platform-payrolltaxes-co-launches-to-streamline-understanding-of-payroll-taxes/23aa3f492257bca00df01b0108a1331b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/28/payrolltaxes-co-a-comprehensive-hub-for-payroll-tax-insights)
+ 
 
 
 

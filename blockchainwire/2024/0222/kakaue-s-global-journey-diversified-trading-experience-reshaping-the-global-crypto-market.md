@@ -25,7 +25,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/kakaues-global-journey-diversified-trading-experience-reshaping-the-global-crypto-market)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kakaue-wallet-revamped-to-redefine-global-crypto-trading-standards/a54eddaed73be92cd80aac7934303305) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/22/kakaue-reshapes-global-crypto-market-with-diversified-trading-experience)
+ 
 
 
 

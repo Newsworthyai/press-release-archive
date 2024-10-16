@@ -7,7 +7,17 @@ VANCOUVER, BC, August 14, 2024 /24-7PressRelease/ -- For CCPCs, who have managed
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513415/salary-vs-dividend-tax-planning-post-2024-federal-budget)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/2024-tax-planning-maximizing-savings-for-ccpcs/694e11483e88f18139e62c6d7a739f01) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/tax-planning-strategies-for-canadian-controlled-private-corporations-in-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tax-planning-strategies-for-ccpcs-in-light-of-2024-federal-budget-changes/20245718)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/tax-planning-strategies-shift-for-canadian-businesses-post-2024-federal-budget/20245718)
+
+Pickup - [advos.io](https://advos.io/en/tax-planning-strategies-for-ccpcs-post-2024-federal-budget/20245718)
+ 
 
 
 

@@ -33,7 +33,17 @@ NewsRamp is a media technology platform that helps press release newswires ampli
 [Original/Source Press Release](https://newsworthy.ai/news/202408261246/newsworthy-ai-announces-full-integration-with-newsramp-com-enhancing-press-release-distribution-and-engagement)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newsworthy-ai-and-newsramp-com-announce-full-integration/4e2551d2e846887d2f2d3af5f627d990) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/newsworthy-ai-and-newsramp-com-integration-revolutionizes-press-release-distribution)
+
+Pickup - [fishervista.com](https://fishervista.com/en/newsworthy-ai-integrates-with-newsramp-com-to-revolutionize-press-release-distribution/20245940)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/newsworthy-ai-integrates-with-newsramp-com-to-revolutionize-press-release-distribution/20245940)
+
+Pickup - [advos.io](https://advos.io/en/newsworthy-ai-integrates-with-newsramp-com-to-enhance-press-release-distribution/20245940)
+ 
 
 
 

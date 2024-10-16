@@ -45,7 +45,21 @@ Website: CryptoGamesBlog: CryptoGames BlogForum: CryptoGames ForumTwitter (X): C
 [Original/Source Press Release](https://blockchainwire.io/press-release/celebrate-10-years-of-success-with-cryptogames)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptogames-celebrates-10th-anniversary-with-exciting-events-and-rewards/08538308514ebf3b6096e643f73c7fc3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/cryptogames-celebrates-10-year-milestone-with-exciting-anniversary-events)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cryptogames-celebrates-decade-of-innovation-in-cryptocurrency-gambling/20245851)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cryptogames-celebrates-10-year-anniversary-with-exciting-events-and-promotions/20245851)
+
+Pickup - [advos.io](https://advos.io/en/cryptogames-celebrates-10th-anniversary-with-exciting-events-and-rewards/20245851)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cryptogames-celebrates-10th-anniversary-with-exciting-events-and-rewards)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cryptogames-celebrates-10th-anniversary-with-exciting-events-and-rewards)
+ 
 
 
 

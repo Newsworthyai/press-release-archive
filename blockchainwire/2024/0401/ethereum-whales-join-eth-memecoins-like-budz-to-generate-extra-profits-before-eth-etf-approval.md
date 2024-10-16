@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/ethereum-whales-join-eth-memecoins-like-budz-to-generate-extra-profits-before-eth-etf-approval)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-whales-diversify-into-memecoins-ahead-of-etf-approval/ccf7f9289d8517d78faf1c8f7e1b9f52) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/ethereum-whales-embrace-memecoins-for-potential-gains-ahead-of-eth-etf-approval)
+ 
 
 
 

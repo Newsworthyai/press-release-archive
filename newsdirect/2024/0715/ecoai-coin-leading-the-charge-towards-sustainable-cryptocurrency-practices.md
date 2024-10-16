@@ -65,7 +65,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/ecoai-coin-le
 [Original/Source Press Release](https://newsdirect.com/news/ecoai-coin-leading-the-charge-towards-sustainable-cryptocurrency-practices-249178205)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renewable-energy-in-bitcoin-mining-ecoai-coin-leads-the-charge-on-sustainability/7c24c974d5c7d6f09f7d339a076340a2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/ecoai-coin-spearheads-sustainable-cryptocurrency-practices)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ecoai-coin-sets-new-standards-for-sustainable-cryptocurrency-practices/20244957)
+
+Pickup - [advos.io](https://advos.io/en/ecoai-coin-pioneers-sustainable-cryptocurrency-practices/20244957)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/renewable-energy-in-bitcoin-mining-ecoai-coin-leads-the-charge-on-sustainability)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/renewable-energy-in-bitcoin-mining-ecoai-coin-leads-the-charge-on-sustainability)
+ 
 
 
 

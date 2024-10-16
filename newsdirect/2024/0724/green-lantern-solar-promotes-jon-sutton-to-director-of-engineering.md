@@ -29,7 +29,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/green-lantern
 [Original/Source Press Release](https://newsdirect.com/news/green-lantern-solar-promotes-jon-sutton-to-director-of-engineering-228929111)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/green-lantern-solar-promotes-jon-sutton-to-director-of-engineering/14a5930f9c906f99de5a9f145b1bc3b7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/green-lantern-solar-elevates-jon-sutton-to-director-of-engineering-bolstering-renewable-energy-initiatives)
+
+Pickup - [fishervista.com](https://fishervista.com/en/green-lantern-solar-promotes-jon-sutton-to-director-of-engineering/20245214)
+
+Pickup - [advos.io](https://advos.io/en/green-lantern-solar-promotes-jon-sutton-to-director-of-engineering/20245214)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/green-lantern-solar-elevates-jon-sutton-to-director-of-engineering-role)
+ 
 
 
 

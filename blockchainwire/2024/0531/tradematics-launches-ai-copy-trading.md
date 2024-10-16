@@ -17,7 +17,9 @@ Media Contact:Andy[support@tradematics.com](mailto:support@tradematics.com)[http
 [Original/Source Press Release](https://blockchainwire.io/press-release/tradematics-launches-ai-copy-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tradematics-launches-new-ai-powered-trading-feature/524509b18c686ea8e226e59bb77f708f) 
+
+ 
 
 
 

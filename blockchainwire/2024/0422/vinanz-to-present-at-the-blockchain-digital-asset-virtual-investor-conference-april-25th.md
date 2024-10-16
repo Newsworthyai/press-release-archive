@@ -7,7 +7,11 @@ Vinanz Limited (OTCQB: VINZF and AQSE: BTC), the London listed Bitcoin mining co
 [Original/Source Press Release](https://blockchainwire.io/press-release/vinanz-to-present-at-the-blockchain--digital-asset-virtual-investor-conference-april-25th)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vinanz-limited-chairman-to-present-at-blockchain-digital-asset-virtual-investor-conference/aafc66658a71a011305bcecde3aa58b5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/vinanz-to-present-at-the-blockchain-digital-asset-virtual-investor-conference)
+ 
 
 
 

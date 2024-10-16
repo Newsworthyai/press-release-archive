@@ -7,7 +7,17 @@ NEW YORK, NY, July 31, 2024 /24-7PressRelease/ -- Ron Gordon Watch Repair, New Y
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512837/ron-gordon-watch-repair-announces-new-post-on-revival-of-the-longines-pilot-majetek)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ron-gordon-watch-repair-announces-new-content-focusing-on-longines-pilot-majetek/b2f9ed21496ffb64e02297dac9e49f65) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/longines-revives-iconic-pilot-majetek-watch-with-modern-enhancements)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ron-gordon-watch-repair-highlights-revival-of-longines-pilot-majetek/20245380)
+
+Pickup - [advos.io](https://advos.io/en/ron-gordon-watch-repair-highlights-the-revival-of-the-iconic-longines-pilot-majetek/20245380)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/longines-revives-iconic-pilot-majetek-a-blend-of-history-and-innovation)
+ 
 
 
 

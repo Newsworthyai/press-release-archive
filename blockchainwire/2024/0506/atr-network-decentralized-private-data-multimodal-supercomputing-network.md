@@ -35,7 +35,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/atr-network-decentralized-private-data-multimodal-supercomputing-network)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atr-network-introduces-web3-ai-supercomputer-network-to-address-data-security-and-privacy/6e878f64df2ed1aabcca65f519cd836a) 
+
+ 
 
 
 

@@ -7,7 +7,9 @@ INDIANAPOLIS, IN, May 24, 2024 /24-7PressRelease/ -- Craig, Kelley & Faultless, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511167/craig-kelley-faultless-partner-scott-a-faultless-achieves-recertification-in-truck-accident-law-from-the-national-board-of-trial-advocacy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scott-a-faultless-achieves-recertification-as-truck-accident-law-advocate/69210957dd122ffbb033725d6861e559) 
+
+ 
 
 
 

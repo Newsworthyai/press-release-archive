@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ecora-resourc
 [Original/Source Press Release](https://newsdirect.com/news/ecora-resources-reports-strong-q1-as-it-benefits-from-volume-growth-and-rising-commodity-prices-709023184)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ecora-resources-reports-strong-q1-performance-amid-volume-growth-and-rising-commodity-prices/b27a0afee223233724afeebe8bd48fe4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/ecora-resources-reports-strong-q1-as-it-benefits-from-volume-growth-and-rising-commodity-prices)
+ 
 
 
 

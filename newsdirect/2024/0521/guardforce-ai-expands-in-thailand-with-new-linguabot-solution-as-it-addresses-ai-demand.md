@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/guardforce-ai
 [Original/Source Press Release](https://newsdirect.com/news/guardforce-ai-expands-in-thailand-with-new-linguabot-solution-as-it-addresses-ai-demand-614038641)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/guardforce-ai-launches-linguabot-solution-in-thailand-plans-expansion/2237a031bd09034836f763c1e4838957) 
+
+ 
 
 
 

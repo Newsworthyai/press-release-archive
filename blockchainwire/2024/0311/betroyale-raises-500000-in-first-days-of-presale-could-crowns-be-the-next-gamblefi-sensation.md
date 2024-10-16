@@ -108,7 +108,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/betroyale-raises-500000-in-first-days-of-presale-could-crowns-be-the-next-gamblefi-sensation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/betroyale-s-bcrn-pre-seed-sale-exceeds-500000-launches-web3-token/fb3bd084b2e5017b9f9adcf689d285f4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/betroyale-crowns-token-presale-smashes-500000-in-early-days)
+ 
 
 
 

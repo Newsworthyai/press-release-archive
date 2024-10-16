@@ -39,7 +39,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/style-protocol-building-to-empower-gamers-closes-25m-seed-and-lists-token-on-major-exchanges)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/style-protocol-lists-style-token-on-major-exchanges/79e68bebe82d6f8ee9e1bed27745a5af) 
+
+ 
 
 
 

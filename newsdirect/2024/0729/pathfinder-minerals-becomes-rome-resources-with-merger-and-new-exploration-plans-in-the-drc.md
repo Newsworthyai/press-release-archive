@@ -17,7 +17,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/pathfinder-mi
 [Original/Source Press Release](https://newsdirect.com/news/pathfinder-minerals-becomes-rome-resources-with-merger-and-new-exploration-plans-in-the-drc-740771948)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pathfinder-minerals-merges-with-rome-resources-for-new-exploration-plans-in-drc/32bffa46499382a21f694b9cff65de75) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/pathfinder-minerals-transforms-into-rome-resources-sets-sights-on-high-grade-tin-project-in-drc)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pathfinder-minerals-rebrands-as-rome-resources-announces-major-tin-exploration-in-the-drc/20245326)
+
+Pickup - [advos.io](https://advos.io/en/pathfinder-minerals-rebrands-as-rome-resources-announces-new-tin-exploration-in-drc/20245326)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/rome-resources-emerges-from-pathfinder-minerals-merger-sets-sights-on-drc-tin-exploration)
+ 
 
 
 

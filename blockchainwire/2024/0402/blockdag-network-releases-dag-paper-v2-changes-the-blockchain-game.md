@@ -49,7 +49,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-network-releases-dag-paper-v2-changes-the-blockchain-game)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-unveils-innovative-blockchain-technology-in-technical-whitepaper-v2/48debb19c1fa0f2b8006d4610b6075d7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/blockdag-network-unveils-dag-paper-v2-revolutionizing-blockchain-scalability)
+ 
 
 
 

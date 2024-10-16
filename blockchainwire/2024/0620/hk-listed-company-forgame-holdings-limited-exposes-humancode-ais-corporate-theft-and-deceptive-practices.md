@@ -33,7 +33,13 @@ Forgame Holdings Limited is a leading investment firm listed on the Hong Kong St
 [Original/Source Press Release](https://blockchainwire.io/press-release/hk-listed-company-forgame-holdings-limited-exposes-humancode-ais-corporate-theft-and-deceptive-practices)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/forgame-holdings-takes-legal-action-against-humancode-ai/ae37b5ba62b883fb374cfec2cab1f7e4) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/forgame-holdings-limited-initiates-legal-action-against-humancode-ai-for-corporate-theft-and-deceptive-practices/20244325)
+
+Pickup - [advos.io](https://advos.io/en/forgame-holdings-limited-takes-legal-action-against-humancode-ai-for-corporate-theft-and-deception/20244325)
+ 
 
 
 

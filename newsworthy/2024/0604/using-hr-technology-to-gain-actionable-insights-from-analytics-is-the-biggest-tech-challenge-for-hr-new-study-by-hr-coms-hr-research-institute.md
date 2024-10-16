@@ -27,7 +27,11 @@ Contact: info@hr.com HR.com Newsroom
 [Original/Source Press Release](https://newsworthy.ai/news/202406041186/using-hr-technology-to-gain-actionable-insights-from-analytics-is-the-biggest-tech-challenge-for-hr-new-study-by-hr-coms-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-research-reveals-pain-points-in-hr-tech-stacks/baef1427f72c208e52efda172539f6cd) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-professionals-struggle-to-leverage-technology-for-actionable-people-analytics-study-finds/20243794)
+ 
 
 
 

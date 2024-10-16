@@ -7,7 +7,11 @@ WILMINGTON, NC, March 28, 2024 /24-7PressRelease/ -- As children, we all had to 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509567/saving-todays-generation-of-girls-building-resilience-and-self-esteem-is-the-answer-says-bestselling-author-dr-barbara-becker-holstein)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-dr-barbara-becker-holstein-nurtures-resilience-and-self-esteem-in-young-girls/fa432f3301cfd97ae734c98bc7d7d4b6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/building-resilience-and-self-esteem-dr-barbara-becker-holstein-s-mission-to-save-today-s-generation-of-girls)
+ 
 
 
 

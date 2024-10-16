@@ -31,7 +31,9 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-hosts-british-columbia-officials-at-its-quantum-engineering-center-of-excellence/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-hosts-b-c-government-officials-at-quantum-engineering-center/8752f393b3658ba8a75cdde99e399687) 
+
+ 
 
 
 

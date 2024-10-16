@@ -13,7 +13,11 @@ Individuals who suspect they may have PTSD are encouraged to contact the New Pat
 [Original/Source Press Release](https://newsworthy.ai/news/202401241024/brain-stim-mert-therapy-introduces-groundbreaking-treatment-for-ptsd)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-ptsd-treatment-using-mert-therapy/2ed95c0dc0e6a0c3a052b6977ae4b69c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/24/mert-therapy-offers-new-hope-for-ptsd-sufferers)
+ 
 
 
 

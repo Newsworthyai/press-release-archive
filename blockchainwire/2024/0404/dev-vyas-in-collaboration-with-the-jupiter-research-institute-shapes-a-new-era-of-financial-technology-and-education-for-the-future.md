@@ -19,7 +19,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/dev-vyas-in-collaboration-with-the-jupiter-research-institute-shapes-a-new-era-of-financial-technology-and-education-for-the-future)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jupiter-research-institute-and-dev-vyas-shaping-the-future-of-fintech/321002ab878acde7928d48839f076d3b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/dev-vyas-and-jupiter-research-institute-shaping-the-future-of-fintech-education)
+ 
 
 
 

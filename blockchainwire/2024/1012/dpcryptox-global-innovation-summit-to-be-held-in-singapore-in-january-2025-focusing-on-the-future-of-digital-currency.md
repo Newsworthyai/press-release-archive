@@ -71,7 +71,9 @@ Email: jessy@asteroidtoken.vip
 [Original/Source Press Release](https://blockchainwire.io/press-release/dpcryptox-global-innovation-summit-to-be-held-in-singapore-in-january-2025-focusing-on-the-future-of-digital-currency)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dpcryptox-to-host-global-innovation-summit-in-singapore-unveiling-collaboration-with-asteroid-token-ase/4ee324c2d2b73306fccedd68e25b41de) 
+
+ 
 
 
 

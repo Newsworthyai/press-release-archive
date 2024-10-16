@@ -49,7 +49,11 @@ The festival's mission is simple: To create events, collaborations, and blends t
 [Original/Source Press Release](https://newsworthy.ai/news/202404091142/ranger-creek-brewing-and-distillings-305-single-malt-is-crowned-top-texas-whiskey)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/texas-whiskey-festival-announces-2024-competition-winners/cc58b5d7c8baf9aac8eb6a1deb182c36) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/ranger-creek-brewing-and-distilling-s-305-single-malt-crowned-top-texas-whiskey)
+ 
 
 
 

@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-t
 [Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-unveils-versatile-new-generation-of-buoy-systems-911881541)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ocean-power-technologies-unveils-next-gen-buoy-systems/64425c60e8545e4cf6e98e729bc05f67) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/ocean-power-technologies-unveils-versatile-new-generation-of-buoy-systems)
+ 
 
 
 

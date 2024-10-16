@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-pre-ma
 [Original/Source Press Release](https://newsdirect.com/news/bitget-pre-market-trading-lists-renzo-rez-the-trending-liquid-restaking-token-261370663)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-lists-renzo-rez-token-on-pre-market-platform/3ea5911351daacd0450592aab0ea5170) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/bitget-pre-market-trading-lists-renzo-rez-the-trending-liquid-restaking-token)
+ 
 
 
 

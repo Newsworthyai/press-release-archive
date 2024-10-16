@@ -7,7 +7,13 @@ GREENVILLE, NC, June 27, 2024 /24-7PressRelease/ -- Carolina Regional Orthopaedi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512070/carolina-regional-orthopaedics-pa-is-partnering-with-prescribe-fit-to-provide-virtual-orthopedic-health-guidance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/carolina-regional-orthopaedics-introduces-virtual-lifestyle-health-coaching-program/c07608a50cc40cb530cd2900534b010b) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/carolina-regional-orthopaedics-partners-with-prescribe-fit-for-virtual-orthopedic-health-guidance/20244537)
+
+Pickup - [advos.io](https://advos.io/en/carolina-regional-orthopaedics-partners-with-prescribe-fit-for-virtual-health-coaching/20244537)
+ 
 
 
 

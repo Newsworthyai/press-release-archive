@@ -7,7 +7,15 @@ WILMINGTON, NC, July 08, 2024 /24-7PressRelease/ -- Bestselling author and award
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512309/building-resilience-and-self-esteem-dr-barbara-becker-holstein-announces-interview-with-donna-york-and-lynn-sherman-of-girls-on-the-run)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-barbara-becker-holstein-announces-new-podcast-interview-with-girls-on-the-run-executives/c5c331169bc0420593016a13b762e2ad) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-barbara-becker-holstein-interviews-leaders-of-girls-on-the-run-on-building-resilience-and-self-esteem/20244750)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/dr-barbara-becker-holstein-announces-new-interview-on-building-resilience-and-self-esteem-in-girls)
+
+Pickup - [advos.io](https://advos.io/en/dr-barbara-becker-holstein-hosts-insightful-interview-with-leaders-of-girls-on-the-run/20244750)
+ 
 
 
 

@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kootenay-silv
 [Original/Source Press Release](https://newsdirect.com/news/kootenay-silver-confirms-drilling-is-underway-at-columba-high-grade-silver-project-558004986)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kootenay-silver-initiates-high-grade-silver-project-drilling-program-in-mexico/a6d5587cb67081fa91fd9b5ff628f383) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/kootenay-silver-advances-exploration-at-columba-silver-project)
+ 
 
 
 

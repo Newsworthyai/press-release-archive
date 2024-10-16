@@ -49,7 +49,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/freepik-unvei
 [Original/Source Press Release](https://newsdirect.com/news/freepik-unveils-ai-driven-design-transformations-revitalizing-local-small-businesses-in-san-franciscos-excelsior-district-as-part-of-the-neighborhood-design-project-592858311)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/freepik-unveils-ai-driven-design-transformations-revitalizing-local-small-businesses-in-san-francisco-s-excelsior-district/f47de594f4e8b693f0d005ffe0bc206d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/freepik-unveils-ai-driven-design-transformations-revitalizing-local-small-businesses-in-san-francisco-s-excelsior-district-as-part-of-the-neighborhood-design-project)
+ 
 
 
 

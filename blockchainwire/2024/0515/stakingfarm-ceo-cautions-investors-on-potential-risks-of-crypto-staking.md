@@ -53,7 +53,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-ceo-cautions-investors-on-potential-risks-of-crypto-staking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-ceo-warns-of-risks-and-emphasizes-safe-staking-practices/4e0b5b9eaa59cbe36f1bb94dc3529fe4) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/stakingfarm-ceo-warns-of-risks-and-emphasizes-safe-staking-practices)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/stakingfarm-ceo-warns-of-risks-and-emphasizes-safe-staking-practices)
+ 
 
 
 

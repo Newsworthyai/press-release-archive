@@ -7,7 +7,11 @@ CHARLOTTE, NC & DALLAS, TX, March 18, 2024 /24-7PressRelease/ -- Crete United, a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509325/crete-united-partners-with-prostar-energy-solutions-to-elevate-energy-efficiency-as-a-core-offering)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crete-united-announces-partnership-with-prostar-energy-solutions/a274d9183b9f445dad0be31e821818f6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/crete-united-joins-forces-with-prostar-energy-solutions-to-prioritize-energy-efficiency)
+ 
 
 
 

@@ -28,7 +28,9 @@ California (Newsworthy.ai) Tuesday Jun 4, 2024 @ 7:00 AM America/Detroit —
 [Original/Source Press Release](https://newsworthy.ai/news/202406041182/brass-knuckles-a-legacy-reborn-exciting-relaunch-in-california-cannabis-market)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brass-knuckles-announces-return-to-california-cannabis-market-in-2024/d1165eca9d1d6370639ec928228dc04a) 
+
+ 
 
 
 

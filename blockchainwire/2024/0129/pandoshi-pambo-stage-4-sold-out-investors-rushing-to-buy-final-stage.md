@@ -31,7 +31,11 @@ Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/pandoshi-pambo-stage-4-sold-out-investors-rushing-to-buy-final-stage)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pandoshi-pambo-achieves-milestone-with-completion-of-presale-s-fourth-stage-and-launch-of-defi-wallet/776a87a396ebaa6435b3da012fa7c808) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/29/pandoshi-presale-s-final-stage-fuels-investor-frenzy)
+ 
 
 
 

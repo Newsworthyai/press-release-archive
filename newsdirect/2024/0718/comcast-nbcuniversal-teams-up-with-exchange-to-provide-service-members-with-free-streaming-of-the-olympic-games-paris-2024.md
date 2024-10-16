@@ -45,7 +45,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/comcast-nbcun
 [Original/Source Press Release](https://newsdirect.com/news/comcast-nbcuniversal-teams-up-with-exchange-to-provide-service-members-with-free-streaming-of-the-olympic-games-paris-2024-792153046)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-nbcuniversal-teams-up-with-exchange-to-provide-service-members-with-free-streaming-of-the-olympic-games-paris-2024/d1da5e1163317e9260d2ebc8fa87fe1a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/comcast-nbcuniversal-and-exchange-partner-to-offer-free-olympic-games-streaming-to-u-s-military)
+
+Pickup - [fishervista.com](https://fishervista.com/en/comcast-nbcuniversal-and-army-air-force-exchange-service-offer-free-streaming-of-paris-2024-olympics-for-military-members/20245081)
+
+Pickup - [advos.io](https://advos.io/en/comcast-nbcuniversal-and-exchange-partner-to-offer-free-streaming-of-2024-paris-olympics-to-service-members/20245081)
+ 
 
 
 

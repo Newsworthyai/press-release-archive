@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/auking-signs-
 [Original/Source Press Release](https://newsdirect.com/news/auking-signs-mou-with-saudi-company-to-help-expand-portfolio-421814521)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/auking-mining-partners-with-bsmc-to-expand-mineral-project-portfolio-in-saudi-arabia/f0a7cbe08e5418b7d17ced947e899fe8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/auking-mining-forges-strategic-partnership-to-tap-into-saudi-arabia-s-mineral-wealth)
+ 
 
 
 

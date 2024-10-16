@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/summer-pool-p
 [Original/Source Press Release](https://newsdirect.com/news/summer-pool-parties-and-live-performances-announced-for-2024-at-graton-resort-and-casino-713280703)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/graton-resort-casino-announces-summer-pool-parties-and-live-performances-for-2024/46aa244859a90da01110f11ca6aad666) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/summer-pool-parties-and-live-performances-announced-for-2024-at-graton-resort-casino)
+ 
 
 
 

@@ -7,7 +7,11 @@ MIAMI, FL, April 12, 2024 /24-7PressRelease/ -- MacroEdge Research, a leading pr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509979/macroedge-research-confirms-labor-market-softening-in-recent-analysis)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/macroedge-research-reports-noticeable-softening-in-labor-market/6735eb91a17dc7a5165113c26f92cb8c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/macroedge-research-confirms-labor-market-softening-in-recent-analysis)
+ 
 
 
 

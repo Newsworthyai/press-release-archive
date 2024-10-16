@@ -50,7 +50,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/apple-rush-co
 [Original/Source Press Release](https://newsdirect.com/news/apple-rush-company-inc-announces-expansion-of-lena-brewing-operation-expansion-expected-to-increase-production-capacity-fivefold-825018765)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/apple-rush-company-inc-tm-expands-lena-brewing-increases-production-capacity-fivefold/ff49e935b4bc4dd913859d71475e3dac) 
+
+
+Pickup - [advos.io](https://advos.io/en/apple-rush-company-inc-announces-major-expansion-of-lena-brewing-operations/20244888)
+
+Pickup - [fishervista.com](https://fishervista.com/en/apple-rush-company-inc-announces-major-expansion-of-lena-brewing-operation/20244888)
+
+Pickup - [citybuzz.co](https://citybuzz.co/apple-rush-company-expands-lena-brewing-boosting-production-capacity-by-500)
+ 
 
 
 

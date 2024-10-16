@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/centre-for-ne
 [Original/Source Press Release](https://newsdirect.com/news/centre-for-neuro-skills-promotes-dr-omesh-singh-to-associate-chief-medical-officer-885794796)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-omesh-singh-promoted-to-associate-chief-medical-officer-at-centre-for-neuro-skills/dff033df835d2499a28c6ad2eb65f21f) 
+
+ 
 
 
 

@@ -47,7 +47,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/potential-cat
 [Original/Source Press Release](https://newsdirect.com/news/potential-catalyst-right-around-the-corner-cms-to-announce-preliminary-medicare-payment-for-cardio-diagnostics-heart-disease-tests-993504448)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crucial-decision-pending-for-cardio-diagnostics-heart-disease-tests/6d78c9bb84aa0a4f3643922876cac4ba) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/cms-to-announce-preliminary-medicare-payment-for-cardio-diagnostics-heart-disease-tests)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cardio-diagnostics-awaits-crucial-medicare-pricing-decision-for-heart-disease-tests/20246902)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/medicare-payment-decision-looms-for-cardio-diagnostics-heart-disease-tests/20246902)
+
+Pickup - [advos.io](https://advos.io/en/cardio-diagnostics-awaits-cms-decision-on-medicare-pricing-for-heart-disease-tests/20246902)
+ 
 
 
 

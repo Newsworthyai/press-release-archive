@@ -7,7 +7,11 @@ VEDBAEK, DENMARK, June 03, 2024 /24-7PressRelease/ -- Multi-Wing, a forerunner i
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511362/multi-wing-transforms-off-highway-electrification-with-customizable-dc-electric-fans)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/multi-wing-introduces-dcmax312-electric-fan-for-off-highway-oems/660e205f68093c34471ac3678eb2e2e9) 
+
+
+Pickup - [advos.io](https://advos.io/en/multi-wing-revolutionizes-off-highway-electrification-with-custom-dc-electric-fans/20243622)
+ 
 
 
 

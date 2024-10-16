@@ -58,7 +58,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/chainverge-where-unified-defi-meets-true-decentralization-and-exciting-game-fi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chainverge-unifies-defi-and-game-fi-for-a-thrilling-crypto-experience/1bcdeac7ed2ec4c4195aabf9f0367e6a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/09/chainverge-unifying-defi-with-decentralized-gaming-thrills)
+ 
 
 
 

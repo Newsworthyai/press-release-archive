@@ -7,7 +7,13 @@ ST. LOUIS, MO, June 18, 2024 /24-7PressRelease/ -- Global Vision Technologies, I
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511776/global-vision-technologies-and-famcare-achieve-soc-2-type-ii-compliance-certification)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-vision-technologies-gvt-achieves-soc-2-type-ii-certification-for-famcare-and-clinicalpursuit/b7590558e874057d4fd5c63f621a664e) 
+
+
+Pickup - [advos.io](https://advos.io/en/global-vision-technologies-and-famcare-achieve-soc-2-type-ii-compliance-certification/20244230)
+
+Pickup - [fishervista.com](https://fishervista.com/en/global-vision-technologies-achieves-soc-2-type-ii-certification/20244230)
+ 
 
 
 

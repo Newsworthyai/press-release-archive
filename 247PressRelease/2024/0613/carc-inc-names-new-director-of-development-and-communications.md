@@ -7,7 +7,11 @@ CARLSBAD, NM, June 13, 2024 /24-7PressRelease/ -- CARC, INC. has named Karla Nie
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511696/carc-inc-names-new-director-of-development-and-communications)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/carc-inc-appoints-karla-niemeier-as-director-of-development-and-communications/b4c8ab70a4b211c1d60b1db962cd3831) 
+
+
+Pickup - [advos.io](https://advos.io/en/carc-inc-appoints-karla-niemeier-as-director-of-development-and-communications/20244111)
+ 
 
 
 

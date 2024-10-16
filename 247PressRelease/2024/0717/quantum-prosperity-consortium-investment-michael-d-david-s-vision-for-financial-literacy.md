@@ -7,7 +7,15 @@ LOS ANGELES, CA, July 17, 2024 /24-7PressRelease/ --   Overview of the Foundatio
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512569/quantum-prosperity-consortium-investment-michael-d-davids-vision-for-financial-literacy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-prosperity-consortium-foundation-advancing-financial-literacy-and-investment-proficiency/d78880e7faa8f2f1feea175a07a59e62) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/quantum-prosperity-consortium-investment-education-foundation-aims-to-revolutionize-financial-literacy)
+
+Pickup - [fishervista.com](https://fishervista.com/en/quantum-prosperity-consortium-aims-to-revolutionize-financial-literacy/20245003)
+
+Pickup - [advos.io](https://advos.io/en/quantum-prosperity-consortium-aims-for-financial-literacy-and-investment-growth/20245003)
+ 
 
 
 

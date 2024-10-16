@@ -15,7 +15,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/horizon-coppe
 [Original/Source Press Release](https://newsdirect.com/news/horizon-copper-ceo-discusses-strategic-portfolio-expansion-and-future-plans-475477516)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/horizon-copper-ceo-talks-strategic-portfolio-expansion/7f6fa4d7f9697bd8b9ef13a551851fee) 
+
+ 
 
 
 

@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/cleantech-lit
 [Original/Source Press Release](https://newsdirect.com/news/cleantech-lithium-chairman-assures-that-it-is-business-as-usual-following-ceos-resignation-781367840)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cleantech-lithium-chairman-assures-business-as-usual-after-ceo-s-resignation/ca8d0ff05999203d6a30e34af979d96f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/cleantech-lithium-chairman-assures-that-it-is-business-as-usual-following-ceo-s-resignation)
+ 
 
 
 

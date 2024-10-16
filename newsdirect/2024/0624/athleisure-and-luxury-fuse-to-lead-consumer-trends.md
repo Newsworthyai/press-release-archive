@@ -23,7 +23,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/athleisure-an
 [Original/Source Press Release](https://newsdirect.com/news/athleisure-and-luxury-fuse-to-lead-consumer-trends-873914598)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/athleisure-and-luxury-trend-lululemon-dominates-nike-struggles-and-other-companies-pivot-to-meet-consumer-demand/0e0bc0f7e23ce82c76328e71b160e692) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/athleisure-and-luxury-trends-propel-growth-in-consumer-markets/20244411)
+
+Pickup - [advos.io](https://advos.io/en/athleisure-meets-luxury-driving-modern-consumer-trends/20244411)
+ 
 
 
 

@@ -7,7 +7,9 @@ LOS ANGELES, CA, April 29, 2024 /24-7PressRelease/ -- Blue Faery: The Adrienne W
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510119/blue-faery-publishes-liver-cancer-journal-project)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blue-faery-releases-touching-book-by-teen-cancer-victim/2582929bbe31f5b27c085f04083da84d) 
+
+ 
 
 
 

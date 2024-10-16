@@ -7,7 +7,15 @@ BOSTON, MA, July 13, 2024 /24-7PressRelease/ -- Dr. Sudipta Mohanty proudly anno
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512465/dr-sudipta-mohanty-announces-scholarship-for-underserved-communities-in-medicine)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-sudipta-mohanty-announces-scholarship-for-underserved-communities-in-medicine/a0b818bebc8742527872d2b8f96718a1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/13/dr-sudipta-mohanty-launches-1000-scholarship-to-promote-healthcare-equity)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-sudipta-mohanty-announces-1000-scholarship-to-promote-healthcare-equity/20244935)
+
+Pickup - [advos.io](https://advos.io/en/dr-sudipta-mohanty-launches-scholarship-to-advance-healthcare-equity-for-underserved-communities/20244935)
+ 
 
 
 

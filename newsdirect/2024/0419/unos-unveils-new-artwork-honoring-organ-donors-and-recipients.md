@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/unos-unveils-
 [Original/Source Press Release](https://newsdirect.com/news/unos-unveils-new-artwork-honoring-organ-donors-and-recipients-745087034)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unos-unveils-new-artwork-honoring-organ-donors-and-recipients-in-richmond/2ba33ce4f5e2759d811a001269a62148) 
+
+ 
 
 
 

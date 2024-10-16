@@ -39,7 +39,9 @@ For more info, visit https://lumerin.io/.
 [Original/Source Press Release](https://blockchainwire.io/press-release/lumerin-to-launch-testnet-node-of-decentralized-ai--compute-on-the-morpheus-ai-network-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lumerin-announces-testnet-node-for-decentralized-ai-compute-on-morpheus-network/03f4eb81613fbf988ac8d824a93147ab) 
+
+ 
 
 
 

@@ -7,7 +7,9 @@ TYSONS, VA, September 20, 2024 /24-7PressRelease/ -- MS Tech Ltd. - a global dev
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514504/ms-tech-announces-that-its-homeland-security-defense-division-completed-shipments-installations-and-training-programs-of-its-exploscan-duoscan-and-threatscan-detection-systems)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ms-tech-ltd-completes-multiple-shipments-of-explosives-and-narcotics-detection-systems/00eadd040a889178a0ebf0ede9f8ff13) 
+
+ 
 
 
 

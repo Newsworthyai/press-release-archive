@@ -7,7 +7,17 @@ NEW YORK, NY, August 21, 2024 /24-7PressRelease/ -- The law firm of Gerber Ciano
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513630/gerber-ciano-kelly-brady-llp-names-six-new-equity-partners)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gerber-ciano-kelly-brady-llp-elevates-six-lawyers-to-equity-partners/87175e2aa8bee6a915c438852f7cf98e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/gerber-ciano-kelly-brady-llp-expands-leadership-with-six-new-equity-partners)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gerber-ciano-kelly-brady-llp-names-six-new-equity-partners/20245860)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gerber-ciano-kelly-brady-llp-expands-leadership-with-six-new-equity-partners/20245860)
+
+Pickup - [advos.io](https://advos.io/en/gerber-ciano-kelly-brady-llp-elevates-six-lawyers-to-equity-partners/20245860)
+ 
 
 
 

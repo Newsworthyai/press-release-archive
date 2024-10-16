@@ -33,7 +33,19 @@ Contract address: 0x58cb98a966f62aa6f2190eb3aa03132a0c3de3d5
 [Original/Source Press Release](https://blockchainwire.io/press-release/openworld-finance-unveils-revolutionary-decentralized-finance-product-bringing-the-best-liquidity-pools-to-everyday-investors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/openworld-finance-launches-groundbreaking-openworld-portfolios-for-decentralized-finance/e767dcaa465422308ce632cdfce4256a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/19/openworld-finance-launches-innovative-defi-product-for-everyday-crypto-investors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/openworld-finance-launches-innovative-defi-product-offering-high-yield-liquidity-pools/20245112)
+
+Pickup - [advos.io](https://advos.io/en/openworld-finance-launches-innovative-defi-product-for-everyday-investors/20245112)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/openworld-finance-launches-groundbreaking-openworld-portfolios-for-decentralized-finance)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/openworld-finance-launches-groundbreaking-openworld-portfolios-for-decentralized-finance)
+ 
 
  
 

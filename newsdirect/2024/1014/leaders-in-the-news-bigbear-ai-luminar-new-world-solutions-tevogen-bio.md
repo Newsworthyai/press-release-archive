@@ -55,7 +55,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/leaders-in-th
 [Original/Source Press Release](https://newsdirect.com/news/leaders-in-the-news-bigbear-ai-luminar-new-world-solutions-tevogen-bio-196807719)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/latest-insights-from-bigbear-ai-tevogen-bio-luminar-and-new-world-solutions/582b1ad06ff3649c2e3f163a8894eecc) 
+
+ 
 
 
 

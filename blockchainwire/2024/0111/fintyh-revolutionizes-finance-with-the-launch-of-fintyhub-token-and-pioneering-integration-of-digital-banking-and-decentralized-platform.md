@@ -9,7 +9,11 @@ With an operational Digital Bank and the FintyHub crypto service platform, FINTY
 [Original/Source Press Release](https://blockchainwire.io/press-release/fintyh-revolutionizes-finance-with-the-launch-of-fintyhub-token-and-pioneering-integration-of-digital-banking-and-decentralized-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fintyh-launches-fintyhub-token-pre-sale-on-pinksale/4f9037a40720b197d6bdb0b8546982fc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/11/fintyh-unveils-fintyhub-token-and-pioneering-fusion-of-digital-banking-and-decentralized-finance)
+ 
 
 
 

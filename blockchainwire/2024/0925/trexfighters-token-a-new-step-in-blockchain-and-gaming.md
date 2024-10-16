@@ -39,7 +39,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/trexfighters-token-a-new-step-in-blockchain-and-gaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/why-trexfighters-could-break-all-records-and-become-a-favorite-in-the-crypto-community/6944e57e6a2efa313bf3ba4b7fcde879) 
+
+ 
 
 
 

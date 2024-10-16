@@ -15,7 +15,9 @@ Book a meeting with Sasa here: Book Meeting with Sasa Bralic
 [Original/Source Press Release](https://newsworthy.ai/news/202409301286/elevate-your-brand-elite-freelance-graphic-designer-sasa-bralic-now-available-for-contract-freelance-graphic-design-remote-projects)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/world-class-graphic-designer-sasa-bralic-now-offering-freelance-design-services/723527716a5cf4074e90a92202c7198a) 
+
+ 
 
 
 

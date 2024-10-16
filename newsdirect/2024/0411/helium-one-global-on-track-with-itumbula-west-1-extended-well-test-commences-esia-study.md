@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/helium-one-gl
 [Original/Source Press Release](https://newsdirect.com/news/helium-one-global-on-track-with-itumbula-west-1-extended-well-test-commences-esia-study-191676989)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/helium-one-global-making-strides-in-tanzania-s-rukwa-project/debcf4adfdf54ac2d7c4705dddf17c10) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/helium-one-global-advances-itumbula-west-1-well-test-and-esia-study-in-tanzania)
+ 
 
 
 

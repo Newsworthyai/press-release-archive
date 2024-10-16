@@ -45,7 +45,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/greenwood-lea
 [Original/Source Press Release](https://newsdirect.com/news/greenwood-leather-announces-launch-of-new-full-grain-leather-goods-collection-789506870)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greenwood-leather-launches-new-full-grain-leather-goods-collection/c5a8f38b9985fd5b2753ae62cef78c5d) 
+
+
+Pickup - [advos.io](https://advos.io/en/greenwood-leather-unveils-exquisite-full-grain-leather-goods-collection/20244223)
+
+Pickup - [fishervista.com](https://fishervista.com/en/greenwood-leather-unveils-new-full-grain-leather-goods-collection/20244223)
+ 
 
 
 

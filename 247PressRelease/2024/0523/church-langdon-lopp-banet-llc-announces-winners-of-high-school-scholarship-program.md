@@ -7,7 +7,9 @@ INDIANAPOLIS, IN, May 23, 2024 /24-7PressRelease/ -- Church Langdon Lopp & Banet
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511038/church-langdon-lopp-banet-llc-announces-winners-of-high-school-scholarship-program)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/church-langdon-lopp-banet-llc-announces-scholarship-winners/6f4c5b090ef55443ce68aeb9b9b67fb3) 
+
+ 
 
 
 

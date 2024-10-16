@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullens-nasdaq-muln-subsidiary-announces-warranty-coverage-for-b4-chassis-cab/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bollinger-motors-releases-full-warranty-coverage-on-the-b4-chassis-cab/6298518d16265eca7f8edd0746769de9) 
+
+ 
 
 
 

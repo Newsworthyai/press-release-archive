@@ -115,7 +115,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/sigma-announc
 [Original/Source Press Release](https://newsdirect.com/news/sigma-announces-launch-schedule-of-sigma-18-50mm-f2-8-dc-dn-contemporary-for-canon-rf-mount-700658474)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sigma-announces-launch-of-sigma-18-50mm-f2-8-dc-dn-contemporary-for-canon-rf-mount/0b3e875c916108bf761fceaccfcf593a) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/sigma-announces-launch-schedule-for-canon-rf-mount-lens/20244439)
+
+Pickup - [advos.io](https://advos.io/en/sigma-announces-launch-schedule-for-18-50mm-f2-8-dc-dn-lens-for-canon-rf-mount/20244439)
+ 
 
 
 

@@ -29,7 +29,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/proportfoliopartners-unveils-revolutionary-trading-platform-experience-3x-faster-trades)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-crypto-trading-platform-unlocks-3x-faster-trades/0ab738bd71d3f09d58aeb8237a71eb1e) 
+
+ 
 
 
 

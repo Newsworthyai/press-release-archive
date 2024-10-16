@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/elevai-labs-n
 [Original/Source Press Release](https://newsdirect.com/news/elevai-labs-nasdaq-elab-acquires-rights-to-develop-muscle-loss-prevention-assets-for-anticipated-use-in-anti-obesity-treatments-launches-two-new-subsidiaries-108007273)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-obesity-study-prompts-acquisition-of-muscle-loss-prevention-assets-and-launch-of-new-subsidiaries/7ac1663fc4812d0d525e98cefbe2544b) 
+
+ 
 
 
 

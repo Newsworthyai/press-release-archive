@@ -49,7 +49,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/kristin-marqu
 [Original/Source Press Release](https://newsdirect.com/news/kristin-marquet-expands-femfounder-co-with-innovative-resources-and-workshops-to-empower-female-entrepreneurs-globally-264122768)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kristin-marquet-expands-femfounder-co-to-empower-female-entrepreneurs-globally/c3217b9f42e02d750f0b165263d04bd9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/femfounder-co-expands-platform-to-boost-global-female-entrepreneurship)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kristin-marquet-expands-femfounder-co-with-innovative-resources-and-workshops-for-female-entrepreneurs/20245880)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/femfounder-co-expands-resources-to-boost-female-entrepreneurship-worldwide/20245880)
+
+Pickup - [advos.io](https://advos.io/en/kristin-marquet-expands-femfounder-co-with-resources-and-workshops-to-empower-female-entrepreneurs/20245880)
+ 
 
 
 

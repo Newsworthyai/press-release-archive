@@ -7,7 +7,11 @@ CORONA, CA, June 03, 2024 /24-7PressRelease/ -- Pacific Ventures proudly announc
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511351/pacific-ventures-unveils-the-shed-at-bedford-featuring-mural-by-acclaimed-artist-kelsey-montague)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pacific-ventures-unveils-the-shed-new-resident-activity-hub-in-south-corona-ca/15cad1ccce26924f6f3d1ee62ed388dc) 
+
+
+Pickup - [advos.io](https://advos.io/en/pacific-ventures-unveils-the-shed-at-bedford-with-mural-by-artist-kelsey-montague/20243612)
+ 
 
 
 

@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/nevada-lithiu
 [Original/Source Press Release](https://newsdirect.com/news/nevada-lithium-ceo-discusses-industry-prospects-and-bonnie-claire-project-advancements-906457700)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nevada-lithium-ceo-highlights-industry-prospects-and-bonnie-claire-project-advancements/60f3bdd5f9d9e231cdccae14797ff460) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/nevada-lithium-ceo-sheds-light-on-industry-s-bright-future)
+ 
 
 
 

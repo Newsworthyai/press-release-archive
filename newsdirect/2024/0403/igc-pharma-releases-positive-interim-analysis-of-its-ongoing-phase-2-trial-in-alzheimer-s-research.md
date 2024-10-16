@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/igc-pharma-re
 [Original/Source Press Release](https://newsdirect.com/news/igc-pharma-releases-positive-interim-analysis-of-its-ongoing-phase-2-trial-in-alzheimers-research-220018113)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/igc-pharma-s-igc-ad1-shows-promise-in-alzheimer-s-research/e59db2dd1112b6df926758e51e146cf3) 
+
+ 
 
 
 

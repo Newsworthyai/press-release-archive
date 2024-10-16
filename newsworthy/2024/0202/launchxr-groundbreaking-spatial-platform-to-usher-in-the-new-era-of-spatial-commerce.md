@@ -51,7 +51,11 @@ About [Programming.com](https://programming.com/) Programming.com, a leader in t
 [Original/Source Press Release](https://newsworthy.ai/news/202402021048/launchxr-groundbreaking-spatial-platform-to-usher-in-the-new-era-of-spatial-commerce)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/launchxr-unveils-spatial-commerce-platform-for-retailers/04afd63fcc5f1284d726bcda01e88013) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/02/launchxr-unveils-groundbreaking-spatial-commerce-platform)
+ 
 
 
 

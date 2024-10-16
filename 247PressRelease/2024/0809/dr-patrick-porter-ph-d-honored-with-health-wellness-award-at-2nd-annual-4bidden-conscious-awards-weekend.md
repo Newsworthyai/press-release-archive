@@ -7,7 +7,17 @@ MIAMI, FL, August 09, 2024 /24-7PressRelease/ -- Dr. Patrick Porter, Ph.D., has 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513251/dr-patrick-porter-phd-honored-with-health-wellness-award-at-2nd-annual-4bidden-conscious-awards-weekend)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-patrick-porter-ph-d-receives-prestigious-conscious-award-for-health-wellness/2b060c76b3f075dd509678937e5d70eb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/dr-patrick-porter-receives-health-wellness-award-at-4bidden-conscious-awards)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-patrick-porter-receives-health-wellness-award-at-4bidden-conscious-awards/20245601)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dr-patrick-porter-receives-health-wellness-award-at-4bidden-conscious-awards/20245601)
+
+Pickup - [advos.io](https://advos.io/en/dr-patrick-porter-receives-health-wellness-award-at-4bidden-conscious-awards/20245601)
+ 
 
 
 

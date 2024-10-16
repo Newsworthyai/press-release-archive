@@ -41,7 +41,9 @@ Website: [https://bhe.global/#/](https://bhe.global/#/)
 [Original/Source Press Release](https://blockchainwire.io/press-release/breaking-boundaries-bhe-emerges-as-the-next-frontier-in-crypto-asset-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bhe-exceeds-150-million-registered-users-set-to-become-top-digital-asset-trading-platform/0f8e6978f40f73cec34bcb6fa3d86f82) 
+
+ 
 
 
 

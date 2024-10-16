@@ -25,7 +25,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/senet-is-building-a-cross-chain-gaming-ecosystem-based-on-gamefi-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/senet-network-launches-cross-chain-game-asset-liquidity-protocol-and-game-exchange/c971622036d9c9995c7e27c549553b76) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/senet-network-launches-cross-chain-gaming-ecosystem-and-gamefi-exchange)
+ 
 
 
 

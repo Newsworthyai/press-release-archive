@@ -47,7 +47,17 @@ For media inquiries, please contact: press@xprotocol.org
 [Original/Source Press Release](https://blockchainwire.io/press-release/base-superchain-xprotocol-raises-a-strategic-round-unveils-xardian-nodes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xprotocol-announces-800k-strategic-round-raise-and-superchain-launch/d9f9a7f138e0ffff5778ddf2f6485563) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/xprotocol-raises-800k-in-strategic-round-introduces-xardian-nodes-for-enhanced-decentralization/20244538)
+
+Pickup - [advos.io](https://advos.io/en/xprotocol-raises-800k-introduces-xardian-nodes-to-enhance-web3-entertainment-ecosystem/20244538)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/xprotocol-announces-800k-strategic-round-raise-and-superchain-launch)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/xprotocol-announces-800k-strategic-round-raise-and-superchain-launch)
+ 
 
 
 

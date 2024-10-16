@@ -53,7 +53,9 @@ X (Twitter) | Telegram | Discord
 [Original/Source Press Release](https://blockchainwire.io/press-release/sagexion-announces-launch-with-first-two-games-meme-party-and-ludo-sax)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/discovering-two-new-play-to-earn-p2e-games-with-sagexion/245cdf5a63e8956e99acab8ea42cfd79) 
+
+ 
 
 
 

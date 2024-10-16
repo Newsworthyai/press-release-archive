@@ -7,7 +7,9 @@ GAPYEONG-GUN, KOREA, September 20, 2024 /24-7PressRelease/ -- Hosted by Heavenly
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514484/over-100000-gather-in-the-name-of-world-peace-for-the-10th-anniversary-of-the-hwpl-peace-summit)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hwpl-peace-summit-marks-10th-anniversary-with-global-peace-movement-celebration/d0f213ab9951ea4c3e8fa56384f9cf32) 
+
+ 
 
 
 

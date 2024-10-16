@@ -29,7 +29,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/findell-capit
 [Original/Source Press Release](https://newsdirect.com/news/findell-capital-management-llc-releases-comprehensive-research-coverage-report-on-esta-nasdaq-290204588)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investment-management-firm-releases-report-on-esta-s-growth-potential-and-product-launches/9e6d0f88786dcc7aacf7010082c68000) 
+
+ 
 
 
 

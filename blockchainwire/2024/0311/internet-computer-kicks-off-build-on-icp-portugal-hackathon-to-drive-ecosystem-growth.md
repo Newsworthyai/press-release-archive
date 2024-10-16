@@ -23,7 +23,11 @@ ICP Hub PortugalWaves3 Hub Portugal is one of the latest additions to ICP’s gl
 [Original/Source Press Release](https://blockchainwire.io/press-release/internet-computer-kicks-off-build-on-icp-portugal-hackathon-to-drive-ecosystem-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/icp-launches-build-on-icp-hackathon-in-portugal/cd7c883c3d0d65a1b8d29977f9ea2bb1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/internet-computer-ignites-web3-innovation-with-build-on-icp-portugal-hackathon)
+ 
 
 
 

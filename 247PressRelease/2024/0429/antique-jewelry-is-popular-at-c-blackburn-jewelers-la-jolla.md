@@ -7,7 +7,9 @@ SAN DIEGO, CA, April 29, 2024 /24-7PressRelease/ -- Antique jewelry is becoming 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510280/antique-jewelry-is-popular-at-c-blackburn-jewelers-la-jolla)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/antique-art-deco-jewelry-gains-popularity-at-c-blackburn-jewelers-in-la-jolla-ca/1f990e4485703229dcbd6b9283af6308) 
+
+ 
 
 
 

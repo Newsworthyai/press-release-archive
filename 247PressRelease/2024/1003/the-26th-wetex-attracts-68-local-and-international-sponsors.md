@@ -7,7 +7,9 @@ DUBAI, UAE, October 03, 2024 /24-7PressRelease/ -- Dubai Electricity and Water A
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514896/the-26th-wetex-attracts-68-local-and-international-sponsors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dewa-hosts-26th-wetex-exhibition-in-dubai-showcasing-global-sustainability-efforts/ea4036854d9879be6deb13598c9e3a3e) 
+
+ 
 
 
 

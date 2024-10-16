@@ -7,7 +7,17 @@ NUTLEY, NJ, August 20, 2024 /24-7PressRelease/ -- In a landmark real estate achi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513629/a-record-breaking-sale-at-1300000-in-nutley-new-jersey)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/record-breaking-sale-sets-new-benchmark-for-real-estate-in-nutley/5377c9a51c4e94a2e0b2365634a9445c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/record-breaking-1-3-million-home-sale-in-nutley-nj-highlights-digital-marketing-s-impact-on-real-estate)
+
+Pickup - [fishervista.com](https://fishervista.com/en/record-breaking-1-3-million-home-sale-in-nutley-nj-highlights-digital-marketing-power/20245855)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/nutley-nj-sets-new-real-estate-record-with-1-3-million-home-sale/20245855)
+
+Pickup - [advos.io](https://advos.io/en/record-breaking-1-3-million-home-sale-in-nutley-nj-highlights-digital-marketing-power/20245855)
+ 
 
 
 

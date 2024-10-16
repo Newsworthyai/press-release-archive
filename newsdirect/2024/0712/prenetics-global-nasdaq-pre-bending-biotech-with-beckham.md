@@ -51,7 +51,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/prenetics-glo
 [Original/Source Press Release](https://newsdirect.com/news/prenetics-global-nasdaq-pre-bending-biotech-with-beckham-235704445)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prenetics-global-nasdaq-pre-leading-the-way-in-health-innovation/3b0a3bfbf4861b23f6cd205afe56b1be) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/prenetics-global-partners-with-david-beckham-expands-into-us-consumer-healthcare-market)
+
+Pickup - [fishervista.com](https://fishervista.com/en/prenetics-global-and-david-beckham-partner-to-innovate-health-and-wellness/20244915)
+
+Pickup - [advos.io](https://advos.io/en/prenetics-global-makes-strides-in-health-innovation-with-strategic-moves-and-david-beckham-partnership/20244915)
+ 
 
 
 

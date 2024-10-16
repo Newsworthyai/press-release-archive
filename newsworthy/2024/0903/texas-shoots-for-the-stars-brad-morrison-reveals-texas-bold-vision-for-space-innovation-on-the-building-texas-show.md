@@ -23,7 +23,17 @@ For more information, visit The Building Texas Show Website
 [Original/Source Press Release](https://newsworthy.ai/news/202409031239/texas-shoots-for-the-stars-inside-the-states-new-space-commission-explore-texas-bold-new-venture-into-space-through-the-lens-of-the-texas-spac)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/texas-space-commission-s-brad-morrison-discusses-state-s-role-in-space-exploration/2eae2b189a7b3807243fdf6f059635f1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/texas-space-commission-aims-to-lead-global-space-industry)
+
+Pickup - [fishervista.com](https://fishervista.com/en/texas-vision-for-space-innovation-unveiled-by-brad-morrison-on-the-building-texas-show/20246478)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/texas-space-commission-unveils-ambitious-plans-for-galactic-leadership/20246478)
+
+Pickup - [advos.io](https://advos.io/en/texas-ambitious-vision-for-space-innovation-unveiled-on-the-building-texas-show/20246478)
+ 
 
 
 

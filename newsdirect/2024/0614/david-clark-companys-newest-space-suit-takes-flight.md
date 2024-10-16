@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/david-clark-c
 [Original/Source Press Release](https://newsdirect.com/news/david-clark-companys-newest-space-suit-takes-flight-839582484)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nasa-astronauts-wear-david-clark-s-s1100-salus-space-suit-aboard-boeing-s-starliner/74b870f70c36e32e4b7c42d3b0d2569f) 
+
+
+Pickup - [advos.io](https://advos.io/en/david-clark-company-s-newest-space-suit-takes-flight/20244168)
+ 
 
 
 

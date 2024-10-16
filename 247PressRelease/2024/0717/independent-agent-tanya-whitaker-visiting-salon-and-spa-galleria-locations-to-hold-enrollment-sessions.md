@@ -7,7 +7,15 @@ FORT WORTH, TX, July 17, 2024 /24-7PressRelease/ -- One of the most significant 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512591/independent-agent-tanya-whitaker-visiting-salon-and-spa-galleria-locations-to-hold-enrollment-sessions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/assistance-offered-for-self-employed-beauty-pros-insurance-enrollments/81319184622820b6f581efbaf34ab1a4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/independent-agent-to-hold-insurance-enrollment-sessions-for-beauty-professionals-at-salon-and-spa-galleria)
+
+Pickup - [fishervista.com](https://fishervista.com/en/insurance-agent-tanya-whitaker-to-visit-salon-and-spa-galleria-locations-for-enrollment-sessions/20245006)
+
+Pickup - [advos.io](https://advos.io/en/independent-agent-tanya-whitaker-to-hold-enrollment-sessions-at-salon-and-spa-galleria-locations/20245006)
+ 
 
 
 

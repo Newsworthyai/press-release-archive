@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/greatland-gol
 [Original/Source Press Release](https://newsdirect.com/news/greatland-gold-achieves-significant-q1-success-at-havieron-with-partner-newmont-573774565)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/greatland-gold-achieves-significant-q1-success-at-havieron-with-partner-newmont/77748875baeb7b06c21ef205a1887467) 
+
+ 
 
 
 

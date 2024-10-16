@@ -7,7 +7,17 @@ CLEARWATER, FL, September 06, 2024 /24-7PressRelease/ -- The first Saturday of e
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514025/cchr-florida-hosts-monthly-seminar-on-mental-health-veterans-and-suicide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/florida-chapter-of-cchr-hosts-monthly-seminar-for-veterans-mental-health/9554e3d9f4a2b1c17bf515d15966e5bd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/cchr-florida-addresses-veteran-mental-health-and-suicide-prevention-in-monthly-seminar)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cchr-florida-hosts-monthly-seminar-on-veteran-mental-health-and-suicide/20246586)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cchr-florida-addresses-veteran-mental-health-and-suicide-prevention-in-monthly-seminar/20246586)
+
+Pickup - [advos.io](https://advos.io/en/cchr-florida-hosts-monthly-seminar-addressing-mental-health-and-suicide-among-veterans/20246586)
+ 
 
 
 

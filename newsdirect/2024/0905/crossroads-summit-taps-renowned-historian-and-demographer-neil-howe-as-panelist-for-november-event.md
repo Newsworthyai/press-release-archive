@@ -55,7 +55,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/crossroads-su
 [Original/Source Press Release](https://newsdirect.com/news/crossroads-summit-taps-renowned-historian-and-demographer-neil-howe-as-panelist-for-november-event-909854720)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/neil-howe-other-experts-to-speak-at-crossroads-summit/1e55ccd30c370e6844fe2d8a964f4041) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/renowned-historian-neil-howe-to-address-generational-trends-at-upcoming-crossroads-summit)
+
+Pickup - [fishervista.com](https://fishervista.com/en/neil-howe-to-speak-at-crossroads-summit-on-generational-trends-and-investment/20246567)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/renowned-historian-neil-howe-to-speak-at-crossroads-summit-on-generational-trends-and-investment-strategies/20246567)
+
+Pickup - [advos.io](https://advos.io/en/renowned-historian-neil-howe-to-speak-at-crossroads-summit-on-future-investment-trends/20246567)
+ 
 
 
 

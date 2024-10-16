@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bgx-black-gol
 [Original/Source Press Release](https://newsdirect.com/news/bgx-black-gold-exploration-ceo-francisco-gulisano-on-company-projects-and-prospects-961307298)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bgx-black-gold-exploration-ceo-discusses-company-projects-and-prospects/b428e30bce2bac267a6c7c3c3590ea91) 
+
+
+Pickup - [advos.io](https://advos.io/en/black-gold-exploration-ceo-discusses-company-projects-in-argentina/20243978)
+ 
 
 
 

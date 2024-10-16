@@ -7,7 +7,17 @@ NAGS HEAD, NC, August 28, 2024 /24-7PressRelease/ -- ADAP Advocacy today unveile
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513839/adap-advocacy-unveils-light-for-hope-candle-for-world-aids-day-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/adap-advocacy-unveils-light-for-hope-candle-for-world-aids-day-2024/19bab7c30315b9abbdee278ad47383b5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/adap-advocacy-launches-light-for-hope-candle-campaign-for-world-aids-day-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/adap-advocacy-introduces-light-for-hope-candle-for-world-aids-day-2024/20246322)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/adap-advocacy-launches-light-for-hope-candle-campaign-for-world-aids-day-2024/20246322)
+
+Pickup - [advos.io](https://advos.io/en/adap-advocacy-unveils-light-for-hope-candle-for-world-aids-day-2024/20246322)
+ 
 
 
 

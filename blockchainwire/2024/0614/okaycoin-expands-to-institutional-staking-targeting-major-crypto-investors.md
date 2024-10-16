@@ -50,7 +50,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/okaycoin-expands-to-institutional-staking-targeting-major-crypto-investors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/okaycoin-expands-into-institutional-staking-services-offering-enhanced-solutions-for-institutional-investors/01e9bfb3cf83edcfd28989951d8a497a) 
+
+
+Pickup - [advos.io](https://advos.io/en/okaycoin-expands-services-to-institutional-staking-targeting-major-crypto-investors/20244177)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/okaycoin-expands-into-institutional-staking-services-offering-enhanced-solutions-for-institutional-investors)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/okaycoin-expands-into-institutional-staking-services-offering-enhanced-solutions-for-institutional-investors)
+ 
 
 
 

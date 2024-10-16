@@ -40,7 +40,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ycloud-enhanc
 [Original/Source Press Release](https://newsdirect.com/news/ycloud-enhances-whatsapp-business-integration-with-new-tools-for-marketing-and-customer-support-810934333)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ycloud-enhances-whatsapp-business-integration-with-new-tools-for-marketing-and-customer-support/7f6337afc93f1d78d4c56b84181a83db) 
+
+ 
 
 
 

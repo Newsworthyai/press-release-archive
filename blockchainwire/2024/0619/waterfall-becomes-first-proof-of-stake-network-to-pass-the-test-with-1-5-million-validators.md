@@ -19,7 +19,17 @@ Waterfall is the leading layer one (L1) architecture to solve decentralization, 
 [Original/Source Press Release](https://blockchainwire.io/press-release/waterfall-becomes-first-proof-of-stake-network-to-pass-the-test-with-15-million-validators-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/waterfall-network-sets-record-with-1573892-validators-in-successful-testing/27ad42be6be3464e828894f6ef2fa95d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/waterfall-network-achieves-record-1-5-million-validators-setting-new-benchmark-for-decentralization/20244276)
+
+Pickup - [advos.io](https://advos.io/en/waterfall-network-achieves-record-with-1-5-million-validators-setting-new-benchmark-for-decentralization/20244276)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/waterfall-network-sets-record-with-1573892-validators-in-successful-testing)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/waterfall-network-sets-record-with-1573892-validators-in-successful-testing)
+ 
 
 
 

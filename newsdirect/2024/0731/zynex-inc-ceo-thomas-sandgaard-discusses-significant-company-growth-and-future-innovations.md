@@ -21,7 +21,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/zynex-inc-ceo
 [Original/Source Press Release](https://newsdirect.com/news/zynex-inc-ceo-thomas-sandgaard-discusses-significant-company-growth-and-future-innovations-145224161)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zynex-inc-ceo-sandgaard-announces-record-growth-in-q2-results-and-future-innovations/7b38047aa38a7228e1338aa969a8333c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/zynex-inc-reports-strong-q2-growth-and-unveils-future-medical-device-innovations)
+
+Pickup - [fishervista.com](https://fishervista.com/en/zynex-inc-reports-robust-growth-and-promises-future-innovations-in-pain-management/20245398)
+
+Pickup - [advos.io](https://advos.io/en/zynex-inc-reports-robust-growth-and-promising-innovations/20245398)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/zynex-inc-reports-strong-q2-growth-and-unveils-future-medical-device-innovations)
+ 
 
 
 

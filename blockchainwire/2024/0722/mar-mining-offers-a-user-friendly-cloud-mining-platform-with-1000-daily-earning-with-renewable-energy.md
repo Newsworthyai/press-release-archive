@@ -83,7 +83,19 @@ Disclaimer: The artist Banksy is not officially involved and has not directly en
 [Original/Source Press Release](https://blockchainwire.io/press-release/mar-mining-offers-a-user-friendly-cloud-mining-platform-with-1000-daily-earning-with-renewable-energy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mar-mining-the-laziest-path-to-500-per-day/39d2700c1d13cec471f3889d82b351b9) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/mar-mining-the-laziest-path-to-500-per-day)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/mar-mining-the-laziest-path-to-500-per-day)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/mar-mining-revolutionizes-cryptocurrency-mining-with-user-friendly-cloud-platform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mar-mining-revolutionizes-cloud-mining-with-user-friendly-platform-and-renewable-energy/20245162)
+
+Pickup - [advos.io](https://advos.io/en/mar-mining-pioneering-user-friendly-cloud-mining-with-renewable-energy/20245162)
+ 
 
 
 

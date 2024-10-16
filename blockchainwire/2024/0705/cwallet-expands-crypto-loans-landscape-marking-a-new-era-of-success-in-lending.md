@@ -48,7 +48,19 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cwallet-expands-crypto-loans-landscape--marking-a-new-era-of-success-in-lending)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cwallet-crypto-loan-service-surpasses-1000-transactions-signifying-rapid-growth-in-the-crypto-lending-market/52e94cd3a88fd279d35d9e5df1afcf75) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cwallet-enhances-crypto-lending-landscape-with-flexible-loan-options/20244738)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/cwallet-crypto-loan-service-surpasses-1000-transactions-showcasing-rapid-growth-in-digital-lending)
+
+Pickup - [advos.io](https://advos.io/en/cwallet-revolutionizes-crypto-lending-with-flexible-loan-options-and-advanced-security/20244738)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cwallet-crypto-loan-service-surpasses-1000-transactions-signifying-rapid-growth-in-the-crypto-lending-market)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cwallet-crypto-loan-service-surpasses-1000-transactions-signifying-rapid-growth-in-the-crypto-lending-market)
+ 
 
 
 

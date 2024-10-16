@@ -23,7 +23,13 @@ Navigate the nuances of the modern workplace with www.EmployeeRelations.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231211815/employeerelations-io-a-comprehensive-hub-for-workplace-dynamics-and-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-employeerelations-io-a-hub-for-workplace-dynamics/1668b8cee1175afb02e78c688849ac59) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/employeerelations-io-launches-as-comprehensive-resource-for-workplace-dynamics/2023374)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/11/employeerelations-io-pioneering-a-new-era-in-workplace-dynamics)
+ 
 
 
 

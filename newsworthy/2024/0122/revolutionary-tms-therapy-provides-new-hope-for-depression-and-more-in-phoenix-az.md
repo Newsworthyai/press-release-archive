@@ -15,7 +15,11 @@ Administered by a trained TMS technician under the close supervision of a TMS ph
 [Original/Source Press Release](https://newsworthy.ai/news/202401221016/revolutionary-tms-therapy-provides-new-hope-for-depression-and-more-in-phoenix-az)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-non-invasive-depression-treatment-introduced-in-phoenix-az/d286ca7f6ee6cc74ca37dba390fce0cb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/22/revolutionary-tms-therapy-offers-new-hope-for-mental-health-challenges)
+ 
 
 
 

@@ -39,7 +39,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/milemarker-un
 [Original/Source Press Release](https://newsdirect.com/news/milemarker-unveils-firm-intelligence-the-power-to-control-integrate-and-unlock-your-wealth-management-data-931639451)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/milemarker-unveils-firm-intelligence-the-power-to-control-integrate-and-unlock-your-wealth-management-data/3d68e2e20765fff4ce781331e83f4dda) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/milemarker-launches-firm-intelligence-platform-to-revolutionize-wealth-management-data-integration)
+
+Pickup - [fishervista.com](https://fishervista.com/en/milemarker-launches-firm-intelligence-platform-to-revolutionize-wealth-management-data-integration/20246774)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/milemarker-launches-firm-intelligence-platform-to-revolutionize-wealth-management-data-integration/20246774)
+
+Pickup - [advos.io](https://advos.io/en/milemarker-launches-firm-intelligence-platform-to-revolutionize-wealth-management-data-integration/20246774)
+ 
 
 
 

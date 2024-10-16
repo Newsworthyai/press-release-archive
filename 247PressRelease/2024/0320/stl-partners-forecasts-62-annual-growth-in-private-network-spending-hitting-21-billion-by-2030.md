@@ -7,7 +7,11 @@ LONDON, ENGLAND, March 20, 2024 /24-7PressRelease/ -- "Enterprises are investing
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509386/stl-partners-forecasts-62-annual-growth-in-private-network-spending-hitting-21-billion-by-2030)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/private-mobile-networks-set-to-reach-us-21-billion-by-2030/514036594518c69130f28bc28d61563e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/private-network-spending-projected-to-reach-21-billion-by-2030)
+ 
 
 
 

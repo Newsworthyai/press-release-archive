@@ -7,7 +7,9 @@ NORFOLK, VA, May 02, 2024 /24-7PressRelease/ -- This self-published narrative no
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510530/did-you-know-the-general-federation-of-womens-clubs-raised-enough-funding-to-buy-431-warplanes-for-the-us-military-during-wwii)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/award-winning-author-bainy-cyrus-releases-new-book-on-historical-narrative-of-the-woman-s-club/966e89cf49a6ef6ad49f0b1981c3ea2d) 
+
+ 
 
 
 

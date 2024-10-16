@@ -23,7 +23,11 @@ Discover the intricacies of physiology at www.Physiologist.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231221862/introducing-physiologist-io-pioneering-physiology-expertise-and-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-physiologist-io-a-cutting-edge-platform-for-physiology-enthusiasts-and-professionals/48ec6c6e3df0faa66b0356ce65845168) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/21/physiologist-io-illuminating-the-intricacies-of-physiology)
+ 
 
 
 

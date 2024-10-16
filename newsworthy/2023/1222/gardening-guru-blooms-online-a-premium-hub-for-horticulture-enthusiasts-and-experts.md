@@ -23,7 +23,11 @@ Sprout your gardening prowess and passion at www.Gardening.guru.
 [Original/Source Press Release](https://newsworthy.ai/news/20231222822/gardening-guru-blooms-online-a-premium-hub-for-horticulture-enthusiasts-and-experts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gardening-guru-launches-as-the-ultimate-digital-space-for-gardening-insights/6eef4a7d8b2fcfaef2b1c5796846e109) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/22/gardening-guru-blooms-as-premier-digital-destination-for-horticulture-enthusiasts)
+ 
 
 
 

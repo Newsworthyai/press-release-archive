@@ -27,7 +27,11 @@ Alikson Group is an international group of companies with offices located in Rus
 [Original/Source Press Release](https://blockchainwire.io/press-release/new-holding-enters-the-apartment-rental-market-alikson-group-acquires-apart-sharing-in-a-whopping-deal)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alikson-group-acquires-apart-sharing-expands-into-contactless-apartment-rentals/fa4d07534f93f474ebcbf07333dab3bc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/alikson-group-expands-into-contactless-apartment-rentals-with-10-million-acquisition)
+ 
 
 
 

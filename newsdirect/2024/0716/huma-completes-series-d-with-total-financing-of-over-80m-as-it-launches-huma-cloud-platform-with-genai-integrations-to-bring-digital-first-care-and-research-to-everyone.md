@@ -63,7 +63,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/huma-complete
 [Original/Source Press Release](https://newsdirect.com/news/huma-completes-series-d-with-total-financing-of-over-80m-as-it-launches-huma-cloud-platform-with-genai-integrations-to-bring-digital-first-care-and-research-to-everyone-106718712)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/huma-completes-series-d-funding-launches-huma-cloud-platform-for-digital-first-care-and-research/0a0053bf9a27bb1cd5882bd5c7737a98) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/huma-secures-80m-in-series-d-funding-launches-ai-powered-cloud-platform-for-digital-health)
+
+Pickup - [fishervista.com](https://fishervista.com/en/huma-raises-over-80m-in-series-d-as-it-launches-huma-cloud-platform-with-genai-integrations/20244990)
+
+Pickup - [advos.io](https://advos.io/en/huma-completes-series-d-funding-launches-innovative-huma-cloud-platform/20244990)
+ 
 
 
 

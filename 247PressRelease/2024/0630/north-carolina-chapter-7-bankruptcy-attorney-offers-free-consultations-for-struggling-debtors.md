@@ -7,7 +7,15 @@ CHARLOTTE, NC, June 30, 2024 /24-7PressRelease/ -- The Layton Law Firm, a leadin
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512152/north-carolina-chapter-7-bankruptcy-attorney-offers-free-consultations-for-struggling-debtors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leading-consumer-bankruptcy-law-firm-offers-free-consultations-for-chapter-7-bankruptcy/87aa2fc4441c8861ee59ff37b6120627) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/layton-law-firm-offers-free-consultations-for-chapter-7-bankruptcy-in-charlotte/20244666)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/06/30/charlotte-law-firm-offers-free-consultations-for-chapter-7-bankruptcy)
+
+Pickup - [advos.io](https://advos.io/en/layton-law-firm-offers-free-chapter-7-bankruptcy-consultations-to-aid-struggling-debtors/20244666)
+ 
 
 
 

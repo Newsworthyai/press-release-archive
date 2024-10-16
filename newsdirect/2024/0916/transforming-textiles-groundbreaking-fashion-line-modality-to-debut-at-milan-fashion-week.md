@@ -109,7 +109,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/transforming-
 [Original/Source Press Release](https://newsdirect.com/news/transforming-textiles-groundbreaking-fashion-line-modality-to-debut-at-milan-fashion-week-221189197)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/modality-s-fading-fables-collection-to-debut-at-milan-fashion-week/8f825ba5b9bd8d8b3ff2664582a6d32c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/sustainable-fashion-brand-modality-to-showcase-innovative-sense-tex-fabric-at-milan-fashion-week)
+
+Pickup - [fishervista.com](https://fishervista.com/en/sustainable-fashion-takes-center-stage-modality-s-fading-fables-collection-to-debut-at-milan-fashion-week/20246865)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/sustainable-fashion-takes-center-stage-modality-s-fading-fables-collection-to-debut-at-milan-fashion-week/20246865)
+
+Pickup - [advos.io](https://advos.io/en/sustainable-fashion-brand-modality-to-showcase-innovative-sense-tex-fabric-at-milan-fashion-week/20246865)
+ 
 
 
 

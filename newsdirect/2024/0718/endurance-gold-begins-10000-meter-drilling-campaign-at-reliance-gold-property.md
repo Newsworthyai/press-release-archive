@@ -19,7 +19,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/endurance-gol
 [Original/Source Press Release](https://newsdirect.com/news/endurance-gold-begins-10-000-meter-drilling-campaign-at-reliance-gold-property-160926934)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/endurance-gold-commences-10000-meter-drilling-campaign-at-reliance-gold-property/76f9963c643e45561407b98d6cd27db5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/endurance-gold-launches-major-drilling-program-at-reliance-gold-property-in-british-columbia)
+
+Pickup - [fishervista.com](https://fishervista.com/en/endurance-gold-initiates-extensive-drilling-campaign-at-reliance-gold-property/20245084)
+
+Pickup - [advos.io](https://advos.io/en/endurance-gold-initiates-10000-meter-drilling-campaign-at-reliance-gold-property/20245084)
+ 
 
 
 

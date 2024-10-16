@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-t
 [Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-teams-with-red-cat-to-provide-advanced-maritime-defence-solutions-800551398)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ocean-power-technologies-teams-with-red-cat-to-provide-advanced-maritime-defence-solutions/fb71ec4865e1a4b0d40938c7c2e9f578) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/ocean-power-technologies-and-red-cat-join-forces-for-cutting-edge-maritime-defense-solutions)
+ 
 
 
 

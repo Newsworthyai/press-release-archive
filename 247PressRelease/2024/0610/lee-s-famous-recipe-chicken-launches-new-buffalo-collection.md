@@ -7,7 +7,11 @@ SHALIMAR, FL, June 10, 2024 /24-7PressRelease/ -- Lee's Famous Recipe® Chicken,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511551/lees-famous-recipe-chicken-launches-new-buffalo-collection)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lee-s-famous-recipe-r-chicken-introduces-new-buffalo-collection/105262ef671551132ef3eb72c5404692) 
+
+
+Pickup - [advos.io](https://advos.io/en/lee-s-famous-recipe-chicken-introduces-new-buffalo-collection-menu-items/20243967)
+ 
 
 
 

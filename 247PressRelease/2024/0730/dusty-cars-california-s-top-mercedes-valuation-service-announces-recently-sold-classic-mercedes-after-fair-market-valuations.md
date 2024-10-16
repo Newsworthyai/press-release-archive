@@ -7,7 +7,17 @@ OAKLAND, CA, July 30, 2024 /24-7PressRelease/ -- Dusty Cars, California's top-ra
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512841/dusty-cars-californias-top-mercedes-valuation-service-announces-recently-sold-classic-mercedes-after-fair-market-valuations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/classic-mercedes-valuation-service-sees-the-value-of-every-classic-car/077eb4b741a41d5decae740e2f2f1afd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/dusty-cars-highlights-recent-sales-of-classic-mercedes-following-fair-market-valuations)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dusty-cars-announces-successful-sales-of-classic-mercedes-vehicles/20245339)
+
+Pickup - [advos.io](https://advos.io/en/dusty-cars-announces-successful-sales-of-classic-mercedes-vehicles/20245339)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dusty-cars-showcases-recently-sold-classic-mercedes-following-fair-market-valuations)
+ 
 
 
 

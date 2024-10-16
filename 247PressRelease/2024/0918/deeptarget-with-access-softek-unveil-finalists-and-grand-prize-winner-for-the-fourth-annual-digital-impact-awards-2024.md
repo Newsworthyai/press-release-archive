@@ -7,7 +7,9 @@ HUNTSVILLE, AL, September 18, 2024 /24-7PressRelease/ -- DeepTarget Inc., a tran
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514414/deeptarget-with-access-softek-unveil-finalists-and-grand-prize-winner-for-the-fourth-annual-digital-impact-awards-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/2024-digital-impact-awards-top-credit-unions-revealed/a62a05a0c0f2a95d691e97cf487331ad) 
+
+ 
 
 
 

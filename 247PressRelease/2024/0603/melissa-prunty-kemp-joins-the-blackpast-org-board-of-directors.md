@@ -7,7 +7,11 @@ SEATTLE, WA, June 03, 2024 /24-7PressRelease/ -- Maryland archivist and former c
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511372/melissa-prunty-kemp-joins-the-blackpastorg-board-of-directors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/melissa-prunty-kemp-appointed-to-board-of-blackpast-org/cf1d56ebe38f6e655bc62db6472caa39) 
+
+
+Pickup - [advos.io](https://advos.io/en/melissa-prunty-kemp-appointed-to-blackpast-org-board-of-directors/20243617)
+ 
 
 
 

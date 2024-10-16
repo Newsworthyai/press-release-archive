@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/altona-rare-e
 [Original/Source Press Release](https://newsdirect.com/news/altona-rare-earths-announces-strategic-diversification-with-botswana-copper-licence-option-agreement-337794614)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/altona-rare-earths-announces-strategic-diversification-with-botswana-copper-licence-option-agreement/e829e1fcf98caf65cbc0d1067b4e31df) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/altona-rare-earths-expands-portfolio-with-botswana-copper-licence-option-agreement)
+ 
 
 
 

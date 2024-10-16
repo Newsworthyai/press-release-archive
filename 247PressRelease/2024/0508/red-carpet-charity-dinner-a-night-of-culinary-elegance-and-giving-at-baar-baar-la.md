@@ -7,7 +7,9 @@ LOS ANGELES, CA, May 08, 2024 /24-7PressRelease/ --   ***MEDIA ADVISORY***  The 
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510699/red-carpet-charity-dinner-a-night-of-culinary-elegance-and-giving-at-baar-baar-la)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unforgettable-charity-dinner-to-support-underprivileged-girls/29a23402d4ab865b778b562fb5fac76e) 
+
+ 
 
 
 

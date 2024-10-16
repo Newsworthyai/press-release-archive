@@ -67,7 +67,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/prismastake-announces-6-million-seed-funding-to-revolutionize-defi-staking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prismastake-secures-6m-seed-funding-for-defi-innovation/21d7479454f00a1e02e2d6d64df08e39) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/prismastake-secures-6-million-seed-funding-to-revolutionize-defi-staking)
+ 
 
 
 

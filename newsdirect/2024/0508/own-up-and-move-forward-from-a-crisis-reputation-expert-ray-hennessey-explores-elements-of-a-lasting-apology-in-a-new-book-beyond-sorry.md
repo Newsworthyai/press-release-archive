@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/own-up-and-mo
 [Original/Source Press Release](https://newsdirect.com/news/own-up-and-move-forward-from-a-crisis-reputation-expert-ray-hennessey-explores-elements-of-a-lasting-apology-in-a-new-book-beyond-sorry-405630657)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/reputation-expert-ray-hennessey-releases-new-book-on-offering-sincere-apologies-after-a-crisis/59f095d4a41ce5c2164667ab2166f18b) 
+
+ 
 
 
 

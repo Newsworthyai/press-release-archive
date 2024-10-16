@@ -846,7 +846,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/foresight-ann
 [Original/Source Press Release](https://newsdirect.com/news/foresight-announces-fourth-quarter-and-full-year-2023-financial-results-906241274)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/foresight-autonomous-holdings-ltd-announces-fourth-quarter-and-full-year-2023-financial-results/c462a563c33b06f990ad31bcc281748f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/foresight-autonomous-holdings-reports-financial-results-for-2023)
+ 
 
 
 

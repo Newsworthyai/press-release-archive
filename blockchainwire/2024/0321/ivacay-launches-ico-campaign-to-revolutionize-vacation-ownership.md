@@ -39,7 +39,11 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/ivacay-launches-ico-campaign-to-revolutionize-vacation-ownership)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vacaycoin-ico-launch-transforming-travel-with-blockchain-innovation/d0e0b279523e7bff99855b0bc7743cea) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/ivacay-revolutionizes-vacation-ownership-with-vacaycoin-ico-launch)
+ 
 
 
 

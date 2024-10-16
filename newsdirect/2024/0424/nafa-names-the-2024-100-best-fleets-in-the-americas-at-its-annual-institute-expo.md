@@ -38,7 +38,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nafa-names-th
 [Original/Source Press Release](https://newsdirect.com/news/nafa-names-the-2024-100-best-fleets-in-the-americas-at-its-annual-institute-and-expo-131049480)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nafa-announces-100-best-fleets-in-the-americas-for-2024/b338047954d7ddc1201d102ad465f930) 
+
+ 
 
 
 

@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/navex-release
 [Original/Source Press Release](https://newsdirect.com/news/navex-releases-2024-regional-whistleblowing-and-incident-management-benchmark-report-709858757)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/navex-releases-2024-regional-whistleblowing-incident-management-benchmark-report/2c4ab0d7557c4984472bfdbc6b371c99) 
+
+ 
 
 
 

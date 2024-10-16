@@ -7,7 +7,9 @@ FORT MYERS, FL, April 22, 2024 /24-7PressRelease/ -- Richard M. Daum, MD, MSc, h
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510188/cardiologist-richard-daum-now-an-eight-time-castle-connolly-top-doctor)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-richard-m-daum-recognized-as-2024-castle-connolly-top-doctor/eff5cc1f1ae1f91dbdeac55c02df8de8) 
+
+ 
 
 
 

@@ -23,7 +23,11 @@ For an unparalleled exploration of interest rates and expert views, visit www.In
 [Original/Source Press Release](https://newsworthy.ai/news/20231201829/interestrate-io-navigating-the-complex-world-of-interest-rates-just-became-simpler)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/interestrate-io-launches-as-a-game-changer-in-finance-domain/17d0c3dab33f73ca1fd27873b1d975ed) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/01/interestrate-io-illuminates-the-intricate-world-of-interest-rates)
+ 
 
 
 

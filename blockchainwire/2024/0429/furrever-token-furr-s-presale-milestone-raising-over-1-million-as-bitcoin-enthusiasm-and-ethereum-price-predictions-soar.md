@@ -43,7 +43,9 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/furrever-token-furrs-presale-milestone-raising-over-1-million-as-bitcoin-enthusiasm-and-ethereum-price-predictions-soar-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-market-volatility-bitcoin-and-ethereum-price-movements-furrever-token-presale-exceeds-1020000/acd7e8c7ec56861378b2c854cf01fbc6) 
+
+ 
 
 
 

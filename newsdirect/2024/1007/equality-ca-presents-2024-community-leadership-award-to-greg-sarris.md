@@ -26,7 +26,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/equality-ca-p
 [Original/Source Press Release](https://newsdirect.com/news/equality-ca-presents-2024-community-leadership-award-to-greg-sarris-958147408)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/equality-ca-presents-2024-community-leadership-award-to-greg-sarris/dda14b5543f1ab5f08af3414fecae9e0) 
+
+ 
 
 
 

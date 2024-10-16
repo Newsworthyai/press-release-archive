@@ -29,7 +29,9 @@ DUBAI, UAE - (NewMediaWire) - October 3, 2024 - Blackwell 3D Construction Corp.
 [Original/Source Press Release](https://www.newmediawire.com/news/blackwell-3d-completes-audit-plans-to-file-form-10-registration-statement-with-the-sec-7076152)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blackwell-3d-completes-audited-financial-statements-plans-to-file-form-10-registration-statement-with-sec/b6fbdfa2a05ed2a7731ca586d0f8b914) 
+
+ 
 
 
 

@@ -17,7 +17,9 @@ View original content to download multimedia: https://newsdirect.com/news/home-s
 [Original/Source Press Release](https://newsdirect.com/news/home-smart-home-922748969)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/smart-home-technology-trends-the-future-of-home-automation/3f2b64be8199119f1d4e957aaff55ba0) 
+
+ 
 
 
 

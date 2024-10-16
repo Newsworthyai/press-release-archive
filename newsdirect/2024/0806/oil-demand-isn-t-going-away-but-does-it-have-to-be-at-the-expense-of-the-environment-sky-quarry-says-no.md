@@ -55,7 +55,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/oil-demand-is
 [Original/Source Press Release](https://newsdirect.com/news/oil-demand-isnt-going-away-but-does-it-have-to-be-at-the-expense-of-the-environment-sky-quarry-says-no-812889858)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sky-quarry-inc-revolutionizes-clean-energy-with-asphalt-shingle-recycling/b150df31c958c8e3f82832855a8c525b) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/sky-quarry-innovates-sustainable-solutions-for-asphalt-shingle-waste-amid-rising-oil-demand/20245519)
+
+Pickup - [advos.io](https://advos.io/en/sky-quarry-innovates-to-balance-oil-demand-and-environmental-sustainability/20245519)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/sky-quarry-pioneers-sustainable-oil-extraction-from-discarded-asphalt-shingles)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/sky-quarry-aims-to-transform-oil-production-with-sustainable-asphalt-shingle-recycling)
+ 
 
 
 

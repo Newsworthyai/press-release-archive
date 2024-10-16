@@ -7,7 +7,11 @@ DUBAI, UAE, April 04, 2024 /24-7PressRelease/ -- GO Markets, one of the top prov
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509745/go-markets-clinches-two-award-titles-at-international-business-magazine-awards-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/go-markets-honored-with-two-major-awards-for-most-trusted-global-forex-broker-asia-2024-and-best-global-forex-broker-asia-2024/cb8ae13866ed4416de72b5489400abc4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/go-markets-earns-prestigious-awards-for-trusted-global-forex-broker)
+ 
 
 
 

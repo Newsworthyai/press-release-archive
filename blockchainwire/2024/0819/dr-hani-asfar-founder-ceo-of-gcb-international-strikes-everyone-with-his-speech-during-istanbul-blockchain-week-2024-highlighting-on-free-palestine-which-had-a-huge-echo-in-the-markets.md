@@ -21,7 +21,11 @@ This has encouraged a group of crypto activists to launch an NFT collection unde
 [Original/Source Press Release](https://blockchainwire.io/press-release/dr-hani-asfar-founder--ceo-of-gcb-international--strikes-everyone-with-his-speech-during-istanbul-blockchain-week-2024-highlighting-on-free-palestine-which-had-a-huge-echo-in-the-markets)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prominent-companies-and-industry-experts-gather-for-istanbul-blockchain-week-24/cf34a8d75b867c3307e9dda4149598ec) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gcb-international-ceo-advocates-for-justice-and-equality-in-crypto-at-istanbul-blockchain-week/20245816)
+ 
 
 
 

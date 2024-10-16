@@ -21,7 +21,9 @@ For more information, visit soar.com
 [Original/Source Press Release](https://newsworthy.ai/news/202410091308/chris-higbee-named-ceo-of-workplace-ai-leading-innovation-in-ai-powered-workplace-solutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/workplace-ai-appoints-chris-higbee-as-new-ceo-to-drive-ai-driven-workplace-productivity/a4b056acea460f2633cf916ca8918827) 
+
+ 
 
 
 

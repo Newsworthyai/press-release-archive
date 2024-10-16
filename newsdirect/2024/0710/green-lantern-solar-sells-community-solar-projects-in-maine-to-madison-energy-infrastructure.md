@@ -36,7 +36,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/green-lantern
 [Original/Source Press Release](https://newsdirect.com/news/green-lantern-solar-sells-community-solar-projects-in-maine-to-madison-energy-infrastructure-710100096)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/green-lantern-solar-sells-community-solar-projects-in-maine-to-madison-energy-infrastructure/92457a25b15468669a09b8c259118ef9) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/green-lantern-solar-sells-community-solar-projects-in-maine-to-madison-energy-infrastructure/20244828)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/green-lantern-solar-expands-renewable-energy-footprint-with-sale-of-maine-solar-projects)
+
+Pickup - [advos.io](https://advos.io/en/green-lantern-solar-sells-community-solar-projects-to-madison-energy-infrastructure/20244828)
+ 
 
 
 

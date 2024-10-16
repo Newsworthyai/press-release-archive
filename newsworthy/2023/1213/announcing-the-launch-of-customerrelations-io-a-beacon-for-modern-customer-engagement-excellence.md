@@ -23,7 +23,11 @@ Discover the future of customer engagement at www.CustomerRelations.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231213804/announcing-the-launch-of-customerrelations-io-a-beacon-for-modern-customer-engagement-excellence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/customerrelations-io-launches-as-the-ultimate-resource-for-customer-relationship-excellence/ff9b3194dabfa575519b079a87a699e7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/13/customerrelations-io-launches-as-beacon-for-customer-engagement-excellence)
+ 
 
 
 

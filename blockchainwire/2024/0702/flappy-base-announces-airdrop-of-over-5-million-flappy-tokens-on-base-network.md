@@ -39,7 +39,19 @@ For more information, please visit the official Flappy Base website or join the 
 [Original/Source Press Release](https://blockchainwire.io/press-release/flappy-base-announces-airdrop-of-over-5-million-flappy-tokens-on-base-network)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/flappy-base-announces-airdrop-of-over-5-million-flappy-tokens-ahead-of-official-launch/96b1d538eddcc3ab20a0e52351a1e58a) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/flappy-base-announces-major-flappy-token-airdrop-ahead-of-launch/20244670)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/flappy-base-to-distribute-over-5-million-flappy-tokens-in-airdrop-event)
+
+Pickup - [advos.io](https://advos.io/en/flappy-base-announces-airdrop-of-over-5-million-flappy-tokens-on-base-network/20244670)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/flappy-base-announces-airdrop-of-over-5-million-flappy-tokens-ahead-of-official-launch)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/flappy-base-announces-airdrop-of-over-5-million-flappy-tokens-ahead-of-official-launch)
+ 
 
 
 

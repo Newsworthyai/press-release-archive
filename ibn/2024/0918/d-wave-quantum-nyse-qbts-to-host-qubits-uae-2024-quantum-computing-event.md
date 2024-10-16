@@ -29,7 +29,9 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-quantum-nyse-qbts-to-host-qubits-uae-2024-quantum-computing-event/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-announces-qubits-uae-2024-quantum-computing-event-in-dubai/d11b4e53e1deb240018b25dfbe593366) 
+
+ 
 
 
 

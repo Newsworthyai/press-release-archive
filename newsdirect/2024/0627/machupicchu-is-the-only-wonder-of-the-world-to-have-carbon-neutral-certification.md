@@ -35,7 +35,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/machupicchu-i
 [Original/Source Press Release](https://newsdirect.com/news/machupicchu-is-the-only-wonder-of-the-world-to-have-carbon-neutral-certification-359454624)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/machupicchu-recertified-as-carbon-neutral-destination/2a998bc92055a588560edebb20599bbd) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/machupicchu-achieves-carbon-neutral-certification-as-the-only-wonder-of-the-world/20244559)
+
+Pickup - [advos.io](https://advos.io/en/machupicchu-achieves-carbon-neutral-certification-as-the-only-world-wonder/20244559)
+ 
 
 
 

@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/sostravel-com
 [Original/Source Press Release](https://newsdirect.com/news/sostravel-com-strategy-unveiled-interview-with-edoardo-zarghetta-275156869)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sostravel-com-strategy-unveiled-in-interview-with-edoardo-zarghetta/4f70381d34af3e69f711325bacc22004) 
+
+ 
 
 
 

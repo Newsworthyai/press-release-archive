@@ -7,7 +7,9 @@ PALM BEACH, FL, September 18, 2024 /24-7PressRelease/ -- SJ Manders, a passionat
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514425/sj-manders-exposes-the-harsh-reality-in-gaza-with-her-compelling-works)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/passionate-advocate-shines-spotlight-on-crisis-in-gaza/515d91fe17f7b4eeeb56e20712965277) 
+
+ 
 
 
 

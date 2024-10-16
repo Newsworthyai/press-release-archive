@@ -7,7 +7,9 @@ NEW YORK, NY, October 01, 2024 /24-7PressRelease/ -- SuperReturn, the world's le
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514808/superreturn-private-credit-us-to-run-november-12-13-in-new-york)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/superreturn-private-credit-us-event-to-host-leading-industry-professionals-in-new-york/ab3f63ffd3460745a2e17214acb99278) 
+
+ 
 
 
 

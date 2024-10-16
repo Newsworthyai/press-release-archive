@@ -25,7 +25,9 @@ McEwen Mining (NYSE: MUX) (TSX: MUX), a gold and silver producer with operations
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-schedules-call-to-discuss-q2-results/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-mining-mux-announces-date-for-second-quarter-2024-financial-results-conference-call-and-webcast/f4df5409bf181b6006940fb7f8a9d5d8) 
+
+ 
 
 
 

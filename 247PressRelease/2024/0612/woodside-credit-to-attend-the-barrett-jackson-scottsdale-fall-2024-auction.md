@@ -7,7 +7,11 @@ SCOTTSDALE, AZ, June 12, 2024 /24-7PressRelease/ -- Woodside Credit is excited t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511650/woodside-credit-to-attend-the-barrett-jackson-scottsdale-fall-2024-auction)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/woodside-credit-to-offer-financing-solutions-at-barrett-jackson-fall-auction-in-scottsdale/2f9eef3ed83ed4779e7c3d4eac9dc5b4) 
+
+
+Pickup - [advos.io](https://advos.io/en/woodside-credit-to-enhance-collector-car-buying-experience-at-barrett-jackson-scottsdale-fall-2024-auction/20244058)
+ 
 
 
 

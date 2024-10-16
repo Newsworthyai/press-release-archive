@@ -35,7 +35,11 @@ Website link: www.giraffe-ai.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/giraffe-ai-labs-participates-as-gold-sponsor-at-webx-2024-teases-year-end-global-launch-of-rogup)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/giraffe-ai-labs-unveils-innovative-rogup-service-at-webx-2024/d754235e0a434b0f1581bf4812c4d2fa) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/giraffe-ai-labs-unveils-rogup-at-webx-2024-heralding-global-launch/20246717)
+ 
 
 
 

@@ -43,7 +43,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/pajamas-cat-token-launches-a-historic-leap-from-youtube-to-crypto-fame-in-2024-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pajamas-cat-token-a-new-chapter-in-crypto-history/85cf50964e843a2822544abcb637eb23) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/pajamas-cat-token-from-youtube-sensation-to-crypto-stardom)
+ 
 
 
 

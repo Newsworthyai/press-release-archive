@@ -29,7 +29,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/hostelworld-c
 [Original/Source Press Release](https://newsdirect.com/news/hostelworld-ceo-discusses-strategic-growth-and-market-share-increase-565359070)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hostelworld-ceo-highlights-strategic-growth-and-market-share-increase/77a841c7857d2e4d455dd37ed212a730) 
+
+ 
 
 
 

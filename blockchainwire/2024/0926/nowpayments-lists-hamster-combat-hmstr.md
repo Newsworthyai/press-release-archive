@@ -29,7 +29,9 @@ The choice of the TON blockchain brings added security and scalability to Hamste
 [Original/Source Press Release](https://blockchainwire.io/press-release/nowpayments-lists-hamster-combat-hmstr)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nowpayments-lists-hamster-combat-hmstr-on-ton-blockchain/add988188fbda48502ecf936990896b3) 
+
+ 
 
 
 

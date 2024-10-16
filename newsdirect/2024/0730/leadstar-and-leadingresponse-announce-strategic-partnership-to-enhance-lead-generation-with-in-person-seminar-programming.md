@@ -57,7 +57,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/leadstar-and-
 [Original/Source Press Release](https://newsdirect.com/news/leadstar-and-leadingresponse-announce-strategic-partnership-to-enhance-lead-generation-with-in-person-seminar-programming-781305029)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leadstar-and-leadingresponse-announce-strategic-partnership-to-enhance-lead-generation/17442f3dfbf31bd4baefa7ff5c7565e2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/leadstar-and-leadingresponse-join-forces-to-revolutionize-lead-generation-with-in-person-seminars)
+
+Pickup - [fishervista.com](https://fishervista.com/en/leadstar-and-leadingresponse-announce-strategic-partnership-to-enhance-lead-generation-with-in-person-seminar-programming/20245361)
+
+Pickup - [advos.io](https://advos.io/en/leadstar-and-leadingresponse-partner-to-boost-lead-generation-with-in-person-seminars/20245361)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/leadstar-and-leadingresponse-join-forces-to-revolutionize-lead-generation-in-insurance-and-financial-services)
+ 
 
 
 

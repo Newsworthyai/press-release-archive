@@ -28,7 +28,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/why-bitcoin-btcs-13t-market-cap-and-ethereum-eths-innovations-make-furrever-token-a-must-watch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-ethereum-and-furrever-token-a-dynamic-landscape-in-the-cryptocurrency-market/d5eef66b5eca194ec41dbe487b7b1f32) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-ethereum-and-furrever-token-a-dynamic-landscape-in-the-cryptocurrency-market)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-ethereum-and-furrever-token-a-dynamic-landscape-in-the-cryptocurrency-market)
+ 
 
 
 

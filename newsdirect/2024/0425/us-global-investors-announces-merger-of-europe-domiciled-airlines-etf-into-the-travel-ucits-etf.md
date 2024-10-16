@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/us-global-inv
 [Original/Source Press Release](https://newsdirect.com/news/us-global-investors-announces-merger-of-europe-domiciled-airlines-etf-into-the-travel-ucits-etf-120059927)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-global-investors-announces-merger-of-europe-domiciled-airlines-etf-into-the-travel-ucits-etf/06ab56d0628f9fe476d482e4e11211cb) 
+
+ 
 
 
 

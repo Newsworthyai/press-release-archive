@@ -47,7 +47,11 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-btc-stabilizes-at-66000-post-halving-ethereum-eth-climbs-13-to-3200-furrever-token-furr-nears-19m-goal-in-presale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-market-update-bitcoin-ethereum-and-furrever-token/d1335db5b5de1f126fcb78f5f1ecfc54) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/bitcoin-btc-stabilizes-at-66000-post-halving-ethereum-eth-climbs-1-3-to-3200-furrever-token-furr-nears-1-9m-goal-in-presale)
+ 
 
 
 

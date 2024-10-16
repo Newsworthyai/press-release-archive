@@ -67,7 +67,9 @@ Established in 2023, Lucky Lion Weed Dispensary is a trusted and respected name 
 [Original/Source Press Release](https://newsworthy.ai/news/202402011050/discover-the-difference-lucky-lion-s-exceptional-cannabis-at-148th-powell)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lucky-lion-weed-dispensary-a-premium-cannabis-experience-in-portland/e2bfd1eec62c3d1b45ae249a5e95c294) 
+
+ 
 
 
 

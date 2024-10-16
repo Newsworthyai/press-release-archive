@@ -15,7 +15,11 @@ For more information about TMS Therapy and the services offered at Prime Psychia
 [Original/Source Press Release](https://newsworthy.ai/news/202402201076/transcranial-magnetic-stimulation-tms-therapy-offers-new-hope-for-patients-with-treatment-resistant-depression-at-prime-psychiatry-in-frisco-tx)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prime-psychiatry-introduces-groundbreaking-tms-therapy-for-treatment-resistant-depression/5e668c3773989a7db1790432d1bf7a25) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/20/prime-psychiatry-offers-transcranial-magnetic-stimulation-therapy-for-treatment-resistant-depression)
+ 
 
 
 

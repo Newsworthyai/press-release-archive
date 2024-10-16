@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/hre-advisors-
 [Original/Source Press Release](https://newsdirect.com/news/hre-advisors-expands-partnership-and-portfolio-in-western-kentucky-751582430)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hre-advisors-expands-partnership-and-portfolio-in-western-kentucky/cc96be27f13a56a1962539edaa63e462) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/hre-advisors-expands-partnership-and-portfolio-in-western-kentucky)
+ 
 
 
 

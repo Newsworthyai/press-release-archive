@@ -7,7 +7,9 @@ WARREN, MI, October 02, 2024 /24-7PressRelease/ -- The Dr. John Pispidikis Schol
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514876/the-dr-john-pispidikis-scholarship-for-nursing-award-to-recognize-and-support-exceptional-nursing-students-committed-to-advancing-healthcare-excellence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-john-pispidikis-scholarship-for-nursing-accepting-applications/e410df2dbc405bee6fe44c320009653c) 
+
+ 
 
 
 

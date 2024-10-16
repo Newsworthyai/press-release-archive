@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/accessos-land
 [Original/Source Press Release](https://newsdirect.com/news/accessos-landmark-deal-with-seven-marks-strategic-growth-in-the-saudi-market-133401637)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/accesso-s-landmark-deal-with-seven-marks-strategic-growth-in-the-saudi-market/a0e38430cde37e5458afbef8bed1a178) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/accesso-expands-footprint-in-saudi-arabia-with-seven-partnership)
+ 
 
 
 

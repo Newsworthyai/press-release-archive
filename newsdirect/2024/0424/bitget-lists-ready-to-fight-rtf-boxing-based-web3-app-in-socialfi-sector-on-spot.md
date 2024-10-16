@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-lists-
 [Original/Source Press Release](https://newsdirect.com/news/bitget-lists-ready-to-fight-rtf-boxing-based-web3-app-in-socialfi-sector-on-spot-401079186)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-lists-ready-to-fight-rtf-boxing-based-web3-app-in-socialfi-sector-on-spot/32856543d9774c71f82e5580c4e8bcf4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/bitget-lists-ready-to-fight-rtf-boxing-based-web3-app-in-socialfi-sector-on-spot)
+ 
 
 
 

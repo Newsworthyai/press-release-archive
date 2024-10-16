@@ -7,7 +7,11 @@ SHENZHEN, CHINA, April 10, 2024 /24-7PressRelease/ -- Leawo Software is working 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509905/giveaway-of-the-day-gives-out-leawo-powerpoint-to-video-for-free-to-convert-powerpoint-to-video)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leawo-software-to-offer-free-giveaway-of-powerpoint-to-video-pro-on-april-14-2024/fdf545a38c09079ada966d3873da36ce) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/leawo-software-and-giveaway-of-the-day-partner-to-offer-free-powerpoint-to-video-pro-giveaway-and-50-off-deals)
+ 
 
 
 

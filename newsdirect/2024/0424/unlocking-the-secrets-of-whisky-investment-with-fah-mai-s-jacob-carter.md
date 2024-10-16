@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/unlocking-the
 [Original/Source Press Release](https://newsdirect.com/news/unlocking-the-secrets-of-whisky-investment-with-fah-mais-jacob-carter-839273122)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unlocking-the-secrets-of-whisky-investment-with-fah-mai-s-jacob-carter/2e00e13902ad524e5dcd8185abec86e1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/unlocking-the-secrets-of-whisky-investment-with-fah-mai-s-jacob-carter)
+ 
 
 
 

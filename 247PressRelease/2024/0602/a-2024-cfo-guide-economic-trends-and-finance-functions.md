@@ -7,7 +7,11 @@ LONDON, ENGLAND, June 02, 2024 /24-7PressRelease/ -- The latest report released 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511345/a-2024-cfo-guide-economic-trends-and-finance-functions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leathwaite-report-explores-cfo-perspectives-on-future-of-finance/46294db4da74a7a151b70d4992aec469) 
+
+
+Pickup - [advos.io](https://advos.io/en/leathwaite-report-reveals-future-challenges-and-opportunities-for-cfos/20243608)
+ 
 
 
 

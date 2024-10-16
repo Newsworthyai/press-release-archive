@@ -31,7 +31,9 @@ InMed Pharmaceuticals (NASDAQ: INM), a leader in the manufacturing, development 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/inmed-pharmaceuticals-nasdaq-inm-announces-three-u-s-patent-issuances/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/inmed-pharmaceuticals-nasdaq-inm-receives-three-u-s-patents-strengthening-its-patent-portfolio/ece30579db4e926f2df5a5bdedd63246) 
+
+ 
 
 
 

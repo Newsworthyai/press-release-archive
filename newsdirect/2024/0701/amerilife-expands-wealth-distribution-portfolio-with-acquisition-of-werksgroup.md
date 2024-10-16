@@ -41,7 +41,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/amerilife-exp
 [Original/Source Press Release](https://newsdirect.com/news/amerilife-expands-wealth-distribution-portfolio-with-acquisition-of-werksgroup-683336531)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amerilife-announces-strategic-partnership-with-werksgroup-llc-to-enhance-retirement-and-life-insurance-guidance-for-federal-employees/ad9f7caa5b649ead19a4dcea3e751318) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/amerilife-acquires-werksgroup-to-enhance-federal-employee-retirement-solutions/20244606)
+
+Pickup - [advos.io](https://advos.io/en/amerilife-expands-wealth-distribution-portfolio-with-acquisition-of-werksgroup/20244606)
+ 
 
 
 

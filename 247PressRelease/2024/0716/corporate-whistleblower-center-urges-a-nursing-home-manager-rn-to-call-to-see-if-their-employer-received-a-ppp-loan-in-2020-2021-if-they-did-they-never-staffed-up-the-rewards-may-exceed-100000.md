@@ -7,7 +7,15 @@ WASHINGTON, DC, July 16, 2024 /24-7PressRelease/ -- According to the Corporate W
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512542/corporate-whistleblower-center-urges-a-nursing-home-manager-rn-to-call-to-see-if-their-employer-received-a-ppp-loan-in-2020-2021-if-they-did-they-never-staffed-up-the-rewards-may-exceed-100000)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/corporate-whistleblower-center-launches-aggressive-initiative-targeting-nursing-home-ppp-loan-fraud/e5734d7d64ca8bcc26c96cc1b2fea832) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/nursing-home-ppp-loan-fraud-whistleblowers-urged-to-come-forward)
+
+Pickup - [fishervista.com](https://fishervista.com/en/corporate-whistleblower-center-seeks-nursing-home-managers-and-rns-to-report-ppp-loan-misuse/20244976)
+
+Pickup - [advos.io](https://advos.io/en/corporate-whistleblower-center-seeks-information-on-ppp-loan-misuse-in-nursing-homes/20244976)
+ 
 
 
 

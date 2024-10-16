@@ -7,7 +7,9 @@ LOS ANGELES, CA, September 26, 2024 /24-7PressRelease/ -- While some fans were d
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514175/the-subdued-finale-of-house-of-the-dragon-season-2-a-deliberate-choice)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/house-of-the-dragon-season-2-finale-faces-challenges-season-3-offers-potential-comeback/0e96f6785ef0fdf01129cb8f76de8bf6) 
+
+ 
 
 
 

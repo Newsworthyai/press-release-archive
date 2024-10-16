@@ -25,7 +25,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/blockmate-ven
 [Original/Source Press Release](https://newsdirect.com/news/blockmate-ventures-subsidiary-hivello-partners-with-iotex-new-blockchain-integration-772354424)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockmate-ventures-and-hivello-partner-with-iotex-in-new-blockchain-integration/ab344e0b754c8f4cf07ec7e9f4640858) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/hivello-and-iotex-forge-strategic-blockchain-partnership/20244631)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/hivello-and-iotex-form-strategic-partnership-to-expand-depin-ecosystem)
+
+Pickup - [advos.io](https://advos.io/en/blockmate-ventures-hivello-partners-with-iotex-for-blockchain-integration/20244631)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blockmate-ventures-and-hivello-partner-with-iotex-in-new-blockchain-integration)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blockmate-ventures-and-hivello-partner-with-iotex-in-new-blockchain-integration)
+ 
 
 
 

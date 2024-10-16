@@ -46,7 +46,11 @@ XT Exchange Bella Wei Email : Listing@xt.com Disclaimer: The information provide
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-wyscale-wys-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-wyscale-offering-unique-gateway-for-defi-investors/89804d8912ad8dba883b4e17a0be4dc6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/29/wyscale-s-wys-token-debuts-on-xt-com-crypto-exchange)
+ 
 
 
 

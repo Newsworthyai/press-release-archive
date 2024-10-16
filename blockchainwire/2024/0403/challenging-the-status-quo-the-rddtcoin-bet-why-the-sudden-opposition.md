@@ -7,7 +7,11 @@ The term "Flippening" has garnered attention within the crypto community, referr
 [Original/Source Press Release](https://blockchainwire.io/press-release/challenging-the-status-quo-the-rddtcoin-bet---why-the-sudden-opposition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rddtcoin-s-potential-flippening-and-its-impact-on-financial-paradigm/820cb900aeffe0ca1d65e12f4022bdf6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/rddtcoin-challenging-the-status-quo-in-the-financial-landscape)
+ 
 
 
 

@@ -7,7 +7,17 @@ RANCHO MISSION VIEJO, CA, August 26, 2024 /24-7PressRelease/ -- Unsilenced, the 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513740/leading-troubled-teen-industry-survivor-organization-releasing-unsilenced-impact-app)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unsilenced-releases-impact-app-to-empower-survivors-and-allies/55ccc71ee5af368c6bb65bf8a07a123b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/unsilenced-launches-mobile-app-to-support-troubled-teen-industry-survivors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/unsilenced-launches-unsilenced-impact-app-to-combat-troubled-teen-industry-abuses/20245946)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/unsilenced-launches-mobile-app-to-support-survivors-of-troubled-teen-industry/20245946)
+
+Pickup - [advos.io](https://advos.io/en/unsilenced-launches-unsilenced-impact-app-to-support-troubled-teen-industry-survivors/20245946)
+ 
 
 
 

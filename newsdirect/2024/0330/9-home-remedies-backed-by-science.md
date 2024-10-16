@@ -106,7 +106,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/9-home-remedi
 [Original/Source Press Release](https://newsdirect.com/news/9-home-remedies-backed-by-science-998947664)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/9-home-remedies-backed-by-science-natural-solutions-for-various-health-concerns/d9dbb0e012b65f391f290de5b97acaa0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/30/nature-s-healing-touch-9-home-remedies-with-scientific-backing)
+ 
 
 
 

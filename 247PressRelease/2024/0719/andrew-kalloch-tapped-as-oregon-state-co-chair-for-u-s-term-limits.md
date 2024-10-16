@@ -7,7 +7,15 @@ SALEM, OR, July 19, 2024 /24-7PressRelease/ -- Today, U.S. Term Limits announces
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512615/andrew-kalloch-tapped-as-oregon-state-co-chair-for-us-term-limits)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-term-limits-appoints-andrew-kalloch-as-oregon-state-co-chair/5233fd2e4fbff5a722f3faefff97e47b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/19/u-s-term-limits-appoints-andrew-kalloch-as-oregon-state-co-chair)
+
+Pickup - [fishervista.com](https://fishervista.com/en/andrew-kalloch-appointed-oregon-state-co-chair-for-u-s-term-limits/20245105)
+
+Pickup - [advos.io](https://advos.io/en/andrew-kalloch-appointed-oregon-state-co-chair-for-u-s-term-limits/20245105)
+ 
 
 
 

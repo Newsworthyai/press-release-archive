@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/bluefield-sol
 [Original/Source Press Release](https://newsdirect.com/news/bluefield-solar-income-fund-reports-strong-quarter-as-hedging-strategy-counters-weaker-prices-597517944)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bluefield-solar-income-fund-reports-strong-quarter-with-resilient-financial-performance/889be5a3554633685c6173370db43b40) 
+
+ 
 
 
 

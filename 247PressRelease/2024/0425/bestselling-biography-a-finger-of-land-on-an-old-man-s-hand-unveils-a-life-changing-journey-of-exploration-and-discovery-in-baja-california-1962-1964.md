@@ -7,7 +7,9 @@ WILMINGTON, NC, April 25, 2024 /24-7PressRelease/ -- Earl Vincent de Berge's bes
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510292/bestselling-biography-a-finger-of-land-on-an-old-mans-hand-unveils-a-life-changing-journey-of-exploration-and-discovery-in-baja-california-1962-1964)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-memoir-a-finger-of-land-on-an-old-man-s-hand-recounts-riveting-baja-adventure/c5b3a9adf5badea1d2c92de4e5d52b97) 
+
+ 
 
 
 

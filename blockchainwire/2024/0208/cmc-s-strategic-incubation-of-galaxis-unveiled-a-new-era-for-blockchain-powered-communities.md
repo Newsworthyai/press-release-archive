@@ -21,7 +21,11 @@ For more information and updates follow to the Galaxis official Twitter.
 [Original/Source Press Release](https://blockchainwire.io/press-release/cmcs-strategic-incubation-of-galaxis-unveiled-a-new-era-for-blockchain-powered-communities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinmarketcap-incubates-galaxis-xyz-in-revolutionary-move-for-web3-sector/426743a8b04b1d42001097ce5c146bd4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/08/cmc-incubates-galaxis-ushering-in-a-new-era-of-blockchain-powered-communities)
+ 
 
 
 

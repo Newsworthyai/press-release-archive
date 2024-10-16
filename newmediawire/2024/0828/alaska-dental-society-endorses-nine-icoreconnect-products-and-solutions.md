@@ -51,7 +51,13 @@ IR@icoreconnect.com
 [Original/Source Press Release](https://www.newmediawire.com/news/alaska-dental-society-endorses-nine-icoreconnect-products-and-solutions-7075973)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/icoreconnect-announces-partnership-with-alaska-dental-society-endorses-nine-products/d4f6eb9896a7c14db440942c8c516008) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/alaska-dental-society-endorses-nine-icoreconnect-products-expanding-company-s-national-reach)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/alaska-dental-society-endorses-nine-icoreconnect-products-expanding-company-s-reach/20246451)
+ 
 
 
 

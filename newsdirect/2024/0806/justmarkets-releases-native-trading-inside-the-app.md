@@ -43,7 +43,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/justmarkets-r
 [Original/Source Press Release](https://newsdirect.com/news/justmarkets-releases-native-trading-inside-the-app-193424679)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/justmarkets-introduces-in-app-trading-to-empower-traders-on-the-go/c2e8b314234c0b39a4c79ed96e584e9c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/justmarkets-unveils-in-app-trading-feature-for-mobile-users/20245517)
+
+Pickup - [advos.io](https://advos.io/en/justmarkets-introduces-in-app-trading-to-enhance-mobile-trading-experience/20245517)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/justmarkets-enhances-mobile-trading-with-in-app-feature)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/justmarkets-enhances-mobile-trading-experience-with-in-app-trading-feature)
+ 
 
 
 

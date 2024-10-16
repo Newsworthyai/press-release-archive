@@ -7,7 +7,11 @@ Welcome, Fellow Memers And Mirth-Seekers, To The World Of NubiCoin—A Digital O
 [Original/Source Press Release](https://blockchainwire.io/press-release/memeing-through-time-nubicoins-quest-for-laughter-and-riches-in-the-sands-of-nubia)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/discover-the-memetic-marvels-of-nubicoin-a-digital-oasis-of-nubian-humor/1b26862a7dcf6538bb1cbeca8d2e407f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/01/nubicoin-unlocking-the-meme-mysteries-of-nubia)
+ 
 
 
 

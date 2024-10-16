@@ -51,7 +51,9 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/klaus-memecoin-explodes-with-279-surge-in-24-hours-setting-a-new-standard-for-crypto-memes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-klaus-memecoin-surges-279-in-1-day-redefining-crypto-landscape/a7036ed67d0a905e030f7439422cf6ef) 
+
+ 
 
 
 

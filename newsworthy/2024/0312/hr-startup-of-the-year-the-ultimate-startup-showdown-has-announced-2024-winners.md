@@ -37,7 +37,13 @@ HR.com, the largest network of HR professionals, is committed to helping HR prof
 [Original/Source Press Release](https://newsworthy.ai/news/202403121112/hr-startup-of-the-year-the-ultimate-startup-showdown-has-announced-2024-winners)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-announces-winners-of-futurehr-startup-showdown-at-hrwest-2024-conference/68d114520438c03773078371d292c780) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-com-announces-winners-of-futurehr-the-ultimate-startup-showdown/2024708)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/hr-startup-showdown-crowns-innovative-recruitment-and-csr-winners)
+ 
 
 
 

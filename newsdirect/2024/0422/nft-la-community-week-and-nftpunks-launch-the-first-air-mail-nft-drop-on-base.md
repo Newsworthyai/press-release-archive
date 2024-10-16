@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/nft-la-commun
 [Original/Source Press Release](https://newsdirect.com/news/nft-la-community-week-and-nftpunks-launch-the-first-air-mail-nft-drop-on-base-807406793)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nft-la-and-nftpunks-launch-first-air-mail-nft-drop-on-base/352f329467ae3193b47c970cd31fbe6b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/nft-la-community-week-and-nftpunks-launch-the-first-air-mail-nft-drop-on-base)
+ 
 
 
 

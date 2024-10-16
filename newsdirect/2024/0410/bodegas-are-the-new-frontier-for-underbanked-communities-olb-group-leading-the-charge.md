@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bodegas-are-t
 [Original/Source Press Release](https://newsdirect.com/news/bodegas-are-the-new-frontier-for-underbanked-communities-olb-group-leading-the-charge-490892524)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/olb-group-empowers-unbanked-communities-through-bodegas-and-small-businesses/63d81ddb638ab811eab012807c9cb68b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/bodegas-the-new-frontier-for-underbanked-communities)
+ 
 
 
 

@@ -25,7 +25,11 @@ Full Name: Nikolai TerskikihJob Position: Operations Director, F2HashEmail: niko
 [Original/Source Press Release](https://blockchainwire.io/press-release/revolutionizing-green-crypto-mining-f2hashs-ai-driven-bitcoin-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/f2hash-integrates-ai-into-solar-powered-crypto-mining-operations/81f8de8b5a6e46c8739b47d6b9df9f92) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/f2hash-pioneers-ai-driven-sustainable-crypto-mining)
+ 
 
 
 

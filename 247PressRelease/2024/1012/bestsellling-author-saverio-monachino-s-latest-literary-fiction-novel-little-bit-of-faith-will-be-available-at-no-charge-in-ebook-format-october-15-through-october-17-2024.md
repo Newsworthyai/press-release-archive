@@ -7,7 +7,9 @@ WILMINGTON, NC, October 12, 2024 /24-7PressRelease/ -- Bestselling author Saveri
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515202/bestsellling-author-saverio-monachinos-latest-literary-fiction-novel-little-bit-of-faith-will-be-available-at-no-charge-in-ebook-format-october-15-through-october-17-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-saverio-monachino-announces-free-ebook-release-of-little-bit-of-faith/58afc525904a328d3794a2d1419d8074) 
+
+ 
 
 
 

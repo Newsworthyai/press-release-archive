@@ -7,7 +7,11 @@ HALTOM CITY, TX, March 26, 2024 /24-7PressRelease/ -- The elimination of parking
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509390/will-florida-eliminate-all-parking-mandates-statewide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/growing-movement-to-eliminate-parking-mandates-in-florida-and-beyond/b7c339c359afd3f95fa7b2146e025940) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/florida-may-eliminate-statewide-parking-mandates-to-spur-development)
+ 
 
 
 

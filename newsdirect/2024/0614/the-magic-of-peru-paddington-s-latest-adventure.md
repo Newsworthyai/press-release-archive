@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-magic-of-
 [Original/Source Press Release](https://newsdirect.com/news/the-magic-of-peru-paddingtons-latest-adventure-959755928)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/paddington-returns-to-peru-in-paddington-in-peru-adventure/302963ea962339db1cb522a69f7b2a83) 
+
+
+Pickup - [advos.io](https://advos.io/en/paddington-s-peruvian-adventure-beloved-bear-returns-to-his-roots/20244172)
+ 
 
 
 

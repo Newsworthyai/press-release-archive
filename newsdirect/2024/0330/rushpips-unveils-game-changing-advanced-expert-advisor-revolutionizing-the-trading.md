@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/rushpips-unve
 [Original/Source Press Release](https://newsdirect.com/news/rushpips-unveils-game-changing-advanced-expert-advisor-revolutionizing-the-trading-191564234)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avenix-fzco-unveils-rushpips-expert-advisor-revolutionizing-forex-trading/a9eb245cb39453793db5e0c9d74898c3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/30/rushpips-introduces-cutting-edge-forex-robot-revolutionizing-automated-trading)
+ 
 
 
 

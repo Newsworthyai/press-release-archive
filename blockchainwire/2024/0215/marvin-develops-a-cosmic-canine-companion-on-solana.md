@@ -31,7 +31,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-marvin-develops-a-cosmic-canine-companion-on-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newly-established-crypto-platform-introduces-marvin-a-cosmic-canine-to-solana-blockchain/064da9344ca6c29f765f3d241039721d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/15/cosmic-canine-companion-marvin-unleashes-interplanetary-adventures-on-solana)
+ 
 
 
 

@@ -7,7 +7,17 @@ LOS ANGELES, CA, August 10, 2024 /24-7PressRelease/ -- Over 10 years of experien
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513305/i-showcase-is-now-amptive)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amptive-leading-the-way-in-jewelry-marketing-solutions/e6f0a0fc01d852c95d24be816fadf924) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/10/amptive-rebranded-jewelry-marketing-agency-revolutionizes-digital-strategies)
+
+Pickup - [fishervista.com](https://fishervista.com/en/jewelry-marketing-agency-i-showcase-rebrands-to-amptive-expands-digital-solutions/20245629)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/amptive-emerges-as-leading-jewelry-marketing-agency-rebranding-from-i-showcase/20245629)
+
+Pickup - [advos.io](https://advos.io/en/jewelry-marketing-agency-i-showcase-rebrands-as-amptive/20245629)
+ 
 
 
 

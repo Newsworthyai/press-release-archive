@@ -33,7 +33,11 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-secures-u-s-patent-covering-methods-for-treating-tbi-preventing-nerve-cell-death-with-buntanetap/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annovis-bio-secures-u-s-patent-for-tbi-treatment-with-buntanetap/ca8d02557b7145e85ff79f3eff6498df) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/annovis-bio-granted-u-s-patent-for-traumatic-brain-injury-treatment-using-buntanetap/20246123)
+ 
 
 
 

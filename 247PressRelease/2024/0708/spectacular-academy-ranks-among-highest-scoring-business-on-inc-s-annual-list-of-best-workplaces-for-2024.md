@@ -7,7 +7,15 @@ LOS ANGELES, CA, July 08, 2024 /24-7PressRelease/ -- Spectacular Academy has bee
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512306/spectacular-academy-ranks-among-highest-scoring-business-on-incs-annual-list-of-best-workplaces-for-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/spectacular-academy-named-to-inc-s-best-workplaces-list/1878aea13bd5a46c3fffe1e104a41c68) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/spectacular-academy-earns-spot-on-inc-s-2024-best-workplaces-list/20244744)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/spectacular-academy-named-one-of-inc-s-best-workplaces-for-2024)
+
+Pickup - [advos.io](https://advos.io/en/spectacular-academy-earns-spot-on-inc-s-2024-best-workplaces-list/20244744)
+ 
 
 
 

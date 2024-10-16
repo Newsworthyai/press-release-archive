@@ -45,7 +45,15 @@ This press release may contain forward-looking statements. Forward-looking state
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-meets-creativity-the-matt-furie-token-launches-with-tribute-to-meme-creator)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-matt-furie-token-a-revolution-in-cryptocurrency-and-digital-art/d21b59a065414268afdee7e6ecfa3826) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/matt-furie-token-launches-blending-cryptocurrency-with-internet-meme-culture)
+
+Pickup - [fishervista.com](https://fishervista.com/en/the-matt-furie-token-a-blend-of-art-culture-and-cryptocurrency/20245069)
+
+Pickup - [advos.io](https://advos.io/en/the-matt-furie-token-honoring-meme-culture-through-cryptocurrency/20245069)
+ 
 
 
 

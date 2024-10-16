@@ -34,7 +34,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/peru-moda-dec
 [Original/Source Press Release](https://newsdirect.com/news/peru-moda-deco-and-alpaca-fiesta-are-coming-to-arequipa-for-the-first-time-926989833)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peru-moda-deco-alpaca-fiesta-head-to-arequipa-for-the-first-time/2eb58f29619500e345508983023632a1) 
+
+ 
 
 
 

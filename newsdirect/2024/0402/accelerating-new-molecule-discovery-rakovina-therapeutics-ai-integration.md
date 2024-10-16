@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/accelerating-
 [Original/Source Press Release](https://newsdirect.com/news/accelerating-new-molecule-discovery-rakovina-therapeutics-ai-integration-452410836)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rakovina-therapeutics-partners-with-dr-artem-cherkasov-to-revolutionize-cancer-drug-discovery/36ae9a1b24e336e48dc74c4acc715e5c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/rakovina-therapeutics-harnesses-ai-to-accelerate-cancer-drug-discovery)
+ 
 
 
 

@@ -7,7 +7,17 @@ DALLAS, TX, September 15, 2024 /24-7PressRelease/ -- In the world of contemporar
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514323/healing-through-words-from-rupi-kaur-to-amanda-lovelace-meet-the-poets-leading-the-way-and-announcing-beth-e-aubuts-powerful-new-poetry-collection-soul-sold)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-poetry-collection-soul-sold-offers-raw-and-emotional-journey-of-healing/00c126843365bf7010a570a2012023fe) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/15/beth-e-aubut-joins-ranks-of-acclaimed-poets-with-new-collection-soul-sold)
+
+Pickup - [fishervista.com](https://fishervista.com/en/beth-e-aubut-joins-ranks-of-influential-poets-with-new-collection-soul-sold/20246835)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/beth-e-aubut-joins-ranks-of-influential-poets-with-new-collection-soul-sold/20246835)
+
+Pickup - [advos.io](https://advos.io/en/beth-e-aubut-joins-ranks-of-contemporary-poetry-voices-with-soul-sold/20246835)
+ 
 
 
 

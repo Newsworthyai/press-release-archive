@@ -34,7 +34,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/get-ready-for
 [Original/Source Press Release](https://newsdirect.com/news/get-ready-for-free-spins-with-unlimitedfreespins-com-exclusive-early-access-for-kiwis-161304887)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unlimitedfreespins-com-launches-in-new-zealand-offering-endless-free-spins-on-exclusive-slot-games/e99cc81d39317a876ea17cb6721d68d7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/unlimitedfreespins-com-launches-in-new-zealand-offering-endless-free-slot-play)
+
+Pickup - [fishervista.com](https://fishervista.com/en/unlimitedfreespins-com-offers-free-slot-spins-for-new-zealand-gamers/20246517)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/unlimitedfreespins-com-launches-in-new-zealand-offering-endless-free-slot-play/20246517)
+
+Pickup - [advos.io](https://advos.io/en/unlimitedfreespins-com-launches-in-new-zealand-offering-endless-free-slot-spins/20246517)
+ 
 
 
 

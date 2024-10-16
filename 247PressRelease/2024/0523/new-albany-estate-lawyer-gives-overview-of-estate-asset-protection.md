@@ -7,7 +7,9 @@ MOBILE, AL, May 23, 2024 /24-7PressRelease/ -- In Indiana, consulting with an at
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511048/new-albany-estate-lawyer-gives-overview-of-estate-asset-protection)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/indiana-attorneys-provide-expert-guidance-on-estate-planning-and-asset-protection-strategies/08f929f8f57e32e77b345123ad8a53d8) 
+
+ 
 
 
 

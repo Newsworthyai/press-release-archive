@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-enhances-crypto-trading-with-advanced-automated-bots)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-introduces-advanced-automated-trading-bots-to-transform-cryptocurrency-investment/f26e5cef6ce9f10077253a37b7b4b0c0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/22/defiquant-introduces-advanced-automated-trading-bots-for-crypto-investors)
+ 
 
 
 

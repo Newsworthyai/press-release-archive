@@ -19,7 +19,21 @@ The Race Club Web3 Gaming​For more information on Jeff Buesing and New Frontie
 [Original/Source Press Release](https://blockchainwire.io/press-release/boutique-agency-new-frontier-presents-launches-custom-build-services-for-virtual-experiences)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-frontier-presents-expands-service-portfolio-to-offer-custom-built-virtual-environments/bca505a514e9421e7c3b28c4d4378400) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/new-frontier-presents-launches-custom-virtual-experience-building-services)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-frontier-presents-launches-custom-build-services-for-virtual-experiences/20245498)
+
+Pickup - [advos.io](https://advos.io/en/new-frontier-presents-launches-custom-build-services-for-virtual-experiences/20245498)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/new-frontier-presents-expands-service-portfolio-to-offer-custom-built-virtual-environments)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/new-frontier-presents-expands-service-portfolio-to-offer-custom-built-virtual-environments)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-frontier-presents-expands-into-custom-virtual-experience-development)
+ 
 
 
 

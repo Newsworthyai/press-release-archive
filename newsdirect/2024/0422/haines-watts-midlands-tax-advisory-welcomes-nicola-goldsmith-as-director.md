@@ -63,7 +63,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/haines-watts-
 [Original/Source Press Release](https://newsdirect.com/news/haines-watts-midlands-tax-advisory-welcomes-nicola-goldsmith-as-director-176142993)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/haines-watts-welcomes-nicola-goldsmith-as-director-of-midlands-tax-advisory/fb01b9ded9981398475636ef77397b3f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/haines-watts-midlands-tax-advisory-welcomes-nicola-goldsmith-as-director)
+ 
 
 
 

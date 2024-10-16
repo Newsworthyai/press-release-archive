@@ -7,7 +7,17 @@ BOSTON, MA, September 06, 2024 /24-7PressRelease/ -- A summary of assisted repro
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514063/cytomegalovirus-and-human-immunodeficiency-virus-in-semen-tested-during-the-covid19-emergency-era)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/assisted-reproductive-technology-testing-outcomes-during-covid-travel-lockdown/a1bfd83126abc045998c6c9ee39d16d4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/groundbreaking-study-reveals-success-of-assisted-reproduction-for-hiv-infected-men-during-covid-19-lockdown)
+
+Pickup - [fishervista.com](https://fishervista.com/en/impact-of-hiv-and-cytomegalovirus-semen-testing-during-covid-19-on-assisted-reproductive-technology/20246585)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hiv-infected-men-pursue-fertility-treatment-during-covid-19-lockdown/20246585)
+
+Pickup - [advos.io](https://advos.io/en/study-highlights-semen-testing-and-reproductive-success-amid-covid-19-for-hiv-infected-men/20246585)
+ 
 
 
 

@@ -7,7 +7,17 @@ RIYADH, SAUDI ARABIA, August 15, 2024 /24-7PressRelease/ -- This strategic colla
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513422/funding-souq-partners-with-kafala-program-to-enhance-investment-in-saudi-arabias-smes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/strategic-collaboration-to-boost-investment-in-saudi-smes/8fde7a674009a07ee5c05dba855fd67a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/funding-souq-and-kafala-program-join-forces-to-boost-sme-investment-in-saudi-arabia)
+
+Pickup - [fishervista.com](https://fishervista.com/en/funding-souq-and-kafala-program-join-forces-to-boost-investment-in-saudi-smes/20245745)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/funding-souq-and-kafala-program-join-forces-to-boost-sme-investment-in-saudi-arabia/20245745)
+
+Pickup - [advos.io](https://advos.io/en/funding-souq-partners-with-kafala-program-to-boost-sme-investment-in-saudi-arabia/20245745)
+ 
 
 
 

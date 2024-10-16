@@ -7,7 +7,13 @@ ALBERTA, CANADA, June 26, 2024 /24-7PressRelease/ -- The Outstanding Maternity A
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512024/the-outstanding-maternity-award-celebrates-the-beauty-of-life)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/outstanding-maternity-award-launches-32nd-season-celebrating-maternity-and-family-photography/99ac39e8c27be5960bc55cf0df85a1de) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/32nd-season-of-outstanding-maternity-award-celebrates-global-excellence-in-family-photography/20244485)
+
+Pickup - [advos.io](https://advos.io/en/outstanding-maternity-award-celebrates-32nd-season-with-global-showcase/20244485)
+ 
 
 
 

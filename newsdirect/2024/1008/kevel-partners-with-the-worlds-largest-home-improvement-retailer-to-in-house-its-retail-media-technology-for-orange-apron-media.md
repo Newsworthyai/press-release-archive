@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/kevel-partner
 [Original/Source Press Release](https://newsdirect.com/news/kevel-partners-with-the-worlds-largest-home-improvement-retailer-to-in-house-its-retail-media-technology-for-orange-apron-media-181161219)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kevel-partners-with-the-home-depot-to-in-house-its-retail-media-technology-for-orange-apron-media/13410db0557ae027c1e46c253e2420f9) 
+
+ 
 
 
 

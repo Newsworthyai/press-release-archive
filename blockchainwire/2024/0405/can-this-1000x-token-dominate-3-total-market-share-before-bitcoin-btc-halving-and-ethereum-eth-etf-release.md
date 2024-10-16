@@ -39,7 +39,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/can-this-1000x-token-dominate-3-total-market-share-before-bitcoin-btc-halving-and-ethereum-eth-etf-release)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/option2trade-o2t-aims-for-1000x-growth-and-3-market-share-amidst-bitcoin-halving-and-ethereum-etf-release/3bd2dae04f3cccaa0b673d55bea97a3d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/option2trade-s-ambitious-quest-for-crypto-dominance)
+ 
 
 
 

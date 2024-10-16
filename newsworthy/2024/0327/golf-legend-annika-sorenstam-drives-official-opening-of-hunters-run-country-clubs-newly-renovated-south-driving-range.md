@@ -25,7 +25,11 @@ A luxury country club community with 1,649 residences in 23 communities, Hunters
 [Original/Source Press Release](https://newsworthy.ai/news/202403271133/golf-legend-annika-sorenstam-drives-official-opening-of-hunters-run-country-clubs-newly-renovated-south-driving-range)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annika-sorenstam-unveils-revamped-hunters-run-country-club-driving-range-with-toptracer-technology/2d3fa4bb6cb9aa17a3db0cdd35298f34) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/hunters-run-country-club-unveils-state-of-the-art-driving-range-with-toptracer-technology)
+ 
 
 
 

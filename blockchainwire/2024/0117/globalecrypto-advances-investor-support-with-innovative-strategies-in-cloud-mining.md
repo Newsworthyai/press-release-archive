@@ -58,7 +58,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/globalecrypto-advances-investor-support-with-innovative-strategies-in-cloud-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/globalecrypto-introduces-enhanced-cloud-mining-packages-and-flexible-investment-plans/d3a4fee7f5ccb74b452b0b419449d52f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/17/globalecrypto-pioneers-investor-centric-cloud-mining-solutions)
+ 
 
 
 

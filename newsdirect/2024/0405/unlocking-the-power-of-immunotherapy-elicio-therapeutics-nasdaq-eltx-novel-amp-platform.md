@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/unlocking-the
 [Original/Source Press Release](https://newsdirect.com/news/unlocking-the-power-of-immunotherapy-elicio-therapeutics-nasdaq-eltx-novel-amp-platform-701860677)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elicio-therapeutics-unlocks-the-power-of-immunotherapy-with-novel-amp-platform/ab7f7009cd93d6361b4038d76b70c135) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/elicio-therapeutics-innovative-amp-platform-targets-lymph-nodes-for-enhanced-cancer-immunotherapy)
+ 
 
 
 

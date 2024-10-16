@@ -7,7 +7,9 @@ PORTLAND, OR, April 30, 2024 /24-7PressRelease/ -- Award-winning education techn
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510494/ai-visionary-and-education-technologist-luyen-chou-joins-learningcom-board-of-directors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/education-innovator-luyen-chou-joins-learning-com-s-board-of-directors/3636dbea7969471a0bce12f9b5877a9d) 
+
+ 
 
 
 

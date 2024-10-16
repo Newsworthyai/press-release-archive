@@ -21,7 +21,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/alluniverse-platform-goes-global-achieving-a-ten-billion-growth-in-transaction-volume)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/all-universe-announces-global-launch-opening-new-investment-doors/82d7362c4240a1580fc812a69b6f8180) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/alluniverse-platform-goes-global-achieving-a-ten-billion-growth-in-transaction-volume)
+ 
 
 
 

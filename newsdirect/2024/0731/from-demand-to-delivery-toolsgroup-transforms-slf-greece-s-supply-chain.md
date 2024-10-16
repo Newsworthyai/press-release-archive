@@ -43,7 +43,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/from-demand-t
 [Original/Source Press Release](https://newsdirect.com/news/from-demand-to-delivery-toolsgroup-transforms-slf-greeces-supply-chain-798745006)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/slf-greece-implements-toolsgroup-so99-software-for-demand-driven-supply-chain-planning/6722467a464661bc0f7b5d2756c46cc3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/toolsgroup-s-so99-software-revolutionizes-slf-greece-s-supply-chain-management)
+
+Pickup - [fishervista.com](https://fishervista.com/en/toolsgroup-and-thellas-revolutionize-slf-greece-s-supply-chain-with-advanced-automation/20245389)
+
+Pickup - [advos.io](https://advos.io/en/toolsgroup-and-thellas-revolutionize-slf-greece-s-supply-chain-with-so99-software/20245389)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/toolsgroup-revolutionizes-slf-greece-s-supply-chain-with-advanced-planning-software)
+ 
 
 
 

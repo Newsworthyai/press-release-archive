@@ -37,7 +37,11 @@ X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinraffleio-unveils-innovative-platform-for-secure-and-fair-decentralized-raffles)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinraffle-io-launches-utility-focused-platform-for-decentralized-community-raffles/f4b01eeab025f9a3c447072d58edf82a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/coinraffle-io-revolutionizes-community-engagement-with-decentralized-raffles)
+ 
 
 
 

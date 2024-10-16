@@ -7,7 +7,9 @@ GOSHEN, IN, October 04, 2024 /24-7PressRelease/ -- Praxis Mutual Funds, a leadin
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514961/praxis-impact-bond-fund-reaches-30-year-and-1-billion-milestones)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/praxis-mutual-funds-celebrates-30-year-anniversary-and-1-billion-in-assets-for-praxis-impact-bond-fund/2ab3d5bf16591832786da43d27f4211c) 
+
+ 
 
 
 

@@ -37,7 +37,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-worldwide-technologies-llc-and-quad-capital-partners-704182707)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quad-capital-partners-acquires-worldwide-technologies-llc/7b06772a599d6273be41b3c9c119a272) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/worldwide-technologies-acquired-by-quad-capital-partners-in-strategic-manufacturing-deal)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-acquisition-of-worldwide-technologies-by-quad-capital-partners/20245177)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-acquisition-of-worldwide-technologies-by-quad-capital-partners/20245177)
+ 
 
 
 

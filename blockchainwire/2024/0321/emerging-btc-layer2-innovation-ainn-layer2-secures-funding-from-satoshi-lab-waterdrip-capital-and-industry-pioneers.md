@@ -35,7 +35,11 @@ About AINNLayer2AINNLayer2 aims to continuously build the infrastructure for dec
 [Original/Source Press Release](https://blockchainwire.io/press-release/emerging-btc-layer2-innovation-ainn-layer2-secures-funding-from-satoshi-lab-waterdrip-capital-and-industry-pioneers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ainnlayer2-secures-strategic-investments-for-bitcoin-layer2-network-project/b965aa50c366167730eef5f72176d120) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/ainn-layer2-secures-funding-to-drive-decentralized-ai-on-bitcoin)
+ 
 
 
 

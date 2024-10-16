@@ -35,7 +35,11 @@ https://www.gt-protocol.io/
 [Original/Source Press Release](https://blockchainwire.io/press-release/chaingpt-facilitates-the-launch-of-the-gt-protocol-bringing-ai-powered-auto-trading-to-crypto)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chaingpt-launches-gt-protocol-for-ai-powered-crypto-trading/789abf927b84cc4f21004bde6b9d3e38) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/19/chaingpt-unveils-gt-protocol-for-ai-powered-crypto-trading)
+ 
 
 
 

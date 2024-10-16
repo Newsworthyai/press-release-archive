@@ -40,7 +40,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/pathai-announ
 [Original/Source Press Release](https://newsdirect.com/news/pathai-announces-pluto-a-state-of-the-art-foundation-model-to-enhance-ai-powered-pathology-tools-566469242)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pathai-launches-pluto-a-state-of-the-art-foundation-model/d2214931b79cfbde95ec66a24df9a92d) 
+
+ 
 
 
 

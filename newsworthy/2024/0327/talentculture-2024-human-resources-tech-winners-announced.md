@@ -25,7 +25,13 @@ TalentCulture is regarded as a renowned authority in HR and HR Technology promot
 [Original/Source Press Release](https://newsworthy.ai/news/202403271132/talentculture-2024-human-resources-tech-winners-announced)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/talentculture-announces-2024-hr-technology-award-winners/21afece41e16af17c7a04cff8abbf3f5) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/talentculture-unveils-2024-human-resources-tech-award-winners/20241058)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/talentculture-announces-2024-hr-tech-award-winners)
+ 
 
 
 

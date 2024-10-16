@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/copper-proper
 [Original/Source Press Release](https://newsdirect.com/news/copper-property-ctl-pass-through-trust-issues-monthly-reporting-package-for-march-2024-and-q4-2023-master-lease-jcp-store-performance-disclosures-253858599)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/copper-property-ctl-trust-issues-monthly-report-and-q4-2023-master-lease-jcp-store-performance-disclosures/6f27d7a3dc7aeeb4ab8f676eaf5b8854) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/copper-property-ctl-trust-releases-march-2024-report-plans-23-6m-distribution)
+ 
 
 
 

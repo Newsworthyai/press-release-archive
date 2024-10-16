@@ -7,7 +7,15 @@ CHICAGO, IL, July 11, 2024 /24-7PressRelease/ -- Its all there. The shuffling ga
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512401/madam-president-the-secret-presidency-of-edith-wilson-describes-jill-and-joe-biden)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unofficial-first-ladies-the-proactive-presidency-and-the-cover-up/827487335125d0718c56c3aa3efe0296) 
+
+
+Pickup - [advos.io](https://advos.io/en/parallels-between-jill-biden-and-edith-wilson-highlighted-in-new-book/20244849)
+
+Pickup - [fishervista.com](https://fishervista.com/en/author-draws-parallels-between-jill-biden-and-edith-wilson-in-new-book/20244849)
+
+Pickup - [citybuzz.co](https://citybuzz.co/author-draws-parallels-between-jill-biden-and-edith-wilson-s-roles-as-first-ladies)
+ 
 
 
 

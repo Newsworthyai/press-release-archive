@@ -39,7 +39,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/heavyweight-u
 [Original/Source Press Release](https://newsdirect.com/news/heavyweight-unlimited-ceo-jesse-is-heavyweight-launches-new-music-projects-with-community-initiatives-698753387)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heavyweight-unlimited-ceo-jesse-is-heavyweight-launches-new-music-projects-amidst-continued-community-initiatives-and-industry-success/3c994f06afecf0319d845bec1e276e3d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/heavyweight-unlimited-ceo-jesse-is-heavyweight-expands-musical-and-community-horizons/20245579)
+
+Pickup - [advos.io](https://advos.io/en/heavyweight-unlimited-ceo-jesse-is-heavyweight-launches-new-music-projects-and-community-initiatives/20245579)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/heavyweight-unlimited-expands-music-portfolio-while-maintaining-community-focus/20245579)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/heavyweight-unlimited-ceo-expands-music-projects-while-maintaining-community-focus)
+ 
 
 
 

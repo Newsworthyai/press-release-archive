@@ -27,7 +27,11 @@ Captivant LLC is a conglomerate comprising White Label Group, Innovatis Solution
 [Original/Source Press Release](https://newsworthy.ai/news/202403141119/captivant-llc-expands-cloud-services-portfolio-with-integration-of-dylan-gray-consulting-llc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/captivant-llc-integrates-dylan-gray-consulting-llc-forms-cloud-mammoth/0c5c514100d811c84045fcf38a314f41) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/captivant-llc-bolsters-cloud-prowess-with-dylan-gray-consulting-acquisition)
+ 
 
 
 

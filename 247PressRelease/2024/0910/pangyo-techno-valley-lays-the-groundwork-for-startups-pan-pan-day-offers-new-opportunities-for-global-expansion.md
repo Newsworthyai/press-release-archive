@@ -7,7 +7,17 @@ PANGYO, KOREA, September 10, 2024 /24-7PressRelease/ -- Pangyo Techno Valley fac
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514185/pangyo-techno-valley-lays-the-groundwork-for-startups-pan-pan-day-offers-new-opportunities-for-global-expansion)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pangyo-techno-valley-s-pan-pan-day-event-facilitates-international-expansion-for-local-startups/5c4a278a981b4131e1abad00d5092323) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/pangyo-techno-valley-s-pan-pan-day-propels-startups-towards-global-success)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pangyo-techno-valley-s-pan-pan-day-paves-the-way-for-global-startup-expansion/20246640)
+
+Pickup - [advos.io](https://advos.io/en/pangyo-techno-valley-s-pan-pan-day-fuels-global-expansion-for-startups/20246640)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/pangyo-techno-valley-s-pan-pan-day-boosts-global-expansion-for-local-startups/20246640)
+ 
 
 
 

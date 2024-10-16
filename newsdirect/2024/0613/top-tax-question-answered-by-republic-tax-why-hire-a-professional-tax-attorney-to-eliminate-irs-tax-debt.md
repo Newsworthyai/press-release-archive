@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/top-tax-quest
 [Original/Source Press Release](https://newsdirect.com/news/top-tax-question-answered-by-republic-tax-why-hire-a-professional-tax-attorney-to-eliminate-irs-tax-debt-750955179)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/why-hiring-a-professional-tax-attorney-is-essential-for-eliminating-irs-tax-debt/ffc9c2a995678d5d690fd8950c750651) 
+
+
+Pickup - [advos.io](https://advos.io/en/eliminate-irs-tax-debt-with-professional-tax-attorneys-from-republic-tax/20244142)
+ 
 
 
 

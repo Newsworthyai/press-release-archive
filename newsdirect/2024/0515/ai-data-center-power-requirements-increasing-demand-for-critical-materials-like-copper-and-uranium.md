@@ -59,7 +59,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ai-data-cente
 [Original/Source Press Release](https://newsdirect.com/news/ai-data-center-power-requirements-increasing-demand-for-critical-materials-like-copper-and-uranium-700669708)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-and-data-center-power-requirements-driving-demand-for-critical-materials/73868c70326ba05941ef55355f2a3535) 
+
+ 
 
 
 

@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/activate-intr
 [Original/Source Press Release](https://newsdirect.com/news/activate-introduces-innovative-gaming-experience-featuring-state-of-the-art-technology-to-cincinnatians-501769983)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/activate-unveils-innovative-gaming-experience-in-cincinnati/47701559eb56bd5e2cb2300b1be5ac11) 
+
+ 
 
 
 

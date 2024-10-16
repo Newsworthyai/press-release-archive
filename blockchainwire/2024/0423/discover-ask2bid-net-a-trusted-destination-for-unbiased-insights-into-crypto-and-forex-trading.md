@@ -23,7 +23,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-ask2bidnet-a-trusted-destination-for-unbiased-insights-into-crypto-and-forex-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ask2bid-net-review-empowering-traders-with-comprehensive-insights/3c2c9e95d4bbfbffccb5b6377d7c2843) 
+
+ 
 
 
 

@@ -81,7 +81,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/battery-miner
 [Original/Source Press Release](https://newsdirect.com/news/battery-mineral-resources-corp-announces-resumption-of-copper-concentrate-production-at-punitaqui-629946229)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/battery-mineral-resources-corp-resumes-copper-concentrate-production-in-chile/fa814a16ad511ad9ed1ad6a9e3799c33) 
+
+ 
 
 
 

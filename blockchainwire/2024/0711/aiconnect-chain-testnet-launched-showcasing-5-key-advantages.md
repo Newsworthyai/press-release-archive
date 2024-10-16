@@ -33,7 +33,19 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/aiconnect-chain-testnet-launched-showcasing-5-key-advantages)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aiconnect-chain-testnet-launched-revolutionizing-blockchain-ecosystem/600ebab7f391ef7ab93e121077595be6) 
+
+
+Pickup - [advos.io](https://advos.io/en/aiconnect-chain-testnet-launched-a-leap-in-blockchain-technology/20244892)
+
+Pickup - [fishervista.com](https://fishervista.com/en/aiconnect-chain-testnet-launches-with-promising-advancements/20244892)
+
+Pickup - [citybuzz.co](https://citybuzz.co/aiconnect-chain-testnet-launches-with-innovative-features-for-next-gen-blockchain-ecosystem)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/aiconnect-chain-testnet-launched-revolutionizing-blockchain-ecosystem)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/aiconnect-chain-testnet-launched-revolutionizing-blockchain-ecosystem)
+ 
 
 
 

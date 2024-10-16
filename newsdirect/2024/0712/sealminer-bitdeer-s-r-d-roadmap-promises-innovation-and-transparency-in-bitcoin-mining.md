@@ -49,7 +49,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/sealminer-bit
 [Original/Source Press Release](https://newsdirect.com/news/sealminer-bitdeers-randd-roadmap-promises-innovation-and-transparency-in-bitcoin-mining-345761529)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitdeer-unveils-sealminer-technology-roadmap-committed-to-enhancing-transparency-in-bitcoin-mining/e3628a437f35d0db85dad7593effa377) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/bitdeer-unveils-sealminer-technology-roadmap-promising-advancements-in-bitcoin-mining-efficiency)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitdeer-unveils-sealminer-roadmap-promising-innovation-and-transparency-in-bitcoin-mining/20244917)
+
+Pickup - [advos.io](https://advos.io/en/bitdeer-unveils-sealminer-roadmap-to-revolutionize-bitcoin-mining/20244917)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitdeer-unveils-sealminer-technology-roadmap-committed-to-enhancing-transparency-in-bitcoin-mining)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitdeer-unveils-sealminer-technology-roadmap-committed-to-enhancing-transparency-in-bitcoin-mining)
+ 
 
 
 

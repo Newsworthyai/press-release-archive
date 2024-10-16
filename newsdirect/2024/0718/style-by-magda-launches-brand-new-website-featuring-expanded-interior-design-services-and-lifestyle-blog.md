@@ -61,7 +61,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/style-by-magd
 [Original/Source Press Release](https://newsdirect.com/news/style-by-magda-launches-brand-new-website-featuring-expanded-interior-design-services-and-lifestyle-blog-885170328)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/style-by-magda-launches-newly-redesigned-website/ca73eccec00de1e8cd0b4987132409e6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/style-by-magda-unveils-redesigned-website-with-enhanced-interior-design-services-and-lifestyle-blog)
+
+Pickup - [fishervista.com](https://fishervista.com/en/style-by-magda-launches-redesigned-website-with-expanded-interior-design-services-and-lifestyle-blog/20245089)
+
+Pickup - [advos.io](https://advos.io/en/style-by-magda-unveils-redesigned-website-with-expanded-services-and-lifestyle-blog/20245089)
+ 
 
 
 

@@ -58,7 +58,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/emmy-winning-
 [Original/Source Press Release](https://newsdirect.com/news/emmy-winning-journalist-mercedes-soler-discusses-the-power-of-radio-for-hispanic-marketers-in-a-special-noticias-newswire-interview-236646543)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exclusive-interview-emmy-winning-journalist-mercedes-soler-discusses-the-power-of-radio-for-hispanic-marketers/cb596397764303a1c35ecfac80f64af8) 
+
+
+Pickup - [advos.io](https://advos.io/en/emmy-winner-mercedes-soler-highlights-radio-s-enduring-impact-on-hispanic-market/20246746)
+
+Pickup - [fishervista.com](https://fishervista.com/en/emmy-winning-journalist-mercedes-soler-highlights-radio-s-influence-on-hispanic-marketing-in-noticias-newswire-interview/20246746)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/emmy-winner-mercedes-soler-highlights-radio-s-enduring-impact-on-hispanic-market/20246746)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/emmy-winning-journalist-mercedes-soler-highlights-radio-s-enduring-impact-on-hispanic-market)
+ 
 
 
 

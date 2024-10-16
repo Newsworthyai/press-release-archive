@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/amerilifes-mc
 [Original/Source Press Release](https://newsdirect.com/news/amerilifes-mcc-brokerage-strengthens-market-position-with-diversity-insurance-agency-partnership-275268361)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcc-brokerage-strengthens-market-position-with-diversity-insurance-agency-partnership/b5620e496e807e7bdc29c96cc0643b01) 
+
+ 
 
 
 

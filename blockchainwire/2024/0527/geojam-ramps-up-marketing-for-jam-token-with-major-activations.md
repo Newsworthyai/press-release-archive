@@ -31,7 +31,9 @@ Email Signup: [http://eepurl.com/hhyaMH](http://eepurl.com/hhyaMH)
 [Original/Source Press Release](https://blockchainwire.io/press-release/geojam-ramps-up-marketing-for-jam-token-with-major-activations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/geojam-announces-major-marketing-initiatives-for-jam-token/c5c5921a7a4b0afc4fd2aae94b177645) 
+
+ 
 
 
 

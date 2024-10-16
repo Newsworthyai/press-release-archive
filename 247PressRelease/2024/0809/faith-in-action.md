@@ -7,7 +7,17 @@ COLLIE, AUSTRALIA, August 09, 2024 /24-7PressRelease/ -- PCRS is thrilled to ann
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513277/faith-in-action)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-the-key-unlocking-christianity-making-waves-in-the-christian-community/6d7c9463e1968aa8645feb21eb8928ac) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/sam-finn-s-the-key-unlocking-christianity-sparks-spiritual-revolution)
+
+Pickup - [fishervista.com](https://fishervista.com/en/sam-finn-s-the-key-unlocking-christianity-inspires-community-with-practical-faith-guidance/20245606)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/sam-finn-s-the-key-unlocking-christianity-sparks-spiritual-revival/20245606)
+
+Pickup - [advos.io](https://advos.io/en/sam-finn-s-the-key-unlocking-christianity-spurs-spiritual-transformation/20245606)
+ 
 
 
 

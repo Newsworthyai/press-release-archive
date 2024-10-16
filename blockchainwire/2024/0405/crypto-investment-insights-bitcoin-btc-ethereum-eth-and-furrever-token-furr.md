@@ -41,7 +41,11 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-investment-insights-bitcoin-btc-ethereum-eth-and-furrever-token-furr)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-volatility-bitcoin-ethereum-and-the-rise-of-furrever-token-furr/14c2bfd1071023114bc4fe2961090e50) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/furrever-token-emerges-as-a-wholesome-crypto-phenomenon-amidst-market-volatility)
+ 
 
 
 

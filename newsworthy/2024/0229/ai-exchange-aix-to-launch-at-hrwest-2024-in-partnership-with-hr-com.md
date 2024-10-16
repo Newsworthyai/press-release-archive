@@ -39,7 +39,13 @@ Debbie McGrath, Chief Instigator, HR.com, dmcgrath@hr.com
 [Original/Source Press Release](https://newsworthy.ai/news/202402291105/ai-exchange-aix-to-launch-at-hrwest-2024-in-partnership-with-hr-com)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-exchange-aix-to-launch-at-hrwest-2024-fostering-responsible-ai-in-hr-community/9fa5c4cb194919710e37adfbe6ddc4ba) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/ai-exchange-to-launch-at-hrwest-2024-partnering-with-hr-com-to-address-ai-challenges-in-hr/2024606)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/29/ai-exchange-launches-to-guide-hr-on-responsible-ai-adoption)
+ 
 
 
 

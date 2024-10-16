@@ -7,7 +7,17 @@ PROSPER, TX, August 07, 2024 /24-7PressRelease/ -- Susanne Lockhart, MD, has bee
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513101/dermatologist-susanne-lockhart-named-a-2024-castle-connolly-top-doctor)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-susanne-lockhart-recognized-as-2024-castle-connolly-top-doctor/887e5aeed248826a091b58bb91cfc1b0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/dr-susanne-lockhart-recognized-as-2024-castle-connolly-top-doctor)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dr-susanne-lockhart-recognized-as-2024-castle-connolly-top-doctor)
+
+Pickup - [advos.io](https://advos.io/en/dr-susanne-lockhart-named-2024-castle-connolly-top-doctor/20245545)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-susanne-lockhart-named-2024-castle-connolly-top-doctor/20245545)
+ 
 
 
 

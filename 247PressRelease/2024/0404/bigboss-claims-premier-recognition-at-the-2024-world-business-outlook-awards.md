@@ -7,7 +7,11 @@ SINGAPORE, April 04, 2024 /24-7PressRelease/ -- BigBoss, a leading name in the f
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509742/bigboss-claims-premier-recognition-at-the-2024-world-business-outlook-awards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bigboss-wins-three-awards-at-world-business-outlook-awards-2024/9b89e363864da08b64aaf03e52ef6b2b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/bigboss-sweeps-major-accolades-at-world-business-outlook-awards-2024)
+ 
 
 
 

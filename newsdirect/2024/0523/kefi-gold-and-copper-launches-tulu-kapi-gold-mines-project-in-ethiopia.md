@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/kefi-gold-and
 [Original/Source Press Release](https://newsdirect.com/news/kefi-gold-and-copper-launches-tulu-kapi-gold-mines-project-in-ethiopia-827693644)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kefi-gold-and-copper-launches-tulu-kapi-gold-mines-project-in-ethiopia/cbef54695c78f4c5792a9fb4e595144c) 
+
+ 
 
 
 

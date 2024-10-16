@@ -7,7 +7,11 @@ VALENCIA, SPAIN, June 02, 2024 /24-7PressRelease/ -- On Saturday, June 1st, at 1
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511371/dansa-i-dol%C3%87aina-the-way-of-the-holy-grail-celebrating-intangible-heritage)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/celebrating-valencian-folklore-dansa-i-dolcaina-the-way-of-the-holy-grail/a7350e416adf9fe9df90b387832b3381) 
+
+
+Pickup - [advos.io](https://advos.io/en/celebrating-intangible-heritage-dansa-i-dolcaina-the-way-of-the-holy-grail-event-shines-spotlight-on-valencian-culture/20243601)
+ 
 
 
 

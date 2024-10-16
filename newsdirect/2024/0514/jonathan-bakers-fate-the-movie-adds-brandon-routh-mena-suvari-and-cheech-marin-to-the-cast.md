@@ -104,7 +104,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/jonathan-bake
 [Original/Source Press Release](https://newsdirect.com/news/jonathan-bakers-fate-the-movie-adds-brandon-routh-mena-suvari-and-cheech-marin-to-the-cast-955897197)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/baker-entertainment-group-announces-key-additions-to-cast-for-fate-the-movie/aa42e168e10aac02f288ade830c9e5a8) 
+
+ 
 
 
 

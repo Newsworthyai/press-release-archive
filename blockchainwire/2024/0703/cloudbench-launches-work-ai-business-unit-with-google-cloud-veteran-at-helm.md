@@ -19,7 +19,15 @@ Contact:Tom RicherCEOinvestorrelations@cloudbench.net
 [Original/Source Press Release](https://blockchainwire.io/press-release/cloudbench-launches-work-ai-business-unit-with-google-cloud-veteran-at-helm)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloudbench-launches-work-ai-business-unit-led-by-google-cloud-leader-scott-jensen/a40e9405026752685ab942c65cec8ebe) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cloudbench-unveils-work-ai-business-unit-led-by-google-cloud-veteran/20244688)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/cloudbench-launches-work-ai-business-unit-appoints-google-cloud-veteran-scott-jensen-as-president)
+
+Pickup - [advos.io](https://advos.io/en/cloudbench-unveils-work-ai-business-unit-led-by-google-cloud-expert/20244688)
+ 
 
 
 

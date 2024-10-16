@@ -108,7 +108,9 @@ Media Contact for SUCCESS® Enterprises: Kerrie Lee Brown 303-493-1719 kerrie.br
 [Original/Source Press Release](https://newsworthy.ai/news/202410091310/success-r-announces-weekly-bestseller-lists-across-8-categories-for-week-ending-october-4-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/success-r-announces-weekly-bestseller-lists-across-eight-categories/aed1b5e8d2f1cd1e9283f872a5c47c0f) 
+
+ 
 
 
 

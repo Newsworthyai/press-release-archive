@@ -35,7 +35,11 @@ About HyroTraderHyroTrader is a crypto proprietary trading firm, offering trader
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-prop-firm-hyrotrader-seeks-traders-trade-with-up-to-1m-in-capital)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/join-hyrotrader-trade-crypto-with-up-to-1-million-in-capital/13bdcf068e9d082276a8608f56ca17b0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/22/hyrotrader-unlocking-crypto-trading-potential-with-substantial-capital)
+ 
 
 
 

@@ -69,7 +69,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/creta-and-republic-form-strategic-partnership-to-revolutionize-web3-and-metaverse-gaming-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/republic-invests-2-6b-in-private-ventures-partners-with-creta-for-web3-collaboration/44d06e2142929d6f5f06755b126ebb08) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/07/republic-and-creta-join-forces-to-revolutionize-web3-gaming)
+ 
 
 
 

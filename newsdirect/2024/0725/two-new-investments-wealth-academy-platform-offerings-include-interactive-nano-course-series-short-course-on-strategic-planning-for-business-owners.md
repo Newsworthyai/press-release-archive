@@ -72,7 +72,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/two-new-inves
 [Original/Source Press Release](https://newsdirect.com/news/two-new-investments-and-wealth-academy-platform-offerings-include-interactive-nano-course-series-short-course-on-strategic-planning-for-business-owners-249484525)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investments-wealth-institute-launches-two-new-online-learning-offerings/7020d9caa63e63b5089cda3d18d3d45b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/investments-wealth-institute-launches-new-educational-offerings-for-financial-advisors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/investments-wealth-institute-launches-new-educational-offerings-for-financial-advisors/20245263)
+
+Pickup - [advos.io](https://advos.io/en/investments-wealth-institute-launches-new-educational-offerings-for-financial-advisors/20245263)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/investments-wealth-institute-launches-new-educational-offerings-for-financial-advisors)
+ 
 
 
 

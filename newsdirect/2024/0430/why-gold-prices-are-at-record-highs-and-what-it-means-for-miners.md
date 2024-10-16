@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/why-gold-pric
 [Original/Source Press Release](https://newsdirect.com/news/why-gold-prices-are-at-record-highs-and-what-it-means-for-miners-882889814)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-prices-surge-to-record-highs-what-it-means-for-miners/d0a83fc3a4e4baa22b2c529f738f2acf) 
+
+ 
 
 
 

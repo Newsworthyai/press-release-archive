@@ -33,7 +33,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-verticals
 [Original/Source Press Release](https://newsdirect.com/news/new-verticals-catapult-forever-network-into-comscore-top-25-us-media-rankings-950821569)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/forever-network-breaks-into-comscore-s-top-25-us-media-rankings/f7e2a68d3eec082beabcdda871319455) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/forever-network-breaks-into-comscore-top-25-us-media-rankings/20244823)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/forever-network-breaks-into-comscore-s-top-25-us-media-rankings)
+
+Pickup - [advos.io](https://advos.io/en/forever-network-enters-comscore-top-25-us-media-rankings/20244823)
+ 
 
 
 

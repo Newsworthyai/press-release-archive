@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/lizzie-lu-lux
 [Original/Source Press Release](https://newsdirect.com/news/lizzie-lu-luxury-treats-launches-on-amazon-celebrating-august-as-national-black-business-month-729425392)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lizzie-lu-luxury-treats-launches-on-amazon-celebrating-national-black-business-month/e13874829b4d48e2fb32f3f3543b0f7d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/lizzie-lu-luxury-treats-expands-to-amazon-marking-national-black-business-month)
+
+Pickup - [fishervista.com](https://fishervista.com/en/lizzie-lu-luxury-treats-expands-to-amazon-celebrates-national-black-business-month/20245437)
+
+Pickup - [advos.io](https://advos.io/en/lizzie-lu-luxury-treats-expands-to-amazon-during-national-black-business-month/20245437)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/lizzie-lu-luxury-treats-expands-to-amazon-marking-national-black-business-month)
+ 
 
 
 

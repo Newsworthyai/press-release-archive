@@ -44,7 +44,11 @@ Telegram - https://t.me/jettontoken_en
 [Original/Source Press Release](https://blockchainwire.io/press-release/join-the-crypto-gambling-revolution-introducing-jetton-games-and-the-jetton-token)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jetton-games-revolutionizing-crypto-gambling-with-innovative-platform-on-ton-ecosystem/c7ec0c6a2eb2cb37586f3d0fc4a1d629) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/jetton-games-revolutionizes-crypto-gambling-with-jetton-token)
+ 
 
 
 

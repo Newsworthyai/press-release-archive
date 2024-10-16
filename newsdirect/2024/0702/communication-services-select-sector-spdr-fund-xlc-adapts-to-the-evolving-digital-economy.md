@@ -83,7 +83,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/communication
 [Original/Source Press Release](https://newsdirect.com/news/communication-services-select-sector-spdr-fund-xlc-adapts-to-the-evolving-digital-economy-974942546)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xlc-fund-adapting-to-the-evolving-digital-economy/aa83ff148be3cd24b4fcaed818a9b091) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/communication-services-select-sector-spdr-fund-xlc-adapts-to-evolving-digital-economy/20244621)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/communication-services-select-sector-spdr-fund-aligns-with-digital-economy-trends)
+
+Pickup - [advos.io](https://advos.io/en/communication-services-select-sector-spdr-fund-xlc-adjusts-to-digital-economy-shifts/20244621)
+ 
 
 
 

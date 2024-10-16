@@ -43,7 +43,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/doges-rebound
 [Original/Source Press Release](https://newsdirect.com/news/doges-rebound-attempt-fails-amid-raboos-dominating-price-action-surpassing-rival-coin-pepe-977619235)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/raboo-dogecoin-and-pepe-the-current-state-of-the-cryptocurrency-market/dfeb51fb16180915c3e6bbd75f297e33) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/raboo-s-ico-gains-traction-amid-dogecoin-and-pepe-volatility/20244602)
+
+Pickup - [advos.io](https://advos.io/en/raboo-s-presale-dominates-amid-dogecoin-and-pepe-volatility/20244602)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/raboo-dogecoin-and-pepe-the-current-state-of-the-cryptocurrency-market)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/raboo-dogecoin-and-pepe-the-current-state-of-the-cryptocurrency-market)
+ 
 
 
 

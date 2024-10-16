@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/big-news-for-
 [Original/Source Press Release](https://newsdirect.com/news/big-news-for-dlmi-tokenization-pioneer-inks-deal-with-international-partner-761573487)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dlmi-ceo-discusses-dynamic-partnership-for-international-markets/c48f08abb2c07e7e7e3c591cdb7d8664) 
+
+
+Pickup - [advos.io](https://advos.io/en/diamond-lake-minerals-expands-global-reach-with-international-partnership/20244199)
+ 
 
 
 

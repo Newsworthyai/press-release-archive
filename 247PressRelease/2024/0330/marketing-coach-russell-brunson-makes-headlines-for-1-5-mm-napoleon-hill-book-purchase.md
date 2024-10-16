@@ -7,7 +7,11 @@ BOISE, ID, March 30, 2024 /24-7PressRelease/ -- Russell Brunson has captured man
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509691/marketing-coach-russell-brunson-makes-headlines-for-15-mm-napoleon-hill-book-purchase)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clickfunnels-founder-russell-brunson-acquires-1-5m-rare-napoleon-hill-book-for-secrets-of-success-movement/c6690886fcea2ae4f5b65603efc27176) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/30/russell-brunson-s-multimillion-dollar-book-purchase-fuels-growth-mindset-movement)
+ 
 
 
 

@@ -51,7 +51,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/from-shiba-inu-shib-to-riches-shiba-inu-shib-millionaire-joins-new-emerging-meme-rival)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiba-inu-shib-and-shiba-budz-budz-a-tale-of-meme-coins-and-financial-innovation/6dd52a165f258dceb37771620170877b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/shiba-inu-millionaire-embraces-shiba-budz-a-new-era-in-meme-coin-evolution)
+ 
 
 
 

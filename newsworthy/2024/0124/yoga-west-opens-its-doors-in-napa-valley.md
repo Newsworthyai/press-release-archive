@@ -17,7 +17,11 @@ Yoga West is a welcoming yoga sanctuary located in downtown Napa, offering a var
 [Original/Source Press Release](https://newsworthy.ai/news/202401241041/yoga-west-opens-its-doors-in-napa-valley)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/yoga-west-studio-offers-tranquility-and-community-in-napa-valley/850e6efb7dedd7a6e67565387838442f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/24/yoga-west-a-sanctuary-for-movement-and-mindfulness-in-napa-valley)
+ 
 
 
 

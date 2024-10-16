@@ -7,7 +7,13 @@ FORT LAUDERDALE, FL, July 01, 2024 /24-7PressRelease/ -- What's better than one 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512179/twice-the-chicken-for-the-price-of-one-at-burgerfi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/burgerfi-r-doubles-up-on-antibiotic-free-chicken-for-national-fried-chicken-day/3c35b418e642db2931837168cad3b7d2) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/burgerfi-offers-bogo-chicken-sandwiches-for-national-fried-chicken-day/20244657)
+
+Pickup - [advos.io](https://advos.io/en/burgerfi-celebrates-national-fried-chicken-day-with-bogo-offer/20244657)
+ 
 
 
 

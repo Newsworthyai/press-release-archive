@@ -31,7 +31,11 @@ Email: messaoud@millionero.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/millionero-redefines-crypto-trading-norms-with-unprecedented-volume-and-distinctive-features-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/millionero-a-trailblazer-in-cryptocurrency-exchange-with-innovative-features-and-coinmarketcap-recognition/26c0f9e6797b3bd82047ef85831c502f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/05/millionero-revolutionizes-crypto-trading-with-unparalleled-volume-and-innovative-features)
+ 
 
 
 

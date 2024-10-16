@@ -7,7 +7,19 @@ Launched on June 15th on the BNB blockchain, $ANDY has experienced remarkable pr
 [Original/Source Press Release](https://blockchainwire.io/press-release/andy-launched-with-the-mission-to-make-bnb-chain-great-again-cex-listing-announced)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/remarkable-growth-of-andy-on-bnb-blockchain/f8d187bfa3638dd51d37dc9e65de9843) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/remarkable-growth-of-andy-on-bnb-blockchain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/remarkable-growth-of-andy-on-bnb-blockchain)
+
+Pickup - [advos.io](https://advos.io/en/andy-coin-launches-on-bnb-chain-achieves-17-million-market-cap-in-under-24-hours/20245055)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/andy-coin-surges-on-bnb-chain-aims-to-revitalize-memecoin-ecosystem)
+
+Pickup - [fishervista.com](https://fishervista.com/en/andy-coin-experiences-rapid-growth-and-prepares-for-major-exchange-listings/20245055)
+ 
 
 
 

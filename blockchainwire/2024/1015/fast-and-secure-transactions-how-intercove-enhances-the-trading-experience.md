@@ -31,7 +31,9 @@ Join thousands of satisfied traders worldwide who trust Intercove to deliver fas
 [Original/Source Press Release](https://blockchainwire.io/press-release/fast-and-secure-transactions-how-intercove-enhances-the-trading-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/intercove-upgrades-transaction-processing-system-for-faster-and-more-secure-cryptocurrency-trading/240c5128ea4cfd3b733a26ac719d8977) 
+
+ 
 
 
 

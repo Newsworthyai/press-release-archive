@@ -7,7 +7,17 @@ NEW YORK, NY, September 10, 2024 /24-7PressRelease/ -- Trinity Street Capital Pa
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514137/trinity-street-capital-partners-announces-the-origination-of-a-64mm-non-recourse-multifamily-construction-loan)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/real-estate-investment-bank-tscp-secures-64mm-construction-loan-for-southern-pines-development/e55543dfd743802eb8917a4d969660b9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/trinity-street-capital-partners-originates-64-million-non-recourse-multifamily-construction-loan-in-southern-pines-nc)
+
+Pickup - [fishervista.com](https://fishervista.com/en/trinity-street-capital-partners-initiates-64mm-non-recourse-multifamily-construction-loan-in-southern-pines-nc/20246632)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/trinity-street-capital-partners-secures-64-million-non-recourse-loan-for-multifamily-project-in-southern-pines-nc/20246632)
+
+Pickup - [advos.io](https://advos.io/en/trinity-street-capital-partners-secures-64mm-loan-for-multifamily-project-in-southern-pines-nc/20246632)
+ 
 
 
 

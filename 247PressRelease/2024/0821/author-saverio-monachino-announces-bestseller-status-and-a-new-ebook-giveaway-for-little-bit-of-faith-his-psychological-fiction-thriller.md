@@ -7,7 +7,17 @@ WILMINGTON, NC, August 21, 2024 /24-7PressRelease/ -- Saverio Monachino amalgama
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513556/author-saverio-monachino-announces-bestseller-status-and-a-new-ebook-giveaway-for-little-bit-of-faith-his-psychological-fiction-thriller)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/saverio-monachino-s-little-bit-of-faith-hits-bestseller-status/42d6f12d2497ce1b7d828d6010cb98e0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/bestselling-author-saverio-monachino-offers-free-ebook-of-psychological-thriller-little-bit-of-faith)
+
+Pickup - [fishervista.com](https://fishervista.com/en/saverio-monachino-s-little-bit-of-faith-achieves-bestseller-status-and-announces-ebook-giveaway/20245866)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bestselling-author-saverio-monachino-offers-free-ebook-of-little-bit-of-faith/20245866)
+
+Pickup - [advos.io](https://advos.io/en/saverio-monachino-s-bestseller-little-bit-of-faith-gains-acclaim-and-offers-free-ebook-giveaway/20245866)
+ 
 
 
 

@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/flash-secures
 [Original/Source Press Release](https://newsdirect.com/news/flash-secures-85-million-to-back-special-purpose-vehicle-to-propel-growth-and-provide-flexible-payment-options-153937775)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/flash-secures-85-million-in-debt-financing-to-back-special-purpose-vehicle/ceffecbce1a03138740e8442e60580ed) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/flash-raises-85-million-to-expand-parking-technology-platform-and-payment-options)
+
+Pickup - [fishervista.com](https://fishervista.com/en/flash-secures-85-million-funding-to-enhance-payment-options-and-expand-platform/20246626)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/flash-raises-85-million-to-expand-parking-technology-platform-and-payment-options/20246626)
+
+Pickup - [advos.io](https://advos.io/en/flash-secures-85-million-financing-to-expand-parking-technology-and-payment-flexibility/20246626)
+ 
 
 
 

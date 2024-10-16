@@ -7,7 +7,9 @@ LOS ANGELES, CA, May 07, 2024 /24-7PressRelease/ -- In an exciting development f
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510679/queennak-releases-a-new-music-video-mi-soja-featuring-menace-de-general-mdg)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/queennak-and-mdg-collaborate-to-release-mi-soja-afrobeat-song-in-hollywood/0bd05361974cab95b343333789aba970) 
+
+ 
 
 
 

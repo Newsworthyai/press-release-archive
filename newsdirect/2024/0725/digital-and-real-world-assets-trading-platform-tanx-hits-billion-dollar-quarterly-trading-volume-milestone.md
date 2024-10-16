@@ -45,7 +45,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/digital-and-r
 [Original/Source Press Release](https://newsdirect.com/news/digital-and-real-world-assets-trading-platform-tanx-hits-billion-dollar-quarterly-trading-volume-milestone-202371544)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tanx-hits-billion-dollar-quarterly-trading-volume-milestone/5b71589a5d055ba1b6885880185fa56d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/tanx-achieves-billion-dollar-quarterly-trading-volume-signaling-confidence-in-decentralized-platforms/20245243)
+
+Pickup - [advos.io](https://advos.io/en/tanx-trading-platform-surpasses-1-billion-in-quarterly-volume-signifying-growing-trust-in-decentralized-exchanges/20245243)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tanx-hits-billion-dollar-quarterly-trading-volume-milestone)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tanx-hits-billion-dollar-quarterly-trading-volume-milestone)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/tanx-trading-platform-achieves-1-billion-quarterly-volume-signaling-rise-of-decentralized-finance)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/tanx-trading-platform-achieves-1-billion-quarterly-volume-signaling-growth-in-decentralized-finance)
+ 
 
 
 

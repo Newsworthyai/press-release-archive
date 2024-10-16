@@ -72,7 +72,11 @@ Research Highlights:
 [Original/Source Press Release](https://www.newmediawire.com/news/knowing-you-have-a-brain-aneurysm-may-raise-anxiety-risk-other-mental-health-conditions-7075965)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/study-shows-higher-risk-of-mental-illness-in-people-with-unruptured-cerebral-aneurysms/aa019abf9e7f28cdd8a24ae12be8489d) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/brain-aneurysm-diagnosis-linked-to-increased-mental-health-risks/20246458)
+ 
 
 
 

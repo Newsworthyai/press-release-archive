@@ -39,7 +39,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/brief-filed-i
 [Original/Source Press Release](https://newsdirect.com/news/brief-filed-in-opposition-to-warren-buffetts-attempt-to-get-lawsuit-dismissed-359657178)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nlpc-opposes-warren-buffett-s-attempt-to-dismiss-lawsuit/adba7d7b6abe2d4177a069abea35dfd4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/legal-battle-intensifies-nlpc-challenges-warren-buffett-s-motion-to-dismiss-lawsuit)
+
+Pickup - [fishervista.com](https://fishervista.com/en/nlpc-files-brief-opposing-warren-buffett-s-motion-to-dismiss-lawsuit/20245882)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/national-legal-and-policy-center-opposes-warren-buffett-s-motion-to-dismiss-lawsuit/20245882)
+
+Pickup - [advos.io](https://advos.io/en/nlpc-files-brief-against-warren-buffetts-motion-to-dismiss-lawsuit/20245882)
+ 
 
 
 

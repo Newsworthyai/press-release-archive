@@ -7,7 +7,9 @@ ROSELAND, NJ, September 28, 2024 /24-7PressRelease/ -- Jaime Raskulinecz, CEO of
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514781/jaime-raskulinecz-shares-insights-into-investing-in-a-real-estate-syndication-through-a-self-directed-ira)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ceo-of-next-generation-trust-company-advises-on-real-estate-syndication-in-self-directed-iras/fc67c05fbf1ffffd46fc48d58f1b7796) 
+
+ 
 
 
 

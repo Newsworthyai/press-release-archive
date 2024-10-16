@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/celebrate-mom
 [Original/Source Press Release](https://newsdirect.com/news/celebrate-mom-in-style-fashionable-finds-for-mothers-day-914968091)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/celebrate-mother-s-day-in-style-with-fashionable-finds/0e94c49d9d07b42f247d5e1b14b1c715) 
+
+ 
 
 
 

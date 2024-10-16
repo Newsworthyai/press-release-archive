@@ -47,7 +47,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/vuzix-nasdaq-
 [Original/Source Press Release](https://newsdirect.com/news/vuzix-nasdaq-vuzi-lands-20-million-investment-from-quanta-computer-as-the-two-expand-their-smart-glasses-collaboration-942202979)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vuzix-receives-20-million-investment-from-quanta-computer-to-expand-smart-glasses-collaboration/339d01472eee49983cd86f7553fd64a6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/vuzix-secures-20-million-investment-from-quanta-computer-bolstering-smart-glasses-partnership)
+
+Pickup - [fishervista.com](https://fishervista.com/en/vuzix-secures-20-million-investment-from-quanta-computer-boosting-smart-glasses-development/20246899)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/vuzix-secures-20-million-investment-from-quanta-computer-boosting-smart-glasses-development/20246899)
+
+Pickup - [advos.io](https://advos.io/en/vuzix-secures-20-million-investment-from-quanta-computer-bolstering-smart-glasses-partnership/20246899)
+ 
 
 
 

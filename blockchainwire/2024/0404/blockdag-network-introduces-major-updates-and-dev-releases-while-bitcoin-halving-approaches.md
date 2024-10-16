@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-network-introduces-major-updates-and-dev-releases-while-bitcoin-halving-approaches-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-2024-halving-analysts-predict-bullish-price-surge-blockdag-network-enhances-platform/f97bc807052e0e4b76bca30258e16138) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/blockdag-network-forges-ahead-with-major-updates-as-bitcoin-halving-looms)
+ 
 
 
 

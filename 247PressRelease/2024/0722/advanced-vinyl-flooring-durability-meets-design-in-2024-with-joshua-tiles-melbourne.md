@@ -7,7 +7,15 @@ MELBOURNE, AUSTRALIA, July 22, 2024 /24-7PressRelease/ -- The home renovation ma
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512730/advanced-vinyl-flooring-durability-meets-design-in-2024-with-joshua-tiles-melbourne)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-and-sustainable-trends-in-home-renovation-materials/d1b57158df3307aef7830680dd0166a2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/joshua-tiles-melbourne-leads-the-way-in-advanced-vinyl-flooring-and-sustainable-home-renovation-materials)
+
+Pickup - [fishervista.com](https://fishervista.com/en/joshua-tiles-melbourne-leads-2024-home-renovation-trends-with-advanced-vinyl-flooring/20245141)
+
+Pickup - [advos.io](https://advos.io/en/advanced-vinyl-flooring-takes-center-stage-in-2024-with-joshua-tiles-melbourne/20245141)
+ 
 
 
 

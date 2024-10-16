@@ -33,7 +33,9 @@ anna@picklejar.com
 [Original/Source Press Release](https://www.newmediawire.com/news/picklejar-launches-national-get-on-the-bus-campaign-unveils-thompson-square-tour-bus-wrap-7075995)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/picklejar-entertainment-group-launches-new-brand-campaign-in-partnership-with-thompson-square/60cdbb61ea16d64e680b2f351d8723b0) 
+
+ 
 
 
 

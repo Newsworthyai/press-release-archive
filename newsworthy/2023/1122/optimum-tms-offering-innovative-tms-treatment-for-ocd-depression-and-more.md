@@ -25,7 +25,11 @@ If you or a loved one is searching for TMS providers near you, look no further t
 [Original/Source Press Release](https://newsworthy.ai/news/20231122888/optimum-tms-offering-innovative-tms-treatment-for-ocd-depression-and-more)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/optimum-tms-revolutionizes-treatment-for-ocd-and-depression/9ccfdbd41ca5aae944a7d62e9f95ec61) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/22/optimum-tms-offers-innovative-tms-treatment-for-ocd-and-depression)
+ 
 
 
 

@@ -7,7 +7,17 @@ DALLAS, TX, August 29, 2024 /24-7PressRelease/ -- MorganHill is excited to annou
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513877/morganhill-launches-iso-27001-risk-assessment-template-to-simplify-iso-27001-certification-process)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/morganhill-launches-iso-27001-risk-assessment-template-to-streamline-certification-process/1b773288fa2aad7188263e942d2eeea4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/morganhill-unveils-iso-27001-risk-assessment-template-to-ease-certification-process)
+
+Pickup - [fishervista.com](https://fishervista.com/en/morganhill-unveils-iso-27001-risk-assessment-template-to-simplify-certification-process/20246364)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/morganhill-introduces-iso-27001-risk-assessment-template-to-ease-certification-process/20246364)
+
+Pickup - [advos.io](https://advos.io/en/morganhill-unveils-iso-27001-risk-assessment-template-to-simplify-certification/20246364)
+ 
 
 
 

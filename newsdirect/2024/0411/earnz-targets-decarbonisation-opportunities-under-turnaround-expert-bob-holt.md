@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/earnz-targets
 [Original/Source Press Release](https://newsdirect.com/news/earnz-targets-decarbonisation-opportunities-under-turnaround-expert-bob-holt-939252529)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/earnz-plc-targeting-decarbonization-opportunities-under-turnaround-expert-bob-holt/b28e874f6c4e73f9074f428e3b04066c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/earnz-plc-targets-decarbonisation-opportunities-under-turnaround-expert-bob-holt)
+ 
 
 
 

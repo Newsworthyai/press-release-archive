@@ -118,7 +118,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/us-graphite-o
 [Original/Source Press Release](https://newsdirect.com/news/us-graphite-one-secures-lucid-motors-supply-agreement-711116408)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/graphite-one-enters-landmark-supply-agreement-with-lucid-group-for-anode-active-materials/f6b98867c0d5e4085a0d8b550c79e1d8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/graphite-one-and-lucid-motors-sign-landmark-supply-agreement-for-ev-battery-materials)
+
+Pickup - [fishervista.com](https://fishervista.com/en/graphite-one-and-lucid-motors-forge-strategic-supply-agreement/20245388)
+
+Pickup - [advos.io](https://advos.io/en/graphite-one-secures-supply-agreement-with-lucid-motors-boosting-u-s-ev-industry/20245388)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/graphite-one-and-lucid-motors-sign-landmark-supply-agreement-for-electric-vehicle-materials)
+ 
 
 
 

@@ -59,7 +59,17 @@ cassie@reef.io
 [Original/Source Press Release](https://blockchainwire.io/press-release/reef-announces-the-launch-of-reef-chain-wallet-and-reefswap)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/reef-launches-reef-chain-wallet-and-reefswap-revolutionizing-defi-solutions/3d1371fe7ba2aef35cc3181c94f8645f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/reef-launches-reef-chain-wallet-and-reefswap-enhancing-defi-ecosystem/20244554)
+
+Pickup - [advos.io](https://advos.io/en/reef-launches-reef-chain-wallet-and-reefswap-to-revolutionize-defi/20244554)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/reef-launches-reef-chain-wallet-and-reefswap-revolutionizing-defi-solutions)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/reef-launches-reef-chain-wallet-and-reefswap-revolutionizing-defi-solutions)
+ 
 
 
 

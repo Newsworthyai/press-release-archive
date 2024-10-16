@@ -59,7 +59,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/izea-nasdaq-i
 [Original/Source Press Release](https://newsdirect.com/news/izea-nasdaq-izea-defied-critics-and-naysayers-as-it-helped-pioneer-influencer-marketing-in-2004-heres-what-it-sees-next-in-the-industrys-evolution-170455468)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-evolution-of-influencer-marketing-a-game-changer-for-brands/842ef4b8653522d0ca2379d5d2ef5d06) 
+
+ 
 
 
 

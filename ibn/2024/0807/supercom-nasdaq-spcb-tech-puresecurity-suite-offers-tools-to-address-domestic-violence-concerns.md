@@ -29,7 +29,9 @@ SuperCom (NASDAQ: SPCB), a global provider of secured solutions for the e-govern
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/supercom-nasdaq-spcb-tech-puresecurity-suite-offers-tools-to-address-domestic-violence-concerns/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/supercom-s-puresecurity-suite-utilized-to-combat-domestic-violence/38018a0a49d89d6cb8766ff87e340e44) 
+
+ 
 
 
 

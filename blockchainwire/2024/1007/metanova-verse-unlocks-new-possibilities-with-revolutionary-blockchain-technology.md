@@ -45,7 +45,9 @@ Whitepaper:https://metanovaverse.com/wp-content/uploads/2024/09/Whitepaper_MNV-1
 [Original/Source Press Release](https://blockchainwire.io/press-release/metanova-verse-unlocks-new-possibilities-with-revolutionary-blockchain-technology-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metanova-verse-revolutionizing-blockchain-technology-with-innovations-in-layer-1-chain-protocol-and-ecosystem/69b4f5a6492e38838e08b3f346e8a021) 
+
+ 
 
 
 

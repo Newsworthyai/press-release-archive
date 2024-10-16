@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/telomir-pharm
 [Original/Source Press Release](https://newsdirect.com/news/telomir-pharmaceuticals-nasdaq-telo-featured-in-local-abc-exclusive-showing-positive-outcomes-of-proposed-age-reversal-pill-in-dogs-994455558)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/telomir-pharmaceuticals-inc-making-strides-in-age-reversal-research-with-telomir-1/cd24d2c6e061289aba4fd2e491e33daa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/telomir-pharmaceuticals-age-reversal-drug-shows-promise-in-canine-study)
+
+Pickup - [fishervista.com](https://fishervista.com/en/telomir-pharmaceuticals-age-reversal-pill-shows-promising-results-in-dogs/20246565)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/telomir-pharmaceuticals-age-reversal-drug-shows-promise-in-canine-study/20246565)
+
+Pickup - [advos.io](https://advos.io/en/telomir-pharmaceuticals-age-reversal-pill-shows-promising-results-in-dogs/20246565)
+ 
 
 
 

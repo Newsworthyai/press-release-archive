@@ -53,7 +53,9 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/solcex-exchange-set-to-launch-between-may-20th-and-30th-earns-coinmarketcap-listing-as-top-centralized-exchange-cex-token)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solcex-set-to-redefine-cryptocurrency-trading-with-upcoming-launch/5eef3281c8b2064fe44e95c9d80eb14d) 
+
+ 
 
 
 

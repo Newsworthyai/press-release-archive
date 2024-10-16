@@ -91,7 +91,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/sigma-launche
 [Original/Source Press Release](https://newsdirect.com/news/sigma-launches-interchangeable-lenses-for-canon-rf-mount-system-554594419)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sigma-corporation-launches-interchangeable-lenses-for-canon-rf-mount-system/004513b7a4cab5341e398d0fd6571715) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/sigma-launches-interchangeable-lenses-for-canon-rf-mount-system)
+ 
 
 
 

@@ -52,7 +52,13 @@ Edward MehrezDisclaimer: The information provided in this press release is not a
 [Original/Source Press Release](https://blockchainwire.io/press-release/arrow-markets-ido-sells-out-on-polkastarter-and-avalaunch-bringing-robinhood-like-options-trading-to-defi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arrow-markets-achieves-major-milestone-with-arrow-token-ido/ef6b1ee9c512f02e2620b69da89daaf5) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/arrow-markets-achieves-major-milestone-with-arrow-token-ido)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/arrow-markets-achieves-major-milestone-with-arrow-token-ido)
+ 
 
 
 

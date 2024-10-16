@@ -31,7 +31,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/gamereum-revolutionizes-gaming-with-the-introduction-of-gaming-optimized-blockchain-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gamereum-unveils-gaming-optimized-blockchain-for-new-era-of-gaming-innovation/ec01b697e86a9237ca9bf53f40fb9c7e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/04/gamereum-unleashes-the-power-of-gaming-optimized-blockchain)
+ 
 
 
 

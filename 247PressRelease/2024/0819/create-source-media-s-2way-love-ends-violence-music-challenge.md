@@ -7,7 +7,17 @@ DENVER, CO, August 19, 2024 /24-7PressRelease/ -- Create Source Media, in collab
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513359/create-source-medias-2way-love-ends-violence-music-challenge)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/create-source-media-launches-international-music-challenge-to-end-violence/58e500b8a4e6895fb4cac0f46d5d9ce3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/19/create-source-media-launches-global-music-challenge-to-combat-violence)
+
+Pickup - [fishervista.com](https://fishervista.com/en/create-source-media-launches-2way-love-ends-violence-international-music-challenge/20245806)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/create-source-media-launches-global-music-challenge-to-combat-violence-through-art/20245806)
+
+Pickup - [advos.io](https://advos.io/en/create-source-media-launches-2way-love-ends-violence-international-music-challenge/20245806)
+ 
 
 
 

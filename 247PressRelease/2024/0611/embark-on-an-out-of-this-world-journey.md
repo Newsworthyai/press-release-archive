@@ -7,7 +7,11 @@ WAKE FOREST, NC, June 11, 2024 /24-7PressRelease/ -- T-mo-t Productions LLC is t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511611/embark-on-an-out-of-this-world-journey)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-trilogy-release-the-space-adventures-of-microboo-with-her-friends-of-the-forest/08cf35fa0db568877ca7620e900e91c5) 
+
+
+Pickup - [advos.io](https://advos.io/en/t-mo-t-productions-llc-unveils-magical-sci-fi-fantasy-book-for-all-ages/20244019)
+ 
 
 
 

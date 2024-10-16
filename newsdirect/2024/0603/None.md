@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ufc-and-aires
 [Original/Source Press Release](https://newsdirect.com/news/ufc-and-aires-tech-inc-join-forces-to-reach-a-global-audience-of-700-million-fans-690083731)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-aires-inc-partners-with-ufc-to-reach-global-audience-of-700-million-fans/97f878807cd4f7a362bce3e7b1fcf402) 
+
+
+Pickup - [advos.io](https://advos.io/en/american-aires-inc-and-ufc-partner-to-expand-global-reach-in-emf-protection-technology-market/20243623)
+ 
 
 
 

@@ -29,7 +29,9 @@ Director, Earned MediaCoinboundliz@coinbound.iocoinbound.io
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinbound-appoints-alyssa-michaud-to-director-of-accounts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinbound-appoints-alyssa-michaud-as-director-of-accounts/c5000fade9259376b40bc21f7e1c1ac1) 
+
+ 
 
 
 

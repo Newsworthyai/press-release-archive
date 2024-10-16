@@ -7,7 +7,17 @@ BRISBANE, AUSTRALIA, August 18, 2024 /24-7PressRelease/ -- Under the theme 'Crea
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513551/the-10th-anniversary-of-the-hwpl-world-peace-summit-celebrates-a-decade-of-global-commitment-to-peace)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hwpl-anniversary-event-building-peace-communities-through-collaboration/e5b4d7ef75cbcefe25b1d9be18520e0b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/18/hwpl-world-peace-summit-marks-10-years-of-global-peace-initiatives)
+
+Pickup - [fishervista.com](https://fishervista.com/en/10th-anniversary-of-hwpl-world-peace-summit-marks-decade-of-peace-efforts/20245802)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hwpl-world-peace-summit-marks-10-years-of-global-peace-initiatives/20245802)
+
+Pickup - [advos.io](https://advos.io/en/10th-anniversary-of-hwpl-world-peace-summit-highlights-global-commitment-to-peace/20245802)
+ 
 
 
 

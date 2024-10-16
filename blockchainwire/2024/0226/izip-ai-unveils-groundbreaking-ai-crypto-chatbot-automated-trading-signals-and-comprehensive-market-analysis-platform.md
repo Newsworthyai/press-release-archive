@@ -59,7 +59,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/izipai-unveils-groundbreaking-ai-crypto-chatbot-automated-trading-signals-and-comprehensive-market-analysis-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/izip-ai-launches-revolutionary-suite-of-services-for-cryptocurrency-investors-and-traders/ad42144e74d876fa60ad22763bfe3a44) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/26/izip-ai-unveils-ai-powered-crypto-trading-suite)
+ 
 
 
 

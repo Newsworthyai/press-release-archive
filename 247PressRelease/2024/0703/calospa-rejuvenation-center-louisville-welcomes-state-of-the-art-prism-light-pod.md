@@ -7,7 +7,9 @@ LOUISVILLE, KY, July 03, 2024 /24-7PressRelease/ -- CaloSpa Rejuvenation Center,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512250/calospa-rejuvenation-center-louisville-welcomes-state-of-the-art-prism-light-pod)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/calospa-rejuvenation-center-adds-revolutionary-prism-light-pod-to-service-offerings/9faa3c35e0393f1e1e97e58188e71a9b) 
+
+ 
 
 
 

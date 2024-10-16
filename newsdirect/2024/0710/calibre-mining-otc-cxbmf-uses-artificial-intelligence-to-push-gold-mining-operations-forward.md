@@ -71,7 +71,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/calibre-minin
 [Original/Source Press Release](https://newsdirect.com/news/calibre-mining-otc-cxbmf-uses-artificial-intelligence-to-push-gold-mining-operations-forward-563852895)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/calibre-mining-corp-utilizes-ai-to-transform-gold-mining-operations/ce467cb8b2d71b37f42c0169f104656e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/calibre-mining-integrates-ai-to-revolutionize-gold-mining-operations/20244832)
+
+Pickup - [advos.io](https://advos.io/en/calibre-mining-leverages-ai-to-revolutionize-gold-mining-operations/20244832)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/calibre-mining-harnesses-ai-to-revolutionize-gold-exploration-and-production)
+ 
 
 
 

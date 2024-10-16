@@ -41,7 +41,11 @@ Email: [info@genixor.com](mailto:info@genixor.com)
 [Original/Source Press Release](https://blockchainwire.io/press-release/genixor-launches-second-phase-embracing-the-future-of-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/genixor-commences-second-phase-with-token-price-of-0-4/438e5eee1a58b1087148b30faad68154) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/25/genixor-embraces-the-future-with-second-phase-launch)
+ 
 
 
 

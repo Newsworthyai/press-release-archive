@@ -37,7 +37,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/kwdk-introduces-groundbreaking-innovations-in-web-development-and-digital-marketing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kwdk-unveils-new-web-development-and-digital-marketing-services/a0179f394b76481a3fbd2e8e50885ad7) 
+
+
+Pickup - [advos.io](https://advos.io/en/kwdk-unveils-cutting-edge-web-development-and-digital-marketing-solutions/20244178)
+ 
 
 
 

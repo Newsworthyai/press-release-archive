@@ -7,7 +7,17 @@ OKLAHOMA CITY, OK, September 10, 2024 /24-7PressRelease/ -- Huntington Fine Jewe
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514148/enjoy-le-vian-at-huntington-fine-jewelers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/explore-exclusive-jewelry-at-huntington-fine-jewelers-le-vian-trunk-show-event/6b3de648403df9397ca07cb6935ef63c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/huntington-fine-jewelers-hosts-exclusive-le-vian-trunk-show-across-oklahoma)
+
+Pickup - [fishervista.com](https://fishervista.com/en/huntington-fine-jewelers-hosts-exclusive-le-vian-trunk-show-across-oklahoma-locations/20246645)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/huntington-fine-jewelers-hosts-exclusive-le-vian-trunk-show-across-oklahoma/20246645)
+
+Pickup - [advos.io](https://advos.io/en/huntington-fine-jewelers-hosts-exclusive-le-vian-trunk-show-across-oklahoma/20246645)
+ 
 
 
 

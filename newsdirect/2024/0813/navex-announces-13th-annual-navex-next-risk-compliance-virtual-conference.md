@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/navex-announc
 [Original/Source Press Release](https://newsdirect.com/news/navex-announces-13th-annual-navex-next-risk-and-compliance-virtual-conference-714223460)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/navex-announces-13th-annual-navex-next-risk-and-compliance-virtual-conference-featuring-keynote-by-cy-wakeman/2b659379dfba0cefc2f141b49b651b9c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/navex-to-host-13th-annual-risk-compliance-virtual-conference-with-high-profile-keynote-speakers)
+
+Pickup - [fishervista.com](https://fishervista.com/en/navex-to-host-13th-annual-risk-compliance-virtual-conference-featuring-renowned-experts/20245694)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/navex-to-host-13th-annual-risk-compliance-virtual-conference-with-high-profile-speakers/20245694)
+
+Pickup - [advos.io](https://advos.io/en/navex-announces-13th-annual-navex-next-risk-compliance-virtual-conference/20245694)
+ 
 
 
 

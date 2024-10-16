@@ -19,7 +19,11 @@ We believe that everyone should have access to quality mental health services an
 [Original/Source Press Release](https://newsworthy.ai/news/20231230964/conventions-psychiatry-counseling-introduces-revolutionary-treatment-option-for-depression-tms-therapy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/breakthrough-tms-therapy-shows-promise-in-treating-depression/7be3a161a9a9dc4238ecb937e6a84988) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/30/conventions-psychiatry-counseling-pioneers-tms-therapy-for-depression-relief)
+ 
 
 
 

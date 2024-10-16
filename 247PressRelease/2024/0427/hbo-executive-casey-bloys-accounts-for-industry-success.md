@@ -7,7 +7,9 @@ LOS ANGELES, CA, April 27, 2024 /24-7PressRelease/ -- HBO Max, the widely acclai
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510244/hbo-executive-casey-bloys-accounts-for-industry-success)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hbo-max-ceo-casey-bloys-leads-the-charge-in-streaming-success/978f900d997fee0af60d8af85015ed2d) 
+
+ 
 
 
 

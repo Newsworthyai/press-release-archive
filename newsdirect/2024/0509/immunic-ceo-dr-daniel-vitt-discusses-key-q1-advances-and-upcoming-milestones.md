@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/immunic-ceo-d
 [Original/Source Press Release](https://newsdirect.com/news/immunic-ceo-dr-daniel-vitt-discusses-key-q1-advances-and-upcoming-milestones-254073444)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/immunic-inc-ceo-dr-daniel-vitt-discusses-q1-achievements-and-milestones/d2f6d8344810d46a53933889c005fe11) 
+
+ 
 
 
 

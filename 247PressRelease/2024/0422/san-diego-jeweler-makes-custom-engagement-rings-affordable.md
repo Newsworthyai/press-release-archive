@@ -7,7 +7,9 @@ SAN DIEGO, CA, April 22, 2024 /24-7PressRelease/ -- In the past, a custom-made e
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510234/san-diego-jeweler-makes-custom-engagement-rings-affordable)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/affordable-custom-engagement-rings-by-san-diego-jewelry-designer/1fd405472e95f064fed93db7f8ae81f0) 
+
+ 
 
 
 

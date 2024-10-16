@@ -37,7 +37,17 @@ Twitter:           https://x.com/pm_token
 [Original/Source Press Release](https://blockchainwire.io/press-release/public-masterpiece-partners-with-golden-silk-pheach-unveiling-the-3-million-golden-khmer-flower-of-life)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/public-masterpiece-announces-partnership-with-golden-silk-pheach/a9dfaf20bd148db93181487c775a3ab6) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/public-masterpiece-and-golden-silk-pheach-unveil-3-million-golden-khmer-flower-of-life/20246864)
+
+Pickup - [advos.io](https://advos.io/en/public-masterpiece-and-golden-silk-pheach-partner-to-tokenize-10-million-in-cambodian-silk-masterpieces/20246864)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/public-masterpiece-and-golden-silk-pheach-unveil-3-million-golden-khmer-flower-of-life)
+
+Pickup - [fishervista.com](https://fishervista.com/en/public-masterpiece-and-golden-silk-pheach-unveil-3-million-golden-khmer-flower-of-life/20246864)
+ 
 
 
 

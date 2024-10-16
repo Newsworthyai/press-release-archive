@@ -7,7 +7,11 @@ Elon Musk, renowned for his influence in the crypto space, is quietly steering t
 [Original/Source Press Release](https://blockchainwire.io/press-release/elon-musks-low-key-gaming-alt-account-sparks-buzz-in-crypto-gamer-token-surges-amidst-under-the-radar-moves)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elon-musk-s-quiet-influence-gamer-token-poised-to-redefine-gaming-sector/167c950f6109d1f06ba15c66b4b76148) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/22/elon-musk-s-crypto-gaming-ambitions-fuel-gamer-token-surge)
+ 
 
 
 

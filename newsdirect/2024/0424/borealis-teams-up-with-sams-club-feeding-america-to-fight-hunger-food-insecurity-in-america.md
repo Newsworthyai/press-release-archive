@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/borealis-team
 [Original/Source Press Release](https://newsdirect.com/news/borealis-teams-up-with-sams-club-feeding-america-to-fight-hunger-food-insecurity-in-america-383310197)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/feeding-america-r-and-sams-club-r-join-forces-with-borealis-foods-inc-to-combat-food-insecurity-in-america/abc625f47fbde3742ce3e793fb6bce51) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/borealis-teams-up-with-sam-s-club-feeding-america-to-fight-hunger-food-insecurity-in-america)
+ 
 
 
 

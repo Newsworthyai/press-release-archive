@@ -41,7 +41,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/dr-fang-miao-
 [Original/Source Press Release](https://newsdirect.com/news/dr-fang-miao-wins-stevie-award-for-thought-leadership-of-the-year-at-2024-american-business-awards-590068593)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-fang-miao-wins-thought-leader-of-the-year-at-2024-american-business-awards/6cda551df8459fbfb9ec545c9ecec80d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-fang-miao-honored-with-stevie-award-for-thought-leadership-in-2024-american-business-awards/20244258)
+
+Pickup - [advos.io](https://advos.io/en/dr-fang-miao-wins-stevie-award-for-thought-leadership-of-the-year-at-2024-american-business-awards/20244258)
+ 
 
 
 

@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/power-nickel-
 [Original/Source Press Release](https://newsdirect.com/news/power-nickel-expands-near-surface-copper-platinum-and-palladium-5-km-away-from-main-nisk-deposit-990156613)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/power-nickel-inc-ceo-shares-positive-initial-assay-results-for-lion-discovery-site/f059eb84209d5b1fc878437622e24eed) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/power-nickel-expands-near-surface-copper-platinum-and-palladium-5-km-away-from-main-nisk-deposit)
+ 
 
 
 

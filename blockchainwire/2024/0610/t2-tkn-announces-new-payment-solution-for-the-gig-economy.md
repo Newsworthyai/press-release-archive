@@ -75,7 +75,15 @@ Twitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Teleg
 [Original/Source Press Release](https://blockchainwire.io/press-release/t2-tkn-announces-new-payment-solution-for-the-gig-economy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionizing-transactions-t2-tkn-s-new-payment-solution/e99b3a030b44d7d837a69c640ceba13a) 
+
+
+Pickup - [advos.io](https://advos.io/en/t2-tkn-introduces-innovative-payment-solution-for-the-gig-economy/20243999)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/revolutionizing-transactions-t2-tkn-s-new-payment-solution)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/revolutionizing-transactions-t2-tkn-s-new-payment-solution)
+ 
 
 
 

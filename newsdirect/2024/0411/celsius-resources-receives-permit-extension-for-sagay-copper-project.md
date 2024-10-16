@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/celsius-resou
 [Original/Source Press Release](https://newsdirect.com/news/celsius-resources-receives-permit-extension-for-sagay-copper-project-585330142)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/celsius-resources-ceo-discusses-permitting-for-sagay-copper-project-in-the-philippines/a7e1b8bff174bfd5c1386267fdb13ac1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/celsius-resources-achieves-permit-extension-for-sagay-copper-project-in-the-philippines)
+ 
 
 
 

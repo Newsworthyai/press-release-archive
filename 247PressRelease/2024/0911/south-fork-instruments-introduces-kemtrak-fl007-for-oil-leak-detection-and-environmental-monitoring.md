@@ -7,7 +7,17 @@ AUBURN, CA, September 11, 2024 /24-7PressRelease/ -- South Fork Instruments is p
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514191/south-fork-instruments-introduces-kemtrak-fl007-for-oil-leak-detection-and-environmental-monitoring)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/south-fork-instruments-launches-kemtrak-fl007-oil-in-water-analyzer/6e2ec0b6e8d4e0182b65ed814d42f0ff) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/kemtrak-fl007-a-game-changer-in-oil-leak-detection-and-environmental-monitoring)
+
+Pickup - [fishervista.com](https://fishervista.com/en/south-fork-instruments-launches-advanced-kemtrak-fl007-for-enhanced-environmental-monitoring/20246682)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/south-fork-instruments-unveils-advanced-oil-in-water-analyzer-for-environmental-protection/20246682)
+
+Pickup - [advos.io](https://advos.io/en/south-fork-instruments-introduces-kemtrak-fl007-for-oil-leak-detection-and-environmental-monitoring/20246682)
+ 
 
 
 

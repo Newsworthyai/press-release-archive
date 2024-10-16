@@ -7,7 +7,11 @@ SAN DIEGO, CA, March 19, 2024 /24-7PressRelease/ -- Carl Blackburn of C. Blackbu
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509337/la-jolla-jeweler-designer-creates-vintage-style-rings)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vintage-inspired-jewelry-trend-on-the-rise-in-san-diego/a0260265e224129b763e18e4f43d2852) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/la-jolla-jeweler-revives-vintage-ring-designs-with-modern-flair)
+ 
 
 
 

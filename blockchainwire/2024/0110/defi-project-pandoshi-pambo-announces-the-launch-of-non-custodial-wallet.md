@@ -41,7 +41,11 @@ Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/
 [Original/Source Press Release](https://blockchainwire.io/press-release/defi-project-pandoshi-pambo-announces-the-launch-of-non-custodial-wallet)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pandoshi-raises-1-7m-in-initial-funding-for-unique-defi-project/3b270b2768b983dd50367e78de631494) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/10/pandoshi-unveils-non-custodial-wallet-accelerating-defi-innovation)
+ 
 
 
 

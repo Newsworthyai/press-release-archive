@@ -41,7 +41,21 @@ Media:![](https://blockchainwire.s3.amazonaws.com/RealityNFTLimited/editor_image
 [Original/Source Press Release](https://blockchainwire.io/press-release/-reality-rush-the-first-city-builder-game-on-ton-and-telegram)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/reality-rush-the-first-city-builder-game-on-ton-and-telegram/8e83f37ac5c9d34cbb2d7ff630ce46ae) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/reality-rush-the-first-city-builder-game-on-ton-and-telegram)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/reality-rush-the-first-city-builder-game-on-ton-and-telegram)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/reality-rush-pioneering-city-builder-game-launches-on-ton-blockchain-and-telegram)
+
+Pickup - [fishervista.com](https://fishervista.com/en/reality-rush-pioneering-city-builder-game-integrates-ton-blockchain-and-telegram/20245287)
+
+Pickup - [advos.io](https://advos.io/en/reality-metaverse-launches-reality-rush-first-city-builder-game-on-ton-and-telegram/20245287)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/reality-rush-launches-as-first-city-builder-game-on-ton-blockchain-and-telegram)
+ 
 
 
 

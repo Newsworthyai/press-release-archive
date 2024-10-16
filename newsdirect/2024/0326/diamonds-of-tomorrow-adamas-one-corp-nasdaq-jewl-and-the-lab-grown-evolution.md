@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/diamonds-of-t
 [Original/Source Press Release](https://newsdirect.com/news/diamonds-of-tomorrow-adamas-one-corp-nasdaq-jewl-and-the-lab-grown-evolution-824177745)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/adamas-one-corp-nasdaq-jewl-leading-the-lab-grown-diamond-evolution/fdc4e8b5c97baac0748b5253b3ac1b2e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/adamas-one-corp-shines-bright-with-lab-grown-diamond-innovation)
+ 
 
 
 

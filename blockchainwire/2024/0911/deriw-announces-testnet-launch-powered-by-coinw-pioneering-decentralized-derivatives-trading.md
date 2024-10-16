@@ -23,7 +23,21 @@ To celebrate this significant launch, DeriW has introduced a Bug Bounty Program
 [Original/Source Press Release](https://blockchainwire.io/press-release/deriw-announces-testnet-launch-powered-by-coinw-pioneering-decentralized-derivatives-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/deriw-launches-decentralized-trading-platform-with-zero-gas-fees-and-100x-leverage/875a57707f36865770ca092cab2085f3) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/deriw-launches-decentralized-trading-platform-with-zero-gas-fees-and-100x-leverage)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/deriw-launches-decentralized-trading-platform-with-zero-gas-fees-and-100x-leverage)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/deriw-launches-innovative-decentralized-derivatives-trading-platform-with-zero-gas-fees)
+
+Pickup - [fishervista.com](https://fishervista.com/en/deriw-launches-testnet-for-decentralized-derivatives-trading-with-zero-gas-fees/20246730)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/deriw-launches-innovative-decentralized-derivatives-trading-platform/20246730)
+
+Pickup - [advos.io](https://advos.io/en/deriw-unveils-testnet-powered-by-coinw-revolutionizes-decentralized-derivatives-trading/20246730)
+ 
 
 
 

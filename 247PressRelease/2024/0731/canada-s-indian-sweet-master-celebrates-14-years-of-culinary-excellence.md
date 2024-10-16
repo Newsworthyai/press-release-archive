@@ -7,7 +7,17 @@ TORONTO, ON, July 31, 2024 /24-7PressRelease/ -- Indian Sweet Master, a popular 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512944/canadas-indian-sweet-master-celebrates-14-years-of-culinary-excellence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/indian-sweet-master-celebrates-14th-anniversary-with-exclusive-event/95f6b73a51622df0ad7629eaaddc909a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/indian-sweet-master-marks-14-years-of-culinary-excellence-in-toronto)
+
+Pickup - [fishervista.com](https://fishervista.com/en/indian-sweet-master-celebrates-14-years-of-culinary-excellence-in-toronto/20245387)
+
+Pickup - [advos.io](https://advos.io/en/indian-sweet-master-celebrates-14-years-of-culinary-excellence-in-greater-toronto-area/20245387)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/indian-sweet-master-marks-14-years-of-culinary-excellence-in-toronto)
+ 
 
 
 

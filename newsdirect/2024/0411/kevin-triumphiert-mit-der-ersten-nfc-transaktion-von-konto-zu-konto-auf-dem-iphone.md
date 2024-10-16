@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kevin-triumph
 [Original/Source Press Release](https://newsdirect.com/news/kevin-triumphiert-mit-der-ersten-nfc-transaktion-von-konto-zu-konto-auf-dem-iphone-866021485)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kevin-fuhrt-bahnbrechende-nfc-transaktion-von-konto-zu-konto-auf-dem-iphone-durch/041c0b727938c3f8c9ad42df70b78db6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/kevin-achieves-groundbreaking-nfc-transaction-from-account-to-account-on-iphone)
+ 
 
 
 

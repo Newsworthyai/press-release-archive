@@ -15,7 +15,9 @@ For those battling severe mental health issues and considering ketamine therapy,
 [Original/Source Press Release](https://newsworthy.ai/news/20240118995/leading-ketamine-based-psychiatric-clinic-in-murray-utah-offers-revolutionary-treatment-for-mental-health-conditions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lone-peak-psychiatry-introduces-innovative-ketamine-therapy-for-depression-and-ptsd/5bee2cccef539cfb59e2a9ea27a0f87f) 
+
+ 
 
 
 

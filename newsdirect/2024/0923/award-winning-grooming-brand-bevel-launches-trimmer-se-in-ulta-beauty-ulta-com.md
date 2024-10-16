@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/award-winning
 [Original/Source Press Release](https://newsdirect.com/news/award-winning-grooming-brand-bevel-launches-trimmer-se-in-ulta-beauty-and-ulta-com-235414985)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/award-winning-grooming-brand-bevel-launches-trimmer-se-in-ulta-beauty-and-ulta-com/e385c34d7f1843c0dcf5c8bdc5736410) 
+
+ 
 
 
 

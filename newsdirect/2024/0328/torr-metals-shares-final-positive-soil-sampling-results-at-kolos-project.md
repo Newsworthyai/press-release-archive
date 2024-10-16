@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/torr-metals-s
 [Original/Source Press Release](https://newsdirect.com/news/torr-metals-shares-final-positive-soil-sampling-results-at-kolos-project-577788425)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/torr-metals-unveils-promising-results-from-kolos-project-soil-sampling-program/9a4c7f1bbd9209e2dbbb5d12c6f3f9b3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/torr-metals-unveils-promising-soil-sampling-results-at-kolos-project)
+ 
 
 
 

@@ -7,7 +7,17 @@ FORT LAUDERDALE, FL, August 06, 2024 /24-7PressRelease/ -- BurgerFi®, owned by 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513156/scoop-up-sweetness-on-national-frozen-custard-day-at-burgerfi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/celebrate-national-custard-day-with-burgerfi-r-s-sweet-offer/be60bdd57a2ca8cc5b244ee36ef3a145) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/burgerfi-celebrates-national-frozen-custard-day-with-2-special-offer)
+
+Pickup - [fishervista.com](https://fishervista.com/en/celebrate-national-frozen-custard-day-with-burgerfi-s-special-offer/20245507)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/burgerfi-celebrates-national-frozen-custard-day-with-2-special-offer)
+
+Pickup - [advos.io](https://advos.io/en/burgerfi-celebrates-national-custard-day-with-2-vanilla-frozen-custard-offer/20245507)
+ 
 
 
 

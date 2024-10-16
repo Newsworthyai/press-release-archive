@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/powerhouse-en
 [Original/Source Press Release](https://newsdirect.com/news/powerhouse-energy-completes-key-milestone-for-feedstock-testing-unit-with-new-kiln-on-the-way-990807170)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/powerhouse-energy-completes-key-milestone-for-feedstock-testing-unit/6150a1ad115a0c115d067ade17b3cc59) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/powerhouse-energy-completes-key-milestone-for-feedstock-testing-unit-with-new-kiln-on-the-way)
+ 
 
 
 

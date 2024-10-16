@@ -7,7 +7,11 @@ TEL AVIV, ISRAEL, June 11, 2024 /24-7PressRelease/ -- ASPIS Cyber Technologies, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511573/aspis-cyber-technologies-announces-assac-shieldit-patented-mobile-device-endpoint-protection-for-gaming-apps)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aspis-cyber-technologies-introduces-shieldit-mobile-device-protection-for-gaming-apps/efef967418d524dda00c0e8079ac018e) 
+
+
+Pickup - [advos.io](https://advos.io/en/aspis-cyber-technologies-unveils-shieldit-for-gaming-app-security/20244008)
+ 
 
 
 

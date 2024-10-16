@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/mybundle-data
 [Original/Source Press Release](https://newsdirect.com/news/mybundle-data-shows-bundling-streaming-credits-with-broadband-reduces-streaming-service-churn-by-up-to-50-517957030)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mybundle-research-shows-bundling-streaming-credits-with-broadband-reduces-churn-by-up-to-50/7083a79dd2007cb9d210e5ae657b4210) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/bundling-streaming-credits-with-broadband-slashes-streaming-service-churn)
+ 
 
 
 

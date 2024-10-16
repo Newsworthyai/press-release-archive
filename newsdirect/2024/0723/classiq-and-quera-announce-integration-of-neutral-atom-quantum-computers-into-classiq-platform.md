@@ -43,7 +43,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/classiq-and-q
 [Original/Source Press Release](https://newsdirect.com/news/classiq-and-quera-announce-integration-of-neutral-atom-quantum-computers-into-classiq-platform-666386692)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/classiq-and-quera-collaborate-to-integrate-neutral-atom-quantum-computers/bbb337548342774c73c663452377cc71) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/classiq-and-quera-collaborate-to-advance-quantum-computing-accessibility)
+
+Pickup - [fishervista.com](https://fishervista.com/en/classiq-and-quera-partner-to-integrate-neutral-atom-quantum-computers-into-quantum-algorithm-design-platform/20245183)
+
+Pickup - [advos.io](https://advos.io/en/classiq-and-quera-partner-to-integrate-neutral-atom-quantum-computers-into-quantum-software-platform/20245183)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/classiq-and-quera-collaborate-to-advance-quantum-computing-capabilities)
+ 
 
 
 

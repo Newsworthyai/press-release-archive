@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/mstu-and-mstz
 [Original/Source Press Release](https://newsdirect.com/news/mstu-and-mstz-the-only-2x-etfs-on-microstrategy-and-one-of-the-most-volatile-ways-to-play-bitcoin-440154561)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rexs-etf-appeals-to-bulls-and-bears/9e3f25080c67689f87b416935d661b4d) 
+
+ 
 
 
 

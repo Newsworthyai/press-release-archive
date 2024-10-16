@@ -7,7 +7,9 @@ RALEIGH, NC, September 26, 2024 /24-7PressRelease/ -- We are pleased to announce
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514688/cahec-new-markets-awarded-50-million-in-2023-allocation-round)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cahec-new-markets-awarded-50-million-in-new-markets-tax-credit-allocation/33df83ac15c8a0e23f8b130075437ca2) 
+
+ 
 
 
 

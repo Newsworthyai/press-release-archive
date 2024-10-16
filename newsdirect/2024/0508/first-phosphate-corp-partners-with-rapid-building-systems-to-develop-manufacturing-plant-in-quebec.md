@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/first-phospha
 [Original/Source Press Release](https://newsdirect.com/news/first-phosphate-corp-partners-with-rapid-building-systems-to-develop-manufacturing-plant-in-quebec-390784345)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/first-phosphate-corp-partners-with-rapid-building-systems-to-develop-manufacturing-plant-in-quebec/8b99723358f521f6165d332ea3cb88ce) 
+
+ 
 
 
 

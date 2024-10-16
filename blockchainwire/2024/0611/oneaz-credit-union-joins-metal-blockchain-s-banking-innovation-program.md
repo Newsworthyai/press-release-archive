@@ -41,7 +41,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/oneaz-credit-union-joins-metal-blockchains-banking-innovation-program)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/oneaz-credit-union-joins-metal-blockchain-s-banking-innovation-program/a37482d103fdb6ee4c6f9006ad712777) 
+
+
+Pickup - [advos.io](https://advos.io/en/oneaz-credit-union-partners-with-metal-blockchain-for-banking-innovation/20244046)
+ 
 
 
 

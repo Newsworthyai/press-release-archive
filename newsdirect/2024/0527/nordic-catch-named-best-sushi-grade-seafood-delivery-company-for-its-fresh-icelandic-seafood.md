@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nordic-catch-
 [Original/Source Press Release](https://newsdirect.com/news/nordic-catch-named-best-sushi-grade-seafood-delivery-company-for-its-fresh-icelandic-seafood-158010793)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nordic-catch-named-best-sushi-grade-seafood-delivery-company-by-food-network/faa3f4046be2a3b8ad64ef8b8e3896c8) 
+
+ 
 
 
 

@@ -41,7 +41,9 @@
 [Original/Source Press Release](http://www.newmediawire.com/news/hundreds-learn-cpr-skills-at-ford-field-7076084)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/detroit-lions-and-american-heart-association-host-lifesaving-cpr-training-event-at-ford-field/af773a695f8931421d8d1a38fd05b689) 
+
+ 
 
 
 

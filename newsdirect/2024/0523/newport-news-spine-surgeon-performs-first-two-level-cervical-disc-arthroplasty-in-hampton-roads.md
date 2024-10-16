@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/newport-news-
 [Original/Source Press Release](https://newsdirect.com/news/newport-news-spine-surgeon-performs-first-two-level-cervical-disc-arthroplasty-in-hampton-roads-939927078)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/groundbreaking-two-level-cervical-disc-arthroplasty-performed-by-dr-jeffrey-r-carlson/c1ad7dbab1b97fce5b15eeaf057dfd33) 
+
+ 
 
 
 

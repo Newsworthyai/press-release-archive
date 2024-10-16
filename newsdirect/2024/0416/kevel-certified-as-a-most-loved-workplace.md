@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kevel-certifi
 [Original/Source Press Release](https://newsdirect.com/news/kevel-certified-as-a-most-loved-workplace-537183195)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kevel-certified-as-most-loved-workplace-r-by-best-practice-institute/a03cdfe5a95778ad6d8754ae2ad7df85) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/kevel-certified-as-a-most-loved-workplace)
+ 
 
 
 

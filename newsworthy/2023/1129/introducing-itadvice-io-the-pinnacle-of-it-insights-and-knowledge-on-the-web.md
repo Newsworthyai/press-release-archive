@@ -23,7 +23,11 @@ For cutting-edge IT insights, visit www.ITAdvice.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231129833/introducing-itadvice-io-the-pinnacle-of-it-insights-and-knowledge-on-the-web)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-itadvice-io-a-new-online-haven-for-expert-it-insights/331ecd1abfc895e14633417ff000c391) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/29/itadvice-io-emerges-as-premier-online-destination-for-it-insights)
+ 
 
 
 

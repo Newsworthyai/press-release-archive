@@ -36,7 +36,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-unveils-the-2024-global-real-estate-lodging-and-leisure-industry-report-274469352)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-unveils-2024-global-real-estate-lodging-leisure-industry-report/c4bf3d5dfcd22a896c1409a35f6e7612) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/benchmark-international-releases-comprehensive-2024-global-real-estate-lodging-leisure-industry-report)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-releases-2024-global-real-estate-lodging-leisure-industry-report/20245693)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/benchmark-international-releases-comprehensive-2024-global-real-estate-lodging-leisure-industry-report/20245693)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-releases-2024-report-on-global-real-estate-lodging-and-leisure-industries/20245693)
+ 
 
 
 

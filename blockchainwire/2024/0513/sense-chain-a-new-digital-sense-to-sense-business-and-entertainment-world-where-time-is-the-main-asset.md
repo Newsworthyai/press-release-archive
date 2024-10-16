@@ -17,7 +17,13 @@ The Reserve Fund performs the functions of issuing digital currency Sense Coin (
 [Original/Source Press Release](https://blockchainwire.io/press-release/sense-chain--a-new-digital-sense-to-sense-business-and-entertainment-world-where-time-is-the-main-asset)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arllecta-group-launches-sense-chain-a-global-digital-business-network/c9e28a2cab4df55d19befda99d522483) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/arllecta-group-launches-sense-chain-a-global-digital-business-network)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/arllecta-group-launches-sense-chain-a-global-digital-business-network)
+ 
 
 
 

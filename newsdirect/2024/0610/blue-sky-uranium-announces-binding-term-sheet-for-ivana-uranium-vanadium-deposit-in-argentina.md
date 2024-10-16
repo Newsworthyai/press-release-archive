@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/blue-sky-uran
 [Original/Source Press Release](https://newsdirect.com/news/blue-sky-uranium-announces-binding-term-sheet-for-ivana-uranium-vanadium-deposit-in-argentina-957286936)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blue-sky-uranium-enters-partnership-to-advance-ivana-uranium-vanadium-deposit/022cdd0dfc98615c8e0ed721a70517e3) 
+
+
+Pickup - [advos.io](https://advos.io/en/blue-sky-uranium-partners-with-corredor-americano-to-advance-ivana-uranium-vanadium-deposit/20243990)
+ 
 
 
 

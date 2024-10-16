@@ -93,7 +93,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/harnessing-po
 [Original/Source Press Release](https://newsdirect.com/news/harnessing-power-the-influence-of-energy-sector-etf-xle-in-todays-market-670711788)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/energy-sector-etf-xle-a-valuable-tool-for-investors/1e1e7e47e48695785fddc8e4c20184de) 
+
+ 
 
 
 

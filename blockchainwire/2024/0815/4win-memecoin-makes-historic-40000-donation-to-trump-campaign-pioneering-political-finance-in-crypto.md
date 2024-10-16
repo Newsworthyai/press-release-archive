@@ -23,7 +23,21 @@ About $4WIN Memecoin$4WIN Memecoin is at the forefront of the emerging PolitiFi 
 [Original/Source Press Release](https://blockchainwire.io/press-release/4win-memecoin-makes-historic-40000-donation-to-trump-campaign-pioneering-political-finance-in-crypto)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-meets-politics-4win-memecoin-s-40000-donation-marks-a-new-era-for-campaign-finance/db17b95354e77b81ce5896b98bb668b8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/4win-memecoin-s-40000-donation-to-trump-campaign-heralds-new-era-in-political-finance/20245768)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cryptocurrency-enters-political-arena-4win-memecoin-donates-40000-to-trump-campaign/20245768)
+
+Pickup - [advos.io](https://advos.io/en/4win-memecoin-donates-40000-to-trump-campaign-pioneers-crypto-in-political-finance/20245768)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/crypto-meets-politics-4win-memecoin-s-40000-donation-marks-a-new-era-for-campaign-finance)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/crypto-meets-politics-4win-memecoin-s-40000-donation-marks-a-new-era-for-campaign-finance)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/4win-memecoin-donates-40000-to-trump-campaign-merging-crypto-with-political-finance)
+ 
 
 
 

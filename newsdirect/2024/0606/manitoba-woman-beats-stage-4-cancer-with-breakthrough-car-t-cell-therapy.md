@@ -77,7 +77,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/manitoba-woma
 [Original/Source Press Release](https://newsdirect.com/news/manitoba-woman-beats-stage-4-cancer-with-breakthrough-car-t-cell-therapy-472550199)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/breakthrough-car-t-cell-therapy-successfully-treats-stage-4-cancer-patient-in-manitoba/1f714646fb7005be6bd7831b2b8428b8) 
+
+
+Pickup - [advos.io](https://advos.io/en/manitoba-woman-triumphs-over-stage-4-cancer-with-car-t-cell-therapy/20243885)
+ 
 
 
 

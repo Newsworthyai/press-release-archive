@@ -13,7 +13,9 @@ The positive impact of Ketamine Therapy is resoundingly clear, with a significan
 [Original/Source Press Release](https://newsworthy.ai/news/20240117988/breakthrough-mental-health-treatment-ketamine-therapy-offers-hope-for-a-better-life)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/groundbreaking-ketamine-therapy-now-available-in-southwest-florida/b4ade7a3553db751a51871b4ec237420) 
+
+ 
 
 
 

@@ -7,7 +7,11 @@ PHILADELPHIA, PA, March 14, 2024 /24-7PressRelease/ --   Empowering Entrepreneur
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509224/empowering-entrepreneurs-voorhees-small-business-showcase-and-expo-by-staying-the-course-incorporated-and-black-ink-creative-partners-llc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/empowering-entrepreneurs-event-set-to-transform-new-jersey-business-landscape/f14d1537bdd671db4cec7ed455b92439) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/empowering-entrepreneurs-voorhees-small-business-showcase-and-expo)
+ 
 
 
 

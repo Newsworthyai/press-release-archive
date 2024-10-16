@@ -7,7 +7,17 @@ HAMILTON, ON, August 24, 2024 /24-7PressRelease/ -- On July 16, 2024, Burlington
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513748/local-cleaners-lend-a-hand-in-burlington-ont-flood-cleanup)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/family-owned-cleaning-service-comes-to-the-rescue-after-burlington-flooding/cf527d04f1a63d1fe220a07b125782d1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/24/hamilton-based-cleaning-company-aids-burlington-flood-victims)
+
+Pickup - [fishervista.com](https://fishervista.com/en/local-cleaners-assist-in-burlington-flood-cleanup/20245957)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hamilton-based-cleaning-service-aids-burlington-flood-victims/20245957)
+
+Pickup - [advos.io](https://advos.io/en/local-cleaners-swiftly-aid-flooded-burlington-homes/20245957)
+ 
 
 
 

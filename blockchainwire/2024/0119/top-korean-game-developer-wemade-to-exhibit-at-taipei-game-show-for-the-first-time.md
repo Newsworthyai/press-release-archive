@@ -23,7 +23,11 @@ Part of the first generation of Korean PC online game developers and Korean mobi
 [Original/Source Press Release](https://blockchainwire.io/press-release/top-korean-game-developer-wemade-to-exhibit-at-taipei-game-show-for-the-first-time)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemade-showcases-night-crows-global-and-fantastic4-baseball-at-taipei-game-show-2024/5579769ff40920a68dac9e91916d58cf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/19/wemade-showcases-web3-games-at-taipei-game-show)
+ 
 
 
 

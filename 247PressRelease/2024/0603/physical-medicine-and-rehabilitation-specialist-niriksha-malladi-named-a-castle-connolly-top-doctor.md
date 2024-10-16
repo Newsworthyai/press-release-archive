@@ -7,7 +7,11 @@ RENTON, WA, June 03, 2024 /24-7PressRelease/ -- Niriksha Malladi, MD, has been r
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511305/physical-medicine-and-rehabilitation-specialist-niriksha-malladi-named-a-castle-connolly-top-doctor)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-niriksha-malladi-recognized-as-2024-castle-connolly-top-doctor/77aba7af7ab98c1bd3d244691fe83426) 
+
+
+Pickup - [advos.io](https://advos.io/en/dr-niriksha-malladi-named-castle-connolly-top-doctor-for-2024/20243621)
+ 
 
 
 

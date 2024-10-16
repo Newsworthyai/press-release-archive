@@ -7,7 +7,13 @@ SAINT JOHN, NB, June 25, 2024 /24-7PressRelease/ -- Understanding and catering t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511946/new-course-empowers-businesses-to-create-welcoming-spaces-for-all)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sensory-friendly-solutions-launches-sensory-friendly-101-course-to-create-inclusive-environments/5057aced1284842806bb298077c816c3) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-course-empowers-businesses-to-create-welcoming-spaces-for-all/20244442)
+
+Pickup - [advos.io](https://advos.io/en/new-sensory-friendly-course-launched-to-foster-inclusive-environments/20244442)
+ 
 
 
 

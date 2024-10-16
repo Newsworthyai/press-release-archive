@@ -7,7 +7,11 @@ CORVALLIS, OR, March 27, 2024 /24-7PressRelease/ --   Rise with Purpose In the e
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509555/the-transformative-power-of-morning-rituals-in-early-sobriety)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/transformative-power-of-morning-rituals-in-sobriety/33db43d5fd5d0ad13990f458688969ad) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/crafting-empowering-morning-rituals-in-early-sobriety)
+ 
 
 
 

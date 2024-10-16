@@ -41,7 +41,9 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-surges-833-to-65000-ethereum-holds-strong-at-3177-up-6-furrever-token-presale-hits-1m-amidst-a-15x-return-potential)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-and-ethereum-surge-furrever-token-hits-presale-milestone/c957884a3c83892496fe5ce1eb97bfc6) 
+
+ 
 
 
 

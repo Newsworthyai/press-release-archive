@@ -21,7 +21,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/mvp-token-surges-over-113-amid-politifi-memes-hype-outperforming-wif-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mvp-maga-vp-emerges-as-profitable-asset-in-politifi-meme-tokens-category/5488caf329488a1021d909be352f5e97) 
+
+ 
 
 
 

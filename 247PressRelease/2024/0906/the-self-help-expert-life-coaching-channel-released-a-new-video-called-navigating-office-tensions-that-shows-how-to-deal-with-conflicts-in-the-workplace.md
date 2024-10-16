@@ -7,7 +7,17 @@ COLUMBUS, OH, September 06, 2024 /24-7PressRelease/ -- Having disagreements at w
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514085/the-self-help-expert-life-coaching-channel-released-a-new-video-called-navigating-office-tensions-that-shows-how-to-deal-with-conflicts-in-the-workplace)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/learn-conflict-resolution-hacks-with-miss-walker-s-life-coaching-video/c39df143224ca0ae5e42900581d7ce06) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/new-video-offers-strategies-for-resolving-workplace-conflicts)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-video-offers-practical-tips-for-resolving-workplace-conflicts/20246588)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-video-offers-strategies-for-resolving-workplace-conflicts/20246588)
+
+Pickup - [advos.io](https://advos.io/en/new-video-on-conflict-resolution-released-by-the-self-help-expert-life-coaching-channel/20246588)
+ 
 
 
 

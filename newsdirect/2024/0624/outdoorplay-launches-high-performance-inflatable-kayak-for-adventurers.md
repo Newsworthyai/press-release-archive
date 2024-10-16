@@ -33,7 +33,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/outdoorplay-l
 [Original/Source Press Release](https://newsdirect.com/news/outdoorplay-launches-high-performance-inflatable-kayak-for-adventurers-669936940)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/outdoorplay-launches-high-performance-inflatable-kayak-for-adventurers/bdcdc3537c9f1a89a66af0ef2f1cb9ee) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/outdoorplay-introduces-high-performance-inflatable-kayak-for-all-skill-levels/20244420)
+
+Pickup - [advos.io](https://advos.io/en/outdoorplay-unveils-advanced-inflatable-kayak-for-adventurers/20244420)
+ 
 
 
 

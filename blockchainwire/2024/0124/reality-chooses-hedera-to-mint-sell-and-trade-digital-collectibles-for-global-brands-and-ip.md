@@ -49,7 +49,11 @@ ENDS
 [Original/Source Press Release](https://blockchainwire.io/press-release/reality-chooses-hedera-to-mint-sell-and-trade-digital-collectibles-for-global-brands-and-ip)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/reality-and-hbar-foundation-partner-to-deliver-digital-collectibles-on-hedera-network/25d11b730bd2fcfdd5a580c161fcaa0c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/24/reality-chooses-hedera-for-next-gen-web3-experiences)
+ 
 
 
 

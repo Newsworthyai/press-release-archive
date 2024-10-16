@@ -69,7 +69,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/candel-therap
 [Original/Source Press Release](https://newsdirect.com/news/candel-therapeutics-nasdaq-cadl-lead-candidate-can-2409-combats-lung-pancreatic-and-prostate-cancers-with-fast-track-designation-for-three-cancers-458506267)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/candel-therapeutics-lead-candidate-can-2409-battles-lung-pancreatic-and-prostate-cancers/ef260d5c35632581b7420ceb32e84fe9) 
+
+ 
 
 
 

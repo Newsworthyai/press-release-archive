@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nuggmd-to-aga
 [Original/Source Press Release](https://newsdirect.com/news/nuggmd-to-again-offer-cannabis-support-line-the-too-high-hotline-on-4-20-396393194)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nuggmd-offers-too-high-hotline-for-4-20-support/c134b70025b627a0d3871856dc42a750) 
+
+ 
 
 
 

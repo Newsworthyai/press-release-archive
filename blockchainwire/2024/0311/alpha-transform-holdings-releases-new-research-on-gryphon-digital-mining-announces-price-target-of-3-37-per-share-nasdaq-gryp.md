@@ -49,7 +49,11 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/alpha-transform-holdings-releases-new-research-on-gryphon-digital-mining--announces-price-target-of-337-per-share-nasdaq-gryp)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alpha-transform-holdings-releases-research-on-gryphon-digital-mining/01f05be811ee3f94ea8c8be98aa7b06a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/gryphon-digital-mining-poised-for-growth-with-sustainable-bitcoin-mining-strategy)
+ 
 
 
 

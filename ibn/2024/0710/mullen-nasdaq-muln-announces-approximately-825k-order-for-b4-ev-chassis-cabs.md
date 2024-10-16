@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, t
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-announces-approximately-825k-order-for-b4-ev-chassis-cabs/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-s-bollinger-motors-to-supply-all-electric-trucks-for-fire-rescue/bb2997e46ad5a8ff258d2baa00dbf24f) 
+
+ 
 
 
 

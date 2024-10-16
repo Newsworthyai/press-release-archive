@@ -7,7 +7,9 @@ CHINA, May 30, 2024 /24-7PressRelease/ -- Chessnut, a leading innovator in elect
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511247/chessnut-go-redefining-portable-chess-gaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chessnut-launches-portable-chess-gaming-solution-chessnut-go/af76f35efa4919f2b84b4d5e564f635e) 
+
+ 
 
 
 

@@ -23,7 +23,11 @@ Dive into the future of green energy at www.RenewableCentral.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231218871/renewablecentral-com-launches-renewable-energy-insights-and-expertise)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renewablecentral-com-a-new-hub-for-renewable-energy-knowledge/e17e7b92152d89d266dc89f3d45f5599) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/18/renewablecentral-com-a-groundbreaking-platform-for-renewable-energy-insights)
+ 
 
 
 

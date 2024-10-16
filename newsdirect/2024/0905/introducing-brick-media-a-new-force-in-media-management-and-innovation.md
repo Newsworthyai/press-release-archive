@@ -29,7 +29,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/introducing-b
 [Original/Source Press Release](https://newsdirect.com/news/introducing-brick-media-a-new-force-in-media-management-and-innovation-402676689)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brick-media-redefines-media-landscape-with-visionary-content-innovation/a92f7acd343a133509b4a8a81d7da770) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/brick-media-emerges-as-innovative-force-in-media-management)
+
+Pickup - [fishervista.com](https://fishervista.com/en/brick-media-emerges-as-a-transformative-force-in-media-management/20246561)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/brick-media-launches-to-transform-digital-media-landscape/20246561)
+
+Pickup - [advos.io](https://advos.io/en/brick-media-emerges-as-a-transformative-force-in-media-management/20246561)
+ 
 
 
 

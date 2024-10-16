@@ -48,7 +48,15 @@ With continuous learning and R&D key priorities, together with social responsibi
 [Original/Source Press Release](https://newsworthy.ai/news/202407011203/cork-supply-revives-cork-harvesting-events-at-cal-poly-and-uc-davis-launches-scholarship-program-to-portugal)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cork-supply-hosts-successful-cork-harvesting-events-at-prestigious-universities/8f3283e2e95bdc4dd52ec3b54ef53d2e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cork-supply-concludes-cork-harvesting-events-and-launches-scholarship-program/20244636)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/01/cork-supply-hosts-educational-harvesting-events-launches-scholarship-program-for-future-wine-industry-professionals)
+
+Pickup - [advos.io](https://advos.io/en/cork-supply-concludes-educational-cork-harvesting-events-at-cal-poly-and-uc-davis-launches-scholarship-program-to-portugal/20244636)
+ 
 
 
 

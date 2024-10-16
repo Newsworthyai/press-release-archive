@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/no-need-to-se
 [Original/Source Press Release](https://newsdirect.com/news/no-need-to-sell-bitcoin-get-a-crypto-backed-loan-instead-325721656)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/accessing-liquidity-through-crypto-loans-with-ledn/e4fd0f9464352cea1f5a7f883050e25f) 
+
+ 
 
 
 

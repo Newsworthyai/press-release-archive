@@ -49,7 +49,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bonk-vs-shiba-budz-bonk-investors-compare-100x-possibility-for-quick-profits)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bonk-bonk-vs-shiba-budz-budz-the-race-for-exponential-returns/7f78ce75c2ef42b7f7516e70c5929523) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/bonk-vs-shiba-budz-bonk-investors-compare-100x-possibility-for-quick-profits)
+ 
 
 
 

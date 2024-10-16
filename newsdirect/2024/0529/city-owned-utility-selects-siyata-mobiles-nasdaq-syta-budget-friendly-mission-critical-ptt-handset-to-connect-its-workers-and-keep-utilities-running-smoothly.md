@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/city-owned-ut
 [Original/Source Press Release](https://newsdirect.com/news/city-owned-utility-selects-siyata-mobiles-nasdaq-syta-budget-friendly-mission-critical-ptt-handset-to-connect-its-workers-and-keep-utilities-running-smoothly-490666411)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/siyata-mobile-inc-selected-for-budget-friendly-mission-critical-ptt-handset/1dcdadf97a1f4273d80e7af251fb7349) 
+
+ 
 
 
 

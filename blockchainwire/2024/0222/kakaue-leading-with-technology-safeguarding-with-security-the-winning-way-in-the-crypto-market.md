@@ -29,7 +29,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/kakaue-leading-with-technology-safeguarding-with-security-the-winning-way-in-the-crypto-market)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kakaue-exchange-forms-strategic-partnerships-for-data-service-upgrade/1ae7b8fea3608afd1ec26f300b7875cd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/22/kakaue-leads-with-innovative-technology-and-robust-security-in-the-crypto-market)
+ 
 
 
 

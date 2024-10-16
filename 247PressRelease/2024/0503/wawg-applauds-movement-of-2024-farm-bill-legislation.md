@@ -7,7 +7,9 @@ RITZVILLE, WA, May 03, 2024 /24-7PressRelease/ -- As both the House and Senate a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510637/wawg-applauds-movement-of-2024-farm-bill-legislation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/washington-wheat-growers-encouraged-by-progress-on-2024-farm-bill/08bfc152e69a5eb2b772dacc5b3c2efe) 
+
+ 
 
 
 

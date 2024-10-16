@@ -35,7 +35,19 @@ John Patton, a Stanford-educated serial tech entrepreneur based in Seattle, Wash
 [Original/Source Press Release](https://newsworthy.ai/news/202407301220/talentculture-coms-worktrends-podcast-highlights-ai-s-role-in-hiring-with-talentvuu-s-john-patton)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-revolutionizing-screening-interviewing-a-deep-dive-with-talentvuu-s-john-patton/a5db43ef36234d3b75d8efe1dc660b49) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/ai-revolutionizes-hiring-talentvuu-s-john-patton-discusses-innovative-screening-tools-on-worktrends-podcast)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/ai-revolutionizes-hiring-talentvuu-s-john-patton-discusses-immediate-impact-on-worktrends-podcast/20245345)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ai-s-immediate-impact-on-hiring-insights-from-talentvuu-s-john-patton-on-talentculture-s-worktrends-podcast/20245345)
+
+Pickup - [advos.io](https://advos.io/en/talentculture-s-worktrends-podcast-explores-ai-s-immediate-impact-on-hiring-processes-with-talentvuu-s-john-patton/20245345)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ai-revolutionizes-hiring-talentvuu-s-john-patton-discusses-next-gen-screening-on-worktrends-podcast)
+ 
 
 
 

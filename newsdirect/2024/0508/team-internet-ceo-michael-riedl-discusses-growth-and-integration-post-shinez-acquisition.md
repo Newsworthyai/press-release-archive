@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/team-internet
 [Original/Source Press Release](https://newsdirect.com/news/team-internet-ceo-michael-riedl-discusses-growth-and-integration-post-shinez-acquisition-300497729)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/team-internet-ceo-michael-riedl-discusses-growth-and-integration-post-shinez-acquisition/19be06cf46be20f13c9da97e87137194) 
+
+ 
 
 
 

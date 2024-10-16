@@ -7,7 +7,17 @@ SACRAMENTO, CA, August 05, 2024 /24-7PressRelease/ -- The summer of 2024 has bee
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513119/sizzling-summers-can-cause-serious-burns-to-unprotected-feet)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/california-podiatric-medical-association-warns-of-dangers-of-hot-pavement-to-feet-in-record-breaking-heat/37dc00279a35cb76b366e063de617bff) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/scorching-summer-temperatures-pose-burn-risks-to-unprotected-feet)
+
+Pickup - [fishervista.com](https://fishervista.com/en/heatwave-in-sacramento-valley-causes-surge-in-foot-burns/20245480)
+
+Pickup - [advos.io](https://advos.io/en/heatwave-in-sacramento-valley-poses-serious-burn-risks-to-feet/20245480)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/scorching-summer-heat-poses-serious-burn-risk-to-unprotected-feet)
+ 
 
 
 

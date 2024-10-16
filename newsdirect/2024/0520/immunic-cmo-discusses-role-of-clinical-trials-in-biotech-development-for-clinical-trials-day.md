@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/immunic-cmo-d
 [Original/Source Press Release](https://newsdirect.com/news/immunic-cmo-discusses-role-of-clinical-trials-in-biotech-development-for-clinical-trials-day-627960534)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/immunic-inc-cmo-discusses-role-of-clinical-trials-in-biotech-development-for-clinical-trials-day/2fdfe216341d8fd0f2527ead76087d78) 
+
+ 
 
 
 

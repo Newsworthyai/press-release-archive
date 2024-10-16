@@ -41,7 +41,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/shiba-inu-millionaire-splits-portfolio-with-new-ai-driven-cryptocurrency-priced-00115)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiba-inu-millionaire-diversifies-into-option2trade-o2t-a-i-and-cryptocurrency-convergence/450437a090f556d2a4bab5570e6df7bc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/shiba-inu-millionaire-embraces-a-i-driven-cryptocurrency-option2trade)
+ 
 
 
 

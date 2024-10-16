@@ -7,7 +7,11 @@ SAN FRANCISCO, CA, April 08, 2024 /24-7PressRelease/ -- Ocurate's solution lever
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509870/curology-shows-success-in-optimizing-customer-acquisition-with-ocurates-next-generation-machine-learning)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ocurate-revolutionizes-ad-campaigns-with-15-increase-in-roas/a7cc21ce71890bf2d3ee088598dea344) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/ocurate-s-machine-learning-boosts-ad-spend-returns-for-curology)
+ 
 
 
 

@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bridgeft-reco
 [Original/Source Press Release](https://newsdirect.com/news/bridgeft-recognized-for-financial-data-innovation-in-5th-annual-data-breakthrough-awards-program-784587811)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bridgeft-recognized-as-data-warehouse-solution-provider-of-the-year/ed22593da02300ab21c6eb92175fe43f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/bridgeft-wins-data-warehouse-solution-provider-of-the-year-award)
+ 
 
 
 

@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-named-international-investment-banking-firm-of-the-year-935986909)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-named-investment-banking-firm-of-the-year-at-international-m-a-awards/ba9966ef6e99fe7eab5a0fe9013b2c94) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/benchmark-international-recognized-as-top-global-investment-banking-firm)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-honored-as-investment-banking-firm-of-the-year/20245613)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/benchmark-international-wins-international-investment-banking-firm-of-the-year-award/20245613)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-named-international-investment-banking-firm-of-the-year/20245613)
+ 
 
 
 

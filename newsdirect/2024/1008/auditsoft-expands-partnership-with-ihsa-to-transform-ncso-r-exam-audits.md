@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/auditsoft-exp
 [Original/Source Press Release](https://newsdirect.com/news/auditsoft-expands-partnership-with-ihsa-to-transform-ncso-r-exam-audits-527113075)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/auditsoft-expands-partnership-with-ihsa-to-transform-ncso-r-exam-audits/bdd62202e8a250e663508bcc2b5f821d) 
+
+ 
 
 
 

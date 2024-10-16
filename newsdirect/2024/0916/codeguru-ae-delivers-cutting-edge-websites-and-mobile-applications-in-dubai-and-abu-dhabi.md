@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/codeguru-ae-d
 [Original/Source Press Release](https://newsdirect.com/news/codeguru-ae-delivers-cutting-edge-websites-and-mobile-applications-in-dubai-and-abu-dhabi-909980811)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/codeguru-ae-expands-to-dubai-and-abu-dhabi-bringing-innovative-technology-solutions/9c7bebd72ca095fda90993230f56085e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/codeguru-ae-expands-to-dubai-and-abu-dhabi-offering-advanced-website-and-mobile-app-development-services)
+
+Pickup - [fishervista.com](https://fishervista.com/en/codeguru-ae-expands-to-dubai-and-abu-dhabi-bringing-advanced-web-and-mobile-development-services/20246853)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/codeguru-ae-expands-to-dubai-and-abu-dhabi-offering-advanced-website-and-mobile-app-development/20246853)
+
+Pickup - [advos.io](https://advos.io/en/codeguru-ae-expands-to-dubai-and-abu-dhabi-offering-advanced-web-and-mobile-development-services/20246853)
+ 
 
 
 

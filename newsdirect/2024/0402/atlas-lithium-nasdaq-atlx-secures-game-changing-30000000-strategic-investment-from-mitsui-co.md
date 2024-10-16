@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/atlas-lithium
 [Original/Source Press Release](https://newsdirect.com/news/atlas-lithium-nasdaq-atlx-secures-game-changing-30-000-000-strategic-investment-from-mitsui-and-co-365997172)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atlas-lithium-nasdaq-atlx-secures-game-changing-30000000-strategic-investment-from-mitsui-co/9230ba97f6f276ecaf761c1814e3ad5d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/atlas-lithium-secures-30-million-investment-from-mitsui-for-brazilian-lithium-project)
+ 
 
 
 

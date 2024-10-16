@@ -7,7 +7,15 @@ CHARLOTTE, NC, July 09, 2024 /24-7PressRelease/ -- The Layton Law Firm, a renown
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512317/leading-north-carolina-personal-injury-lawyer-secures-2-million-settlement-for-car-accident-victim)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/layton-law-firm-secures-2-million-settlement-for-client-injured-in-car-accident/201bb1924040ceddc33e66fa279c739f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/charlotte-personal-injury-lawyer-secures-2-million-settlement-for-car-accident-victim/20244793)
+
+Pickup - [advos.io](https://advos.io/en/north-carolina-law-firm-secures-2-million-settlement-for-car-accident-victim/20244793)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/north-carolina-law-firm-secures-2-million-settlement-for-car-accident-victim)
+ 
 
 
 

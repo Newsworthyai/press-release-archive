@@ -53,7 +53,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/call-for-entr
 [Original/Source Press Release](https://newsdirect.com/news/call-for-entries-xypn-live-2024-advicetech-competition-763024861)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xypn-live-2024-seeks-innovative-technology-for-financial-advisors/a715f4f3afc159bc84814c7d22469bad) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/xypn-live-2024-launches-advicetech-competition-seeking-innovative-financial-advisor-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/xypn-live-2024-calls-for-innovative-entries-in-advicetech-competition/20244964)
+
+Pickup - [advos.io](https://advos.io/en/xypn-live-2024-opens-entries-for-annual-advicetech-competition/20244964)
+ 
 
 
 

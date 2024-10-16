@@ -41,7 +41,11 @@ Facebook - https://www.facebook.com/RevolMining
 [Original/Source Press Release](https://blockchainwire.io/press-release/revolution-mining-launches-15-mw-mining-facility-in-west-texas-on-ercot)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolution-mining-launches-state-of-the-art-15mw-mining-facility-in-west-texas/6de02058b24cc0e74dfb94856b9fcb12) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/revolution-mining-launches-cutting-edge-crypto-mining-facility-in-texas)
+ 
 
 
 

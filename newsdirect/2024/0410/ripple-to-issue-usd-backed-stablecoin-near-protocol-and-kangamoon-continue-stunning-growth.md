@@ -49,7 +49,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ripple-to-iss
 [Original/Source Press Release](https://newsdirect.com/news/ripple-to-issue-usd-backed-stablecoin-near-protocol-and-kangamoon-continue-stunning-growth-395181664)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ripple-near-protocol-and-kangamoon-crypto-market-giants-continue-to-surge/d4216c70a3ecda7989e4e1da1b34b40d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/ripple-enters-stablecoin-market-near-protocol-and-kangamoon-experience-rapid-growth)
+ 
 
 
 

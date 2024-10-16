@@ -23,7 +23,11 @@
 [Original/Source Press Release](https://www.newmediawire.com/news/martial-arts-history-museum-a-cultural-enrichment-for-local-schools-7075964)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-martial-arts-history-museum-opens-in-glendale-ca/dd42fcc69ddc8cd8df847cd79c7c9d8e) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/martial-arts-history-museum-offers-unique-educational-experience-for-local-schools/20246459)
+ 
 
 
 

@@ -49,7 +49,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/dawn-work-listing-on-rouidsanp-exchange-marks-a-new-era-in-decentralized-finance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dawn-work-s-dwo-token-listed-on-rouidsanp-exchange/01f68162979f7f13b0fab309a7d7f6bf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/dawn-work-s-dwo-token-listing-on-rouidsanp-exchange-signals-major-advancement-in-defi)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dawn-work-s-dwo-token-listed-on-rouidsanp-exchange-signaling-major-strides-in-decentralized-finance/20245665)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dawn-work-s-dwo-token-listed-on-rouidsanp-exchange-signaling-expansion-in-defi-space/20245665)
+
+Pickup - [advos.io](https://advos.io/en/dawn-work-lists-native-token-dwo-on-rouidsanp-exchange/20245665)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/dawn-work-s-dwo-token-listed-on-rouidsanp-exchange)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/dawn-work-s-dwo-token-listed-on-rouidsanp-exchange)
+ 
 
 
 

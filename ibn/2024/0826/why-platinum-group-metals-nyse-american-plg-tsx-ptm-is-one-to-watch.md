@@ -31,7 +31,17 @@ Platinum Group Metals Ltd. (NYSE American: PLG) (TSX: PTM) is the operator of th
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/why-platinum-group-metals-nyse-american-plg-tsx-ptm-is-one-to-watch/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/platinum-group-metals-ltd-advances-waterberg-project-to-development-decision/a85d74111a44eb8cada0d8f6a03fc5fe) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/platinum-group-metals-waterberg-project-set-to-transform-global-pgm-mining/20246088)
+
+Pickup - [advos.io](https://advos.io/en/platinum-group-metals-waterberg-project-poised-for-major-advancements/20246088)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/platinum-group-metals-advances-waterberg-project-aims-to-become-major-pgm-producer)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/platinum-group-metals-advances-waterberg-project-aims-to-become-major-pgm-producer/20246088)
+ 
 
 
 

@@ -7,7 +7,17 @@ SANTA ROSA BEACH, FL, August 05, 2024 /24-7PressRelease/ -- Valued at Over $7,00
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513106/30a-tv-announces-amazing-dream-beach-wedding-sweepstakes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/win-a-dream-beach-wedding-package-valued-at-over-7000/511dc78de0c127eda013970bfeb2251e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/30a-tv-launches-luxurious-dream-beach-wedding-sweepstakes-with-7000-prize-package)
+
+Pickup - [fishervista.com](https://fishervista.com/en/30a-tv-launches-dream-beach-wedding-sweepstakes-with-grand-prize-worth-over-7000/20245483)
+
+Pickup - [advos.io](https://advos.io/en/30a-tv-launches-7000-dream-beach-wedding-sweepstakes/20245483)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/30a-tv-launches-7000-dream-beach-wedding-sweepstakes)
+ 
 
 
 

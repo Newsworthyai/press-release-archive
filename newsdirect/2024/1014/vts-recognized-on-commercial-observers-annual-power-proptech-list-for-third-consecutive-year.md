@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/vts-recognize
 [Original/Source Press Release](https://newsdirect.com/news/vts-recognized-on-commercial-observers-annual-power-proptech-list-for-third-consecutive-year-424022452)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vts-recognized-on-commercial-observer-s-power-proptech-list/9147caa2fe65435e37c1ecb37581b25c) 
+
+ 
 
 
 

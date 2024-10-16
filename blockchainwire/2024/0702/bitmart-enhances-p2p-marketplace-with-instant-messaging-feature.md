@@ -27,7 +27,19 @@ BitMart Exchange is a premier global digital assets trading platform. With milli
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-enhances-p2p-marketplace-with-instant-messaging-feature-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmart-integrates-im-functionality-into-p2p-marketplace/92f2e7a1417b16820514f7ba11a0a61c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitmart-elevates-p2p-marketplace-with-new-instant-messaging-feature/20244630)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/bitmart-introduces-instant-messaging-to-p2p-marketplace-boosting-user-experience)
+
+Pickup - [advos.io](https://advos.io/en/bitmart-enhances-p2p-marketplace-with-instant-messaging-feature/20244630)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitmart-integrates-im-functionality-into-p2p-marketplace)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitmart-integrates-im-functionality-into-p2p-marketplace)
+ 
 
 
 

@@ -7,7 +7,11 @@ SEATTLE, WA, March 28, 2024 /24-7PressRelease/ -- Allied Power Solution Announce
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509604/attention-industry-leaders-sourcing-cat-c18-engines-made-easy-with-allied-power-solution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/allied-power-solution-announces-availability-of-caterpillar-c18-engines/540754c4b6cf0ea9d31facfe9a7dcb21) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/sourcing-caterpillar-c18-engines-made-simple-with-allied-power-solution)
+ 
 
 
 

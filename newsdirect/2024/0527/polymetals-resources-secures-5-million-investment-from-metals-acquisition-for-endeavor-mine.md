@@ -17,7 +17,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/polymetals-re
 [Original/Source Press Release](https://newsdirect.com/news/polymetals-resources-secures-5-million-investment-from-metals-acquisition-for-endeavor-mine-274058343)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/polymetals-resources-secures-5-million-investment-from-metals-acquisition-for-endeavor-mine/e309fd286cb533f7780ebc005149fcc3) 
+
+ 
 
 
 

@@ -23,7 +23,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockchain--ai--former-openai-member-ishant-singh-was-appointed-as-bityuan-blockchain-ceo)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-openai-member-ishant-singh-joins-bityuan-blockchain-as-ceo/767c368f301ab53a87890695fd70e65b) 
+
+ 
 
 
 

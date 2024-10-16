@@ -47,7 +47,21 @@ X (Twitter) | Telegram | Discord | Instagram
 [Original/Source Press Release](https://blockchainwire.io/press-release/fomo-frog-goes-live-as-a-new-meme-token-with-nft-and-gaming-integration)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fomo-frog-launches-innovative-web3-project-for-nft-and-gaming-industry/f34d5367ff2e4889afd3131d6965a6a1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/02/fomo-frog-launches-new-web3-project-integrating-meme-tokens-nfts-and-gaming)
+
+Pickup - [fishervista.com](https://fishervista.com/en/fomo-frog-unveils-new-meme-token-with-nft-and-gaming-integration/20246436)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/fomo-frog-launches-new-meme-token-with-innovative-nft-and-gaming-features/20246436)
+
+Pickup - [advos.io](https://advos.io/en/fomo-frog-launches-as-an-innovative-meme-token-with-nft-and-gaming-integration/20246436)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/fomo-frog-launches-innovative-web3-project-for-nft-and-gaming-industry)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/fomo-frog-launches-innovative-web3-project-for-nft-and-gaming-industry)
+ 
 
 
 

@@ -29,7 +29,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/nexus-ai---the-worlds-first-ai-trading-bot-is-now-officially-available)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-ai-trading-bot-nexus-ai-now-available-for-investors-worldwide/2171f080b304e2fed60c5350e798191c) 
+
+ 
 
 
 

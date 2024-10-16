@@ -7,7 +7,9 @@ TALLAHASSEE, FL, April 23, 2024 /24-7PressRelease/ -- Cruz Law Firm, P.A., a Tal
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510247/cruz-law-firm-pa-partners-with-pineview-elementary-through-classroom-connection)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cruz-law-firm-partners-with-pineview-elementary-school-for-classroom-connection-program/bc242cbf782a325a1c4acf98387eef8f) 
+
+ 
 
 
 

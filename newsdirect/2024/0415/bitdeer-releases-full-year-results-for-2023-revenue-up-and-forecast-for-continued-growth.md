@@ -50,7 +50,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitdeer-relea
 [Original/Source Press Release](https://newsdirect.com/news/bitdeer-releases-full-year-results-for-2023-revenue-up-and-forecast-for-continued-growth-887396442)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitdeer-reports-strong-financial-results-for-2023-showcasing-growth-and-potential-in-bitcoin-mining-industry/0df99e22b6d2ec91e6f3d3e407b08443) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/bitdeer-s-continued-growth-amid-industry-challenges)
+ 
 
 
 

@@ -63,7 +63,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-mile-milestonebased-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-mile-token-for-milestone-based-financing-in-defi-zone/4d714c3992eeb16d47e8878f61094052) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/revolutionizing-startup-funding-with-milestonebased-s-mile-token)
+ 
 
 
 

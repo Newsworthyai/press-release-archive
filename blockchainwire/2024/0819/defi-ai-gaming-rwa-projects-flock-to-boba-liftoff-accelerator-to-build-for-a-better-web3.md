@@ -35,7 +35,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defi-ai-gaming-rwa-projects-flock-to-boba-liftoff-accelerator-to-build-for-a-better-web3)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boba-network-s-liftoff-accelerator-program-attracts-global-attention-in-web3-space/158190951c34cd86cfa6a5c372ec0da7) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/boba-network-s-liftoff-accelerator-program-attracts-global-attention-in-web3-space)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/boba-network-s-liftoff-accelerator-program-attracts-global-attention-in-web3-space)
+
+Pickup - [advos.io](https://advos.io/en/boba-liftoff-accelerator-attracts-global-interest-in-web3-innovation/20245819)
+
+Pickup - [fishervista.com](https://fishervista.com/en/boba-liftoff-accelerator-attracts-global-projects-to-innovate-in-web3-space/20245819)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/boba-network-s-liftoff-accelerator-attracts-global-web3-innovators/20245819)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/19/boba-liftoff-accelerator-attracts-diverse-web3-projects-signaling-growth-in-blockchain-innovation)
+ 
 
 
 

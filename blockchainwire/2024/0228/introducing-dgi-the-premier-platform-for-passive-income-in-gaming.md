@@ -39,7 +39,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-dgi-the-premier-platform-for-passive-income-in-gaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dgi-introduces-revolutionary-gaming-income-token-for-passive-earnings/faf6b284a94a54de28790446321c656e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/28/dgi-unlocking-passive-income-in-gaming)
+ 
 
 
 

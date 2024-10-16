@@ -28,7 +28,11 @@ RChilli resume parser for ERP recruiting simplifies the recruitment process acro
 [Original/Source Press Release](https://newsworthy.ai/news/202405281177/vinay-johar-to-speak-at-ascend-2024-on-future-proofing-hiring-via-automation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-ceo-vinay-johar-to-speak-at-ascend-2024-on-automation-s-impact-on-recruitment/f6cbf039a2433e2c5755b379c8b7cc4e) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-ceo-vinay-johar-to-address-automation-s-impact-on-hiring-at-ascend-2024/20243479)
+ 
 
 
 

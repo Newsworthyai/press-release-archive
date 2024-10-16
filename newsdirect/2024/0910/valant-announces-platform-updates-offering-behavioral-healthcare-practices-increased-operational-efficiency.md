@@ -36,7 +36,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/valant-announ
 [Original/Source Press Release](https://newsdirect.com/news/valant-announces-platform-updates-offering-behavioral-healthcare-practices-increased-operational-efficiency-789972836)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/valant-unveils-new-platform-updates-for-behavioral-health-practices/9d8976720dd2a5df830d2abf26e0e966) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/valant-enhances-ehr-platform-with-new-features-for-behavioral-health-practices)
+
+Pickup - [fishervista.com](https://fishervista.com/en/valant-unveils-platform-updates-to-boost-efficiency-in-behavioral-healthcare-practices/20246659)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/valant-enhances-ehr-platform-with-new-features-for-behavioral-health-practices/20246659)
+
+Pickup - [advos.io](https://advos.io/en/valant-enhances-ehr-platform-to-boost-efficiency-in-behavioral-healthcare-practices/20246659)
+ 
 
 
 

@@ -7,7 +7,11 @@ JUPITER, FL, March 25, 2024 /24-7PressRelease/ -- MACC Racing is thrilled to ann
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509516/monster-energy-macc-racing-unveils-team-lineup-for-2024-p1-aquax-us-championship)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/macc-racing-partners-with-monster-energy-for-2024-p1-aquax-us-championships/dab70db7a3a9f465e5ef58451b20f556) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/monster-energy-macc-racing-gears-up-for-thrilling-2024-p1-aquax-us-championship)
+ 
 
 
 

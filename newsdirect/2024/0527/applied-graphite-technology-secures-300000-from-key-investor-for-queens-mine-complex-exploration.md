@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/applied-graph
 [Original/Source Press Release](https://newsdirect.com/news/applied-graphite-technology-secures-300-000-from-key-investor-for-queens-mine-complex-exploration-573482119)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/applied-graphite-technology-secures-300000-investment-for-queens-mine-complex-exploration/f1896f6925154b05540490408d064c13) 
+
+ 
 
 
 

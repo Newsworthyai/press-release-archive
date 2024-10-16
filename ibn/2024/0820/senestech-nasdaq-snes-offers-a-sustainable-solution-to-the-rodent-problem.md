@@ -30,7 +30,13 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestech-nasdaq-snes-offers-a-sustainable-solution-to-the-rodent-problem/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/senestech-offers-sustainable-solution-to-growing-rodent-problem/65ad78bdd4cf0e1517b37adaf8fde51a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/senestech-introduces-sustainable-rodent-control-solution-as-new-york-city-s-rat-population-surges)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/senestech-introduces-sustainable-rodent-control-solution-amid-rising-urban-rat-populations/20246105)
+ 
 
 
 

@@ -7,7 +7,11 @@ NICE, FRANCE, April 11, 2024 /24-7PressRelease/ -- Chris founded his private wal
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509906/local-nice-walking-tour-service-announces-free-nice-walking-tours)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/explore-the-beauty-of-nice-with-free-walking-tours-by-nice-fun-tours/ab609535944bdf5c457345b179074d0a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/local-nice-walking-tour-service-announces-free-nice-walking-tours)
+ 
 
 
 

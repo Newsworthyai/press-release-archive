@@ -7,7 +7,11 @@ CHARLOTTE, NC, June 06, 2024 /24-7PressRelease/ -- RISE, FRA, and ARK are proud 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511486/rise-fra-ark-achieve-iso-20121-certification-for-event-sustainability)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rise-fra-and-ark-achieve-iso-20121-certification-for-event-sustainability/a9da72d7fdbd9a5c7c3069bc946a583c) 
+
+
+Pickup - [advos.io](https://advos.io/en/rise-fra-ark-achieve-prestigious-iso-20121-certification-for-event-sustainability/20243865)
+ 
 
 
 

@@ -59,7 +59,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/abaxx-and-min
 [Original/Source Press Release](https://newsdirect.com/news/abaxx-and-minehub-forge-strategic-partnership-to-revolutionize-commodities-markets-253876223)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/minehub-and-abaxx-forge-strategic-partnership-to-revolutionize-commodities-markets/e04a05493c2bc3ace35ef40a0de6c428) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/minehub-and-abaxx-join-forces-to-transform-commodities-markets)
+
+Pickup - [fishervista.com](https://fishervista.com/en/abaxx-and-minehub-form-strategic-alliance-to-transform-commodities-market/20245425)
+
+Pickup - [advos.io](https://advos.io/en/abaxx-and-minehub-partner-to-transform-commodities-markets/20245425)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/minehub-and-abaxx-join-forces-to-transform-commodities-markets)
+ 
 
 
 

@@ -33,7 +33,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/empowering-miners-the-launch-of-bitaxe-supra-brings-cutting-edge-community-driven-bitcoin-mining-to-the-forefront)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-central-technologies-unveils-bitaxe-supra-a-revolution-in-open-source-bitcoin-mining/203713f8b73ddc47fe478d65f6c697e9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/bitaxe-supra-empowering-the-future-of-bitcoin-mining)
+ 
 
 
 

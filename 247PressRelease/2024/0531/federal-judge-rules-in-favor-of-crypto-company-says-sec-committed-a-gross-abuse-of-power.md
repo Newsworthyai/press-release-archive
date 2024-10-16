@@ -7,7 +7,13 @@ NEW YORK, NY, May 31, 2024 /24-7PressRelease/ -- A federal judge ruled that the 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511295/federal-judge-rules-in-favor-of-crypto-company-says-sec-committed-a-gross-abuse-of-power)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/federal-judge-rules-sec-must-pay-legal-fees-for-crypto-debt-box/79523fd36cc93e3fc0dfdc3fe540ea9a) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/federal-judge-rules-sec-must-pay-legal-fees-for-crypto-debt-box)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/federal-judge-rules-sec-must-pay-legal-fees-for-crypto-debt-box)
+ 
 
 
 

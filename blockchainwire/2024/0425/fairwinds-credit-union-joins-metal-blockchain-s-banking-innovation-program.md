@@ -41,7 +41,9 @@ Business Contact Name: Cesar HernandezBusiness Email:ch@omnipublic.global
 [Original/Source Press Release](https://blockchainwire.io/press-release/fairwinds-credit-union-joins-metal-blockchains-banking-innovation-program)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metallicus-announces-fairwinds-credit-union-s-enrollment-in-banking-innovation-program/fd6f86e24ac2ade63c2ae6de593ea95e) 
+
+ 
 
 
 

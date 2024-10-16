@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/csj-consultin
 [Original/Source Press Release](https://newsdirect.com/news/csj-consulting-limited-announces-strategic-collaborations-with-bnp-paribas-and-societe-generale-762941148)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/csj-consulting-limited-announces-strategic-collaborations-with-bnp-paribas-and-societe-generale/e9f62c904694e3be17aa9c37327181de) 
+
+
+Pickup - [advos.io](https://advos.io/en/csj-consulting-limited-announces-strategic-collaborations-with-bnp-paribas-and-societe-generale/20243981)
+ 
 
 
 

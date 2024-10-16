@@ -59,7 +59,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bridge-the-ga
 [Original/Source Press Release](https://newsdirect.com/news/bridge-the-gap-the-transformative-impact-of-cross-company-integration-cci-696861499)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unlocking-the-power-of-cross-company-integration-cci-for-collaborative-innovation/bb32df86abdacc08c849fb130de8b1db) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/cross-company-integration-emerges-as-key-driver-for-business-innovation-and-resilience/20243558)
+ 
 
 
 

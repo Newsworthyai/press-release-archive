@@ -35,7 +35,13 @@ For more information, please visit:[Website](http://fuel.network/) |[X/Twitter](
 [Original/Source Press Release](https://blockchainwire.io/press-release/fuel-launches-13m-attackathon-with-immunefi-the-largest-crowdsourced-security-audit-in-web3)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fuel-and-immunefi-announce-strategic-partnership-for-largest-ever-attackathon/e12fc0b77a014c5486f7639539af96a2) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/fuel-and-immunefi-announce-strategic-partnership-for-largest-ever-attackathon)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/fuel-and-immunefi-announce-strategic-partnership-for-largest-ever-attackathon)
+ 
 
 
 

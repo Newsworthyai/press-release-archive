@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/analyst-wick-
 [Original/Source Press Release](https://newsdirect.com/news/analyst-wick-hints-a-bitcoin-cash-comeback-kangamoon-nears-4-5m-as-stacks-dips-459789333)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-analyst-wick-highlights-bitcoin-cash-stacks-and-kangamoon-in-compelling-episode-of-trading-alpha/0fe02059ae1934169f1fae430b79a6c9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/kangamoon-surges-amid-bitcoin-cash-bullish-predictions-and-stacks-volatility)
+ 
 
 
 

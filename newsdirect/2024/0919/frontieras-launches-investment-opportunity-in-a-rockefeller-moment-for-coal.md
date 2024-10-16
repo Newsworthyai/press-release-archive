@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/frontieras-la
 [Original/Source Press Release](https://newsdirect.com/news/frontieras-launches-investment-opportunity-in-a-rockefeller-moment-for-coal-803480562)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/frontieras-launches-investment-opportunity-in-a-rockefeller-moment-for-coal/8e1f4aa6c2b45eb0a618cd5b46e88737) 
+
+ 
 
 
 

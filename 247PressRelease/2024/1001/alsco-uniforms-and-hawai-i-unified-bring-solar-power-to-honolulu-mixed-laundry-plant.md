@@ -7,7 +7,9 @@ SALT LAKE CITY, UT, October 01, 2024 /24-7PressRelease/ -- Alsco Uniforms and Ha
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514825/alsco-uniforms-and-hawai%CA%BBi-unified-bring-solar-power-to-honolulu-mixed-laundry-plant)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alsco-uniforms-and-hawai-i-unified-industries-complete-rooftop-solar-installation-in-honolulu/238a8b4e018aa391215ad46684d67b5d) 
+
+ 
 
 
 

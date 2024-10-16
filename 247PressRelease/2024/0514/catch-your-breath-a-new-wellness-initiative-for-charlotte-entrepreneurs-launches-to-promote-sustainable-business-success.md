@@ -7,7 +7,9 @@ CHARLOTTE, NC, May 14, 2024 /24-7PressRelease/ -- In recognition of Mental Healt
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510828/catch-your-breath-a-new-wellness-initiative-for-charlotte-entrepreneurs-launches-to-promote-sustainable-business-success)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-wellness-initiative-launched-for-charlotte-entrepreneurs/14e2d0b62c1d00a668133e9b2461ae08) 
+
+ 
 
 
 

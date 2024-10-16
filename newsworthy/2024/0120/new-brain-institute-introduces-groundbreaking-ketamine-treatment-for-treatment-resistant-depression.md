@@ -15,7 +15,9 @@ Each treatment session at the New Brain Institute involves extensive monitoring 
 [Original/Source Press Release](https://newsworthy.ai/news/202401201005/new-brain-institute-introduces-groundbreaking-ketamine-treatment-for-treatment-resistant-depression)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-brain-institute-introduces-spravatotm-ketamine-therapy-for-treatment-resistant-depression/2e0b8f067706a65e9a5d88d4e29aef28) 
+
+ 
 
 
 

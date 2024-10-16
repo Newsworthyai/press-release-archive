@@ -39,7 +39,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-releases-
 [Original/Source Press Release](https://newsdirect.com/news/htx-releases-july-performance-report-24-hour-trading-volume-rises-to-top-2-worldwide-for-the-third-time-achieving-steady-progress-496453172)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-releases-july-performance-report-24-hour-trading-volume-rises-to-top-2-worldwide-for-the-third-time-achieving-steady-progress/6f45478cb588794fa08fbcf925822888) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/htx-secures-second-place-globally-in-24-hour-trading-volume-showcases-robust-growth-in-july-report)
+
+Pickup - [fishervista.com](https://fishervista.com/en/htx-reports-significant-july-performance-milestones-and-enhanced-security-measures/20245537)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/htx-climbs-to-second-place-globally-in-24-hour-trading-volume-releases-july-performance-report)
+
+Pickup - [advos.io](https://advos.io/en/htx-achieves-milestone-with-second-highest-global-24-hour-trading-volume-in-july/20245537)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-releases-july-performance-report-24-hour-trading-volume-rises-to-top-2-worldwide-for-the-third-time-achieving-steady-progress)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-releases-july-performance-report-24-hour-trading-volume-rises-to-top-2-worldwide-for-the-third-time-achieving-steady-progress)
+ 
 
 
 

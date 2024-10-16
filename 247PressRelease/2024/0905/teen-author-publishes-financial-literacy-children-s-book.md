@@ -7,7 +7,17 @@ PALO ALTO, CA, September 05, 2024 /24-7PressRelease/ -- Abby Medin is a 17 year-
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514012/teen-author-publishes-financial-literacy-childrens-book)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/high-school-senior-creates-meow-money-to-teach-kids-personal-finance/6e48fce78edfe51945b3616f3a84b7a6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/teen-author-releases-children-s-book-on-financial-literacy)
+
+Pickup - [fishervista.com](https://fishervista.com/en/teen-author-releases-financial-literacy-book-for-children/20246543)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/teen-author-releases-children-s-book-to-promote-financial-literacy/20246543)
+
+Pickup - [advos.io](https://advos.io/en/teen-author-publishes-financial-literacy-book-for-children/20246543)
+ 
 
 
 

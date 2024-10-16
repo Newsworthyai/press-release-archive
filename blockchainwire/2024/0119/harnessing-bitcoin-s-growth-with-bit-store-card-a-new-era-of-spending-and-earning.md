@@ -17,7 +17,11 @@ In essence, the Bit.Store Visa® Virtual Crypto Card is more than a mere payment
 [Original/Source Press Release](https://blockchainwire.io/press-release/harnessing-bitcoins-growth-with-bitstore-card-a-new-era-of-spending-and-earning)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bit-store-launches-visa-virtual-crypto-card-revolutionizing-cryptocurrency-spending/feb4336bb87f0e11d090c60f6b312340) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/19/bit-store-visa-virtual-crypto-card-unleashing-bitcoin-s-potential)
+ 
 
 
 

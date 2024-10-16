@@ -19,7 +19,11 @@ The Flint family has initiated legal proceedings against DeMeo, and the case is 
 [Original/Source Press Release](https://newsworthy.ai/news/20240116983/sandra-demeo-orange-county-probate-attorney-facing-fraud-accusations-as-top-banking-institutions-deny-bl)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/probate-attorney-accused-of-embezzlement-and-probate-mafia-ties/3790d4d63b98f95727cc0b4984b692c9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/16/orange-county-probate-attorney-accused-of-embezzlement-banks-deflect-blame)
+ 
 
 
 

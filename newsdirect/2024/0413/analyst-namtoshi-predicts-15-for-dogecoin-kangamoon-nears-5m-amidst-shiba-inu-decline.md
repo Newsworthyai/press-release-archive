@@ -57,7 +57,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/analyst-namto
 [Original/Source Press Release](https://newsdirect.com/news/analyst-namtoshi-predicts-15-for-dogecoin-kangamoon-nears-5m-amidst-shiba-inu-decline-938381189)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dogecoin-doge-and-shiba-inu-shib-analyst-predictions-kangamoon-kang-presale-success/52f8e93800ad42ce75c3d1bd1a79a640) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/13/analyst-namtoshi-predicts-15-for-dogecoin-kangamoon-nears-5m-amidst-shiba-inu-decline)
+ 
 
 
 

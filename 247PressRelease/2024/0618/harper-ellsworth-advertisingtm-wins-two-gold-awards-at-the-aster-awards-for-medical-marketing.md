@@ -7,7 +7,13 @@ DALLAS, TX, June 18, 2024 /24-7PressRelease/ -- Harper Ellsworth's client, Texas
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511736/harper-ellsworth-advertising-wins-two-gold-awards-at-the-aster-awards-for-medical-marketing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/texas-radiotherapy-campaign-wins-awards-for-patient-centric-approach/ad0ddc22944415b7721c6ed13d7964fa) 
+
+
+Pickup - [advos.io](https://advos.io/en/harper-ellsworth-advertisingtm-wins-two-gold-awards-at-the-aster-awards-for-medical-marketing/20244227)
+
+Pickup - [fishervista.com](https://fishervista.com/en/harper-ellsworth-advertisingtm-triumphs-with-two-gold-awards-at-aster-awards-for-medical-marketing/20244227)
+ 
 
 
 

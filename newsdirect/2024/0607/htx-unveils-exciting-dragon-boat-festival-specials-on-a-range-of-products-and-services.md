@@ -95,7 +95,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-unveils-e
 [Original/Source Press Release](https://newsdirect.com/news/htx-unveils-exciting-dragon-boat-festival-specials-on-a-range-of-products-and-services-971480996)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-unveils-exciting-dragon-boat-festival-specials-on-a-range-of-products-and-services/46517926ad2d3591d0d4a18cb75bc974) 
+
+
+Pickup - [advos.io](https://advos.io/en/htx-launches-dragon-boat-festival-promotions-with-exciting-offers-across-multiple-sectors/20243916)
+ 
 
 
 

@@ -7,7 +7,9 @@ ROCKVILLE, MD, May 03, 2024 /24-7PressRelease/ -- Chevo Consulting, LLC (Chevo )
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510589/department-of-homeland-security-win-chevo-wins-cbp-enterprise-small-business-esb-blanket-purchase-agreement-bpa)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chevo-consulting-llc-partners-with-dhs-on-cbp-s-enterprise-small-business-blanket-purchase-agreement/3b46eba6654d5b1a0044b35e49f6ed6b) 
+
+ 
 
 
 

@@ -7,7 +7,17 @@ Annovis Bio (NYSE: ANVS), a late-stage clinical drug platform company pioneering
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-announces-encouraging-clinical-trial-results-ip-portfolio-enhancement/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annovis-bio-nyse-anvs-reports-encouraging-results-for-lead-compound-in-q2/62ea9d258fad280d676d9320d5fefda4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/annovis-bio-reports-positive-clinical-trial-results-and-strengthens-intellectual-property)
+
+Pickup - [fishervista.com](https://fishervista.com/en/annovis-bio-reports-promising-clinical-trial-results-and-expands-ip-portfolio/20246190)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/annovis-bio-reports-positive-clinical-trial-results-and-strengthens-intellectual-property-portfolio/20246190)
+
+Pickup - [advos.io](https://advos.io/en/annovis-bio-reveals-positive-clinical-trial-results-and-ip-portfolio-expansion/20246190)
+ 
 
 
 

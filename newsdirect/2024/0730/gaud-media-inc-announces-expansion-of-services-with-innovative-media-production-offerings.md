@@ -47,7 +47,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/gaud-media-in
 [Original/Source Press Release](https://newsdirect.com/news/gaud-media-inc-announces-expansion-of-services-with-innovative-media-production-offerings-707392142)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gaud-media-inc-announces-expansion-of-services-and-new-creative-initiatives/a1b51e49182a4ca9845664241b8219ad) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/gaud-media-inc-expands-services-revolutionizing-media-production-landscape)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gaud-media-inc-expands-services-with-innovative-media-production-offerings/20245353)
+
+Pickup - [advos.io](https://advos.io/en/gaud-media-inc-expands-service-offerings-with-innovative-media-production-solutions/20245353)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gaud-media-inc-expands-services-with-innovative-media-production-offerings)
+ 
 
 
 

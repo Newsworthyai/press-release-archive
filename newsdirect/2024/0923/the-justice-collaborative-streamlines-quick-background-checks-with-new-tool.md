@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-justice-c
 [Original/Source Press Release](https://newsdirect.com/news/the-justice-collaborative-streamlines-quick-background-checks-with-new-tool-350872674)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-justice-collaborative-introduces-free-background-check-tool/7397b92a5bbbedf1629e71d4ea62e8e9) 
+
+ 
 
 
 

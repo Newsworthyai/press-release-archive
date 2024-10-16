@@ -39,7 +39,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/veteran-forex--crypto-traders-unite-for-prop-trading-revolution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/daikokutrade-redefines-prop-trading-in-forex-and-crypto-markets/0a6d276f968f94eff487fc21369d5bbd) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/veteran-traders-introduce-daikokutrade-to-revolutionize-prop-trading/20244293)
+
+Pickup - [advos.io](https://advos.io/en/veteran-traders-collaborate-to-launch-daikokutrade-aiming-to-revolutionize-prop-trading/20244293)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/daikokutrade-redefines-prop-trading-in-forex-and-crypto-markets)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/daikokutrade-redefines-prop-trading-in-forex-and-crypto-markets)
+ 
 
 
 

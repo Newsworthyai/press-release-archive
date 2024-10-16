@@ -7,7 +7,17 @@ LOUISVILLE, KY, August 28, 2024 /24-7PressRelease/ -- Strategic marketing and me
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513827/rbi-agency-announces-two-new-divisions-and-executive-leadership)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rbi-announces-addition-of-two-new-divisions-rbi-impact-and-rbi-properties/0e64fa2d607b8c656dad349be5ac8507) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/rbi-agency-expands-with-two-new-divisions-rbi-impact-and-rbi-properties)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rbi-agency-launches-two-new-divisions-to-enhance-media-partnerships-and-revenue-growth/20246315)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/rbi-agency-expands-with-two-new-divisions-to-enhance-brand-partnerships-and-community-impact/20246315)
+
+Pickup - [advos.io](https://advos.io/en/rbi-agency-expands-with-new-divisions-and-leadership/20246315)
+ 
 
 
 

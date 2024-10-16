@@ -7,7 +7,17 @@ FREMONT, CA, August 02, 2024 /24-7PressRelease/ -- Learn And Play® Montessori S
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512908/learn-and-play-montessori-school-announces-tour-opportunities-for-hercules-program-of-daycare-preschool-kindergarten)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/learn-and-play-r-montessori-school-announces-tour-opportunities-for-new-hercules-california-campus/9ad733094e5f3c15029d0bf5a7f35cfd) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/learn-and-play-r-montessori-school-opens-new-hercules-campus-with-tours-for-early-education-programs/20245451)
+
+Pickup - [advos.io](https://advos.io/en/learn-and-play-r-montessori-school-opens-enrollment-for-hercules-campus-offering-innovative-education-programs/20245451)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/learn-and-play-r-montessori-school-opens-new-campus-in-hercules-california)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/learn-and-play-r-montessori-school-opens-new-campus-in-hercules-california)
+ 
 
 
 

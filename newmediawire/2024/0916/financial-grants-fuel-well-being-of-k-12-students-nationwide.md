@@ -31,7 +31,17 @@
 [Original/Source Press Release](https://www.newmediawire.com/news/financial-grants-fuel-well-being-of-k-12-students-nationwide-7076056)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-heart-association-awards-grants-to-support-student-health-and-well-being/f5094a3df872b6587e7bf61251046508) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/american-heart-association-awards-grants-to-nearly-80-schools-for-student-health-initiatives)
+
+Pickup - [fishervista.com](https://fishervista.com/en/american-heart-association-awards-grants-to-nearly-80-schools-to-boost-student-health/20246869)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/american-heart-association-awards-grants-to-nearly-80-schools-to-boost-student-health/20246869)
+
+Pickup - [advos.io](https://advos.io/en/american-heart-association-awards-grants-to-boost-student-health-nationwide/20246869)
+ 
 
 
 

@@ -23,7 +23,11 @@ Experience the world where beauty meets functionality at www.BestofHomeandGarden
 [Original/Source Press Release](https://newsworthy.ai/news/20231208780/introducing-bestofhomeandgarden-com-the-ultimate-destination-for-home-enthusiasts-and-garden-aficionados)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-website-bestofhomeandgarden-com-launches-as-ultimate-destination-for-home-and-garden-enthusiasts/9b44c6f9cec82d27991f6cbae9f73adb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/08/bestofhomeandgarden-com-launches-as-premier-destination-for-home-and-garden-enthusiasts)
+ 
 
 
 

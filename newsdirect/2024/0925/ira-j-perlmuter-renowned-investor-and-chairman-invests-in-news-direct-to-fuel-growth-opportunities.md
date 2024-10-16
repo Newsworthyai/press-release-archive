@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ira-j-perlmut
 [Original/Source Press Release](https://newsdirect.com/news/ira-j-perlmuter-renowned-investor-and-chairman-invests-in-news-direct-to-fuel-growth-opportunities-877325127)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-investor-ira-j-perlmuter-invests-in-news-direct-to-fuel-growth-opportunities/f6202ed642c7cbd6b30e91a1a9f70bbc) 
+
+ 
 
 
 

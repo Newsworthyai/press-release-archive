@@ -77,7 +77,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-kicks-off
 [Original/Source Press Release](https://newsdirect.com/news/htx-kicks-off-11th-anniversary-celebration-with-over-10-million-usdt-in-rewards-for-users-808353656)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-celebrates-11th-anniversary-with-over-10-million-usdt-in-rewards/e918cf62b4ad24796b540d83b4158c82) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-celebrates-11th-anniversary-with-over-10-million-usdt-in-rewards)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-celebrates-11th-anniversary-with-over-10-million-usdt-in-rewards)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/htx-celebrates-11th-anniversary-with-massive-user-rewards-and-contests)
+
+Pickup - [fishervista.com](https://fishervista.com/en/htx-celebrates-11th-anniversary-with-over-10-million-usdt-in-rewards/20245594)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/htx-launches-11th-anniversary-celebration-with-over-10-million-usdt-in-user-rewards/20245594)
+
+Pickup - [advos.io](https://advos.io/en/htx-celebrates-11th-anniversary-with-over-10-million-usdt-in-rewards/20245594)
+ 
 
 
 

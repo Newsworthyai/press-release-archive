@@ -31,7 +31,9 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-named-finalist-for-bc-tech-associations-gamechanger-ambition-award/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-inc-named-finalist-for-bc-tech-associations-gamechanger-ambition-award/4131311d72cac1215e992fc4da7481a0) 
+
+ 
 
 
 

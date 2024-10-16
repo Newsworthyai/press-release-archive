@@ -68,7 +68,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/platinum-lear
 [Original/Source Press Release](https://newsdirect.com/news/platinum-learning-nursing-ce-announces-continuing-education-programs-for-healthcare-professionals-237354071)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/platinum-learning-nursing-ce-announces-new-continuing-education-programs-for-healthcare-professionals/6c8331008c9a98282ea5787fac9f48ae) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/platinum-learning-nursing-ce-unveils-comprehensive-ce-programs-for-healthcare-professionals)
+ 
 
 
 

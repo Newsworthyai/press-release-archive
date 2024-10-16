@@ -7,7 +7,11 @@ LOS ANGELES, CA, April 10, 2024 /24-7PressRelease/ -- In a dazzling display of l
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509931/award-winning-author-kay-a-oliver-triumphs-again-at-bookfest-spring-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/celebrated-author-kay-a-oliver-shines-at-bookfest-spring-2024/8d03ff10a15bd82d2c3f6977e70f5e95) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/award-winning-author-kay-a-oliver-triumphs-again-at-bookfest-spring-2024)
+ 
 
 
 

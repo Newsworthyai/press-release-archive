@@ -21,7 +21,13 @@ RChilli is the trusted partner for parsing, matching, and data enrichment, provi
 [Original/Source Press Release](https://newsworthy.ai/news/20240110974/rchilli-adds-vietnamese-to-its-list-of-languages-supported)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-adds-vietnamese-language-support-for-enhanced-candidate-search/44540a8b8c81e5efe3eb7a62691e4096) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-expands-language-support-with-addition-of-vietnamese/2024276)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/10/rchilli-expands-language-support-to-vietnamese)
+ 
 
 
 

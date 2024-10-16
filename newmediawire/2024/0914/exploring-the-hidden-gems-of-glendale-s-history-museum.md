@@ -25,7 +25,17 @@
 [Original/Source Press Release](https://www.newmediawire.com/news/exploring-the-hidden-gems-of-glendale-s-history-museum-7076053)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/discover-the-world-of-martial-arts-at-the-hidden-gem-in-glendale/f8d032c0f56de289818852dc266eb612) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/14/glendale-s-martial-arts-history-museum-a-cultural-treasure-trove)
+
+Pickup - [fishervista.com](https://fishervista.com/en/glendale-s-martial-arts-history-museum-a-hidden-gem-preserving-cultural-heritage/20246872)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/glendale-s-martial-arts-history-museum-a-cultural-treasure-trove/20246872)
+
+Pickup - [advos.io](https://advos.io/en/glendale-s-martial-arts-history-museum-a-cultural-treasure-trove/20246872)
+ 
 
 
 

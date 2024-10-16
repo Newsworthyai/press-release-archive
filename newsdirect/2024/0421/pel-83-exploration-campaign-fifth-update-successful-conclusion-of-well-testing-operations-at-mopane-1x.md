@@ -28,7 +28,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/pel-83-explor
 [Original/Source Press Release](https://newsdirect.com/news/pel-83-exploration-campaign-fifth-update-successful-conclusion-of-well-testing-operations-at-mopane-1x-349298717)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/custos-energy-announces-successful-conclusion-of-mopane-exploration-campaign/f6c09cb463c39846fb840ee5651727c8) 
+
+ 
 
 
 

@@ -76,7 +76,9 @@ Research Highlights:
 [Original/Source Press Release](https://www.newmediawire.com/news/analysis-found-weight-loss-surgery-may-help-people-with-obesity-manage-high-blood-pressure-7076004)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/weight-loss-surgery-shows-promise-in-managing-high-blood-pressure-for-people-with-obesity/2cae2b7be884cae4462ffd014a1aa16b) 
+
+ 
 
 
 

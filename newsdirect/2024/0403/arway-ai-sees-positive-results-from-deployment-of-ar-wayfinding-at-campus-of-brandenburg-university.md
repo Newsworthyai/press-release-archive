@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/arway-ai-sees
 [Original/Source Press Release](https://newsdirect.com/news/arway-ai-sees-positive-results-from-deployment-of-ar-wayfinding-at-campus-of-brandenburg-university-827846559)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arway-ai-revolutionizes-campus-experience-with-innovative-ar-navigation-system/f477344613eb3632b5f39d910df9a7c0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/arway-ai-revolutionizes-campus-navigation-with-augmented-reality-deployment)
+ 
 
 
 

@@ -17,7 +17,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/sarytogan-gra
 [Original/Source Press Release](https://newsdirect.com/news/sarytogan-graphite-uspg-batteries-retain-97-3-capacity-after-100-cycles-954487141)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sarytogan-graphite-s-uspg-batteries-show-exceptional-endurance-in-lithium-ion-cells/1bf2adc25c26d9c858d042875927f432) 
+
+ 
 
 
 

@@ -23,7 +23,9 @@ About The Building Texas Show:The Building Texas Show, hosted by Justin McKenzie
 [Original/Source Press Release](https://newsworthy.ai/news/202409181265/assemble-cocktail-a-journey-of-entrepreneurial-innovation-and-community-building)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/assemble-cocktail-founder-shares-entrepreneurial-journey-on-the-building-texas-show/73b6d2689efa557d2989a4824f0137b6) 
+
+ 
 
 
 

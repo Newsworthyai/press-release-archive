@@ -25,7 +25,9 @@ Investor Relations Inquiries:Skyline Corporate Communications Group, LLCScott Po
 [Original/Source Press Release](https://www.newmediawire.com/news/mobile-health-network-solutions-delinquency-notification-letter-from-nasdaq-7076075)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/manadr-receives-notice-from-nasdaq-regarding-minimum-bid-price-rule/9dff878e03bb74a0f0ef61f2e9d39b5b) 
+
+ 
 
 
 

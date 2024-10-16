@@ -55,7 +55,9 @@ CoinGecko: https://www.coingecko.com/en/coins/metfiInstagram: https://instagram.
 [Original/Source Press Release](https://blockchainwire.io/press-release/step-into-the-future-of-high-frequency-trading-with-marine-moguls-erc-404-airdrop-and-metbot)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metfi-dao-unveils-marine-moguls-token-and-metbot-advancement/4fbcc1e5676bb166ad1d9b5a96f40dc5) 
+
+ 
 
 
 

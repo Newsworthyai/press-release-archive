@@ -47,7 +47,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptocurrency-price-prediction-bitcoin-110000-ethereum-6000-and-o2t-100-before-q4-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-market-predictions-bitcoin-ethereum-and-option2trade-set-to-soar/e18c7f8236de10f9138c5ed9c099c9db) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/cryptocurrency-predictions-bitcoin-ethereum-and-option2trade-set-to-soar)
+ 
 
 
 

@@ -63,7 +63,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/impact-of-new
 [Original/Source Press Release](https://newsdirect.com/news/impact-of-new-markets-tax-credit-program-highlighted-during-senate-finance-committee-hearing-266012299)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/senate-committee-highlights-impact-of-new-markets-tax-credit-program/b7c1338835d9e704f655acde48146b0c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/senate-finance-committee-hearing-underscores-importance-of-new-markets-tax-credit-program)
+
+Pickup - [fishervista.com](https://fishervista.com/en/senate-finance-committee-highlights-impact-of-new-markets-tax-credit-program/20245351)
+
+Pickup - [advos.io](https://advos.io/en/senate-finance-committee-highlights-impact-and-future-of-new-markets-tax-credit-program/20245351)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/senate-finance-committee-hearing-underscores-importance-of-new-markets-tax-credit-program)
+ 
 
 
 

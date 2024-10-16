@@ -7,7 +7,9 @@ BRISBANE, AUSTRALIA, September 27, 2024 /24-7PressRelease/ -- On the 25th of Sep
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514715/revelation-and-hope-for-masan-shincheonji-revelation-bible-seminar-attracts-more-than-16000-including-100-pastors-gathered)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-church-of-jesus-holds-grand-seminar-on-book-of-revelation/7ce3b484945417369b2e533d90254a21) 
+
+ 
 
 
 

@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/thor-explorat
 [Original/Source Press Release](https://newsdirect.com/news/thor-explorations-increases-its-position-around-douta-project-in-senegal-with-licence-acquisitions-910592997)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/thor-explorations-increases-position-in-douta-project-in-senegal/b1f8b42095f42f50a73a676c0c32a741) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/thor-explorations-bolsters-douta-gold-project-with-strategic-licence-acquisitions)
+ 
 
 
 

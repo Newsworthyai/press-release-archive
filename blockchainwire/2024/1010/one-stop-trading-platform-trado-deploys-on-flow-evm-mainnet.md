@@ -41,7 +41,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/one-stop-trading-platform-trado-deploys-on-flow-evm-mainnet)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trado-announces-successful-deployment-on-flow-evm-mainnet/06324bdb0e79a68c7453092bb0f32f3a) 
+
+ 
 
 
 

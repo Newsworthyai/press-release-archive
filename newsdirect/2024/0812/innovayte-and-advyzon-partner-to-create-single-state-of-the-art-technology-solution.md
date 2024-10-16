@@ -58,7 +58,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/innovayte-and
 [Original/Source Press Release](https://newsdirect.com/news/innovayte-and-advyzon-partner-to-create-single-state-of-the-art-technology-solution-295429660)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovayte-and-advyzon-launch-groundbreaking-platform-and-model-marketplace/e4f79d2fb93d2f811612758ad1e1a748) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/innovayte-and-advyzon-launch-cutting-edge-platform-for-financial-advisors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/innovayte-and-advyzon-announce-cutting-edge-technology-partnership/20245650)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/innovayte-and-advyzon-launch-cutting-edge-platform-for-financial-advisors/20245650)
+
+Pickup - [advos.io](https://advos.io/en/innovayte-and-advyzon-launch-integrated-technology-platform-for-financial-advisors/20245650)
+ 
 
 
 

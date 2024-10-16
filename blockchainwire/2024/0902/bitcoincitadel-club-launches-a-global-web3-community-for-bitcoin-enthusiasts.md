@@ -37,7 +37,21 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoincitadelclub-launches-a-global-web3-community-for-bitcoin-enthusiasts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-community-platform-bitcoincitadel-club-unveiled-for-bitcoin-enthusiasts/8a828d30f775ae90522d5de243729439) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/02/bitcoincitadel-club-launches-global-web3-community-for-bitcoin-enthusiasts)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitcoincitadel-club-launches-global-community-for-bitcoin-enthusiasts/20246430)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/bitcoincitadel-club-launches-global-web3-community-for-bitcoin-enthusiasts/20246430)
+
+Pickup - [advos.io](https://advos.io/en/bitcoincitadel-club-launches-global-web3-community-for-bitcoin-enthusiasts/20246430)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/new-community-platform-bitcoincitadel-club-unveiled-for-bitcoin-enthusiasts)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/new-community-platform-bitcoincitadel-club-unveiled-for-bitcoin-enthusiasts)
+ 
 
 
 

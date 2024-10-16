@@ -42,7 +42,9 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1565)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-digital-frontier-owner-sara-schaeffner-wins-big-picture-magazines-2024-women-in-wide-format-awards/1106eff1d5fe114aa6e0488243f0256a) 
+
+ 
 
 
 

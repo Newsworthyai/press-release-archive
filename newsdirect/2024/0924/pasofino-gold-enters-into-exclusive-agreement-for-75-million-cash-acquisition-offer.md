@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/pasofino-gold
 [Original/Source Press Release](https://newsdirect.com/news/pasofino-gold-enters-into-exclusive-agreement-for-75-million-cash-acquisition-offer-753098891)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pasofino-gold-enters-exclusive-agreement-for-75-million-cash-acquisition-offer/2610a6e4a251acdd6d67f561e3af90a6) 
+
+ 
 
 
 

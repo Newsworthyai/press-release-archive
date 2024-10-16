@@ -57,7 +57,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-dck-dexcheck-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-announces-listing-of-dck-dexcheck-and-dck-usdt-trading-pair-in-defi-innovation-zone/bb7d239b2fcb639f67e4d461c74089c5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/dexcheck-s-dck-token-debuts-on-xt-com-exchange)
+ 
 
 
 

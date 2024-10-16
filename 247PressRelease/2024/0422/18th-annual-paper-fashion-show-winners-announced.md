@@ -7,7 +7,11 @@ DENVER, CO, April 22, 2024 /24-7PressRelease/ -- The ONE Club for Creativity –
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510245/18th-annual-paper-fashion-show-winners-announced)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/denver-s-paper-fashion-show-announces-2024-winners/5510af149f89c95ad2e809a0c2df4704) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/18th-annual-paper-fashion-show-winners-announced)
+ 
 
 
 

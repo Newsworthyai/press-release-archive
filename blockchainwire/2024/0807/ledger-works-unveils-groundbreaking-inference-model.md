@@ -24,7 +24,21 @@ Feel free to reach out to Ledger Works to access the full paper and discover how
 [Original/Source Press Release](https://blockchainwire.io/press-release/ledger-works-unveils-groundbreaking-inference-model)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionizing-cryptocurrency-risk-management-with-groundbreaking-inference-model/017a23122856175ee21710130b56a616) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/ledger-works-develops-advanced-cryptocurrency-risk-management-model)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ledger-works-introduces-advanced-inference-model-for-cryptocurrency-risk-management/20245560)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ledger-works-introduces-advanced-inference-model-for-cryptocurrency-risk-management/20245560)
+
+Pickup - [advos.io](https://advos.io/en/ledger-works-introduces-advanced-inference-model-for-cryptocurrency-risk-management/20245560)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/revolutionizing-cryptocurrency-risk-management-with-groundbreaking-inference-model)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/revolutionizing-cryptocurrency-risk-management-with-groundbreaking-inference-model)
+ 
 
 
 

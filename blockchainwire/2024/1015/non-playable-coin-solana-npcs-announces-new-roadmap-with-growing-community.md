@@ -49,7 +49,9 @@ Instagram | TikTokDisclaimer: This is a press release and does not contain any
 [Original/Source Press Release](https://blockchainwire.io/press-release/non-playable-coin-solana-npcs-announces-new-roadmap-with-growing-community)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/roadmap-to-success-npcs-s-bold-plans-for-the-future/fab92e57d9cbccc1e82a19a87f795b5d) 
+
+ 
 
 
 

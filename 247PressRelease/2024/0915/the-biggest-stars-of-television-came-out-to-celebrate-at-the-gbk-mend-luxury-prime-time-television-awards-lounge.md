@@ -7,7 +7,9 @@ LOS ANGELES, CA, September 15, 2024 /24-7PressRelease/ -- The excitement of the 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514339/the-biggest-stars-of-television-came-out-to-celebrate-at-the-gbk-mend-luxury-prime-time-television-awards-lounge)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/luxury-and-glamour-at-television-awards-season-s-gbk-brand-bar-mend-luxury-awards-lounge/b6510ec53711db1a842d7050b701a774) 
+
+ 
 
 
 

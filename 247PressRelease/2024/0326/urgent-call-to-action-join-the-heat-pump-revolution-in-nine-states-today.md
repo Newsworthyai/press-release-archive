@@ -7,7 +7,11 @@ MIAMI, FL, March 26, 2024 /24-7PressRelease/ -- A coalition comprising nine stat
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509521/urgent-call-to-action-join-the-heat-pump-revolution-in-nine-states-today)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nine-state-coalition-leads-charge-in-accelerating-heat-pump-adoption/3e03590de776446654410f8aa2df0334) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/states-unite-to-accelerate-heat-pump-adoption-for-sustainable-homes)
+ 
 
 
 

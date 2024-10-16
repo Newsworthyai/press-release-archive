@@ -21,7 +21,21 @@ About FintexFintex is dedicated to revolutionizing the fintech landscape by prov
 [Original/Source Press Release](https://blockchainwire.io/press-release/salvo-castagna-launches-fintex-revolutionizing-crypto-transactions-with-the-iban-crypto-ramp)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fintex-launches-innovative-iban-crypto-ramp-for-seamless-cryptocurrency-transactions/d34cc1d850b637adb1a7e7de823120d4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/fintex-introduces-iban-crypto-ramp-a-new-era-in-cryptocurrency-transactions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/salvo-castagna-launches-fintex-revolutionizing-crypto-transactions-with-iban-crypto-ramp/20245499)
+
+Pickup - [advos.io](https://advos.io/en/salvo-castagna-launches-fintex-with-innovative-iban-crypto-ramp/20245499)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/fintex-launches-innovative-iban-crypto-ramp-for-seamless-cryptocurrency-transactions)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/fintex-launches-innovative-iban-crypto-ramp-for-seamless-cryptocurrency-transactions)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/fintex-introduces-iban-crypto-ramp-bridging-traditional-banking-and-cryptocurrency)
+ 
 
 
 

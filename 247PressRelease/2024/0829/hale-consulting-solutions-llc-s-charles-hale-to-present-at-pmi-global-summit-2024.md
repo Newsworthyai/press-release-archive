@@ -7,7 +7,17 @@ LAS VEGAS, NV, August 29, 2024 /24-7PressRelease/ -- Hale Consulting Solutions L
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513890/hale-consulting-solutions-llcs-charles-hale-to-present-at-pmi-global-summit-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/charles-hale-to-speak-at-pmi-global-summit-2024/073bdabad24b0f86373491c57f15a488) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/charles-hale-to-present-on-ai-s-role-in-project-management-at-pmi-global-summit-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/charles-hale-to-highlight-ai-s-role-in-project-management-at-pmi-global-summit-2024/20246369)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/charles-hale-to-present-on-ai-in-project-management-at-pmi-global-summit-2024/20246369)
+
+Pickup - [advos.io](https://advos.io/en/charles-hale-to-present-on-ai-in-project-management-at-pmi-global-summit-2024/20246369)
+ 
 
 
 

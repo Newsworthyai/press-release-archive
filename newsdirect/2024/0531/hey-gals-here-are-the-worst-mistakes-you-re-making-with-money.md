@@ -102,7 +102,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/hey-gals-here
 [Original/Source Press Release](https://newsdirect.com/news/hey-gals-here-are-the-worst-mistakes-youre-making-with-money-597052139)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/survey-reveals-20-of-canadian-spouses-rely-on-female-partners-for-household-budgeting/0707ec9b5bbd3e00749d12bceaf94f99) 
+
+ 
 
 
 

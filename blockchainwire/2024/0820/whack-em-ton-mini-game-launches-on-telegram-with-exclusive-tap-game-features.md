@@ -41,7 +41,21 @@ X (Twitter) | Telegram | Telegram bot
 [Original/Source Press Release](https://blockchainwire.io/press-release/whackem-ton-mini-game-launches-on-telegram-with-exclusive-tap-game-features)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/whack-em-ton-the-launch-of-a-revolutionary-telegram-mini-game/79e1f4170ab9b57d34e83ba0b3e8cc6d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/whack-em-ton-the-launch-of-a-revolutionary-telegram-mini-game)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/whack-em-ton-the-launch-of-a-revolutionary-telegram-mini-game)
+
+Pickup - [advos.io](https://advos.io/en/whack-em-ton-mini-game-debuts-on-telegram-with-unique-tap-game-features/20245820)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/whack-em-ton-innovative-telegram-mini-game-launches-with-blockchain-based-rewards)
+
+Pickup - [fishervista.com](https://fishervista.com/en/whack-em-ton-mini-game-debuts-on-telegram-with-unique-blockchain-features/20245820)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/whack-em-ton-innovative-telegram-mini-game-launches-with-blockchain-integration/20245820)
+ 
 
 
 

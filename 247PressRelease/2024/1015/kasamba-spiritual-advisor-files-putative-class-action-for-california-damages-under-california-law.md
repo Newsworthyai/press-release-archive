@@ -7,7 +7,9 @@ SAN FRANCISCO, CA, October 15, 2024 /24-7PressRelease/ -- On September 9, 2024, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515241/kasamba-spiritual-advisor-files-putative-class-action-for-california-damages-under-california-law)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-spiritual-advisor-files-lawsuit-against-kasamba-inc-for-misclassification-and-labor-code-violations/e9d3ca072f2e6a04edf41a043d07c52b) 
+
+ 
 
 
 

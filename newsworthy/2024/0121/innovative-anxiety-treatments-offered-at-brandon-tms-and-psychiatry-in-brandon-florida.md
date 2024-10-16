@@ -13,7 +13,11 @@ The clinic caters to individuals with various anxiety disorders, including socia
 [Original/Source Press Release](https://newsworthy.ai/news/202401211008/innovative-anxiety-treatments-offered-at-brandon-tms-and-psychiatry-in-brandon-f)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brandon-tms-and-psychiatry-introduces-innovative-tms-treatments-for-anxiety-disorders/3de648fd301a7e7fc76c72d6b815274b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/21/brandon-tms-and-psychiatry-offers-innovative-anxiety-treatments-in-brandon-florida)
+ 
 
 
 

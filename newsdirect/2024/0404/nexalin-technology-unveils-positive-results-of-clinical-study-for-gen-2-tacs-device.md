@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/nexalin-techn
 [Original/Source Press Release](https://newsdirect.com/news/nexalin-technology-unveils-positive-results-of-clinical-study-for-gen-2-tacs-device-279225647)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nexalin-technology-unveils-positive-results-of-clinical-study-for-gen-2-tacs-device/aa1cc57438951353e790dcae6e212aa1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/nexalin-technology-s-gen-2-tacs-device-shows-promise-in-treating-mild-traumatic-brain-injury)
+ 
 
 
 

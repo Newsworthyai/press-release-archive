@@ -45,7 +45,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/virtualdime-launches-on-futurebitx-exchange-leading-the-financial-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/virtualdime-launches-on-futurebitx/f29a75a1c363f9b731b57fbde230835f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/virtualdime-launches-on-futurebitx-exchange-pioneering-web3-financial-solutions)
+ 
 
 
 

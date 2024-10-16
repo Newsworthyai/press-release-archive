@@ -72,7 +72,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/legendary-hou
 [Original/Source Press Release](https://newsdirect.com/news/legendary-house-of-bacha-coffee-establishes-new-era-of-coffee-appreciation-982038188)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bacha-coffee-a-legendary-collection-of-200-coffees-now-available-online/00b013b762e72ee0a68fde1868a337c6) 
+
+
+Pickup - [advos.io](https://advos.io/en/bacha-coffee-revolutionizing-coffee-appreciation-with-a-century-old-legacy/20243889)
+ 
 
 
 

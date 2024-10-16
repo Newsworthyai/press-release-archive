@@ -31,7 +31,9 @@ EcS+ is a women-owned advisory firm specializing in cost savings and efficiency 
 [Original/Source Press Release](https://newsworthy.ai/news/202405291180/ecs-eases-inflation-pain-for-businesses-by-reducing-credit-card-processing-fees-at-no-cost)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ecs-offers-unique-financial-lifeline-to-businesses-struggling-with-rising-costs/92ee671d35aacb21c4ccb27fa6082b59) 
+
+ 
 
 
 

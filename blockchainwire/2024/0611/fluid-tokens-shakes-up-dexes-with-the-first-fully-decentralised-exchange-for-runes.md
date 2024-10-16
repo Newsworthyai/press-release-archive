@@ -53,7 +53,15 @@ About FluidTokens
 [Original/Source Press Release](https://blockchainwire.io/press-release/fluid-tokens-shakes-up-dexes-with-the-first-fully-decentralised-exchange-for-runes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fluid-tokens-introduces-new-features-to-decentralised-bitcoin-dex/5a292db50b037b52b1fb5c29e7d891a1) 
+
+
+Pickup - [advos.io](https://advos.io/en/fluid-tokens-revolutionizes-bitcoin-ecosystem-with-fully-decentralized-exchange-for-runes/20244035)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/fluid-tokens-introduces-new-features-to-decentralised-bitcoin-dex)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/fluid-tokens-introduces-new-features-to-decentralised-bitcoin-dex)
+ 
 
 
 

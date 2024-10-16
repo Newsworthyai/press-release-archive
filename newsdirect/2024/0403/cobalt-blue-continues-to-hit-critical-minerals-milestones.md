@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/cobalt-blue-c
 [Original/Source Press Release](https://newsdirect.com/news/cobalt-blue-continues-to-hit-critical-minerals-milestones-597195582)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cobalt-blue-hits-milestones-for-australia-s-first-cobalt-sulphate-refinery/fa501cba84caaf9be2bf0d1f4e01da66) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/cobalt-blue-advances-towards-australia-s-first-cobalt-sulphate-refinery)
+ 
 
 
 

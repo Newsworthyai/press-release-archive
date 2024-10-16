@@ -35,7 +35,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/galileo-fx-se
 [Original/Source Press Release](https://newsdirect.com/news/galileo-fx-sets-new-standard-in-automated-trading-with-transparent-practices-731544275)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/galileo-fx-redefines-automated-trading-with-transparency-and-risk-management-tools/e585705979b0a2ef60503e927d8f4ce7) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/galileo-fx-establishes-new-benchmarks-in-automated-trading-with-emphasis-on-transparency-and-risk-management/20244395)
+
+Pickup - [advos.io](https://advos.io/en/galileo-fx-introduces-new-transparent-approach-to-automated-trading/20244395)
+ 
 
 
 

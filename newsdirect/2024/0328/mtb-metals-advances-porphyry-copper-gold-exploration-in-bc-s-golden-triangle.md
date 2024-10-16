@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/mtb-metals-ad
 [Original/Source Press Release](https://newsdirect.com/news/mtb-metals-advances-porphyry-copper-gold-exploration-in-bcs-golden-triangle-938741879)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mtb-metals-ceo-shares-promising-exploration-updates-in-british-columbia/58053d8f779432ef665e48ac9120f61a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/mtb-metals-explores-promising-porphyry-copper-gold-prospects-in-bc-s-golden-triangle)
+ 
 
 
 

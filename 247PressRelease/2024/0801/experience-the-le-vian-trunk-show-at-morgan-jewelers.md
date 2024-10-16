@@ -7,7 +7,17 @@ SALT LAKE CITY, UT, August 01, 2024 /24-7PressRelease/ -- Throughout all of Augu
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513033/experience-the-le-vian-trunk-show-at-morgan-jewelers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/le-vian-trunk-show-at-morgan-jewelers-exclusive-discounts-on-one-of-a-kind-pieces/89d6e7a49bb09ca4fb70f8110c64abf1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/le-vian-trunk-show-brings-exclusive-jewelry-to-morgan-jewelers-across-six-states)
+
+Pickup - [fishervista.com](https://fishervista.com/en/le-vian-trunk-show-to-feature-exclusive-jewelry-at-morgan-jewelers/20245418)
+
+Pickup - [advos.io](https://advos.io/en/le-vian-trunk-show-brings-exclusive-jewelry-discounts-to-morgan-jewelers/20245418)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/le-vian-trunk-show-to-tour-morgan-jewelers-locations-across-six-states)
+ 
 
 
 

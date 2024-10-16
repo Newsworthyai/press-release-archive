@@ -21,7 +21,11 @@ For additional information about the merchant point of sale system, please send 
 [Original/Source Press Release](https://newsworthy.ai/news/202404031140/byte-federal-launches-point-of-sale-system-for-merchants-seeking-to-accept-bitcoin)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/byte-federal-launches-revolutionary-pos-system-byteconnect/568acefcf2f778813db9a3ffbb3915e3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/byte-federal-launches-bitcoin-point-of-sale-system-for-merchants)
+ 
 
 
 

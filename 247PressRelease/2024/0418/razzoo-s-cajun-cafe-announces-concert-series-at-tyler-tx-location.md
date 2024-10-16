@@ -7,7 +7,11 @@ TYLER, TX, April 18, 2024 /24-7PressRelease/ -- Now folks, get your toe-tappin' 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510132/razzoos-cajun-cafe-announces-concert-series-at-tyler-tx-location)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/swing-to-the-soulful-sounds-of-jazz-at-razzoo-s-cajun-cafe-r-in-tyler-every-thursday/6443ad09aaf2272f22922d9956b984e4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/razzoo-s-cajun-cafe-announces-exciting-concert-series-in-tyler-tx)
+ 
 
 
 

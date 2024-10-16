@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/i-on-digital-
 [Original/Source Press Release](https://newsdirect.com/news/i-on-digital-corp-announces-shareholder-update-and-management-discussion-911952278)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/i-on-digital-corp-announces-shareholder-update-and-management-discussion/eb3c76c028f7370ca0ccbac82b6ca8bd) 
+
+ 
 
 
 

@@ -50,7 +50,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-introduces-effortless-crypto-earnings-with-new-automated-staking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-unveils-automated-staking-solutions-for-crypto-investors/042882b2f087e8b99f1d98f2c4517bb1) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/stakingfarm-unveils-automated-staking-solutions-for-crypto-investors)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/stakingfarm-unveils-automated-staking-solutions-for-crypto-investors)
+ 
 
 
 

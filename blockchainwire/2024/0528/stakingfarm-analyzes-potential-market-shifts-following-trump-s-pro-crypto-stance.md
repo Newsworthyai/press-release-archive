@@ -43,7 +43,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-analyzes-potential-market-shifts-following-trumps-pro-crypto-stance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trump-s-acceptance-of-crypto-donations-for-2024-campaign-sends-ripples-through-market/38d7d7b14a47c2d530417184cd8f7c5c) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/trump-s-acceptance-of-crypto-donations-for-2024-campaign-sends-ripples-through-market)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/trump-s-acceptance-of-crypto-donations-for-2024-campaign-sends-ripples-through-market)
+ 
 
 
 

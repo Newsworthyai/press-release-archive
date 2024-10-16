@@ -7,7 +7,9 @@ LAS VEGAS, NV, September 24, 2024 /24-7PressRelease/ -- NEXA Mortgage is proud t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514566/new-program-empowering-realtors-to-become-mortgage-loan-officers-to-earn-additional-income)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nexa-mortgage-launches-realtor2lo-com-to-empower-real-estate-agents-as-mortgage-loan-officers/ab45f6dbee0316beade71b3baadfa132) 
+
+ 
 
 
 

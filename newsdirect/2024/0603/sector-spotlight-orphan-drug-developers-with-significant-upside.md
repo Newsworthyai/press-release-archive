@@ -59,7 +59,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/sector-spotli
 [Original/Source Press Release](https://newsdirect.com/news/sector-spotlight-orphan-drug-developers-with-significant-upside-473277125)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/biotech-sector-rebounds-key-players-positioned-for-growth/1c4cf3f282916618fb8c3b6c66c4ba53) 
+
+
+Pickup - [advos.io](https://advos.io/en/biotech-sector-sees-recovery-with-orphan-drug-developers-leading-the-way/20243624)
+ 
 
 
 

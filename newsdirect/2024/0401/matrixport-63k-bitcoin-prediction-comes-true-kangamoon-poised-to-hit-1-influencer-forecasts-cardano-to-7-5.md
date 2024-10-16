@@ -51,7 +51,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/matrixport-63
 [Original/Source Press Release](https://newsdirect.com/news/matrixport-63k-bitcoin-prediction-comes-true-kangamoon-poised-to-hit-1-influencer-forecasts-cardano-to-7-5-422209123)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-btc-surpassed-63k-as-predicted-kangamoon-kang-and-cardano-to-rally/e471b91401a9d9e32866f5340b5b3c98) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/kangamoon-and-cardano-emerge-as-top-altcoins-to-watch-after-bitcoin-s-surge)
+ 
 
 
 

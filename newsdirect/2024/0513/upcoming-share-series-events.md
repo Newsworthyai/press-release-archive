@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/upcoming-shar
 [Original/Source Press Release](https://newsdirect.com/news/upcoming-share-series-events-275088005)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/upcoming-share-series-events-on-may-16th/116d3c0856c07ef4128dd4193aa73e0c) 
+
+ 
 
 
 

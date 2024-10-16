@@ -19,7 +19,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/first-phospha
 [Original/Source Press Release](https://newsdirect.com/news/first-phosphate-corp-ends-drill-program-plans-upcoming-resource-estimate-at-begin-lamarche-project-152116095)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/first-phosphate-corp-unveils-significant-phosphate-deposit-at-begin-lamarche-project/e35270196bf179883d753e2d9bc26817) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/first-phosphate-corp-completes-major-drilling-program-prepares-for-resource-estimate-at-begin-lamarche)
+
+Pickup - [fishervista.com](https://fishervista.com/en/first-phosphate-corp-completes-drill-program-and-plans-resource-estimate-for-begin-lamarche-project/20245290)
+
+Pickup - [advos.io](https://advos.io/en/first-phosphate-corp-concludes-drill-program-plans-resource-estimate-at-begin-lamarche-project/20245290)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/first-phosphate-corp-completes-extensive-drilling-program-at-begin-lamarche-project-prepares-for-resource-estimate)
+ 
 
 
 

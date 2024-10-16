@@ -7,7 +7,11 @@ CHARLESTON, SC, June 09, 2024 /24-7PressRelease/ -- Dive into the swashbuckling 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511548/edward-hethington-unveils-gripping-new-historical-adventure-novel-anne-bonnys-temporal-paradox)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-novel-anne-bonny-s-temporal-paradox-blends-18th-century-piracy-with-modern-adventure/e499f4028564d170b0b51f8c3ebfa315) 
+
+
+Pickup - [advos.io](https://advos.io/en/edward-hethington-unveils-gripping-new-historical-adventure-novel-anne-bonny-s-temporal-paradox/20243963)
+ 
 
 
 

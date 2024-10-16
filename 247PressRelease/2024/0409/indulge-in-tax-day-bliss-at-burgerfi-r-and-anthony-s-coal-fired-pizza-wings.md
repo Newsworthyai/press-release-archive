@@ -7,7 +7,11 @@ FORT LAUDERDALE, FL, April 09, 2024 /24-7PressRelease/ -- BurgerFi International
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509763/indulge-in-tax-day-bliss-at-burgerfi-and-anthonys-coal-fired-pizza-wings)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/enjoy-15-off-on-tax-day-at-burgerfi-and-anthony-s-coal-fired-pizza-wings-locations/c001b5700f8b4151f16e326b2ce7703d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/indulge-in-tax-day-bliss-with-burgerfi-r-and-anthony-s-coal-fired-pizza-wings)
+ 
 
 
 

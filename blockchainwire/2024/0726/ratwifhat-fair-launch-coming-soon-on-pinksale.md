@@ -9,7 +9,21 @@ Get ready to laugh your way to the moon with RATWIFHAT!Game On The RATWIFHAT com
 [Original/Source Press Release](https://blockchainwire.io/press-release/ratwifhat-fair-launch-coming-soon-on-pinksale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ratwifhat-to-launch-presale-of-meme-token-with-exciting-features/7df2295a46179c033c607edf0a023068) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ratwifhat-to-launch-presale-of-meme-token-with-exciting-features)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ratwifhat-to-launch-presale-of-meme-token-with-exciting-features)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/ratwifhat-meme-token-set-for-fair-launch-on-pinksale-promising-innovative-features-and-community-engagement)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ratwifhat-set-for-explosive-fair-launch-on-pinksale/20245285)
+
+Pickup - [advos.io](https://advos.io/en/ratwifhat-set-for-august-1-fair-launch-on-pinksale/20245285)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ratwifhat-meme-token-prepares-for-fair-launch-on-pinksale)
+ 
 
 
 

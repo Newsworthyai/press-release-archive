@@ -35,7 +35,17 @@ SalesNexus is a leading provider of CRM and email marketing solutions designed t
 [Original/Source Press Release](https://newsworthy.ai/news/202408291250/create-emails-instantly-with-email-ai)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/salesnexus-launches-ai-powered-email-writer-to-transform-business-email-marketing/c20148974bb018fbdfde57e82f078409) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/salesnexus-launches-ai-powered-email-writer-to-revolutionize-business-communication)
+
+Pickup - [fishervista.com](https://fishervista.com/en/salesnexus-launches-ai-powered-email-writer-to-revolutionize-email-marketing/20246371)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/salesnexus-launches-ai-powered-email-writer-to-revolutionize-email-marketing/20246371)
+
+Pickup - [advos.io](https://advos.io/en/salesnexus-launches-ai-powered-email-writer-to-revolutionize-email-marketing/20246371)
+ 
 
 
 

@@ -39,7 +39,17 @@ RMT Financial is a leading provider of financial services, offering a wide range
 [Original/Source Press Release](https://blockchainwire.io/press-release/rmt-financial-launches-innovative-ai-powered-risk-management-tool-to-protect-client-investments)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rmt-financial-launches-groundbreaking-ai-powered-risk-management-tool/2f6abb56ca2960b52da33e31b6420909) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/rmt-financial-unveils-ai-powered-risk-management-tool-for-enhanced-investment-protection)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rmt-financial-unveils-ai-powered-risk-management-tool-to-enhance-investment-protection/20246339)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/rmt-financial-unveils-ai-powered-risk-management-tool-for-enhanced-investment-protection/20246339)
+
+Pickup - [advos.io](https://advos.io/en/rmt-financial-unveils-ai-powered-risk-management-tool/20246339)
+ 
 
 
 

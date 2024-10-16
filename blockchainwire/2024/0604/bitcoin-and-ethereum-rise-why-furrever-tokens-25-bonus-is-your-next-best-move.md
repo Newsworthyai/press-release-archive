@@ -23,7 +23,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-and-ethereum-rise-why-furrever-tokens-25-bonus-is-your-next-best-move)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/furrever-token-offers-exclusive-25-bonus-amidst-bitcoin-and-ethereum-surge/9fffa2c7f852a278a8ef6bd088b27c1f) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/furrever-token-offers-exclusive-25-bonus-amidst-bitcoin-and-ethereum-surge)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/furrever-token-offers-exclusive-25-bonus-amidst-bitcoin-and-ethereum-surge)
+ 
 
 
 

@@ -17,7 +17,9 @@ For more information on The Infusionist provided at Tyler Wellness Center, pleas
 [Original/Source Press Release](https://newsworthy.ai/news/202402221084/the-infusionist-offers-ketamine-therapy-in-tyler-tx-a-promising-approach-to-mental-health-treatment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ketamine-therapy-gains-recognition-for-mental-health-treatment/1af05c4230760e82c2049dda3348d12e) 
+
+ 
 
 
 

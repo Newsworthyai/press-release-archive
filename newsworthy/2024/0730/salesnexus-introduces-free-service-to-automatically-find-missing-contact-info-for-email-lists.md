@@ -21,7 +21,17 @@ For more information about SalesNexus and its new service, visit https://www.sal
 [Original/Source Press Release](https://newsworthy.ai/news/202407301218/salesnexus-unveils-innovative-feature-to-find-missing-contact-information-for-any-email-list)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/salesnexus-unveils-free-service-to-find-missing-contact-information/a309369632c3289292bee649bbbf6fe9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/salesnexus-launches-free-service-to-automatically-complete-email-list-contact-information)
+
+Pickup - [fishervista.com](https://fishervista.com/en/salesnexus-launches-free-service-to-automatically-enrich-email-lists/20245343)
+
+Pickup - [advos.io](https://advos.io/en/salesnexus-launches-free-service-to-enhance-email-list-contact-information/20245343)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/salesnexus-launches-free-service-to-enhance-email-lists-with-missing-contact-information)
+ 
 
 
 

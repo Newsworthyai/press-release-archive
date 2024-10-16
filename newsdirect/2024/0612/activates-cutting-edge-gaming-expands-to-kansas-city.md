@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/activates-cut
 [Original/Source Press Release](https://newsdirect.com/news/activates-cutting-edge-gaming-expands-to-kansas-city-505425099)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/activate-expands-to-kansas-city-with-unique-active-gaming-facility/211cfcdb14b164c0f5477660797d02b6) 
+
+
+Pickup - [advos.io](https://advos.io/en/activate-brings-high-tech-active-gaming-to-kansas-city/20244080)
+ 
 
 
 

@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/sector-spotli
 [Original/Source Press Release](https://newsdirect.com/news/sector-spotlight-top-4-basket-of-diagnostic-stocks-exas-gh-ilmn-ludg-857656365)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/diagnostic-stocks-thrive-amid-pandemic-fallout/62a18a40048466d1493305ccf90205e5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/23/diagnostic-stocks-rebound-four-companies-leading-the-way-in-cancer-screening-innovation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/revitalized-diagnostic-stocks-poised-for-growth-post-pandemic/20245919)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/diagnostic-stocks-rebound-as-cancer-screening-demand-surges-post-pandemic/20245919)
+
+Pickup - [advos.io](https://advos.io/en/diagnostic-stocks-poised-for-growth-amid-post-pandemic-shifts/20245919)
+ 
 
 
 

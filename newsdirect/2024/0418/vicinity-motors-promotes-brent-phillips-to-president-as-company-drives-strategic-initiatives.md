@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/vicinity-moto
 [Original/Source Press Release](https://newsdirect.com/news/vicinity-motors-promotes-brent-phillips-to-president-as-company-drives-strategic-initiatives-817813808)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brent-phillips-to-lead-vicinity-motors-strategic-initiatives-in-electric-vehicle-market/4e64e935efd57711c3007cd4972ec99f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/vicinity-motors-promotes-brent-phillips-to-president-as-company-drives-strategic-initiatives)
+ 
 
 
 

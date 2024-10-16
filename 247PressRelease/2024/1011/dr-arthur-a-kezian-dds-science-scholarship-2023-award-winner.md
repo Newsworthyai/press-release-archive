@@ -7,7 +7,9 @@ LOS ANGELES, CA, October 11, 2024 /24-7PressRelease/ -- The Dr. Arthur A. Kezian
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515191/dr-arthur-a-kezian-dds-science-scholarship-2023-award-winner)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-arthur-a-kezian-dds-science-scholarship-winner-announced/527694c728a0a4f8f14ae2da98d8fa92) 
+
+ 
 
 
 

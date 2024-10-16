@@ -7,7 +7,17 @@ FORT WORTH, TX, September 03, 2024 /24-7PressRelease/ -- Tieshia Johnson proudly
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513802/nail-and-beauty-bar-now-open-at-the-salon-and-spa-galleria-bridgewood-in-fort-worth-texas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-nail-and-beauty-bar-opens-in-fort-worth-texas/70902ed3d002dce0d4b3452bbe5aa1ce) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/nail-and-beauty-bar-opens-at-salon-and-spa-galleria-bridgewood-in-fort-worth/20246466)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/new-nail-and-beauty-bar-opens-at-salon-and-spa-galleria-bridgewood-in-fort-worth/20246466)
+
+Pickup - [advos.io](https://advos.io/en/nail-and-beauty-bar-opens-at-salon-and-spa-galleria-bridgewood-in-fort-worth/20246466)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/new-nail-and-beauty-bar-opens-at-salon-and-spa-galleria-bridgewood-in-fort-worth)
+ 
 
 
 

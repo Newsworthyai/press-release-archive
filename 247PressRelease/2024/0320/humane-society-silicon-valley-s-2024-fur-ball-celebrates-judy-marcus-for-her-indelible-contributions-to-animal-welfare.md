@@ -7,7 +7,11 @@ MILPITAS, CA, March 20, 2024 /24-7PressRelease/ -- Humane Society Silicon Valley
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509379/humane-society-silicon-valleys-2024-fur-ball-celebrates-judy-marcus-for-her-indelible-contributions-to-animal-welfare)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/humane-society-silicon-valley-to-celebrate-honorary-board-member-judy-marcus-at-the-fur-ball/da7df71ad1b4e2e5554d21788239e726) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/silicon-valley-humane-society-honors-judy-marcus-at-annual-fur-ball)
+ 
 
 
 

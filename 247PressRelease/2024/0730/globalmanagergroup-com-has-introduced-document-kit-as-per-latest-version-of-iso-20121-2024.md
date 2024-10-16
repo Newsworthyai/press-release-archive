@@ -7,7 +7,17 @@ NEWARK, NJ, July 30, 2024 /24-7PressRelease/ -- In February 2024, ISO.org has up
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512917/globalmanagergroupcom-has-introduced-document-kit-as-per-latest-version-of-iso-201212024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-manager-group-introduces-iso-20121-2024-documentation-kit-for-sustainable-event-management/c5f1ca875ffb5c2a09ccf97e42a3168c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/global-manager-group-launches-updated-iso-20121-2024-documentation-kit-for-sustainable-event-management)
+
+Pickup - [fishervista.com](https://fishervista.com/en/global-manager-group-launches-comprehensive-iso-20121-2024-documentation-kit/20245336)
+
+Pickup - [advos.io](https://advos.io/en/global-manager-group-launches-iso-20121-2024-documentation-kit-for-sustainable-event-management/20245336)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/global-manager-group-releases-updated-iso-20121-2024-documentation-kit-for-sustainable-event-management)
+ 
 
 
 

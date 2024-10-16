@@ -7,7 +7,11 @@ MONTREAL, QC, April 05, 2024 /24-7PressRelease/ -- With the ever-dynamic landsca
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509835/the-future-of-online-dating-safety-with-antiarnaques)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/antiarnaques-pioneering-efforts-to-fight-online-dating-scammers/04c5734c767ec01c651a998bfb1b7c00) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/pioneering-online-dating-safety-with-antiarnaques)
+ 
 
 
 

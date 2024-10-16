@@ -7,7 +7,15 @@ INDIANAPOLIS, IN, July 12, 2024 /24-7PressRelease/ -- Craig, Kelley & Faultless,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512455/craig-kelley-faultless-partner-david-w-craig-achieves-recertification-in-truck-accident-law-from-the-national-board-of-trial-advocacy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/david-w-craig-achieves-recertification-in-truck-accident-law/2acbdf55f98913127fdb65f1542e5217) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/david-w-craig-achieves-prestigious-recertification-in-truck-accident-law)
+
+Pickup - [fishervista.com](https://fishervista.com/en/david-w-craig-achieves-recertification-in-truck-accident-law/20244903)
+
+Pickup - [advos.io](https://advos.io/en/david-w-craig-achieves-recertification-in-truck-accident-law-from-nbta/20244903)
+ 
 
 
 

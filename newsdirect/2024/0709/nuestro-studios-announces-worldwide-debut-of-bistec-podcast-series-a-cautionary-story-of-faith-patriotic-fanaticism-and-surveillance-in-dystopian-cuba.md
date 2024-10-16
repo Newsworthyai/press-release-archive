@@ -59,7 +59,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/nuestro-studi
 [Original/Source Press Release](https://newsdirect.com/news/nuestro-studios-announces-worldwide-debut-of-bistec-podcast-series-a-cautionary-story-of-faith-patriotic-fanaticism-and-surveillance-in-dystopian-cuba-305585400)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nuestro-studios-launches-bistec-podcast-series-on-cuban-surveillance/3becf28825a4c7287a3e3f87ae5145c4) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/nuestro-studios-launches-bistec-podcast-a-dystopian-tale-of-faith-and-surveillance-in-cuba/20244809)
+
+Pickup - [advos.io](https://advos.io/en/nuestro-studios-launches-bistec-podcast-series-highlighting-dystopian-cuba/20244809)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/nuestro-studios-launches-bistec-podcast-series-exploring-surveillance-and-dissent-in-cuba)
+ 
 
 
 

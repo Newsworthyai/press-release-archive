@@ -57,7 +57,9 @@ info@imdcompaniesinc.com
 [Original/Source Press Release](https://www.newmediawire.com/news/imd-companies-and-its-subsidiary-riize-health-announce-new-product-lines-riize-hair-riize-weight-maintenance-7076226)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/imd-companies-inc-subsidiary-riize-health-announces-launch-of-two-innovative-healthcare-products/9ec5b785dd6d67889be7c3fbc642638d) 
+
+ 
 
 
 

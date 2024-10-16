@@ -33,7 +33,11 @@ CNS Pharmaceuticals (NASDAQ: CNSP), a biopharmaceutical company specializing in 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/cns-pharmaceuticals-nasdaq-cnsp-publishes-q2-2024-results/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cns-pharmaceuticals-releases-q2-2024-financial-results-and-clinical-development-progress/41146ff7932ac8acf06f251637d9e1fe) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cns-pharmaceuticals-reports-q2-2024-results-and-advances-cancer-treatment-research/20246112)
+ 
 
 
 

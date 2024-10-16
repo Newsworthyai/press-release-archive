@@ -47,7 +47,9 @@ Visit Our Website
 [Original/Source Press Release](https://newsroom.prkarma.com/brynparrygolf/news_release/1461)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/16-year-old-anthony-whiting-secures-victory-at-mjt-maui-jim-series-golf-tournament/e0744f5eba88dab0f6ea4bb9ce55515d) 
+
+ 
 
 
 

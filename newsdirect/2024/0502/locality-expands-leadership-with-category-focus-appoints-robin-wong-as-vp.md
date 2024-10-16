@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/locality-expa
 [Original/Source Press Release](https://newsdirect.com/news/locality-expands-leadership-with-category-focus-appoints-robin-wong-as-vp-367325016)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/locality-appoints-robin-wong-as-vice-president-category-lead/336d83fc810a41a42defe741a19d32b7) 
+
+ 
 
 
 

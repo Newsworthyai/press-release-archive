@@ -31,7 +31,23 @@ Email Address: ceo@meeetapp.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/meeet-launches-revolutionary-social-discovery-app-with-5m-turnover-in-first-week)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meeet-app-revolutionizes-business-communication-with-meet-to-earn-technology/53e368598c2e79b85a248492dadba804) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/meeet-app-revolutionizes-social-networking-with-5m-first-week-sales/20245459)
+
+Pickup - [fishervista.com](https://fishervista.com/en/meeet-launches-social-discovery-app-achieves-5m-in-first-week/20245459)
+
+Pickup - [advos.io](https://advos.io/en/meeet-social-discovery-app-reaches-5m-in-sales-within-first-week-of-launch/20245459)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/meeet-app-revolutionizes-business-communication-with-meet-to-earn-technology)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/meeet-app-revolutionizes-business-communication-with-meet-to-earn-technology)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/meeet-app-revolutionizes-social-networking-with-5m-first-week-sales)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/meeet-app-revolutionizes-social-networking-with-5m-first-week-sales)
+ 
 
 
 

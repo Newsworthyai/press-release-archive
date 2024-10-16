@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/auditsoft-and
 [Original/Source Press Release](https://newsdirect.com/news/auditsoft-and-site-app-pro-partner-to-transform-safety-and-compliance-auditing-130490289)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/auditsoft-partners-with-site-app-pro-to-streamline-workplace-safety/9af378d4bf6b026e08b7633e9f9dce99) 
+
+ 
 
 
 

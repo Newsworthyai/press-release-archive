@@ -7,7 +7,11 @@ NEW YORK, NY, April 08, 2024 /24-7PressRelease/ -- EMAM, Inc. and TruScribe have
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509810/truscribe-brings-illustration-to-emam-managed-media-libraries)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/emam-inc-and-truscribe-partner-to-enhance-visual-storytelling-capabilities/9ba31424b1f6a627cb8b4b0913fd21b0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/truscribe-and-emam-partner-to-enhance-media-asset-management)
+ 
 
 
 

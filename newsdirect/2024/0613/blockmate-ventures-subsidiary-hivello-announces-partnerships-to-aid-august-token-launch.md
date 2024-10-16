@@ -21,7 +21,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/blockmate-ven
 [Original/Source Press Release](https://newsdirect.com/news/blockmate-ventures-subsidiary-hivello-announces-partnerships-to-aid-august-token-launch-284167830)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockmate-ventures-ceo-announces-hivello-s-native-token-launch-supported-by-new-partners/2537197cc07914b7965a3e776b5eb4bf) 
+
+
+Pickup - [advos.io](https://advos.io/en/hivello-unveils-strategic-partnerships-for-upcoming-token-launch/20244129)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blockmate-ventures-ceo-announces-hivello-s-native-token-launch-supported-by-new-partners)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blockmate-ventures-ceo-announces-hivello-s-native-token-launch-supported-by-new-partners)
+ 
 
 
 

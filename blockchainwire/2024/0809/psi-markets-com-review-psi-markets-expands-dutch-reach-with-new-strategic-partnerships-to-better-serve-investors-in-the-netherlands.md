@@ -85,7 +85,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/psi-marketscom-review-psi-markets-expands-dutch-reach-with-new-strategic-partnerships-to-better-serve-investors-in-the-netherlands-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/psi-markets-com-expands-global-presence/1efafa0f5fca3ddda55180ff4430b2a4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/psi-markets-com-expands-global-reach-with-strategic-partnerships)
+
+Pickup - [fishervista.com](https://fishervista.com/en/psi-markets-com-expands-global-footprint-with-new-strategic-partnerships/20245626)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/psi-markets-com-expands-global-reach-with-strategic-partnerships/20245626)
+
+Pickup - [advos.io](https://advos.io/en/psi-markets-com-expands-global-footprint-with-new-strategic-partnerships/20245626)
+ 
 
 
 

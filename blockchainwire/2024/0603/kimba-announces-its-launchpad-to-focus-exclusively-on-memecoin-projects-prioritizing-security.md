@@ -19,7 +19,13 @@ For more information, please visit https://kimba.meme/ or https://whitepaper-kim
 [Original/Source Press Release](https://blockchainwire.io/press-release/kimba-announces-its-launchpad-to-focus-exclusively-on-memecoin-projects-prioritizing-security)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kimba-launches-innovative-meme-coin-and-launchpad/24bc8580c01f4a7b006a3ad9ba5cb14f) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/kimba-launches-innovative-meme-coin-and-launchpad)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/kimba-launches-innovative-meme-coin-and-launchpad)
+ 
 
 
 

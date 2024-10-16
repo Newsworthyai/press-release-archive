@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/competitive-p
 [Original/Source Press Release](https://newsdirect.com/news/competitive-power-ventures-cpv-announces-leadership-changes-823868504)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/competitive-power-ventures-announces-leadership-changes-and-expansion/137bea2619ffb5b0e29f8f2a6d05f63b) 
+
+ 
 
 
 

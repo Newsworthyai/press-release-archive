@@ -57,7 +57,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/gold-price-hi
 [Original/Source Press Release](https://newsdirect.com/news/gold-price-hit-yet-another-all-time-high-in-july-heres-how-austin-gold-nyse-aust-plans-to-continue-to-capitalize-952188838)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-price-hits-all-time-high-austin-gold-s-exploration-plans/dd38b8e7ac4417d1dafe9ea9f2b4879a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/austin-gold-advances-exploration-projects-amid-record-gold-prices)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gold-prices-reach-new-highs-austin-gold-nyse-aust-strategizes-to-capitalize/20245363)
+
+Pickup - [advos.io](https://advos.io/en/gold-prices-reach-new-highs-austin-gold-s-strategic-moves-to-capitalize/20245363)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/austin-gold-advances-exploration-efforts-amid-record-gold-prices)
+ 
 
 
 

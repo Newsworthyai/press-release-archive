@@ -45,7 +45,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/kampgrounds-o
 [Original/Source Press Release](https://newsdirect.com/news/kampgrounds-of-americas-summer-camping-guide-and-trends-311282823)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kampgrounds-of-america-s-summer-camping-guide-and-trends-revealed/f10863d47d33a0076af2d030b6d35f6c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/kampgrounds-of-america-reveals-key-trends-in-10th-annual-camping-and-outdoor-hospitality-report/20244552)
+
+Pickup - [advos.io](https://advos.io/en/kampgrounds-of-america-releases-10th-annual-camping-and-outdoor-hospitality-report/20244552)
+ 
 
 
 

@@ -43,7 +43,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/entertain-wit
 [Original/Source Press Release](https://newsdirect.com/news/entertain-with-ease-expert-tips-for-hosting-a-summer-party-948348739)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/expert-tips-for-easy-and-memorable-summer-gatherings-from-mcalister-s-deli/3c123ee48da13f29d18777babf3163da) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/mcalister-s-deli-unveils-expert-tips-and-special-offers-for-effortless-summer-hosting/20244339)
+
+Pickup - [advos.io](https://advos.io/en/mcalister-s-deli-shares-expert-tips-for-effortless-summer-entertaining/20244339)
+ 
 
 
 

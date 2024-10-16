@@ -29,7 +29,9 @@ Media Contact:Justin McKenzieThe Building Texas Showwww.buildingtexasshow.com
 [Original/Source Press Release](https://newsworthy.ai/news/202409241275/gvtc-foundation-and-the-building-texas-show-highlight-cooperative-impact-in-texas-a-call-to-grow-round-up-program-participation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sonia-aguillon-discusses-the-impact-of-gvtc-foundation-on-the-building-texas-show/045c411460524baae43077e52af1f273) 
+
+ 
 
 
 

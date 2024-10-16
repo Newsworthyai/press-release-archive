@@ -37,7 +37,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/shedding-ligh
 [Original/Source Press Release](https://newsdirect.com/news/shedding-light-on-cystic-fibrosis-885590568)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cystic-fibrosis-foundation-s-board-chair-kc-white-sheds-light-on-disease-and-progress-in-care/de941f39d2c0969affb56ba1a338358e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cystic-fibrosis-foundation-advances-care-and-research-under-leadership-of-kc-white/20244583)
+
+Pickup - [advos.io](https://advos.io/en/kc-white-shines-a-light-on-cystic-fibrosis-and-ongoing-efforts-for-a-cure/20244583)
+ 
 
 
 

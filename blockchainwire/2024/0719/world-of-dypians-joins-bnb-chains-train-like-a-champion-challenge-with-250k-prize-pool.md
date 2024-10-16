@@ -57,7 +57,19 @@ You can learn more about World of Dypians and stay up-to-date with its developme
 [Original/Source Press Release](https://blockchainwire.io/press-release/world-of-dypians-joins-bnb-chains-train-like-a-champion-challenge-with-250k-prize-pool)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/world-of-dypians-joins-bnb-chain-s-train-like-a-champion-challenge-for-2024-summer-olympics/1ae9c5ec8878701a0676cbb322710a03) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/19/world-of-dypians-joins-bnb-chain-s-250k-train-like-a-champion-challenge)
+
+Pickup - [fishervista.com](https://fishervista.com/en/world-of-dypians-participates-in-bnb-chains-train-like-a-champion-challenge-with-250k-prize-pool/20245101)
+
+Pickup - [advos.io](https://advos.io/en/world-of-dypians-joins-bnb-chains-250k-train-like-a-champion-challenge/20245101)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/world-of-dypians-joins-bnb-chain-s-train-like-a-champion-challenge-for-2024-summer-olympics)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/world-of-dypians-joins-bnb-chain-s-train-like-a-champion-challenge-for-2024-summer-olympics)
+ 
 
 
 

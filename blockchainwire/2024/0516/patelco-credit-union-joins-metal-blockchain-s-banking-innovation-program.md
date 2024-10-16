@@ -49,7 +49,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/patelco-credit-union-joins-metal-blockchains-banking-innovation-program)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metallicus-announces-patelco-credit-union-s-enrollment-in-banking-innovation-program/4d67638d87214aa56838ca9738464385) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/metallicus-announces-patelco-credit-union-s-enrollment-in-banking-innovation-program)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/metallicus-announces-patelco-credit-union-s-enrollment-in-banking-innovation-program)
+ 
 
 
 

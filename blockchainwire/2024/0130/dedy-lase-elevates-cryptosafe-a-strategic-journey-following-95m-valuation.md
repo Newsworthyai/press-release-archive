@@ -35,7 +35,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/dedy-lase-elevates-cryptosafe-a-strategic-journey-following-95m-valuation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptosafe-secures-20-million-funding-led-by-global-president-dedy-lase/68e27e36d14edca568752a01cce82c08) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/30/dedy-lase-steers-cryptosafe-towards-innovation-and-growth)
+ 
 
 
 

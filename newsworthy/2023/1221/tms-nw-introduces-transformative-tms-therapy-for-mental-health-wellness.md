@@ -17,7 +17,11 @@ TMS NW is committed to making TMS therapy accessible to as many individuals as p
 [Original/Source Press Release](https://newsworthy.ai/news/20231221923/tms-nw-introduces-transformative-tms-therapy-for-mental-health-wellness)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-tms-therapy-now-available-in-vancouver-longview-and-tigard-areas/80bc7ff99494051b0a69165660a56e4e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/21/tms-nw-brings-cutting-edge-brain-therapy-to-the-pacific-northwest)
+ 
 
 
 

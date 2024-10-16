@@ -33,7 +33,19 @@ Additional Details:
 [Original/Source Press Release](https://blockchainwire.io/press-release/wemix-dominates-1-spot-in-gaming-gamefi-play-to-earn-and-web3-categories-on-certiks-cryptocurrency-leaderboard)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemix-tops-certik-s-cryptocurrency-leaderboard-across-key-categories/dc5cc0cd7a76c21d523e507b00b912cc) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/wemix-tops-certik-s-cryptocurrency-leaderboard-in-multiple-categories/20244759)
+
+Pickup - [advos.io](https://advos.io/en/wemix-secures-top-spot-in-gaming-and-web3-categories-on-certiks-leaderboard/20244759)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/wemix-secures-top-spot-in-multiple-categories-on-certik-s-cryptocurrency-leaderboard)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/wemix-tops-certik-s-cryptocurrency-leaderboard-across-key-categories)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/wemix-tops-certik-s-cryptocurrency-leaderboard-across-key-categories)
+ 
 
 
 

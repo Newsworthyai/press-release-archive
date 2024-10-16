@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/panasonic-con
 [Original/Source Press Release](https://newsdirect.com/news/panasonic-connect-expands-solution-suite-to-capture-create-and-deliver-engaging-content-215514766)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/panasonic-connect-expands-solution-suite-to-capture-create-and-deliver-engaging-content/d9f601fe19f8dedfc0a7705032def6af) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/panasonic-connect-unveils-new-solutions-for-dynamic-content-creation)
+ 
 
 
 

@@ -49,7 +49,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/merlin-chain-launches-merl-a-major-leap-forward-in-bitcoin-layer-2-solutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/merlin-chain-launches-merl-token-to-enhance-bitcoin-network-and-facilitate-dapp-growth/33c03a36f11d198811fe556b512eed91) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/merlin-chain-launches-merl-a-major-leap-forward-in-bitcoin-layer-2-solutions)
+ 
 
 
 

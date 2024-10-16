@@ -31,7 +31,11 @@ Get a custom trained AI image generation bot for your community today. Reach the
 [Original/Source Press Release](https://blockchainwire.io/press-release/generaitiv-introduces-custom-ai-engagement-bots-to-empower-digital-communities-everywhere)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/generaitiv-introduces-custom-ai-engagement-bots-for-digital-communities/cbc699894a8c5cb11edef53de9e66671) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/18/generaitiv-introduces-custom-ai-engagement-bots-for-digital-communities)
+ 
 
 
 

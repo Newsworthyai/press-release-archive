@@ -34,7 +34,11 @@ X (Twitter) | Telegram | Discord | Medium
 [Original/Source Press Release](https://blockchainwire.io/press-release/mazze-set-to-launch-sustainable-l1-blockchain-solution-with-pow-and-dag-architecture)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mazze-unveils-groundbreaking-l1-blockchain-solution-for-web3/63d33995356c23dbd4bb214f7b131cb3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/04/mazze-pioneering-a-sustainable-and-community-driven-l1-blockchain)
+ 
 
 
 

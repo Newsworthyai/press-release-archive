@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/three-investm
 [Original/Source Press Release](https://newsdirect.com/news/three-investment-banks-initiate-coverage-on-bitdeer-with-buy-ratings-and-price-targets-implying-potential-triple-digit-upside-698321832)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/three-investment-banks-initiate-coverage-on-bitdeer-with-buy-ratings-and-price-targets-implying-potential-triple-digit-upside/847b60bc6cddd78b461c263d47a74d92) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/bitdeer-gains-bullish-outlook-as-investment-banks-initiate-coverage)
+ 
 
 
 

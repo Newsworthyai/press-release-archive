@@ -63,7 +63,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/zoomex-now-of
 [Original/Source Press Release](https://newsdirect.com/news/zoomex-now-offers-spot-trading-to-traders-267207029)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zoomex-expands-services-to-include-spot-trading/afd9148301188297ab282126fdf3206b) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/zoomex-expands-trading-services-with-introduction-of-spot-trading/20244385)
+
+Pickup - [advos.io](https://advos.io/en/zoomex-expands-services-to-include-spot-trading-for-cryptocurrency-traders/20244385)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/zoomex-expands-services-to-include-spot-trading)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/zoomex-expands-services-to-include-spot-trading)
+ 
 
 
 

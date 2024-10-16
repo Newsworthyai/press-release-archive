@@ -51,7 +51,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/dentalplans-c
 [Original/Source Press Release](https://newsdirect.com/news/dentalplans-com-empowering-families-to-live-healthier-lives-through-affordable-and-flexible-dental-savings-plans-226463023)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dentalplans-com-revolutionizes-dental-savings-plans/04271ea70ce7d078e8087f16d2c99655) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dentalplans-com-revolutionizes-dental-care-with-affordable-and-flexible-savings-plans/20244497)
+
+Pickup - [advos.io](https://advos.io/en/dentalplans-com-enhances-access-to-affordable-dental-care-with-flexible-savings-plans/20244497)
+ 
 
 
 

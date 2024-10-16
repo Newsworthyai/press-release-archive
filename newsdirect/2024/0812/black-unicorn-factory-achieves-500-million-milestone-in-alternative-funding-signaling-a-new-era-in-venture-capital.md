@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/black-unicorn
 [Original/Source Press Release](https://newsdirect.com/news/black-unicorn-factory-achieves-500-million-milestone-in-alternative-funding-signaling-a-new-era-in-venture-capital-106574343)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/black-unicorn-factory-achieves-500-million-milestone-in-alternative-funding-signaling-a-new-era-in-venture-capital/252642737ed033e2ab07c960fc628863) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/black-unicorn-factory-revolutionizes-venture-capital-with-500-million-in-alternative-funding)
+
+Pickup - [fishervista.com](https://fishervista.com/en/black-unicorn-factory-reaches-500-million-milestone-in-alternative-funding-redefines-venture-capital-landscape/20245648)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/black-unicorn-factory-revolutionizes-venture-capital-with-500-million-in-alternative-funding/20245648)
+
+Pickup - [advos.io](https://advos.io/en/black-unicorn-factory-reaches-500-million-in-alternative-funding-revolutionizing-venture-capital/20245648)
+ 
 
 
 

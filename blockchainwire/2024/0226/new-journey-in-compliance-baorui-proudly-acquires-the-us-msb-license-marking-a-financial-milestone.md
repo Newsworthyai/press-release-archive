@@ -21,7 +21,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/new-journey-in-compliance-baorui-proudly-acquires-the-us-msb-license-marking-a-financial-milestone)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/baorui-acquires-us-msb-license-bolstering-global-crypto-presence/4dfad08e877f2b2e38301e6552e8c447) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/26/baorui-acquires-us-msb-license-expanding-regulatory-footprint)
+ 
 
 
 

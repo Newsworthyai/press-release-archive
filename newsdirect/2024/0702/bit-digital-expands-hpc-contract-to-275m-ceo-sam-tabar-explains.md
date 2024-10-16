@@ -23,7 +23,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/bit-digital-e
 [Original/Source Press Release](https://newsdirect.com/news/bit-digital-expands-hpc-contract-to-275m-ceo-sam-tabar-explains-678992141)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bit-digital-inc-ceo-sam-tabar-expands-hpc-contract-to-275m/3210e0a7968be257f714806bdbe61583) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bit-digital-expands-hpc-contract-to-275-million-signaling-major-growth-in-ai-sector/20244632)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/bit-digital-doubles-gpu-fleet-secures-275-million-hpc-contract)
+
+Pickup - [advos.io](https://advos.io/en/bit-digital-expands-hpc-contract-to-275m-ceo-sam-tabar-explains/20244632)
+ 
 
 
 

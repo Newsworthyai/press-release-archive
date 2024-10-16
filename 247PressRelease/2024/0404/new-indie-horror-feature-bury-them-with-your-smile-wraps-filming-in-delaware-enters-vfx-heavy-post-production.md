@@ -7,7 +7,11 @@ NEW YORK, NY, April 04, 2024 /24-7PressRelease/ -- A chilling new thriller, "Bur
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509807/new-indie-horror-feature-bury-them-with-your-smile-wraps-filming-in-delaware-enters-vfx-heavy-post-production)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-thriller-bury-them-with-your-smile-explores-dark-side-of-wealth-and-privilege/bcfd6e3fea17d1770cfee0086b1d3d67) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/indie-horror-film-bury-them-with-your-smile-completes-filming-enters-post-production)
+ 
 
 
 

@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/mosman-oil-an
 [Original/Source Press Release](https://newsdirect.com/news/mosman-oil-and-gas-ramps-up-production-at-stanley-as-it-prepares-for-asset-sale-746486192)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mosman-oil-and-gas-ceo-discusses-production-increase-and-asset-sale-preparation/30dac6b328c3f0082225e6524d5c6a56) 
+
+ 
 
 
 

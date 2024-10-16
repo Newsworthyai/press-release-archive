@@ -57,7 +57,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/cleancloud-ex
 [Original/Source Press Release](https://newsdirect.com/news/cleancloud-expands-global-footprint-now-partnering-with-businesses-in-over-100-countries-646820760)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cleancloud-expands-global-footprint-now-partnering-with-businesses-in-over-100-countries/0758fbb969571821f78829f912ba16fe) 
+
+
+Pickup - [advos.io](https://advos.io/en/cleancloud-expands-global-footprint-partnering-with-businesses-in-over-100-countries/20245840)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/cleancloud-achieves-global-milestone-now-serving-laundry-businesses-in-over-100-countries)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cleancloud-expands-global-reach-now-operating-in-over-100-countries/20245840)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cleancloud-achieves-global-milestone-serving-laundry-businesses-in-over-100-countries/20245840)
+ 
 
 
 

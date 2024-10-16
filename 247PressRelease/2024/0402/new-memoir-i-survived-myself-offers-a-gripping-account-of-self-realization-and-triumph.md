@@ -7,7 +7,11 @@ MOUNT CURRIE, BC, April 02, 2024 /24-7PressRelease/ -- I Survived Myself", a pow
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509734/new-memoir-i-survived-myself-offers-a-gripping-account-of-self-realization-and-triumph)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-memoir-i-survived-myself-chronicles-author-s-journey-of-triumph-and-resilience/51bccbd3afe9f6e82ff8d48005321156) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/i-survived-myself-a-gripping-memoir-of-self-discovery-and-triumph)
+ 
 
 
 

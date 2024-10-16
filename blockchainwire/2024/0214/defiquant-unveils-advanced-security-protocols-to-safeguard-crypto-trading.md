@@ -49,7 +49,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-defiquant-unveils-advanced-security-protocols-to-safeguard-crypto-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-launches-next-generation-security-protocols-for-crypto-trading/d7ce63d1593feebf41c51158fd9fe6b8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/14/defiquant-fortifies-crypto-trading-with-cutting-edge-security-protocols)
+ 
 
 
 

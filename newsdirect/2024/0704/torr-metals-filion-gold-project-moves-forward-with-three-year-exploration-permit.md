@@ -21,7 +21,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/torr-metals-f
 [Original/Source Press Release](https://newsdirect.com/news/torr-metals-filion-gold-project-moves-forward-with-three-year-exploration-permit-871208091)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/torr-metals-ceo-secures-three-year-exploration-permit-for-filion-gold-project/7f015c8c1701b6f0d3318d98aee7ba6b) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/torr-metals-receives-three-year-exploration-permit-for-filion-gold-project/20244716)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/04/torr-metals-secures-three-year-exploration-permit-for-filion-gold-project-in-ontario)
+
+Pickup - [advos.io](https://advos.io/en/torr-metals-filion-gold-project-advances-with-three-year-exploration-permit/20244716)
+ 
 
 
 

@@ -57,7 +57,9 @@ info@imdcompaniesinc.com
 [Original/Source Press Release](https://www.newmediawire.com/news/imd-companies-inc-subsidiary-riize-llc-to-expand-product-line-with-contracted-telemedicine-doctors-7075997)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/imd-companies-inc-completes-acquisition-of-riize-llc-and-expands-product-line/a7457929bb79d606c32473e53be5b0d4) 
+
+ 
 
 
 

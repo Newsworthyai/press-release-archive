@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/n6-group-expa
 [Original/Source Press Release](https://newsdirect.com/news/n6-group-expands-portfolio-with-launch-of-shft-labs-765367124)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/n6-group-expands-portfolio-with-launch-of-shft-labs/320175edeb0299fa580f02a0c53bd204) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/n6-group-launches-shft-labs-a-strategic-think-tank-for-modern-brand-challenges)
+
+Pickup - [fishervista.com](https://fishervista.com/en/n6-group-launches-shft-labs-to-revolutionize-brand-marketing/20245433)
+
+Pickup - [advos.io](https://advos.io/en/n6-group-launches-shft-labs-to-revolutionize-marketing-solutions/20245433)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/n6-group-launches-shft-labs-to-revolutionize-brand-marketing-solutions)
+ 
 
 
 

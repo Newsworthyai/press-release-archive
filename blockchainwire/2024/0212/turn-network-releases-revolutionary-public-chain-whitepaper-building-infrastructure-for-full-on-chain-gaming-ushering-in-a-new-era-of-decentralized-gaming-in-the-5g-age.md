@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/turn-network-releases-revolutionary-public-chain-whitepaper-building-infrastructure-for-full-on-chain-gaming-ushering-in-a-new-era-of-decentralized-gaming-in-the-5g-age)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/turn-network-innovates-on-chain-gaming-with-whitepaper-release/54880ae14a1dbf02ae6920dfad60ffb0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/12/turn-network-unveils-innovative-blockchain-for-on-chain-gaming)
+ 
 
 
 

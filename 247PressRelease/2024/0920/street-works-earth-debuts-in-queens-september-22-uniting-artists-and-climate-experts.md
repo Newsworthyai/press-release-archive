@@ -7,7 +7,9 @@ QUEENS, NY, September 20, 2024 /24-7PressRelease/ -- On September 22, 2024, the 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514527/street-works-earth-debuts-in-queens-september-22-uniting-artists-and-climate-experts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/inaugural-street-works-earth-festival-to-debut-in-jackson-heights-queens/ed414120af76d4fd1ccd65c71738e25c) 
+
+ 
 
 
 

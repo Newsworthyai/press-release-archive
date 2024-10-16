@@ -51,7 +51,13 @@ Media contact:Company Name: TABOO TOKENContact person: James LambertEmail: info@
 [Original/Source Press Release](https://blockchainwire.io/press-release/taboo-unveils-live-streaming-confirms-second-mansion-event-after-successful-marketplace-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/taboo-announces-revolutionary-live-streaming-feature-and-marketplace-launch/61775f85ee837598b696c183c87c9f6f) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/taboo-announces-revolutionary-live-streaming-feature-and-marketplace-launch)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/taboo-announces-revolutionary-live-streaming-feature-and-marketplace-launch)
+ 
 
 
 

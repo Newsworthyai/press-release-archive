@@ -27,7 +27,13 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/moneyman-launches-presale-phase-transforming-defi-through-meme-culture)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-moneyman-the-bull-market-beast-reshaping-defi-culture/e5b1fa07f841ba5a8b09c95f1b05f012) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/introducing-moneyman-the-bull-market-beast-reshaping-defi-culture)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/introducing-moneyman-the-bull-market-beast-reshaping-defi-culture)
+ 
 
 
 

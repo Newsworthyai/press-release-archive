@@ -7,7 +7,11 @@ RALEIGH, NC, March 19, 2024 /24-7PressRelease/ -- Annually, CAHEC extends the Op
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509356/assistance-for-affordable-homeownership-50000-grant-offered-by-cahecs-open-doors-homeownership-initiative)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cahec-announces-25000-grants-for-affordable-housing-development/69656e15b7574a3548211326c36dab3a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/cahec-doubles-grant-funding-for-affordable-homeownership-initiative)
+ 
 
 
 

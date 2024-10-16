@@ -55,7 +55,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/lado-okhotnik
 [Original/Source Press Release](https://newsdirect.com/news/lado-okhotnikov-ceo-of-meta-force-presented-a-pilot-release-of-the-superhero-comic-and-talked-about-further-developments-857355938)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meta-force-unveils-superhero-comic-and-plans-for-cinematic-universe/338a0583890068b1b93dd3a72e84a571) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/meta-force-unveils-superhero-comic-plans-cinematic-universe)
+
+Pickup - [fishervista.com](https://fishervista.com/en/meta-force-ceo-lado-okhotnikov-unveils-new-superhero-comic-plans-for-mfeu/20246204)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/meta-force-unveils-superhero-comic-plans-ambitious-metaverse-cinematic-universe/20246204)
+
+Pickup - [advos.io](https://advos.io/en/meta-force-unveils-superhero-comic-lays-groundwork-for-its-own-cinematic-universe/20246204)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/meta-force-unveils-superhero-comic-and-plans-for-cinematic-universe)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/meta-force-unveils-superhero-comic-and-plans-for-cinematic-universe)
+ 
 
 
 

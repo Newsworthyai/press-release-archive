@@ -61,7 +61,11 @@ ation with a professional financial advisor, before investing in or trading cryp
 [Original/Source Press Release](https://blockchainwire.io/press-release/unlocking-passive-income-with-defiquants-automated-trading-bot)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-unveils-revolutionary-automated-trading-bot-for-crypto-investments/4d2cadbf6f54bd13bf6cebcade9d7fb2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/23/defiquant-unveils-automated-trading-bot-for-passive-crypto-income)
+ 
 
 
 

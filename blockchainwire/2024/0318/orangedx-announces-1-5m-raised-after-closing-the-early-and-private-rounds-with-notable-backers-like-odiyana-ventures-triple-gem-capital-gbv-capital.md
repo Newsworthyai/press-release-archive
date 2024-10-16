@@ -51,7 +51,11 @@ Telegram Official Announcement: https://t.me/Orangedx_Official
 [Original/Source Press Release](https://blockchainwire.io/press-release/orangedx-announces-15m-raised-after-closing-the-early-and-private-rounds-with-notable-backers-like-odiyana-ventures-triple-gem-capital-gbv-capital-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/orangedx-secures-1-5m-funding-for-groundbreaking-bitcoin-defi-platform/b2da2c43e5f6bacc78590d848abc6e9e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/orangedx-secures-1-5m-funding-paving-the-way-for-bitcoin-defi-revolution)
+ 
 
 
 

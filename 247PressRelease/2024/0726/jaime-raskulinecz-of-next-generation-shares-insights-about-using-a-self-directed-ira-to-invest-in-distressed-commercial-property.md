@@ -7,7 +7,17 @@ ROSELAND, NJ, July 26, 2024 /24-7PressRelease/ -- From suburban office parks to 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512855/jaime-raskulinecz-of-next-generation-shares-insights-about-using-a-self-directed-ira-to-invest-in-distressed-commercial-property)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ceo-discusses-impact-of-work-from-home-trend-on-distressed-commercial-properties/75283dc96d3a0ab7508589c4edeb74af) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/self-directed-iras-a-new-avenue-for-investing-in-distressed-commercial-property)
+
+Pickup - [fishervista.com](https://fishervista.com/en/investment-opportunities-in-distressed-commercial-properties-through-self-directed-iras/20245282)
+
+Pickup - [advos.io](https://advos.io/en/investing-in-distressed-commercial-property-with-self-directed-iras-insights-from-next-generation-s-ceo/20245282)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/self-directed-iras-a-new-avenue-for-investing-in-distressed-commercial-property)
+ 
 
 
 

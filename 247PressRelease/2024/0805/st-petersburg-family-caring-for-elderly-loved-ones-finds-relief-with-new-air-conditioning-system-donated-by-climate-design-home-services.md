@@ -7,7 +7,17 @@ ST. PETERSBURG, FL, August 05, 2024 /24-7PressRelease/ -- Climate Design Home Se
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513103/st-petersburg-family-caring-for-elderly-loved-ones-finds-relief-with-new-air-conditioning-system-donated-by-climate-design-home-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/climate-design-home-services-donates-ac-system-to-deserving-family/dd74964bca70b2983138cc3918ffb898) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/climate-design-home-services-donates-air-conditioning-system-to-st-petersburg-family-in-need)
+
+Pickup - [fishervista.com](https://fishervista.com/en/climate-design-home-services-donates-air-conditioning-system-to-st-petersburg-family/20245477)
+
+Pickup - [advos.io](https://advos.io/en/climate-design-home-services-donates-air-conditioning-system-to-st-petersburg-family/20245477)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/climate-design-home-services-donates-air-conditioning-system-to-st-petersburg-family-in-need)
+ 
 
 
 

@@ -7,7 +7,17 @@ PIERRE, SD, August 16, 2024 /24-7PressRelease/ -- Today, U.S. Term Limits announ
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513453/erin-tobin-tapped-as-south-dakota-state-chair-for-us-term-limits)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/erin-tobin-appointed-as-south-dakota-state-chair-for-u-s-term-limits/527a8748b8964cdde8e44de1df100eed) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/16/erin-tobin-named-south-dakota-state-chair-for-u-s-term-limits)
+
+Pickup - [fishervista.com](https://fishervista.com/en/erin-tobin-appointed-south-dakota-state-chair-for-u-s-term-limits/20245779)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/erin-tobin-named-south-dakota-state-chair-for-u-s-term-limits/20245779)
+
+Pickup - [advos.io](https://advos.io/en/erin-tobin-appointed-south-dakota-state-chair-for-u-s-term-limits/20245779)
+ 
 
 
 

@@ -33,7 +33,17 @@ ArhasiChiru BhavansikarChief AI Officercontactus@arhasi.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/intelagen-partners-with-google-cloud-to-deliver-integrity-assurance-mitigate-hallucinations-and-reduce-bias-for-ai)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/intelagen-enhances-partnership-with-google-cloud-to-offer-new-ai-solutions-on-google-cloud-marketplace/187f5d4d5b68c381276435ba05beda57) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/intelagen-strengthens-partnership-with-google-cloud-to-enhance-ai-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/intelagen-collaborates-with-google-cloud-to-enhance-ai-integrity-and-reduce-bias/20245244)
+
+Pickup - [advos.io](https://advos.io/en/intelagen-and-google-cloud-partner-to-enhance-ai-integrity-and-reduce-bias/20245244)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/intelagen-enhances-partnership-with-google-cloud-to-advance-responsible-ai-solutions)
+ 
 
 
 

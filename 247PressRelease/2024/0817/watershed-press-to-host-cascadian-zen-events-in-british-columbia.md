@@ -7,7 +7,17 @@ SEATTLE, WA, August 17, 2024 /24-7PressRelease/ -- Seattle-based poetry nonprofi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513549/watershed-press-to-host-cascadian-zen-events-in-british-columbia)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cascadia-poetics-lab-promotes-anthology-at-british-columbia-events/c334422e207a93274ecb78cf8600b860) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/17/cascadian-zen-poetry-events-to-showcase-bioregional-anthology-in-british-columbia)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cascadia-poetics-lab-hosts-cascadian-zen-events-in-british-columbia/20245797)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cascadian-zen-poetry-events-to-highlight-bioregional-culture-in-british-columbia/20245797)
+
+Pickup - [advos.io](https://advos.io/en/cascadia-poetics-lab-to-host-poetry-events-in-british-columbia/20245797)
+ 
 
 
 

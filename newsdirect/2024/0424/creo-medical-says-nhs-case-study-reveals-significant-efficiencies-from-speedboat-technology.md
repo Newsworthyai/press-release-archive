@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/creo-medical-
 [Original/Source Press Release](https://newsdirect.com/news/creo-medical-says-nhs-case-study-reveals-significant-efficiencies-from-speedboat-technology-306663373)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/creo-medical-reveals-nhs-case-study-shows-significant-efficiencies-from-speedboat-technology/c6ba981def4e91b51863d061f7f196e9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/creo-medical-says-nhs-case-study-reveals-significant-efficiencies-from-speedboat-technology)
+ 
 
 
 

@@ -49,7 +49,11 @@ Disclaimer:This press release may contain forward-looking statements. Forward-lo
 [Original/Source Press Release](https://blockchainwire.io/press-release/unlocking-the-future-of-social-media-marketing-trendingtool--the-tokenized-smm-panel)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trendingtool-revolutionizes-smm-with-tokenized-panel-and-cryptocurrency-integration/2e73080e02a7415611e1aaad881e7221) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/22/trendingtool-revolutionizing-social-media-marketing-with-tokenized-automation)
+ 
 
 
 

@@ -85,7 +85,17 @@ Telephone: 939-212-9068
 [Original/Source Press Release](https://www.newmediawire.com/news/bots-inc-btzi-appoints-grok-as-its-president-in-historic-ai-leadership-move-7076040)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bots-inc-appoints-grok-as-ai-president-ushering-in-new-era-of-corporate-innovation/4917a68b09ff0d3cdcc69c80964fcc38) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/bots-inc-appoints-ai-grok-as-president-in-unprecedented-corporate-move)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bots-inc-appoints-ai-as-president-marking-unprecedented-shift-in-corporate-leadership/20246771)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bots-inc-appoints-ai-as-president-marking-a-new-era-in-corporate-leadership/20246771)
+
+Pickup - [advos.io](https://advos.io/en/bots-inc-appoints-ai-as-president-marking-unprecedented-corporate-leadership-move/20246771)
+ 
 
 
 

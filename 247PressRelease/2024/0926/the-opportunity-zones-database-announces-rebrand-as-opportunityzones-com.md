@@ -7,7 +7,9 @@ DALLAS, TX, September 26, 2024 /24-7PressRelease/ -- OpportunityDb, the world's 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514606/the-opportunity-zones-database-announces-rebrand-as-opportunityzonescom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/opportunitydb-rebrands-as-opportunityzones-com-unveils-new-website-and-tools/9d62a9bacdee0186d184f4e63acedc1a) 
+
+ 
 
 
 

@@ -41,7 +41,11 @@ Disclaimer: The Loaf token is not endorsed by and has no affiliation with any sp
 [Original/Source Press Release](https://blockchainwire.io/press-release/loaf-cat-loaf-the-best-investment-of-2024-in-solanas-meme-coin-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/loaf-cat-the-next-big-thing-in-cryptocurrency-and-internet-culture/c6a7ddedf09299e4ae5ae571a87f475b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/30/loaf-cat-loaf-meme-coin-sensation-poised-for-crypto-bull-run)
+ 
 
 
 

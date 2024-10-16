@@ -55,7 +55,9 @@
 [Original/Source Press Release](http://www.newmediawire.com/news/international-research-challenge-to-tackle-knowledge-gaps-in-women-s-cardiovascular-health-7076088)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-heart-association-joins-global-effort-to-advance-women-s-heart-health/c35e120473fcb6418163d36f2f4747bb) 
+
+ 
 
 
 

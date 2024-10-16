@@ -7,7 +7,9 @@ TORONTO, ON, May 23, 2024 /24-7PressRelease/ -- Dr. Sam Adeyemi, author and lead
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511107/dr-sam-adeyemi-presents-dear-leader-live-conference-june-22-in-toronto)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-sam-adeyemi-to-host-dear-leader-live-2024-a-transformative-leadership-event/f549ee033dc90645e946413521fd2488) 
+
+ 
 
 
 

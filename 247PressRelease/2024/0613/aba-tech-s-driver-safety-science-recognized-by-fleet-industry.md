@@ -7,7 +7,11 @@ MELBOURNE, FL, June 13, 2024 /24-7PressRelease/ -- ABA Technologies, Inc. (ABA T
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511681/aba-techs-driver-safety-science-recognized-by-fleet-industry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aba-technologies-inc-featured-in-automotive-fleet-magazine-for-behavior-science-based-driver-safety-solutions/f89c14ad8411fcd8904db6bded68f82e) 
+
+
+Pickup - [advos.io](https://advos.io/en/aba-technologies-behavioral-approach-to-driver-safety-gains-recognition-in-fleet-industry/20244107)
+ 
 
 
 

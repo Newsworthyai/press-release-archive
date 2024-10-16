@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/anthropos-rai
 [Original/Source Press Release](https://newsdirect.com/news/anthropos-raises-2-7m-to-help-companies-build-the-workforce-of-the-future-using-ai-267948178)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/anthropos-raises-2-7m-to-revolutionize-workforce-development-with-ai/82c622a2305781dbd706b0d84d11da2f) 
+
+ 
 
 
 

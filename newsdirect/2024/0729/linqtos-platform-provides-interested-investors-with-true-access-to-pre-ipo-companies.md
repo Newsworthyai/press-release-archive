@@ -53,7 +53,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/linqtos-platf
 [Original/Source Press Release](https://newsdirect.com/news/linqtos-platform-provides-interested-investors-with-true-access-to-pre-ipo-companies-931309753)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/linqto-revolutionizes-retail-investor-access-to-private-companies/2742ccebf7fab74136fb0153f0212c48) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/linqto-revolutionizes-private-equity-investing-for-retail-investors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/linqto-s-platform-democratizes-access-to-pre-ipo-investments-for-retail-investors/20245319)
+
+Pickup - [advos.io](https://advos.io/en/linqto-s-platform-democratizes-pre-ipo-investment-for-retail-investors/20245319)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/linqto-democratizes-access-to-pre-ipo-investments-for-retail-investors)
+ 
 
 
 

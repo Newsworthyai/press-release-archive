@@ -23,7 +23,11 @@ Empower your chiropractic journey. Discover more at www.ChiropractorExperts.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231219789/introducing-chiropractorexperts-com-the-premier-destination-for-chiropractic-knowledge)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chiropractorexperts-com-launches-to-provide-unparalleled-insights-into-chiropractic-care/7c4e14837f66204e6d3ea524bc078af9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/19/chiropractorexperts-com-emerges-as-premier-destination-for-chiropractic-knowledge)
+ 
 
 
 

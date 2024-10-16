@@ -58,7 +58,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-introduces-novel-liquidity-pooling-for-optimal-staking-rewards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-introduces-liquidity-pooled-staking-farm-redefining-crypto-staking/b79f2f788bd3e707b39c852429bd295e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/stakingfarm-unveils-innovative-liquidity-pooled-staking-farm-for-optimal-crypto-rewards)
+ 
 
 
 

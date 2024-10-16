@@ -29,7 +29,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/jonathans-bak
 [Original/Source Press Release](https://newsdirect.com/news/jonathans-baker-fate-the-movie-plays-homage-to-quentin-tarantinos-vista-movie-theater-131048411)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/director-jonathan-baker-s-fate-pays-tribute-to-quentin-tarantino-s-vista-theater/2ed3790f83914d5cb8a83fe95021c00a) 
+
+ 
 
 
 

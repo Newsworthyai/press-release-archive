@@ -79,7 +79,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/4-stocks-to-w
 [Original/Source Press Release](https://newsdirect.com/news/4-stocks-to-watch-as-ev-demand-rebounds-489899707)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ev-market-shows-signs-of-recovery-four-stocks-to-watch/5d61b079150700e285baa1e7a33b1f30) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/4-stocks-to-watch-as-ev-demand-rebounds)
+ 
 
 
 

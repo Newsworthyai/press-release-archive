@@ -23,7 +23,13 @@ Dive deep into the world of performance management at www.PerformanceManagement.
 [Original/Source Press Release](https://newsworthy.ai/news/20231207860/performancemanagement-io-unveils-the-source-for-workforce-productivity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/performancemanagement-io-enriching-insights-for-performance-management-professionals/377e4105a485e9b23583745ee0172195) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/performancemanagement-io-launches-as-comprehensive-resource-for-workforce-productivity-insights/2023385)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/07/performancemanagement-io-unlocking-workforce-productivity-insights)
+ 
 
 
 

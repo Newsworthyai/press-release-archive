@@ -55,7 +55,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/cpv-renewable
 [Original/Source Press Release](https://newsdirect.com/news/cpv-renewables-begins-construction-on-wind-project-in-pennsylvania-cpvs-third-project-utilizing-former-coal-mine-land-442592696)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cpv-renewables-begins-construction-on-wind-project-in-pennsylvania/36b08f24e3691e8e438a058de4a908fa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/cpv-renewables-breaks-ground-on-114-mw-wind-project-in-pennsylvania-repurposing-former-coal-mine-land)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cpv-renewables-begins-construction-on-wind-project-in-pennsylvania-repurposing-former-coal-mine-land/20245901)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cpv-renewables-breaks-ground-on-114-mw-wind-project-in-pennsylvania/20245901)
+
+Pickup - [advos.io](https://advos.io/en/cpv-renewables-commences-construction-on-pennsylvania-wind-project/20245901)
+ 
 
 
 

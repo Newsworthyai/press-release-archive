@@ -7,7 +7,11 @@ SILVER SPRING, MD, March 21, 2024 /24-7PressRelease/ -- CAVA, the innovative Med
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509424/first-annual-golf-invitational-wine-tasting-presented-by-cava-to-raise-funds-for-montgomery-county-public-schools-hospitality-management-scholarships)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cava-sponsors-first-annual-golf-invitational-wine-tasting-for-scholarships/c2b510a1c3832e49fb251e4e3e24f209) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/cava-sponsors-golf-invitational-to-support-hospitality-scholarships)
+ 
 
 
 

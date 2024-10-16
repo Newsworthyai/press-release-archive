@@ -7,7 +7,13 @@ Oakland, California (Newsworthy.ai) Friday Mar 1, 2024 @ 7:00 AM Central — A l
 [Original/Source Press Release](https://newsworthy.ai/news/202403011106/hrwest-2024-bringing-the-hr-community-together-for-two-days-of-discussion-and-networking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hrwest-2024-conference-to-highlight-hr-strategy-and-innovation-in-oakland/fe865ec777309c34945f312c01b23354) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hrwest-2024-conference-to-showcase-latest-hr-innovations-and-strategies/2024617)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/01/hrwest-2024-premier-hr-conference-tackles-trends-and-innovations)
+ 
 
 
 

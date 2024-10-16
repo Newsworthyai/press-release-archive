@@ -27,7 +27,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cloudminers-launches-free-cloud-mining-and-start-making-money-with-your-10-bonus)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloudminer-launches-groundbreaking-cloud-mining-platform-with-usd-10-bonus/b889eb617493d5e01218acbafd7aece5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/12/cloudminer-launches-innovative-cloud-mining-platform-with-10-bonus)
+ 
 
 
 

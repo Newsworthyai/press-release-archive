@@ -7,7 +7,9 @@ LOS ANGELES, CA, September 25, 2024 /24-7PressRelease/ -- Rising star Alex Lizzu
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514640/alex-lizzul-takes-best-supporting-actor-for-saint-nick-as-the-film-sweeps-awards-at-major-festivals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rising-star-alex-lizzul-wins-best-supporting-actor-for-saint-nick-set-for-special-screening-at-palm-springs-international-comedy-festival/30adb3c905bd47a0fe6dd6cb8bce3b6e) 
+
+ 
 
 
 

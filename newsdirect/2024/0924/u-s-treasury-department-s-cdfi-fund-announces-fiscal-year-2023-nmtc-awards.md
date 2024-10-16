@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/u-s-treasury-
 [Original/Source Press Release](https://newsdirect.com/news/u-s-treasury-departments-cdfi-fund-announces-fiscal-year-2023-nmtc-awards-923161287)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+ 
 
  
 

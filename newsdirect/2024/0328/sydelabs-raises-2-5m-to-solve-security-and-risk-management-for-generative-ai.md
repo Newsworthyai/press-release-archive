@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/sydelabs-rais
 [Original/Source Press Release](https://newsdirect.com/news/sydelabs-raises-2-5m-to-solve-security-and-risk-management-for-generative-ai-566933759)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/security-risk-management-startup-sydelabs-raises-2-5m-to-secure-generative-ai-systems/c469dfe448da51a73ef056c70003178a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/sydelabs-secures-2-5m-to-safeguard-generative-ai-adoption)
+ 
 
 
 

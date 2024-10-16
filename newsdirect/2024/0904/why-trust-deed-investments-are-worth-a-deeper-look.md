@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/why-trust-dee
 [Original/Source Press Release](https://newsdirect.com/news/why-trust-deed-investments-are-worth-a-deeper-look-707887574)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/demystifying-trust-deeds-ignite-funding-offers-lucrative-real-estate-investment-opportunities/03a9714ea723cf1e0d401129da232194) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/trust-deed-investments-a-misunderstood-opportunity-in-real-estate-finance)
+
+Pickup - [fishervista.com](https://fishervista.com/en/why-trust-deed-investments-deserve-greater-consideration/20246532)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/trust-deed-investments-a-misunderstood-opportunity-in-real-estate-finance/20246532)
+
+Pickup - [advos.io](https://advos.io/en/understanding-the-value-of-trust-deed-investments-in-real-estate/20246532)
+ 
 
 
 

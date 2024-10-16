@@ -71,7 +71,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-study-sho
 [Original/Source Press Release](https://newsdirect.com/news/new-study-shows-cardio-diagnostics-nasdaq-cdio-precisionchd-test-could-save-health-insurers-over-113-million-annually-870971063)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-study-shows-cardio-diagnostics-nasdaq-cdio-precisionchd-test-could-save-health-insurers-over-113-million-annually/5108255711869089e7a8e7a8844e24bf) 
+
+ 
 
 
 

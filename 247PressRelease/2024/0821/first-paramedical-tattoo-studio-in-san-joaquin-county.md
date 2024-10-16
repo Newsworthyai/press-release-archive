@@ -7,7 +7,17 @@ STOCKTON, CA, August 21, 2024 /24-7PressRelease/ -- Skin & Shades Studio, a new 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513577/first-paramedical-tattoo-studio-in-san-joaquin-county)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-center-offers-paramedical-tattooing-for-scar-camouflage-and-emotional-well-being/489a4fb0ec034bd266125317b62dbb34) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/pioneering-paramedical-tattoo-studio-opens-in-san-joaquin-county)
+
+Pickup - [fishervista.com](https://fishervista.com/en/first-paramedical-tattoo-studio-opens-in-san-joaquin-county/20245867)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/skin-shades-studio-brings-innovative-paramedical-tattooing-to-san-joaquin-county/20245867)
+
+Pickup - [advos.io](https://advos.io/en/first-paramedical-tattoo-studio-opens-in-san-joaquin-county/20245867)
+ 
 
 
 

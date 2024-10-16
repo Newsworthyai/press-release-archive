@@ -33,7 +33,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/gta-token-skyrockets-a-new-era-of-crypto-gaming-unfolds)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gta-token-surges-200x-tops-arbitrum-and-sushiswap-rankings/82453a12dfd92d22932ab2a47e65dfca) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/05/gta-token-skyrockets-crypto-gaming-convergence-reaches-new-heights)
+ 
 
 
 

@@ -25,7 +25,9 @@ Paw Paw, Michigan Dispensary continues to be a pivotal landmark in Michigan's ca
 [Original/Source Press Release](https://newsworthy.ai/news/20231122897/royal-weed-cannabis-dispensary-raises-the-bar-in-paw-paw-mi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/royal-weed-cannabis-dispensary-a-leader-in-quality-cannabis-products/6021fc7fc1928f6cf4b61a8639fa12dc) 
+
+ 
 
 
 

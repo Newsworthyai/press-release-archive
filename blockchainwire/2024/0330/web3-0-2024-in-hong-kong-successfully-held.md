@@ -35,7 +35,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/web302024-in-hong-kong-successfully-held)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/websea-global-tour-explores-web3-0-opportunities-in-hong-kong/0ae49e8fd4e1500fb1746ce19bfa5c15) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/30/websea-embarks-on-web3-0-era-with-global-tour-in-hong-kong)
+ 
 
 
 

@@ -45,7 +45,11 @@ Broker Complaint Alert is dedicated to assisting victims of online scams and fra
 [Original/Source Press Release](https://blockchainwire.io/press-release/broker-complaint-alert-introduces-ai-driven-scam-analysis-service)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/broker-complaint-alert-launches-ai-driven-scam-analysis-service/e387f608c92e0056fce42604fa952e65) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/01/broker-complaint-alert-unleashes-ai-to-combat-cryptocurrency-scams)
+ 
 
 
 

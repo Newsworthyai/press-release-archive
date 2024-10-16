@@ -37,7 +37,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/dogita-advances-to-the-next-big-stage-integration-with-solana-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dogita-memecoin-integrates-with-solana-network-continues-remarkable-growth/ad3719eb6986f52d83b6e80e7be62e2a) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/dogita-memecoin-integrates-with-solana-network-continues-remarkable-growth)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/dogita-memecoin-integrates-with-solana-network-continues-remarkable-growth)
+ 
 
 
 

@@ -27,7 +27,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/htxs-trade-to
 [Original/Source Press Release](https://newsdirect.com/news/htxs-trade-to-earn-achievements-in-q2-9-million-htx-tokens-burned-driving-platform-value-higher-419903779)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-burns-9-million-tokens-driving-platform-value-higher/b36be903e3ba5a2b7c4b056e4e3c3668) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/htx-burns-9-million-worth-of-tokens-in-q2-boosting-platform-value)
+
+Pickup - [fishervista.com](https://fishervista.com/en/htx-burns-9-million-worth-of-tokens-in-q2-enhancing-platform-value/20245032)
+
+Pickup - [advos.io](https://advos.io/en/htx-burns-9-million-in-tokens-enhancing-platform-value/20245032)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-burns-9-million-tokens-driving-platform-value-higher)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-burns-9-million-tokens-driving-platform-value-higher)
+ 
 
 
 

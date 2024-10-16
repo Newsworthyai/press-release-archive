@@ -43,7 +43,13 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/elon-trump-et-where-meme-culture-meets-cutting-edge-cryptocurrency)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elon-trump-et-revolutionizes-meme-coin-landscape/07fff62ab5d5a67e23cbf364031df142) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/elon-trump-et-revolutionizes-meme-coin-landscape)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/elon-trump-et-revolutionizes-meme-coin-landscape)
+ 
 
 
 

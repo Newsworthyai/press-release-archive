@@ -7,7 +7,9 @@ LOS ANGELES, CA, May 08, 2024 /24-7PressRelease/ -- HUMAN Clothing x Miller McCo
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510720/human-clothing-x-miller-mccoy-announces-third-collaboration-with-bb-simon-for-cornfed-clothing-collection)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/b-b-simon-and-human-clothing-launch-limited-edition-cornfed-collection/52bbb022338f64f241c2bf70f631504e) 
+
+ 
 
 
 

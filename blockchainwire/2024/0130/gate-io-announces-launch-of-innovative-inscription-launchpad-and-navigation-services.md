@@ -43,7 +43,11 @@ Established in 2013, Gate.io is one of the world’s earliest cryptocurrency e
 [Original/Source Press Release](https://blockchainwire.io/press-release/gateio-announces-launch-of-innovative-inscription-launchpad-and-navigation-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gate-io-launches-innovative-inscription-launchpad-and-navigation-service/4117389baa267fb6b7e19a0ed70f19bf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/30/gate-io-unveils-innovative-inscription-launchpad-and-navigation-services)
+ 
 
 
 

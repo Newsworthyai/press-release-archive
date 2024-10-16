@@ -7,7 +7,17 @@ KUALA LUMPUR, MALAYSIA, September 02, 2024 /24-7PressRelease/ -- Gravity Venture
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513956/gravity-ventures-drives-cross-border-synergies-with-entry-of-six-korean-semiconductor-startups-into-malaysia)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gravity-ventures-supports-korean-semiconductor-startups-expansion-into-malaysian-market/43dc4c8b0a5131b1a9b74543beb10336) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/02/korean-semiconductor-startups-expand-into-malaysia-with-gravity-ventures-support)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gravity-ventures-facilitates-entry-of-six-korean-semiconductor-startups-into-malaysian-market/20246429)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/gravity-ventures-facilitates-malaysian-market-entry-for-six-korean-semiconductor-startups/20246429)
+
+Pickup - [advos.io](https://advos.io/en/gravity-ventures-facilitates-entry-of-six-korean-semiconductor-startups-into-malaysia/20246429)
+ 
 
 
 

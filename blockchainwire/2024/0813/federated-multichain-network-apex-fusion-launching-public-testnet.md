@@ -23,7 +23,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/federated-multichain-network-apex-fusion-launching-public-testnet-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/apex-fusion-launches-highly-anticipated-public-testnet/a917ffccb9411cd4494b88957cde8972) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/apex-fusion-launches-public-testnet-aiming-to-bridge-blockchain-networks)
+
+Pickup - [fishervista.com](https://fishervista.com/en/apex-fusion-launches-public-testnet-aiming-to-overcome-web3-fragmentation/20245701)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/apex-fusion-launches-public-testnet-aims-to-bridge-blockchain-fragmentation/20245701)
+
+Pickup - [advos.io](https://advos.io/en/apex-fusion-launches-public-testnet-to-address-web3-fragmentation/20245701)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/apex-fusion-launches-highly-anticipated-public-testnet)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/apex-fusion-launches-highly-anticipated-public-testnet)
+ 
 
 
 

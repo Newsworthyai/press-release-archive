@@ -7,7 +7,11 @@ NEWPORT BEACH, CA, June 06, 2024 /24-7PressRelease/ -- Triflo Cardiovascular ann
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511453/triflo-cardiovascular-announces-the-presentation-of-clinical-outcomes-of-the-first-tricuspid-valve-regurgitation-patients-treated-in-italy-with-the-tricuspid-flow-optimizer)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/triflo-cardiovascular-s-tricuspid-flow-optimizer-shows-positive-outcomes-in-first-patients/6074e44ea0e87cbfb1d85d1a2a9aa6a3) 
+
+
+Pickup - [advos.io](https://advos.io/en/triflo-cardiovascular-unveils-promising-clinical-outcomes-for-tricuspid-flow-optimizer-in-italy/20243870)
+ 
 
 
 

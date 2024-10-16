@@ -21,7 +21,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/standard-uran
 [Original/Source Press Release](https://newsdirect.com/news/standard-uranium-reports-promising-results-from-winter-2024-drill-program-at-atlantic-project-976268002)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/standard-uranium-reports-promising-results-from-winter-2024-drill-program-at-atlantic-project/93ccec9dfc2996cbccd6d80469c8d0e1) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/standard-uranium-announces-promising-winter-2024-drill-results-at-atlantic-project/20244336)
+
+Pickup - [advos.io](https://advos.io/en/standard-uranium-announces-encouraging-results-from-winter-2024-drill-program-at-atlantic-project/20244336)
+ 
 
 
 

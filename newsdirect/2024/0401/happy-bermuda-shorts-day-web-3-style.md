@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/happy-bermuda
 [Original/Source Press Release](https://newsdirect.com/news/happy-bermuda-shorts-day-web-3-style-544352542)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bsd-nfts-celebrating-bermuda-shorts-day-in-web3-style/89e6ef18fdf3e26335b20de4ee2704f3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/bsd-nfts-celebrating-bermuda-shorts-day-in-web3-style-with-impact)
+ 
 
 
 

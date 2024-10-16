@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/european-gree
 [Original/Source Press Release](https://newsdirect.com/news/european-green-transition-announces-deal-to-acquire-prospective-carbon-credit-project-in-ireland-465079301)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/european-green-transition-announces-exclusive-option-agreement-for-peatland-carbon-sink-programme-in-ireland/0d73722b662c2da90fe0a0615d9cb219) 
+
+ 
 
 
 

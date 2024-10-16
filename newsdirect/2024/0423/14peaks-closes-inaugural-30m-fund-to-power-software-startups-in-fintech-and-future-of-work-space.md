@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/14peaks-close
 [Original/Source Press Release](https://newsdirect.com/news/14peaks-closes-inaugural-30m-fund-to-power-software-startups-in-fintech-and-future-of-work-space-436175571)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/14peaks-capital-closes-inaugural-30m-fund-to-power-software-startups-in-fintech-and-future-of-work-space/44075c13455163af31f63a795d0175e7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/14peaks-closes-inaugural-30m-fund-to-power-software-startups-in-fintech-and-future-of-work-space)
+ 
 
 
 

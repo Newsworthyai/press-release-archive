@@ -7,7 +7,9 @@ NEWARK, DE, April 24, 2024 /24-7PressRelease/ -- XBANKING, a leading innovator i
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510279/xbanking-launches-revolutionary-restaking-protocol-to-boost-passive-income-for-cryptocurrency-holders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xbanking-launches-groundbreaking-restaking-protocol/55dd01ae328ea1c850e68a97b3f55fd3) 
+
+ 
 
 
 

@@ -7,7 +7,11 @@ TOKYO, JAPAN, April 10, 2024 /24-7PressRelease/ -- UniFab, the world leader in a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509902/unifabs-new-inference-engine-is-released-and-the-conversion-speed-is-improved-again)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unifab-launches-new-ai-inference-model-for-video-processing/61535c99c1c316a225877c3fd0a09695) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/unifab-launches-new-inference-engine-with-improved-conversion-speed)
+ 
 
 
 

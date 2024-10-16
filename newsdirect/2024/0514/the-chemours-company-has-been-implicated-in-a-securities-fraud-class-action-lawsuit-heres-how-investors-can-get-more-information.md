@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-chemours-
 [Original/Source Press Release](https://newsdirect.com/news/the-chemours-company-has-been-implicated-in-a-securities-fraud-class-action-lawsuit-heres-how-investors-can-get-more-information-473622406)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chemours-company-faces-securities-fraud-lawsuit/14f6212c99ee5d8773d152da672cd95b) 
+
+ 
 
 
 

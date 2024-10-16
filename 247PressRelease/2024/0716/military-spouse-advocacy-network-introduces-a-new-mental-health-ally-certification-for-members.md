@@ -7,7 +7,15 @@ SAN ANTONIO, TX, July 16, 2024 /24-7PressRelease/ -- In celebration of National 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512541/military-spouse-advocacy-network-introduces-a-new-mental-health-ally-certification-for-members)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-mental-health-ally-certification-launched-by-military-spouse-advocacy-network-and-usaa/7af0809624d37ac7588e409c7fc56a6e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/military-spouse-advocacy-network-launches-mental-health-ally-certification-for-members)
+
+Pickup - [fishervista.com](https://fishervista.com/en/military-spouse-advocacy-network-launches-mental-health-ally-certification/20244975)
+
+Pickup - [advos.io](https://advos.io/en/military-spouse-advocacy-network-launches-mental-health-ally-certification/20244975)
+ 
 
 
 

@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/wise-food-sto
 [Original/Source Press Release](https://newsdirect.com/news/wise-food-storage-expands-accessibility-with-addition-to-military-discount-sites-181301277)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wise-food-storage-expands-accessibility-with-military-discounts/646dc98c043266f4496e27fae33fc8f8) 
+
+ 
 
 
 

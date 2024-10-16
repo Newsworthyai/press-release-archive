@@ -69,7 +69,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/transforming-
 [Original/Source Press Release](https://newsdirect.com/news/transforming-cancer-therapy-stocks-to-watch-in-the-oncology-sector-517934670)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/transforming-cancer-therapy-leading-stocks-in-oncology-sector/8433e55a13fffe81419fb49eaabb2bae) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/innovative-cancer-therapies-spark-interest-in-oncology-sector-stocks)
+
+Pickup - [fishervista.com](https://fishervista.com/en/innovative-cancer-therapies-drive-growth-in-oncology-sector/20246775)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/innovative-cancer-therapies-propel-biotech-stocks-in-oncology-sector/20246775)
+
+Pickup - [advos.io](https://advos.io/en/innovative-cancer-therapies-drive-growth-in-oncology-sector/20246775)
+ 
 
 
 

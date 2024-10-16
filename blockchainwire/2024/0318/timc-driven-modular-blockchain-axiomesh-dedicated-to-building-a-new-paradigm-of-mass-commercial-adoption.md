@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/timc-driven-modular-blockchain---axiomesh-dedicated-to-building-a-new-paradigm-of-mass-commercial-adoption)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/axiomesh-revolutionizes-web3-with-timc-protocol/ea62fef51847678e483d19ef48b0b64f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/axiomesh-pioneers-trusted-inter-module-communication-protocol-for-mass-commercial-blockchain-adoption)
+ 
 
 
 

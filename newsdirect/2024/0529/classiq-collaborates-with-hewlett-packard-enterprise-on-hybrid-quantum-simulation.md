@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/classiq-colla
 [Original/Source Press Release](https://newsdirect.com/news/classiq-collaborates-with-hewlett-packard-enterprise-on-hybrid-quantum-simulation-451407201)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/classiq-develops-rapid-quantum-computing-solution-with-hewlett-packard-labs/de7dc059148f63209580c218d67fd8d1) 
+
+ 
 
 
 

@@ -29,7 +29,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/flash-transfo
 [Original/Source Press Release](https://newsdirect.com/news/flash-transforms-parking-at-denver-international-airport-146874367)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/flash-transforms-parking-at-denver-international-airport/3fc3d6e9560a90abd60b6994cd1067d9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/flash-revolutionizes-parking-experience-at-denver-international-airport)
+
+Pickup - [fishervista.com](https://fishervista.com/en/denver-international-airport-modernizes-parking-with-flash-technology/20246795)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/denver-international-airport-revolutionizes-parking-with-flash-technology/20246795)
+
+Pickup - [advos.io](https://advos.io/en/flash-modernizes-parking-system-at-denver-international-airport/20246795)
+ 
 
 
 

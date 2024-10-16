@@ -71,7 +71,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/rockdao-unvei
 [Original/Source Press Release](https://newsdirect.com/news/rockdao-unveils-strategic-roadmap-with-rockstart-initiative-330527701)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rockdao-unveils-groundbreaking-rockstart-initiative/f6e83eca5c274032544481bee9c844b5) 
+
+
+Pickup - [advos.io](https://advos.io/en/rockdao-unveils-strategic-roadmap-with-rockstart-initiative/20244870)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rockdao-announces-rockstart-initiative-pioneering-nft-powered-crowdfunding-platform/20244870)
+
+Pickup - [citybuzz.co](https://citybuzz.co/rockdao-launches-rockstart-a-revolutionary-nft-powered-crowdfunding-platform)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/rockdao-unveils-groundbreaking-rockstart-initiative)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/rockdao-unveils-groundbreaking-rockstart-initiative)
+ 
 
 
 

@@ -39,7 +39,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/smc-completes
 [Original/Source Press Release](https://newsdirect.com/news/smc-completes-asset-purchase-of-uk-registered-chaintrade-ltd-s-ai-powered-trading-platform-802158708)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/smc-completes-acquisition-of-chaintrade-ltds-ai-powered-trading-platform/aed4f956af745556285a7a07811e7c76) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/smc-entertainment-secures-chaintrade-ltds-ai-powered-trading-platform/20244367)
+
+Pickup - [advos.io](https://advos.io/en/smc-entertainment-acquires-chaintrade-ltd-s-ai-powered-trading-platform/20244367)
+ 
 
 
 

@@ -29,7 +29,13 @@ RChilli is the trusted partner for parsing, matching, and data enrichment, provi
 [Original/Source Press Release](https://newsworthy.ai/news/202403151120/rchilli-is-iso-27001-2022-certified)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-attains-iso-27001-2022-certification-demonstrating-commitment-to-information-security-standards/f6f4abf2cd2cb6fde36ceb6a91626836) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-achieves-iso-27001-2022-certification-reinforcing-commitment-to-information-security/2024779)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/rchilli-achieves-iso-27001-2022-certification-bolstering-data-security-standards)
+ 
 
 
 

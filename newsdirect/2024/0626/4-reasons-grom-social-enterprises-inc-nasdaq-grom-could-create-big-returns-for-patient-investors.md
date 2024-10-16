@@ -59,7 +59,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/4-reasons-gro
 [Original/Source Press Release](https://newsdirect.com/news/4-reasons-grom-social-enterprises-inc-nasdaq-grom-could-create-big-returns-for-patient-investors-125397332)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/grom-social-enterprises-a-kid-friendly-stock-with-significant-upside-potential/a596a8622cd6b2bf421c468c69dfbb54) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/grom-social-enterprises-a-potential-underdog-in-kids-entertainment-sector/20244486)
+
+Pickup - [advos.io](https://advos.io/en/potential-growth-for-grom-social-enterprises-amid-industry-shifts-and-strategic-moves/20244486)
+ 
 
 
 

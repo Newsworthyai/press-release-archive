@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/torque-metals
 [Original/Source Press Release](https://newsdirect.com/news/torque-metals-starts-drilling-for-gold-at-paris-899280685)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/torque-metals-launches-extensive-drilling-campaign-for-gold-at-paris-gold-project/c8fcadc368ca7217574ad06bbdaf30e2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/torque-metals-commences-extensive-drilling-campaign-at-paris-gold-project)
+ 
 
 
 

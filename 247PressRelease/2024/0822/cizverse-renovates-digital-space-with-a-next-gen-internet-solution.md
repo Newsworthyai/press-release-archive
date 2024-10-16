@@ -7,7 +7,21 @@ THRISSUR, INDIA, August 22, 2024 /24-7PressRelease/ -- Witnessing significant ad
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513642/cizverse-renovates-digital-space-with-a-next-gen-internet-solution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cizverse-introduces-innovative-bitcoin-powered-internet-platform-for-user-centric-trading/3b12b26e349e82955675ed3162b0c920) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/cizverse-unveils-revolutionary-web3-platform-for-digital-asset-creation-and-trading)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cizverse-revolutionizes-web3-with-next-gen-bitcoin-powered-internet-platform/20245885)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cizverse-unveils-innovative-web3-platform-for-digital-asset-creation-and-trading/20245885)
+
+Pickup - [advos.io](https://advos.io/en/cizverse-unveils-next-gen-bitcoin-powered-internet-platform/20245885)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cizverse-introduces-innovative-bitcoin-powered-internet-platform-for-user-centric-trading)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cizverse-introduces-innovative-bitcoin-powered-internet-platform-for-user-centric-trading)
+ 
 
 
 

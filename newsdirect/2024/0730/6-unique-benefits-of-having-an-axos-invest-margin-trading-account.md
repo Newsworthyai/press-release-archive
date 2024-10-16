@@ -71,7 +71,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/6-unique-bene
 [Original/Source Press Release](https://newsdirect.com/news/6-unique-benefits-of-having-an-axos-invest-margin-trading-account-814794479)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/take-your-portfolio-to-the-next-level-with-axos-invest-margin-trading/61beccf6e126de25a1f739aa2a150814) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/axos-invest-margin-trading-accounts-offer-unique-benefits-for-investors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/six-key-advantages-of-an-axos-invest-margin-trading-account/20245366)
+
+Pickup - [advos.io](https://advos.io/en/axos-invest-unveils-unique-benefits-of-margin-trading-accounts/20245366)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/axos-invest-offers-compelling-benefits-for-margin-trading-accounts)
+ 
 
 
 

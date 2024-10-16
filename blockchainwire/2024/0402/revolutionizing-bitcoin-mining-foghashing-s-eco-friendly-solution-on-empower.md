@@ -33,7 +33,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/revolutionizing-bitcoin-mining-foghashings-eco-friendly-solution-on-empower)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fog-hashing-unveils-solar-powered-immersion-cooling-for-bitcoin-mining/d0a974cd8c260d11b6d09b7379977bf2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/fog-hashing-pioneers-solar-powered-immersion-cooling-for-sustainable-bitcoin-mining)
+ 
 
 
 

@@ -7,7 +7,9 @@ Sarson Funds, in partnership with the Casper Association, is thrilled to unveil 
 [Original/Source Press Release](https://blockchainwire.io/press-release/sarson-funds-announces-official-launch-of-csprusd-stablecoin-on-casper-network-mainnet)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sarson-funds-and-casper-association-launch-csprusd-stablecoin-on-casper-network-mainnet/01e49288f4f00f0f1a8313c73c1ff362) 
+
+ 
 
 
 

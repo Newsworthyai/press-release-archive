@@ -45,7 +45,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-camlycamly-coin-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-camly-coin-on-its-trading-platform-introduces-camly-usdt-trading-pair/c62e74737f5d4464b4d87450c065185a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/01/camly-coin-debuts-on-xt-com-exchange-fostering-ethical-blockchain-ecosystem)
+ 
 
 
 

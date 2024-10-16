@@ -7,7 +7,17 @@ DALLAS, TX, September 06, 2024 /24-7PressRelease/ -- Centris is excited to annou
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514067/centris-launches-gdpr-data-protection-officer-outsourcing-services-for-north-american-businesses)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/centris-launches-cost-effective-gdpr-data-protection-officer-outsourcing-services/5a06c41f75d45f3b76a546d0a705d56c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/centris-introduces-fixed-fee-gdpr-data-protection-officer-outsourcing-for-north-american-businesses)
+
+Pickup - [fishervista.com](https://fishervista.com/en/centris-introduces-cost-effective-gdpr-dpo-outsourcing-services-for-north-american-firms/20246587)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/centris-introduces-fixed-fee-gdpr-data-protection-officer-services-for-north-american-companies/20246587)
+
+Pickup - [advos.io](https://advos.io/en/centris-introduces-fixed-fee-gdpr-data-protection-officer-outsourcing-for-north-american-businesses/20246587)
+ 
 
 
 

@@ -7,7 +7,11 @@ DURHAM, NC, March 23, 2024 /24-7PressRelease/ -- The North Carolina Association 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509456/the-north-carolina-association-of-local-health-directors-celebrates-2024-award-recipients)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ncalhd-announces-2024-public-health-award-recipients/412f5378618322d22ea409219d5ed9a6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/23/ncalhd-honors-public-health-champions-at-annual-awards-luncheon)
+ 
 
 
 

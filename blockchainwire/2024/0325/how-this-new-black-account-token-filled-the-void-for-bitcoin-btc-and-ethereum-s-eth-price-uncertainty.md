@@ -51,7 +51,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/how-this-new-black-account-token-filled-the-void-for-bitcoin-btc-and-ethereums-eth-price-uncertainty)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/option2trade-o2t-introduces-black-account-token-as-alternative-to-bitcoin-and-ethereum/4cac73d12dcbb6977611952074def48d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/option2trade-s-black-account-token-offers-stability-amidst-bitcoin-and-ethereum-price-volatility)
+ 
 
 
 

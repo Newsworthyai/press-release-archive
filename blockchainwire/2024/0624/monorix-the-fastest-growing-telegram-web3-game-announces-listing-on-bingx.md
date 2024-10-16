@@ -68,7 +68,17 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/monorix-the-fastest-growing-telegram-web3-game-announces-listing-on-bingx)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/monorix-game-to-be-listed-on-bingx/d9dc982c3d2cb692234c04c90b5cc66f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/monorix-to-list-mrx-token-on-bingx-boosting-visibility-in-web3-gaming/20244424)
+
+Pickup - [advos.io](https://advos.io/en/monorix-the-fastest-growing-telegram-web3-game-announces-listing-on-bingx/20244424)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/monorix-game-to-be-listed-on-bingx)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/monorix-game-to-be-listed-on-bingx)
+ 
 
 
 

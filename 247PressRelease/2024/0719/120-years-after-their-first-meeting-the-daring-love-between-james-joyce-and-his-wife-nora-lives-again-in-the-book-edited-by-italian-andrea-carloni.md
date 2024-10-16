@@ -7,7 +7,15 @@ ROME, ITALY, July 19, 2024 /24-7PressRelease/ -- "The letters to Nora" by James 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512636/120-years-after-their-first-meeting-the-daring-love-between-james-joyce-and-his-wife-nora-lives-again-in-the-book-edited-by-italian-andrea-carloni)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-letters-to-nora-a-modern-and-truthful-reconstruction-of-james-joyce-s-relationship/9ec90046d12eb593f78e048614879c22) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/19/james-joyce-s-passionate-letters-to-nora-barnacle-unveiled-in-new-book)
+
+Pickup - [advos.io](https://advos.io/en/new-book-revives-passionate-correspondence-between-james-joyce-and-nora-barnacle/20245108)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-book-revives-passionate-correspondence-between-james-joyce-and-nora-barnacle/20245108)
+ 
 
 
 

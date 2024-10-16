@@ -7,7 +7,11 @@ LOS ANGELES, CA, April 02, 2024 /24-7PressRelease/ -- The Clark Hilton debut spe
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509638/schools-and-libraries-coming-of-age-climate-novel-bamboo-a-post-apocalyptic-odyssey-hardback-now-available)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clark-hilton-releases-bamboo-a-post-apocalyptic-odyssey-in-hardcover-and-softcover/083ef836edd53f5cfa08614e38c1cd5f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/captivating-climate-fiction-novel-bamboo-hits-shelves)
+ 
 
 
 

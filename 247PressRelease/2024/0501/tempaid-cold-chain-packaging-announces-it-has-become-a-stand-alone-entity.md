@@ -7,7 +7,9 @@ MISSISSAUGA, ON, May 01, 2024 /24-7PressRelease/ -- TempAid, formerly a division
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510545/tempaid-cold-chain-packaging-announces-it-has-become-a-stand-alone-entity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tempaid-announces-evolution-into-stand-alone-entity-and-dedicated-lab-services-for-pharmaceutical-industry/90786e6044312c7d0ed5fcf25c35e27d) 
+
+ 
 
 
 

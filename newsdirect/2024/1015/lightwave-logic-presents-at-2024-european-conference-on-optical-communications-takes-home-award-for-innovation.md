@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/lightwave-log
 [Original/Source Press Release](https://newsdirect.com/news/lightwave-logic-presents-at-2024-european-conference-on-optical-communications-takes-home-award-for-innovation-338779978)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lightwave-logic-innovates-to-tackle-network-congestion/6aaae52bc3430da0141f34d02e3cc246) 
+
+ 
 
 
 

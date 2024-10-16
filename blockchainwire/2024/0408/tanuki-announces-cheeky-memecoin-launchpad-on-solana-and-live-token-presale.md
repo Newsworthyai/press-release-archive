@@ -31,7 +31,11 @@ You can learn more about Tanuki at these links: Website | X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/tanuki-announces-cheeky-memecoin-launchpad-on-solana-and-live-token-presale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tanuki-launches-on-solana-with-tanupad-token-presale-and-support-for-meme-projects/ae948b492f3b4ea13f1e159d420a5602) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/tanuki-unveils-cheeky-memecoin-launchpad-on-solana-with-tanupad-token-presale)
+ 
 
 
 

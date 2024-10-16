@@ -45,7 +45,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/stakekit-laun
 [Original/Source Press Release](https://newsdirect.com/news/stakekit-launches-tron-stake-2-0-on-ledger-live-552744515)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakekit-launches-tron-stake-2-0-on-ledger-live/b3d0f9a225be40e36195c67c0ba42c4f) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/stakekit-launches-tron-stake-2-0-on-ledger-live)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/stakekit-launches-tron-stake-2-0-on-ledger-live)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/stakekit-partners-with-ledger-live-to-introduce-tron-stake-2-0-integration)
+
+Pickup - [fishervista.com](https://fishervista.com/en/stakekit-partners-with-ledger-live-to-launch-tron-stake-2-0/20245354)
+
+Pickup - [advos.io](https://advos.io/en/stakekit-integrates-tron-stake-2-0-with-ledger-live/20245354)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/stakekit-brings-tron-stake-2-0-to-ledger-live-enhancing-cryptocurrency-staking-experience)
+ 
 
 
 

@@ -59,7 +59,9 @@ LAS VEGAS, Nev. - (NewMediaWire) - October 07, 2024 - Golden Matrix Group Inc. (
 [Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-to-showcase-expanded-portfolio-and-proprietary-technology-at-g2e-las-vegas-2024-7076164)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-matrix-group-to-showcase-cutting-edge-technology-at-2024-global-gaming-expo/ac2552b5e2b5df6592b51daf954f0277) 
+
+ 
 
 
 

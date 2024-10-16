@@ -25,7 +25,11 @@ Waterfall Network Media Contact: bluewave@transformgroup.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/waterfall-network-launches-new-desktop-app-for-windows-and-macos)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/waterfall-network-launches-new-desktop-app-for-blockchain-node-setup/90f2062e752380c9717ae7a93cf0a0c2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/waterfall-network-simplifies-node-participation-with-new-desktop-app)
+ 
 
 
 

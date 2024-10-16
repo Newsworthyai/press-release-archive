@@ -61,7 +61,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/mdb-announcem
 [Original/Source Press Release](https://newsdirect.com/news/mdb-announcement-kessler-topaz-meltzer-and-check-llp-notifies-investors-of-a-class-action-lawsuit-against-mongodb-inc-268258664)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/securities-class-action-lawsuit-against-mongodb-inc/37204c46134d12be340d60b5a2991f5f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/16/class-action-lawsuit-filed-against-mongodb-over-alleged-sales-force-restructuring-misrepresentations)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kessler-topaz-meltzer-check-llp-announces-class-action-lawsuit-against-mongodb-inc/20245788)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/class-action-lawsuit-filed-against-mongodb-over-alleged-sales-force-restructuring-misrepresentation/20245788)
+
+Pickup - [advos.io](https://advos.io/en/kessler-topaz-meltzer-check-llp-announces-class-action-lawsuit-against-mongodb/20245788)
+ 
 
 
 

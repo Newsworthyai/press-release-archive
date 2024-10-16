@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/cure-alzheime
 [Original/Source Press Release](https://newsdirect.com/news/cure-alzheimers-fund-honored-with-fundraiser-419745163)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hamilton-and-bowdoin-lacrosse-teams-raise-over-900-for-alzheimers-research/30c39e0cb00ab5a4bf0febde860341be) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/hamilton-and-bowdoin-colleges-women-s-lacrosse-teams-raise-over-900-for-cure-alzheimer-s-fund)
+ 
 
 
 

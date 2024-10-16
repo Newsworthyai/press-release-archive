@@ -7,7 +7,15 @@ SANTA BARBARA, CA, July 21, 2024 /24-7PressRelease/ -- The Dr. Julie Taguchi Sch
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512717/dr-julie-taguchi-scholarship-for-healthcare-students-announces-award-to-support-future-healthcare-leaders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-julie-taguchi-scholarship-now-accepting-applications-for-2025-award/7662a47146582e85b7d1d9faa591ebcf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/21/dr-julie-taguchi-scholarship-offers-2000-award-to-aspiring-healthcare-leaders)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-julie-taguchi-scholarship-for-healthcare-students-announces-2025-award-to-foster-future-healthcare-leaders/20245134)
+
+Pickup - [advos.io](https://advos.io/en/dr-julie-taguchi-scholarship-for-healthcare-students-now-accepting-applications-for-2025/20245134)
+ 
 
 
 

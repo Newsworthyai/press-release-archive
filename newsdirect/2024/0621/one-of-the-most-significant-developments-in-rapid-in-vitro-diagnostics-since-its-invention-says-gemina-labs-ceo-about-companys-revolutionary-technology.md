@@ -39,7 +39,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/one-of-the-mo
 [Original/Source Press Release](https://newsdirect.com/news/one-of-the-most-significant-developments-in-rapid-in-vitro-diagnostics-since-its-invention-says-gemina-labs-ceo-about-companys-revolutionary-technology-893755698)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gemina-labs-set-to-transform-rapid-testing-with-next-gen-technology/a0f9ffbd3962b8c66b3115d894753db3) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/gemina-labs-announces-revolutionary-technology-in-rapid-in-vitro-diagnostics/20244371)
+
+Pickup - [advos.io](https://advos.io/en/gemina-labs-unveils-game-changing-technology-for-rapid-diagnostics/20244371)
+ 
 
 
 

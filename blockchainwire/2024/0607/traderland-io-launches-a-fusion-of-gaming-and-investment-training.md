@@ -35,7 +35,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/traderlandio-launches-a-fusion-of-gaming-and-investment-training-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/traderland-io-launches-innovative-interactive-trading-simulator-gaming-universe/69aa36655c56050f29bd92aafd32dbfd) 
+
+
+Pickup - [advos.io](https://advos.io/en/traderland-io-launches-innovative-fusion-of-gaming-and-investment-training/20243949)
+ 
 
 
 

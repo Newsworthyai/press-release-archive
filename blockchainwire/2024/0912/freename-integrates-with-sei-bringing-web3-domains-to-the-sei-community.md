@@ -19,7 +19,21 @@ About Freename: Freename is the leading multichain Web3 Namespace where users ca
 [Original/Source Press Release](https://blockchainwire.io/press-release/freename-integrates-with-sei-bringing-web3-domains-to-the-sei-community)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/freename-integrates-with-sei-blockchain-to-strengthen-web3-domain-accessibility/0fe3480caef2d4800cdbb82b7d7237ba) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/freename-integrates-with-sei-blockchain-to-strengthen-web3-domain-accessibility)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/freename-integrates-with-sei-blockchain-to-strengthen-web3-domain-accessibility)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/freename-expands-web3-domain-services-with-sei-blockchain-integration)
+
+Pickup - [fishervista.com](https://fishervista.com/en/freename-expands-web3-domain-services-with-sei-blockchain-integration/20246782)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/freename-expands-web3-domain-services-with-sei-blockchain-integration/20246782)
+
+Pickup - [advos.io](https://advos.io/en/freename-expands-web3-domain-services-with-sei-blockchain-integration/20246782)
+ 
 
 
 

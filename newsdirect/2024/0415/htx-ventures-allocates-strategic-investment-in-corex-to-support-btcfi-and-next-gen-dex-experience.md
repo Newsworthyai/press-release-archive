@@ -59,7 +59,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-
 [Original/Source Press Release](https://newsdirect.com/news/htx-ventures-allocates-strategic-investment-in-corex-to-support-btcfi-and-next-gen-dex-experience-845978795)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-ventures-invests-in-corex-to-revolutionize-defi-space/73b303a48af08553bb17c1cd6b168864) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/htx-ventures-invests-in-corex-to-revolutionize-the-defi-sector)
+ 
 
 
 

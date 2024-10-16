@@ -39,7 +39,11 @@ Disclaimer:Please note that all terms and conditions related to the "Love & Trad
 [Original/Source Press Release](https://blockchainwire.io/press-release/fairdesk-presents-love--trading-a-valentines-day-futures-trading-contest)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fairdesk-announces-love-trading-contest-for-cryptocurrency-traders/3d21d2a414832f5682509d58b1862b87) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/07/fairdesk-celebrates-love-and-trading-with-exciting-valentine-s-day-contest)
+ 
 
 
 

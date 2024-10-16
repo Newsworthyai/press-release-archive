@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/national-comc
 [Original/Source Press Release](https://newsdirect.com/news/national-comcast-rise-program-set-to-give-100-southeast-texas-small-businesses-grants-tech-makeovers-marketing-support-and-more-455253075)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-rise-program-offers-grants-tech-makeovers-and-marketing-support-to-small-businesses-in-houston/23e7b1c345bb89edcdd2373a90020975) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/comcast-rise-empowers-small-businesses-in-southeast-texas)
+ 
 
 
 

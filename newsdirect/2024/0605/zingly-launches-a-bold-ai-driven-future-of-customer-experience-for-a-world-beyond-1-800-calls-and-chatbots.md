@@ -83,7 +83,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/zingly-launch
 [Original/Source Press Release](https://newsdirect.com/news/zingly-launches-a-bold-ai-driven-future-of-customer-experience-for-a-world-beyond-1-800-calls-and-chatbots-916452925)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ex-avaya-five9-glia-and-talkdesk-leaders-launch-zingly-to-revolutionize-cx/3ecd20c9f4c1e698e84365fdbd2b17a4) 
+
+ 
 
 
 

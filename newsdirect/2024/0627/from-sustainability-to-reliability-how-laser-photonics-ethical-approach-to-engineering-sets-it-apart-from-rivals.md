@@ -45,7 +45,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/from-sustaina
 [Original/Source Press Release](https://newsdirect.com/news/from-sustainability-to-reliability-how-laser-photonics-ethical-approach-to-engineering-sets-it-apart-from-rivals-446248564)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/laser-photonics-corp-leads-ethical-engineering-and-sustainability-efforts/d1bb0be86d4a26b843fad32e9b145087) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/laser-photonics-sets-ethical-engineering-standards-in-the-laser-industry/20244542)
+
+Pickup - [advos.io](https://advos.io/en/laser-photonics-sets-industry-standard-with-ethical-engineering-practices/20244542)
+ 
 
 
 

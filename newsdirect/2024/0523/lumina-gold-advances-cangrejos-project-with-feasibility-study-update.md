@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/lumina-gold-a
 [Original/Source Press Release](https://newsdirect.com/news/lumina-gold-advances-cangrejos-project-with-feasibility-study-update-603363340)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lumina-gold-ceo-provides-insightful-update-on-cangrejos-project-feasibility-study/319326932f2ef75695ee1ece5c3fe993) 
+
+ 
 
 
 

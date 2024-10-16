@@ -31,7 +31,11 @@ Website | X (Twitter)
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptodefi-launches-zero-fee-trading-with-rebates-for-all-users)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptodefi-exchange-cdfi-introduces-zero-fees-and-rebates-expands-trading-capabilities/71b220593e62d7a6308801b87ba3f244) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/cryptodefi-introduces-zero-fee-trading-with-rebates-for-all-users)
+ 
 
 
 

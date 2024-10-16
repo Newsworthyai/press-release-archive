@@ -37,7 +37,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/merlin-chain-launches-merlins-adventure-a-210-million-merl-ecosystem-grant-program)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/merlin-chain-launches-merlin-s-adventure-grant-program/9a2022efeee963c927576d29649f6008) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/merlin-chain-launches-210-million-ecosystem-grant-program-to-boost-bitcoin-layer-2-innovation/20244318)
+
+Pickup - [advos.io](https://advos.io/en/merlin-chain-launches-210-million-ecosystem-grant-program-to-boost-btc-layer-2-development/20244318)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/merlin-chain-launches-merlin-s-adventure-grant-program)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/merlin-chain-launches-merlin-s-adventure-grant-program)
+ 
 
 
 

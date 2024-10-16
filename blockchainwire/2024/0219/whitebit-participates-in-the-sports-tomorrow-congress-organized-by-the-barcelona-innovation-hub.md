@@ -17,7 +17,11 @@ WhiteBIT is one of the largest European centralized crypto exchanges founded in
 [Original/Source Press Release](https://blockchainwire.io/press-release/whitebit-participates-in-the-sports-tomorrow-congress-organized-by-the-barcelona-innovation-hub)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/whitebit-to-unveil-innovations-at-sports-tomorrow-congress/4771d672d19b186e989fa420de43fb11) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/19/whitebit-showcases-innovative-fan-engagement-solutions-at-sports-tomorrow-congress)
+ 
 
 
 

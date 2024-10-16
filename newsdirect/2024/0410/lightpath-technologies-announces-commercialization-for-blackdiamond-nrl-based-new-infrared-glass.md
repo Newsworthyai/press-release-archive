@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/lightpath-tec
 [Original/Source Press Release](https://newsdirect.com/news/lightpath-technologies-announces-commercialization-for-blackdiamond-nrl-based-new-infrared-glass-292164348)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lightpath-technologies-announces-commercial-release-of-bdnl-4-infrared-glass/2671440011f8375da673cd157246d5eb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/lightpath-technologies-introduces-new-infrared-glass-bdnl-4-a-game-changer-for-thermal-imaging)
+ 
 
 
 

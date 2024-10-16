@@ -29,7 +29,9 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-announces-partnership-with-staque-to-accelerate-commercial-adoption-of-quantum-in-the-middle-east/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-partners-with-staque-to-drive-quantum-computing-adoption-in-the-middle-east/932a74624a61895c3ffa72d48d187dac) 
+
+ 
 
 
 

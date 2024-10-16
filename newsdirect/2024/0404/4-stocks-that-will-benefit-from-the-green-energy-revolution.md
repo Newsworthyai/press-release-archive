@@ -71,7 +71,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/4-stocks-that
 [Original/Source Press Release](https://newsdirect.com/news/4-stocks-that-will-benefit-from-the-green-energy-revolution-259516764)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/4-stocks-poised-to-benefit-from-the-green-energy-revolution/de602b45f8dca8e4ba0deebee8cb0805) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/green-energy-revolution-fuels-innovative-solutions)
+ 
 
 
 

@@ -7,7 +7,11 @@ SEATTLE, WA, March 27, 2024 /24-7PressRelease/ -- Conversion Logix, a pioneering
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509590/conversion-logix-leads-the-charge-in-predictive-leasing-innovation-with-the-acquisition-of-bendai)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/conversion-logix-acquires-bend-ai-to-revolutionize-predictive-leasing-in-multifamily-housing/87f90be5a848f4f36a048625e31ffdce) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/conversion-logix-acquires-bend-ai-pioneering-predictive-leasing-in-multifamily-housing)
+ 
 
 
 

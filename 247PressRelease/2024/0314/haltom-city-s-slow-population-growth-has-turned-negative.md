@@ -7,7 +7,11 @@ HALTOM CITY, TX, March 14, 2024 /24-7PressRelease/ -- According to World Populat
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509148/haltom-citys-slow-population-growth-has-turned-negative)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/population-decline-and-business-revitalization-in-haltom-city-tx/3cb2868a1adf7af70c0951aff702a47b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/haltom-city-s-population-decline-raises-concerns-about-city-s-future)
+ 
 
 
 

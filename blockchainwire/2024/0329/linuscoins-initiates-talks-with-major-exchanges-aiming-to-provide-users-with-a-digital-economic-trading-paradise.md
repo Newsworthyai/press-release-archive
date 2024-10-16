@@ -21,7 +21,11 @@ Website: [https://www.linuscoins.com/](https://www.linuscoins.com/)Email: info@l
 [Original/Source Press Release](https://blockchainwire.io/press-release/linuscoins-initiates-talks-with-major-exchanges-aiming-to-provide-users-with-a-digital-economic-trading-paradise-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/linuscoins-expands-global-footprint-through-major-exchange-partnerships/e34cee8834d39e2b631201321f90b32d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/linuscoins-aims-to-provide-digital-economic-trading-paradise-through-major-exchange-partnerships)
+ 
 
 
 

@@ -21,7 +21,9 @@ CAUTIONARY STATEMENT REGARDING FORWARD-LOOKING INFORMATION: This news release in
 [Original/Source Press Release](https://www.newmediawire.com/news/illumination-brands-announces-the-plan-to-distribute-or-sell-shares-of-ltnc-after-selling-one-of-its-subsidiaries-illumination-holdings-inc-7076210)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/illumination-brands-announces-plans-to-pay-off-creditors-and-return-capital-to-shareholders/6e83247bd2838fb0450c9f42d29fe699) 
+
+ 
 
 
 

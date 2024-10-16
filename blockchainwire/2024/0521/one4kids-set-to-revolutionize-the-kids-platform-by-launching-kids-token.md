@@ -27,7 +27,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/one4kids-set-to-revolutionize-the-kids-platform-by-launching-kids-token-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/one4kids-launches-kids-token-to-promote-ethical-entertainment-for-kids/7fb25a3940a42f309fcd0f5a0edd9fb5) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/one4kids-launches-kids-token-to-promote-ethical-entertainment-for-kids)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/one4kids-launches-kids-token-to-promote-ethical-entertainment-for-kids)
+ 
 
 
 

@@ -51,7 +51,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/north-america
 [Original/Source Press Release](https://newsdirect.com/news/north-american-building-materials-leader-cornerstone-building-brands-chooses-toolsgroup-and-river-logics-technology-131422218)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cornerstone-building-brands-partners-with-toolsgroup-and-river-logic-for-supply-chain-optimization/e671e2f42672d6d0fc18fae261b09e73) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/cornerstone-building-brands-optimizes-supply-chain-with-toolsgroup-and-river-logic)
+ 
 
 
 

@@ -45,7 +45,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/fameex-leads-the-way-in-simplifying-crypto-trading-amidst-market-expansion)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fameex-simplifying-crypto-trading-for-newcomers/05d58f672d497028b547b69e70ceed52) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/fameex-simplifying-crypto-trading-for-newcomers)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/fameex-simplifying-crypto-trading-for-newcomers)
+ 
 
 
 

@@ -73,7 +73,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cleancore-sol
 [Original/Source Press Release](https://newsdirect.com/news/cleancore-solutions-announces-string-of-wins-over-past-few-months-including-deals-with-fortune-50-companies-universities-and-more-344078249)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cleancore-solutions-secures-major-deals-in-booming-cleaning-services-market/174d0907cf798f9a4cf166efd28ac07f) 
+
+ 
 
 
 

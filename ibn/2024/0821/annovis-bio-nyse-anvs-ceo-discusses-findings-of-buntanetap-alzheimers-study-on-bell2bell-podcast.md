@@ -33,7 +33,13 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-ceo-discusses-findings-of-buntanetap-alzheimers-study-on-bell2bell-podcast/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annovis-bio-presents-breakthrough-alzheimer-s-study-results/07be325fe29e19e9a314feaadfb9e6ff) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/annovis-bio-s-buntanetap-shows-promise-in-early-alzheimer-s-treatment)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/annovis-bio-s-buntanetap-shows-promise-in-alzheimer-s-treatment/20246101)
+ 
 
 
 

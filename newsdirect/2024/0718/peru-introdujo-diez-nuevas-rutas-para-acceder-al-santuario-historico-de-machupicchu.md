@@ -33,7 +33,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/peru-introduj
 [Original/Source Press Release](https://newsdirect.com/news/peru-introdujo-diez-nuevas-rutas-para-acceder-al-santuario-historico-de-machupicchu-536816229)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peru-introduces-ten-new-routes-to-access-machu-picchu/7dc3ab50add5d7bb80a9b5da2f1feb65) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/peru-unveils-ten-new-routes-to-machu-picchu-enhancing-visitor-experience-and-sustainability)
+
+Pickup - [fishervista.com](https://fishervista.com/en/peru-introduces-ten-new-routes-to-access-machu-picchu-during-peak-season/20245099)
+
+Pickup - [advos.io](https://advos.io/en/peru-introduces-ten-new-routes-to-access-machu-picchu-historical-sanctuary/20245099)
+ 
 
 
 

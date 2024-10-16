@@ -7,7 +7,9 @@ NEW YORK, NY, May 02, 2024 /24-7PressRelease/ -- ESR's new talk show NEXT LEVEL 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510536/esrs-next-level-play-podcast-tv-show-goes-live)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/esr-s-next-level-play-premieres-on-youtube-xumo-play-and-sling-tv/c2f6edab6ebb5da11f12ff034aa98de6) 
+
+ 
 
 
 

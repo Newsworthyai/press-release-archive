@@ -35,7 +35,13 @@ Camptra Technologies is a premier provider of Oracle-based solutions, offering a
 [Original/Source Press Release](https://newsworthy.ai/news/202402261101/rchilli-and-camptra-technologies-collaborate-to-transform-hiring-practices-for-oracle-clients)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-announces-strategic-partnership-with-camptra-technologies-to-revolutionize-oracle-recruitment/2674d355c6eb564069dbe0e70c7e4b8a) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-and-camptra-technologies-partner-to-enhance-oracle-based-recruitment-solutions/2024581)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/26/rchilli-and-camptra-technologies-join-forces-to-streamline-hiring-for-oracle-clients)
+ 
 
 
 

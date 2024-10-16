@@ -25,7 +25,11 @@ https://mirror.xyz/0xf6359c54fb0A6aF04056976E16Cc29e5fD344028/MYzF-lAuPfY5RfYZZn
 [Original/Source Press Release](https://blockchainwire.io/press-release/ainn-layer2-mainnet-launch-tvl-surpasses-600-million-on-day-one)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ainn-layer2-mainnet-launch-tvl-surpasses-600-million-on-day-one/85d71f64a123ec31ecb1f56a841b68ff) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/ainn-layer2-mainnet-launch-tvl-surpasses-600-million-on-day-one)
+ 
 
 
 

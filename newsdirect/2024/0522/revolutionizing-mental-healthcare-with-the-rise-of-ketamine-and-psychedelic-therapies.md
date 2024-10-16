@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/revolutionizi
 [Original/Source Press Release](https://newsdirect.com/news/revolutionizing-mental-healthcare-with-the-rise-of-ketamine-and-psychedelic-therapies-112359353)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rise-of-ketamine-and-psychedelic-therapies-in-mental-healthcare/bbd6bc830d7363f35a4843dde96b5fb2) 
+
+ 
 
 
 

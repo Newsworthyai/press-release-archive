@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/builders-capi
 [Original/Source Press Release](https://newsdirect.com/news/builders-capital-announces-500-million-strategic-transaction-with-intervest-capital-partners-557382464)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/builders-capital-announces-500-million-strategic-partnership-with-intervest-capital-partners/55e4184ce0cc90c62d9c1ca50a6559f5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/builders-capital-secures-500-million-from-intervest-capital-partners)
+ 
 
 
 

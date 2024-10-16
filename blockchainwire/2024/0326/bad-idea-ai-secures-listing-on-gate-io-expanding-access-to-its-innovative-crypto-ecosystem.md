@@ -9,7 +9,11 @@ About Bad Idea AIAt the vanguard of the AI and crypto intersection, Bad Idea AI 
 [Original/Source Press Release](https://blockchainwire.io/press-release/bad-idea-ai-secures-listing-on-gateio-expanding-access-to-its-innovative-crypto-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bad-idea-ai-set-to-list-on-gate-io-marking-major-milestone/b7a6980bc030a5ddc87c69a339d8c24e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/bad-idea-ai-achieves-significant-milestone-with-gate-io-listing)
+ 
 
 
 

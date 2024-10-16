@@ -33,7 +33,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/leading-the-future-the-revolutionary-role-of-brts-in-digital-currency-quantitative-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brts-launches-advanced-ai-quantitative-trading-system-to-reshape-digital-currency-investment/dc694454d13c90d23f6aeda040d4338c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/04/brts-pioneers-ai-quantitative-trading-for-digital-currency-investments)
+ 
 
 
 

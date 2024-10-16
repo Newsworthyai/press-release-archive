@@ -7,7 +7,13 @@ RIVERSIDE, CA, June 20, 2024 /24-7PressRelease/ -- The National Organization for
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511832/local-doctors-receive-recognition-for-helping-victims-of-violence-and-crimes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/recognition-of-dr-gray-and-dr-chapman-for-advancing-crime-victims-rights/7c1fe8fff7ee5194789128c79dd16ff3) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/local-doctors-honored-for-advocacy-and-support-for-crime-victims/20244299)
+
+Pickup - [advos.io](https://advos.io/en/local-doctors-honored-for-advancing-victim-advocacy/20244299)
+ 
 
 
 

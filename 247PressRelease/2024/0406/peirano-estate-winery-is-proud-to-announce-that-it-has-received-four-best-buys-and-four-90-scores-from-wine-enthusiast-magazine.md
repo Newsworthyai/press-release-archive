@@ -7,7 +7,11 @@ LODI, CA, April 06, 2024 /24-7PressRelease/ -- Peirano Estate Winery is proud to
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509858/peirano-estate-winery-is-proud-to-announce-that-it-has-received-four-best-buys-and-four-90-scores-from-wine-enthusiast-magazine)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peirano-estate-winery-receives-high-ratings-and-best-buys-from-wine-enthusiast-magazine/077554f06804d8dd8d0c0585450c217b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/06/peirano-estate-winery-earns-high-praise-from-wine-enthusiast-magazine)
+ 
 
 
 

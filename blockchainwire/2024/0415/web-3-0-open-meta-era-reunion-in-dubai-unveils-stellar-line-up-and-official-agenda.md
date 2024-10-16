@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/web-30-open---meta-era-reunion-in-dubai-unveils-stellar-line-up-and-official-agenda)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meta-era-announces-exclusive-web-3-0-open-reunion-in-dubai/b0a8c67a726e3a7b9718292762a8babf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/dubai-hosts-exclusive-web-3-0-and-golf-networking-event)
+ 
 
 
 

@@ -47,7 +47,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/pancreatic-ca
 [Original/Source Press Release](https://newsdirect.com/news/pancreatic-cancer-could-overtake-colorectal-cancer-to-become-second-leading-cause-of-cancer-death-oncolytics-is-working-on-a-promising-treatment-539544980)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pancreatic-cancer-on-the-rise-promising-treatment-in-development-by-oncolytics-biotech/78c7f229ead7adf9e67b7ed53866d1e3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/pancreatic-cancer-poised-to-become-second-leading-cause-of-cancer-death-new-treatment-shows-promise)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pancreatic-cancer-poised-to-become-second-leading-cause-of-cancer-deaths-oncolytics-biotech-advances-promising-treatment/20245367)
+
+Pickup - [advos.io](https://advos.io/en/oncolytics-biotech-develops-promising-treatment-as-pancreatic-cancer-incidence-rises/20245367)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/pancreatic-cancer-on-track-to-become-second-leading-cause-of-cancer-death-new-treatment-shows-promise)
+ 
 
 
 

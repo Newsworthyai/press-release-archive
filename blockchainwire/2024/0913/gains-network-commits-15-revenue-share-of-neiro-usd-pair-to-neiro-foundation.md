@@ -27,7 +27,21 @@ Disclaimer: This press release is for informational purposes only and does not c
 [Original/Source Press Release](https://blockchainwire.io/press-release/gains-network-commits-15-revenue-share-of-neirousd-pair-to-neiro-foundation-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/neiro-token-partners-with-gains-network-to-support-shiba-inu-welfare/7a3693eaca23f639e7b6d9a02698cdf5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/gains-network-partners-with-neiro-foundation-to-support-shiba-inu-welfare)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gains-network-and-neiro-partner-to-support-shiba-inu-welfare-through-cryptocurrency-trading/20246819)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gains-network-partners-with-neiro-foundation-pledges-15-revenue-share-for-shiba-inu-welfare/20246819)
+
+Pickup - [advos.io](https://advos.io/en/gains-network-partners-with-neiro-foundation-commits-15-revenue-share-to-support-shiba-inu-welfare/20246819)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/neiro-token-partners-with-gains-network-to-support-shiba-inu-welfare)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/neiro-token-partners-with-gains-network-to-support-shiba-inu-welfare)
+ 
 
 
 

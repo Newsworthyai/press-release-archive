@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-horizon-a
 [Original/Source Press Release](https://newsdirect.com/news/new-horizon-aircraft-nasdaq-hovr-announces-key-technical-updates-on-development-of-evtol-prototype-811748647)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-horizon-aircraft-announces-key-technical-updates-on-evtol-prototype-development/d0a9619ad94bbc20bb72e0fccb766734) 
+
+ 
 
 
 

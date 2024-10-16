@@ -33,7 +33,13 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/elevaults-elvt-token-public-sale-ending-soon-launch-set-for-may-15)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elevault-coin-public-sale-a-unique-opportunity-for-traders-and-holders/fd03ef2aa921aec24c80c4ad447e03ff) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/elevault-coin-public-sale-a-unique-opportunity-for-traders-and-holders)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/elevault-coin-public-sale-a-unique-opportunity-for-traders-and-holders)
+ 
 
 
 

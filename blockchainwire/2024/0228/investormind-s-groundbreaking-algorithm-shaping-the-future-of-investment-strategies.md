@@ -21,7 +21,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/investorminds-groundbreaking-algorithm-shaping-the-future-of-investment-strategies)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investormind-unveils-groundbreaking-trading-algorithm/9c82072f370049c90c359b8b0a3d30ce) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/28/investormind-unveils-groundbreaking-trading-algorithm)
+ 
 
 
 

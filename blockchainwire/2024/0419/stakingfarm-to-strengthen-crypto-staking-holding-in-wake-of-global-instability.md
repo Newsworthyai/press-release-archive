@@ -60,7 +60,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-to-strengthen-crypto-staking--holding-in-wake-of-global-instability)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-market-adds-over-100-billion-despite-israel-s-response-attack/9ceb678cb45c18d244885c0f001d1d97) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/stakingfarm-to-strengthen-crypto-staking-holding-in-wake-of-global-instability)
+ 
 
 
 

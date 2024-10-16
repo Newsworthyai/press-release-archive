@@ -57,7 +57,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/elicio-therap
 [Original/Source Press Release](https://newsdirect.com/news/elicio-therapeutics-unveils-promising-phase-1a-data-for-eli-002-7p-in-mkras-tumors-739095619)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elicio-therapeutics-unveils-promising-phase-1a-data-for-eli-002-7p-in-mkras-tumors/3be5bc30f5d772e50c5675ea8e11036e) 
+
+
+Pickup - [advos.io](https://advos.io/en/elicio-therapeutics-reveals-positive-phase-1a-data-for-eli-002-7p-in-mkras-tumors/20243973)
+ 
 
 
 

@@ -51,7 +51,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptoheap-reports-on-recent-market-correction-and-rising-memecoin-activity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-market-correction-memecoins-pepe-and-floki-show-resilience/cb33580dc0371233bab390d61129be92) 
+
+
+Pickup - [advos.io](https://advos.io/en/cryptoheap-reports-market-correction-amid-memecoin-resilience/20244026)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/crypto-market-correction-memecoins-pepe-and-floki-show-resilience)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/crypto-market-correction-memecoins-pepe-and-floki-show-resilience)
+ 
 
 
 

@@ -27,7 +27,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/a-call-for-pr
 [Original/Source Press Release](https://newsdirect.com/news/a-call-for-preparedness-amid-modern-challenges-862257646)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/readywise-urges-preparedness-amid-modern-challenges/89f5d3010dbde628c4c9e26db88c0e94) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/readywise-highlights-importance-of-preparedness-during-independence-day-amid-rising-global-challenges/20244694)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/readywise-urges-americans-to-prioritize-preparedness-this-independence-day)
+
+Pickup - [advos.io](https://advos.io/en/preparedness-highlighted-amid-modern-challenges-during-independence-day/20244694)
+ 
 
 
 

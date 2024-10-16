@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cure-alzheime
 [Original/Source Press Release](https://newsdirect.com/news/cure-alzheimers-fund-reaches-200-million-in-research-grants-547733676)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cure-alzheimers-fund-awards-over-200-million-in-research-grants/5ef17a909f967a63858ade10c2896c0d) 
+
+ 
 
 
 

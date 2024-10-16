@@ -7,7 +7,17 @@ INDIANAPOLIS, IN, August 28, 2024 /24-7PressRelease/ -- The volume of attendees 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513841/local-attorneys-host-full-crowd-at-trucking-law-seminar-look-forward-to-next-years)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/legal-experts-convene-for-winning-truck-wreck-cases-seminar/4d7aa0e48e43a0b2027084a07ff68b93) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/successful-truck-wreck-seminar-draws-large-crowd-sets-stage-for-annual-event)
+
+Pickup - [fishervista.com](https://fishervista.com/en/indiana-attorneys-gather-full-house-for-inaugural-trucking-law-seminar/20246323)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/inaugural-truck-wreck-seminar-draws-large-crowd-sets-stage-for-future-events/20246323)
+
+Pickup - [advos.io](https://advos.io/en/successful-trucking-law-seminar-sets-the-stage-for-next-year-s-event/20246323)
+ 
 
 
 

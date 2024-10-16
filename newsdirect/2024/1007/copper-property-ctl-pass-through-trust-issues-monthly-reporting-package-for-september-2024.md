@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/copper-proper
 [Original/Source Press Release](https://newsdirect.com/news/copper-property-ctl-pass-through-trust-issues-monthly-reporting-package-for-september-2024-994532840)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/copper-property-ctl-pass-through-trust-issues-monthly-reporting-package-for-september-2024/2a031df651fa9d24824599a60cff99b8) 
+
+ 
 
 
 

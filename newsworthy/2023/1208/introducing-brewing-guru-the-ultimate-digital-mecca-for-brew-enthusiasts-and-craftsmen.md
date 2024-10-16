@@ -23,7 +23,11 @@ Embark on a brewing odyssey at www.Brewing.guru. Where every drop tells a story,
 [Original/Source Press Release](https://newsworthy.ai/news/20231208784/introducing-brewing-guru-the-ultimate-digital-mecca-for-brew-enthusiasts-and-craftsmen)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brewing-guru-the-ultimate-digital-epicenter-for-brewing-enthusiasts/04ac7dcac615ccaff4e0c9ce734e82c4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/08/brewing-guru-emerges-as-the-ultimate-digital-destination-for-brew-enthusiasts)
+ 
 
 
 

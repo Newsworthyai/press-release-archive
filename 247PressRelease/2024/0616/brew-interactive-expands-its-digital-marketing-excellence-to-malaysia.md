@@ -7,7 +7,11 @@ KUALA LUMPUR, MALAYSIA, June 16, 2024 /24-7PressRelease/ -- Brew Interactive, Si
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511752/brew-interactive-expands-its-digital-marketing-excellence-to-malaysia)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brew-interactive-expands-with-new-office-in-kuala-lumpur-malaysia/ce62c7d7e06acb2ba82c1f19068cd776) 
+
+
+Pickup - [advos.io](https://advos.io/en/brew-interactive-opens-new-office-in-malaysia-to-expand-digital-marketing-reach/20244186)
+ 
 
 
 

@@ -32,7 +32,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/wagerwire-est
 [Original/Source Press Release](https://newsdirect.com/news/wagerwire-establishes-fantasy-and-media-verticals-as-independent-brands-under-parent-company-wire-industries-inc-470851829)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wire-industries-inc-expands-with-fantasywire-and-wire-media-group/e4baa0e6268c8366a01c122ab6eb45a4) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/wire-industries-inc-expands-with-new-fantasy-and-media-verticals/20244810)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/wire-industries-expands-with-new-fantasy-sports-and-media-divisions)
+
+Pickup - [advos.io](https://advos.io/en/wire-industries-inc-expands-with-launch-of-fantasywire-and-wire-media-group/20244810)
+ 
 
 
 

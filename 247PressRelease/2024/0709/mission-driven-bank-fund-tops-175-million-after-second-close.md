@@ -7,7 +7,15 @@ CLEVELAND, OH, July 09, 2024 /24-7PressRelease/ -- The Mission Driven Bank Fund 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512356/mission-driven-bank-fund-tops-175-million-after-second-close)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mdbf-announces-second-close-of-65-million-to-support-minority-depository-institutions-and-community-development-financial-institutions/cf9f073f845e37fb120914d720d09fb6) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/mission-driven-bank-fund-reaches-177-million-to-support-minority-and-community-banks/20244789)
+
+Pickup - [advos.io](https://advos.io/en/mission-driven-bank-fund-exceeds-175-million-to-support-minority-and-community-banks/20244789)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/mission-driven-bank-fund-reaches-177-million-in-capital-to-support-minority-and-community-development-banks)
+ 
 
 
 

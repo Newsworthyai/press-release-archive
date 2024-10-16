@@ -47,7 +47,11 @@ Media Contact:Robert Smith[https://furrevertoken.com/](https://www.globenewswire
 [Original/Source Press Release](https://blockchainwire.io/press-release/furrever-token-furrs-presale-momentum-sets-the-stage-for-ethereum-eth-and-shiba-inu-shibs-promising-2024-returns)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethereum-and-shiba-inu-experience-volatility-furrever-token-shines-with-15x-roi-potential/a2d387556f1eb25c273c6ed849e1227f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/furrever-token-s-presale-momentum-sets-the-stage-for-ethereum-and-shiba-inu-s-promising-2024-returns)
+ 
 
 
 

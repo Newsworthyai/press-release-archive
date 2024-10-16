@@ -39,7 +39,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-lola-the-cow-revolutionizing-crypto-meme-culture-with-whimsical-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lola-the-cow-a-heartwarming-journey-into-crypto-finance/656f867ca6344438e276d45bccc678ce) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/lola-the-cow-charming-crypto-meme-project-revolutionizes-digital-finance)
+ 
 
 
 

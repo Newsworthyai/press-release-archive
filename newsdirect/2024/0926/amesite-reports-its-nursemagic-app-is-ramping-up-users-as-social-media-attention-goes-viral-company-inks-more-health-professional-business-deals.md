@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/amesite-repor
 [Original/Source Press Release](https://newsdirect.com/news/amesite-reports-its-nursemagic-app-is-ramping-up-users-as-social-media-attention-goes-viral-company-inks-more-health-professional-business-deals-813587970)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amesite-s-nursemagictm-app-addresses-nursing-shortages-and-turnover-with-ai-powered-support/95fcaeec96de07d8871623a2ef7ee024) 
+
+ 
 
 
 

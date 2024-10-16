@@ -71,7 +71,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-only-presale-you-need-in-2024-blockdag-network-grows-at-a-speed-of-500000-a-day-a-step-to-step-on-how-you-can-join-in-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-the-revolutionary-crypto-opportunity-of-2024/08320edfcb7f91bc3e82184d9bbf2b16) 
+
+
+Pickup - [advos.io](https://advos.io/en/blockdag-networks-presale-a-500000-daily-phenomenon-poised-to-revolutionize-blockchain/20244090)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blockdag-network-the-revolutionary-crypto-opportunity-of-2024)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blockdag-network-the-revolutionary-crypto-opportunity-of-2024)
+ 
 
 
 

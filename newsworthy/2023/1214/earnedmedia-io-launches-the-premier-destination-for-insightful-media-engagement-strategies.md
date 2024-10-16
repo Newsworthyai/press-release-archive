@@ -23,7 +23,11 @@ Elevate your media strategies with www.EarnedMedia.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231214811/earnedmedia-io-launches-the-premier-destination-for-insightful-media-engagement-strategies)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-earnedmedia-io-a-game-changing-platform-for-media-engagement/b773b996a7832fee2bbd45a14711c8c9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/14/earnedmedia-io-revolutionizing-media-engagement-strategies)
+ 
 
 
 

@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kodal-mineral
 [Original/Source Press Release](https://newsdirect.com/news/kodal-minerals-reports-significant-progress-at-bougouni-lithium-project-in-mali-148897823)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kodal-minerals-ceo-discusses-milestones-at-bougouni-lithium-project-in-mali/8d9d3916292a664f474915f2b1f16896) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/kodal-minerals-achieves-major-milestones-at-bougouni-lithium-project-in-mali)
+ 
 
 
 

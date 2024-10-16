@@ -61,7 +61,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-u-power-n
 [Original/Source Press Release](https://newsdirect.com/news/how-u-power-nasdaq-ucar-is-addressing-key-concerns-for-widespread-ev-adoption-including-range-anxiety-and-charging-times-825665407)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-power-revolutionizes-electric-vehicle-adoption-with-innovative-battery-swapping-technology-and-strategic-collaborations/d0599c24944d3ee680b5231272a06eba) 
+
+
+Pickup - [advos.io](https://advos.io/en/u-power-revolutionizes-ev-sector-with-battery-swapping-technology/20244095)
+ 
 
 
 

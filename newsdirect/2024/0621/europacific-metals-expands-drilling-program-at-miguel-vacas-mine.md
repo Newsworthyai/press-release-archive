@@ -21,7 +21,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/europacific-m
 [Original/Source Press Release](https://newsdirect.com/news/europacific-metals-expands-drilling-program-at-miguel-vacas-mine-114239111)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/europacific-metals-expands-drilling-program-at-miguel-vacas-mine/b73be05ad183b1112a38b0f1f6e7780a) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/europacific-metals-expands-drilling-program-at-miguel-vacas-mine/20244375)
+
+Pickup - [advos.io](https://advos.io/en/europacific-metals-expands-drilling-program-at-miguel-vacas-mine/20244375)
+ 
 
 
 

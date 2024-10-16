@@ -53,7 +53,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-unleashes-advanced-bots-for-passive-crypto-income)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-introduces-groundbreaking-trading-bot-for-passive-income-in-cryptocurrency-market/699a94115f7c1db6509e1c51c3f856d6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/07/defiquant-unleashes-cutting-edge-trading-bots-for-effortless-crypto-profits)
+ 
 
 
 

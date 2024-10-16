@@ -7,7 +7,9 @@ WASHINGTON, DC, October 10, 2024 /24-7PressRelease/ -- A court-martial is a crim
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515069/how-long-does-the-court-martial-process-take)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/court-martial-process-and-impact-explained-by-military-defense-attorney-richard-v-stevens/a621089e202f17de4160e722843457cc) 
+
+ 
 
 
 

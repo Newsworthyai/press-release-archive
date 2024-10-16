@@ -21,7 +21,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/arrow-explora
 [Original/Source Press Release](https://newsdirect.com/news/arrow-exploration-announces-successful-production-and-future-plans-at-carrizales-norte-field-389379942)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arrow-exploration-ceo-provides-promising-updates-on-operational-activities-in-colombia/50dc7baa33accc9304ecd778e67402be) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/arrow-exploration-reports-milestone-achievements-and-future-drilling-plans-at-carrizales-norte-field/20244337)
+
+Pickup - [advos.io](https://advos.io/en/arrow-exploration-reports-successful-operations-and-future-plans-at-carrizales-norte-field/20244337)
+ 
 
 
 

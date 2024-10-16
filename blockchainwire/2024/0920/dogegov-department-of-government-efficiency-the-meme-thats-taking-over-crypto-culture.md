@@ -49,7 +49,9 @@ CoinMarketcap: https://coinmarketcap.com/currencies/department-of-government-eff
 [Original/Source Press Release](https://blockchainwire.io/press-release/dogegov-department-of-government-efficiency-the-meme-thats-taking-over-crypto-culture)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meme-powered-movement-dogegov-takes-crypto-world-by-storm/1db426639a88edad4aa5a8cb152ae01a) 
+
+ 
 
 
 

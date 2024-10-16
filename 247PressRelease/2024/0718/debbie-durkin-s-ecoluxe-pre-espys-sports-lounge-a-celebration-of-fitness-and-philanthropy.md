@@ -7,7 +7,15 @@ LOS ANGELES, CA, July 18, 2024 /24-7PressRelease/ -- Veteran producer Debbie Dur
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512606/debbie-durkins-ecoluxe-pre-espys-sports-lounge-a-celebration-of-fitness-and-philanthropy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/debbie-durkin-hosts-exclusive-pre-espys-sports-lounge-in-beverly-hills/61fea7526c3a7cdec74044dcac33af60) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/star-studded-ecoluxe-pre-espys-event-blends-luxury-fitness-and-philanthropy)
+
+Pickup - [fishervista.com](https://fishervista.com/en/debbie-durkin-s-ecoluxe-pre-espys-sports-lounge-merges-fitness-philanthropy-and-luxury/20245048)
+
+Pickup - [advos.io](https://advos.io/en/debbie-durkin-s-ecoluxe-pre-espys-sports-lounge-a-blend-of-fitness-luxury-and-philanthropy/20245048)
+ 
 
 
 

@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/gold-hits-all
 [Original/Source Press Release](https://newsdirect.com/news/gold-hits-all-time-high-in-march-want-to-capitalize-on-projected-further-growth-but-not-sure-how-check-out-lou-dobbs-endorsed-priority-gold-165418618)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-hits-all-time-high-in-march-want-to-capitalize-on-projected-further-growth-check-out-lou-dobbs-endorsed-priority-gold/4b985114d40a796202c7012a9dd165e7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/gold-soars-to-new-heights-presenting-lucrative-investment-opportunities)
+ 
 
 
 

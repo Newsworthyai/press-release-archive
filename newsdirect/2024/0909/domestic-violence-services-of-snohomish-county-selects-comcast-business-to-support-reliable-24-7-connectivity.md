@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/domestic-viol
 [Original/Source Press Release](https://newsdirect.com/news/domestic-violence-services-of-snohomish-county-selects-comcast-business-to-support-reliable-24-7-connectivity-334187678)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-business-supports-domestic-violence-services-with-reliable-connectivity/8e000984717c4fab038cd0374b57eff9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/comcast-business-empowers-domestic-violence-services-of-snohomish-county-with-vital-connectivity)
+
+Pickup - [fishervista.com](https://fishervista.com/en/domestic-violence-services-of-snohomish-county-enhances-connectivity-with-comcast-business-partnership/20246629)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/comcast-business-provides-critical-connectivity-for-domestic-violence-services-in-snohomish-county/20246629)
+
+Pickup - [advos.io](https://advos.io/en/domestic-violence-services-of-snohomish-county-partners-with-comcast-business-for-24-7-connectivity/20246629)
+ 
 
 
 

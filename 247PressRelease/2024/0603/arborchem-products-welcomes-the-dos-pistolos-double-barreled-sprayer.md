@@ -7,7 +7,11 @@ MEMPHIS, TN, June 03, 2024 /24-7PressRelease/ -- dos PISTOLOS is proud to announ
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511307/arborchem-products-welcomes-the-dos-pistolos-double-barreled-sprayer)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arborchem-partners-with-dos-pistolos-to-offer-innovative-double-barreled-herbicide-sprayer/4756c2e3140d932703bc22f891404027) 
+
+
+Pickup - [advos.io](https://advos.io/en/arborchem-products-introduces-innovative-dos-pistolos-double-barreled-sprayer/20243620)
+ 
 
 
 

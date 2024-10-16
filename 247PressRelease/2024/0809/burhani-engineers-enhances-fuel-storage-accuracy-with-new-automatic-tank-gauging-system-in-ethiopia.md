@@ -7,7 +7,17 @@ NAIROBI, KENYA, August 09, 2024 /24-7PressRelease/ -- Burhani Engineers LTD, an 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513247/burhani-engineers-enhances-fuel-storage-accuracy-with-new-automatic-tank-gauging-system-in-ethiopia)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/burhani-engineers-completes-state-of-the-art-tank-gauging-solution-in-ethiopia/c1b28b96fda5115226be23a325b7af8f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/burhani-engineers-implements-advanced-automatic-tank-gauging-system-in-ethiopia)
+
+Pickup - [fishervista.com](https://fishervista.com/en/burhani-engineers-revolutionizes-fuel-storage-in-ethiopia-with-advanced-tank-gauging-system/20245605)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/burhani-engineers-implements-advanced-automatic-tank-gauging-system-in-ethiopia/20245605)
+
+Pickup - [advos.io](https://advos.io/en/burhani-engineers-enhances-fuel-storage-accuracy-in-ethiopia-with-new-tank-gauging-system/20245605)
+ 
 
 
 

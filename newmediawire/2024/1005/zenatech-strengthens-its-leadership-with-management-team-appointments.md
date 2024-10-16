@@ -47,7 +47,9 @@ TORONTO, Ontario - (NewMediaWire) - October 4, 2024 - ZenaTech, Inc. (Nasdaq: ZE
 [Original/Source Press Release](https://www.newmediawire.com/news/zenatech-strengthens-its-leadership-with-management-team-appointments-7076162)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zenatech-inc-announces-new-management-team-appointments/a5dd63637ed5c653c870dbead270dd1c) 
+
+ 
 
 
 

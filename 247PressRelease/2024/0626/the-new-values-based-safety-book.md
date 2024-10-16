@@ -7,7 +7,13 @@ MELBOURNE, FL, June 26, 2024 /24-7PressRelease/ -- Every employee deserves to wo
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511997/the-new-values-based-safety-book)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-offers-practical-guidelines-to-improve-safety-culture/f2c21ea71c3c7b8555e9f6e0516708ed) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-book-emphasizes-values-based-safety-for-enhanced-workplace-culture/20244479)
+
+Pickup - [advos.io](https://advos.io/en/new-book-highlights-values-based-safety-to-revolutionize-workplace-culture/20244479)
+ 
 
 
 

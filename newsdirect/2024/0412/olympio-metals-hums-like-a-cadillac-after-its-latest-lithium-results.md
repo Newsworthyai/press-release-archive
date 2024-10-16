@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/olympio-metal
 [Original/Source Press Release](https://newsdirect.com/news/olympio-metals-hums-like-a-cadillac-after-its-latest-lithium-results-873851409)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/olympio-metals-expands-lithium-potential-at-cadillac-project-in-quebec/debdb641f9701928ac33d7b2a6224ca1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/olympio-metals-hums-like-a-cadillac-after-its-latest-lithium-results)
+ 
 
 
 

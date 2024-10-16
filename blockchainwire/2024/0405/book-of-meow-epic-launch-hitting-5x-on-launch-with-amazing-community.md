@@ -9,7 +9,11 @@ $BOMEOW's marketing lineup is nothing short of impressive. The project has been 
 [Original/Source Press Release](https://blockchainwire.io/press-release/book-of-meow-epic-launch-hitting-5x-on-launch-with-amazing-community)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/join-the-bomeow-revolution-unleashing-the-power-of-feline-frenzy-in-crypto/1200cd881a942ccefebc617222ab45cf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/book-of-meow-bomeow-roars-onto-solana-with-epic-launch-and-massive-community-support)
+ 
 
 
 

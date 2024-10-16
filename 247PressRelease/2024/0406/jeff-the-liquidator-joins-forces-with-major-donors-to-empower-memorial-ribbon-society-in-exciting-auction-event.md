@@ -7,7 +7,11 @@ VANCOUVER, BC, April 06, 2024 /24-7PressRelease/ -- Jeff Schwarz, known as Jeff 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509867/jeff-the-liquidator-joins-forces-with-major-donors-to-empower-memorial-ribbon-society-in-exciting-auction-event)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jeff-schwarz-pledges-auctions-to-benefit-memorial-ribbon-society/407d3b81956068cd087394a970cafad3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/06/jeff-the-liquidator-teams-up-with-donors-to-support-memorial-ribbon-society)
+ 
 
 
 

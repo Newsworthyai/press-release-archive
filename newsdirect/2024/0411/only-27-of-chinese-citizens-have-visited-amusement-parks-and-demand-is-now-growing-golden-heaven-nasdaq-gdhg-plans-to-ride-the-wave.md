@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/only-27-of-ch
 [Original/Source Press Release](https://newsdirect.com/news/only-27-of-chinese-citizens-have-visited-amusement-parks-and-demand-is-now-growing-golden-heaven-nasdaq-gdhg-plans-to-ride-the-wave-801148041)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-heaven-nasdaq-gdhg-sees-growth-as-chinese-amusement-park-demand-rises/1f2d64a5da38239223b3b5b7b8937021) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/golden-heaven-group-holdings-ltd-plans-to-ride-the-wave-of-growing-demand-for-amusement-parks-in-china)
+ 
 
 
 

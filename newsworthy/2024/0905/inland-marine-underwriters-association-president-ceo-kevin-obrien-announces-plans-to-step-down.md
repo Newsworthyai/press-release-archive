@@ -17,7 +17,17 @@ IMUA is the national association for the commercial inland marine insurance indu
 [Original/Source Press Release](https://newsworthy.ai/news/202409051255/inland-marine-underwriters-association-president-ceo-kevin-obrien-announces-plans-to-step-down)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/imua-ceo-kevin-obrien-to-step-down-in-2025-after-14-years-of-remarkable-leadership/b2d440f154eb0dbab93c43d5eafabf51) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/imua-president-ceo-kevin-o-brien-to-step-down-after-14-years-of-transformative-leadership)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kevin-obrien-to-step-down-as-president-and-ceo-of-imua-after-14-years/20246548)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/kevin-o-brien-to-step-down-as-president-and-ceo-of-inland-marine-underwriters-association/20246548)
+
+Pickup - [advos.io](https://advos.io/en/imua-president-ceo-kevin-obrien-to-step-down-after-14-years/20246548)
+ 
 
 
 

@@ -21,7 +21,11 @@ About Tomo: Tomo is an all-in-one Web3 social app that transforms your online pr
 [Original/Source Press Release](https://blockchainwire.io/press-release/tomo-leads-digital-art-revolution-introducing-erc-404-tomojis-and-the-premier-of-long-collection-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tomo-launches-erc404-meme-launchpad-tomoji-for-digital-art-and-nfts/69f36a7600f6c24a9f4b69a7ae185562) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/tomo-pioneers-digital-art-revolution-with-erc-404-tomojis-and-long-collection)
+ 
 
 
 

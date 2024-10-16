@@ -57,7 +57,21 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/by-growing-in-popularity-mashash-led-the-way-as-a-reliable-cloud-mining-site-in-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mashash-innovative-cloud-miner-platform-and-top-10-free-bitcoin-cloud-mining-sites-of-2024/454b38a3266c335de2b4373af7482c35) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/02/mashash-emerges-as-leading-cloud-mining-platform-in-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mashash-emerges-as-leading-cloud-mining-platform-in-2024/20246435)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/mashash-emerges-as-leading-cloud-mining-platform-in-2024/20246435)
+
+Pickup - [advos.io](https://advos.io/en/mashash-emerges-as-leading-cloud-mining-platform-in-2024/20246435)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/mashash-innovative-cloud-miner-platform-and-top-10-free-bitcoin-cloud-mining-sites-of-2024)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/mashash-innovative-cloud-miner-platform-and-top-10-free-bitcoin-cloud-mining-sites-of-2024)
+ 
 
 
 

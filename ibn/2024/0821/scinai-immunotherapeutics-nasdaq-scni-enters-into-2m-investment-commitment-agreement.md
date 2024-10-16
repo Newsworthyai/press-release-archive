@@ -31,7 +31,13 @@ Scinai Immunotherapeutics (NASDAQ: SCNI), a biopharmaceutical company focused on
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/scinai-immunotherapeutics-nasdaq-scni-enters-into-2m-investment-commitment-agreement/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scinai-immunotherapeutics-enters-2-million-investment-commitment-agreement/5b72590a08a243733f83b2c87271707f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/scinai-immunotherapeutics-secures-2-million-investment-commitment-bolstering-biopharmaceutical-ventures)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/scinai-immunotherapeutics-secures-2-million-investment-commitment-to-advance-biopharmaceutical-initiatives/20246099)
+ 
 
 
 

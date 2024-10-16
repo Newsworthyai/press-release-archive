@@ -7,7 +7,11 @@ In an exciting development for the cryptocurrency community, catchcoin is thrill
 [Original/Source Press Release](https://blockchainwire.io/press-release/catchcoin-catch-announces-token-launch-on-dex-with-an-exciting-airdrop-campaign-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/catchcoin-launches-innovative-token-on-decentralized-exchanges-marks-milestone-in-marketing/121b8dfb8cd0524e98033c9bdfaf948c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/catchcoin-launches-token-on-dex-with-airdrop-campaign)
+ 
 
 
 

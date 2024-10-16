@@ -7,7 +7,11 @@ COLUMBUS, OH, March 19, 2024 /24-7PressRelease/ -- The results are in. After rev
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509371/fitch-law-announces-winner-of-2023-truck-accident-awareness-scholarship)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fitch-law-firm-awards-truck-accident-awareness-scholarship-to-drexel-university-student/1482da50b28199064b56d478f37408f7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/drexel-university-student-wins-fitch-law-firm-s-truck-accident-awareness-scholarship)
+ 
 
 
 

@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/discover-how-
 [Original/Source Press Release](https://newsdirect.com/news/discover-how-this-companys-breakthrough-technology-might-be-the-key-to-transforming-pancreatic-cancer-pain-relief-959902280)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-technology-offers-hope-for-pancreatic-cancer-pain-relief/a7789308a621abfaf57f6ed9ed3888c1) 
+
+
+Pickup - [advos.io](https://advos.io/en/autonomix-unveils-innovative-technology-to-alleviate-pancreatic-cancer-pain/20244118)
+ 
 
 
 

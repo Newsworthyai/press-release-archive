@@ -37,7 +37,11 @@ Registration alone does not guarantee participation. Each entry will be scrutini
 [Original/Source Press Release](https://blockchainwire.io/press-release/cls-global-to-host-crypto-c-suite-party-connecting-like-minded-leaders-for-a-better-tomorrow)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cls-global-hosts-web3-synergy-uniting-crypto-capital-networks-in-dubai/c605551f94dda60a212f4b50a5f8f7bf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/cls-global-to-host-crypto-c-suite-party-connecting-like-minded-leaders-for-a-better-tomorrow)
+ 
 
 
 

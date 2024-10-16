@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bluebird-merc
 [Original/Source Press Release](https://newsdirect.com/news/bluebird-merchant-ventures-advancing-gold-mines-in-the-philippines-and-south-korea-461268093)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bluebird-merchant-ventures-advancing-gold-mines-in-the-philippines-and-south-korea/c0c1916b15d9412b7a1f425e676ace11) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/bluebird-merchant-ventures-advancing-gold-mines-in-the-philippines-and-south-korea)
+ 
 
 
 

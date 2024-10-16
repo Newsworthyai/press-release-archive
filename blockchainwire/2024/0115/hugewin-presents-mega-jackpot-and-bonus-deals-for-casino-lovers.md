@@ -39,7 +39,11 @@ Telegram | X (Twitter)
 [Original/Source Press Release](https://blockchainwire.io/press-release/hugewin-presents-mega-jackpot-and-bonus-deals-for-casino-lovers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hugewin-presents-mega-jackpot-and-lucrative-bonus-deals/00d5ad5265612a240cfeff62374260bb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/15/hugewin-unveils-mega-jackpot-and-lucrative-bonuses-for-casino-enthusiasts)
+ 
 
 
 

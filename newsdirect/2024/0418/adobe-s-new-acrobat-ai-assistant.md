@@ -19,7 +19,11 @@ View original content to download multimedia: https://newsdirect.com/news/adobes
 [Original/Source Press Release](https://newsdirect.com/news/adobes-new-acrobat-ai-assistant-526128012)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/adobe-unveils-new-ai-assistant-for-acrobat/b759944d7dd4d30bcd37e6932120208f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/adobe-unveils-groundbreaking-acrobat-ai-assistant)
+ 
 
 
 

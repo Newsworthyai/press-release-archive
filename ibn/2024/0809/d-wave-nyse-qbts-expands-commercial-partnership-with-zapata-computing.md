@@ -30,7 +30,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-expands-commercial-partnership-with-zapata-computing/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-and-zapata-computing-expand-commercial-partnership/bb259247c54a92d8f5e3bc3c6a3eca11) 
+
+ 
 
 
 

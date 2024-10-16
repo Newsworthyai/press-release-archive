@@ -7,7 +7,9 @@ GATINEAU, QC, April 30, 2024 /24-7PressRelease/ -- Canada's Building Trades Unio
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510468/canadas-building-trades-unions-and-arc-clean-technology-collaborate-for-smr-workforce)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cbtu-and-arc-clean-technology-sign-mou-for-small-modular-reactor-employment/54e26896e8e0044be55a5ee2965c7c28) 
+
+ 
 
 
 

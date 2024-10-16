@@ -55,7 +55,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/hag-advances-with-key-project-milestones-a-leap-forward-in-bitcoin-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hag-achieves-milestones-in-bitcoin-mining-and-token-trading/373b9340765ccfe999ddf3082fb9bd0f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/hag-blazes-new-trail-in-bitcoin-mining-with-groundbreaking-milestones)
+ 
 
 
 

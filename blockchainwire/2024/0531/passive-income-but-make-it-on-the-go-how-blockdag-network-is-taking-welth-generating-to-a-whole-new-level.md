@@ -53,7 +53,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/passive-income-but-make-it-on-the-go--how-blockdag-network-is-taking-welth-generating-to-a-whole-new-level)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-revolutionizes-passive-income-generation-with-x1-miner-app/c24add97b8c830d70b5b9cd84246896e) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blockdag-network-revolutionizes-passive-income-generation-with-x1-miner-app)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blockdag-network-revolutionizes-passive-income-generation-with-x1-miner-app)
+ 
 
 
 

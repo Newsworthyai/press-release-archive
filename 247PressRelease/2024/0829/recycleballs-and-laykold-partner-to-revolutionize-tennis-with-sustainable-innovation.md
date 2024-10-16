@@ -7,7 +7,17 @@ ATLANTA, GA, August 29, 2024 /24-7PressRelease/ -- Setting a new standard for su
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513868/recycleballs-and-laykold-partner-to-revolutionize-tennis-with-sustainable-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/recycleballs-and-laykold-partner-to-create-greenest-tennis-surface/40dad42005a3dd35eb1516e507b32c6e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/recycleballs-and-laykold-join-forces-to-create-sustainable-tennis-courts)
+
+Pickup - [fishervista.com](https://fishervista.com/en/recycleballs-and-laykold-join-forces-to-revolutionize-tennis-with-eco-friendly-courts/20246355)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/recycleballs-and-laykold-partner-to-create-eco-friendly-tennis-courts/20246355)
+
+Pickup - [advos.io](https://advos.io/en/recycleballs-and-laykold-unite-for-sustainable-tennis-innovation/20246355)
+ 
 
 
 

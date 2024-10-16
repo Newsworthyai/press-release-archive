@@ -37,7 +37,11 @@ X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/megapix-unveils-ai-photo-tg-generator-and-presents-solana-based-token)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/megapix-unveils-ai-photo-tg-generator-for-web3-art-community/bf48f6a5909a3f747418263fc0b4fa6d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/12/megapix-unveils-groundbreaking-ai-photo-tg-generator-and-solana-based-token)
+ 
 
 
 

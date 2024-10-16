@@ -65,7 +65,13 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/nummus-casino-announces-the-presale-of-nummus-token-with-unique-rewards-and-bonuses)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nummus-casino-announces-nummus-token-presale-launch-in-2024/59e7d51c41009927c4b7af79160e8036) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/nummus-casino-launches-nummus-token-presale-with-exclusive-rewards/20244267)
+
+Pickup - [advos.io](https://advos.io/en/nummus-casino-launches-nummus-token-presale-with-unique-rewards-and-bonuses/20244267)
+ 
 
 
 

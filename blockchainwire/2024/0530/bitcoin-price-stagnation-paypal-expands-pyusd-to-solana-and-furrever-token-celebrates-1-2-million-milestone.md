@@ -25,7 +25,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-price-stagnation-paypal-expands-pyusd-to-solana-and-furrever-token-celebrates-12-million-milestone)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-price-stagnation-bearish-sentiments-prevail-as-btc-hovers-near-support-levels/703d145e181d79cee93b92c60e05089e) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-price-stagnation-bearish-sentiments-prevail-as-btc-hovers-near-support-levels)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-price-stagnation-bearish-sentiments-prevail-as-btc-hovers-near-support-levels)
+ 
 
 
 

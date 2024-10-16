@@ -7,7 +7,17 @@ CHEONGJU, KOREA, September 12, 2024 /24-7PressRelease/ -- Cheongju, North Chungc
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514224/chairman-lee-man-hee-emphasizes-the-importance-of-the-revelation-during-nationwide-tour-visits)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chairman-lee-s-revelation-sermon-draws-80000-attendees-at-cheongju-church-anniversary-celebration/92a66552587cad6bcea774ffdebf6b26) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/shincheonji-church-chairman-lee-man-hee-emphasizes-revelation-s-importance-during-national-tour)
+
+Pickup - [fishervista.com](https://fishervista.com/en/shincheonji-church-draws-80000-for-chairman-lee-s-revelation-message/20246757)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/shincheonji-church-of-jesus-draws-80000-for-chairman-lee-s-revelation-message/20246757)
+
+Pickup - [advos.io](https://advos.io/en/shincheonji-church-leader-emphasizes-revelation-s-importance-during-national-tour/20246757)
+ 
 
 
 

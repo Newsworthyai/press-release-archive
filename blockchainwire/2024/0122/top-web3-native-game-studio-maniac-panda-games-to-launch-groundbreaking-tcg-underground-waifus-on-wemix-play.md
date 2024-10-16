@@ -31,7 +31,11 @@ Part of the first generation of Korean PC online game developers and Korean mobi
 [Original/Source Press Release](https://blockchainwire.io/press-release/top-web3-native-game-studio-maniac-panda-games-to-launch-groundbreaking-tcg-underground-waifus-on--wemix-play)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemade-announces-launch-of-multiplayer-tcg-underground-waifus-on-wemix-play/0719c02ca93720af2be3aa1fd2677aec) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/22/maniac-panda-games-underground-waifus-tcg-set-to-launch-on-wemix-play)
+ 
 
 
 

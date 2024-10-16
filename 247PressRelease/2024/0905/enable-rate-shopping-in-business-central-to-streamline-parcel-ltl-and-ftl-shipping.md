@@ -7,7 +7,17 @@ EDMONTON, AB, September 05, 2024 /24-7PressRelease/ -- Insight Works, a leader i
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513993/enable-rate-shopping-in-business-central-to-streamline-parcel-ltl-and-ftl-shipping)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/insight-works-announces-enhanced-functionalities-of-dynamic-ship-app/da4f12b64734c3f35a83939f9110f20c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/insight-works-enhances-dynamic-ship-app-for-business-central-revolutionizing-shipping-operations)
+
+Pickup - [fishervista.com](https://fishervista.com/en/enable-rate-shopping-in-business-central-to-streamline-parcel-ltl-and-ftl-shipping/20246541)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/insight-works-enhances-dynamic-ship-app-for-streamlined-shipping-in-business-central/20246541)
+
+Pickup - [advos.io](https://advos.io/en/insight-works-enhances-dynamic-ship-app-for-improved-shipping-efficiency/20246541)
+ 
 
 
 

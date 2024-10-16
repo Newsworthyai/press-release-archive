@@ -33,7 +33,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitgets-poolx
 [Original/Source Press Release](https://newsdirect.com/news/bitgets-poolx-welcomes-thetanuts-finance-nuts-for-staking-potential-452455230)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-s-poolx-welcomes-thetanuts-finance-nuts-for-staking-potential/70ba1b7daaa90dc17fb62d826b8b9316) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitget-s-poolx-welcomes-thetanuts-finance-nuts-for-staking-potential)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitget-s-poolx-welcomes-thetanuts-finance-nuts-for-staking-potential)
+ 
 
 
 

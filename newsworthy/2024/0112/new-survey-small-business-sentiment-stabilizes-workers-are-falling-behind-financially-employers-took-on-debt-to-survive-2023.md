@@ -61,7 +61,11 @@ Founded In 2021, RedBalloon has quickly become America’s largest woke-free job
 [Original/Source Press Release](https://newsworthy.ai/news/20240112978/new-survey-small-business-sentiment-stabilizes-workers-are-falling-behind-financially-employers-took-on-debt-to-survive-2023)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/survey-finds-americas-small-businesses-in-holding-pattern-amid-economic-turbulence/c524d347964cb9c7e8aa8c989f0b50a7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/12/small-business-owners-holding-steady-despite-financial-strain)
+ 
 
 
 

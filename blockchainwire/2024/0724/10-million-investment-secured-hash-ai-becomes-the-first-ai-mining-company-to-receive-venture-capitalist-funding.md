@@ -39,7 +39,21 @@ Bolt's Capital is a premier private investment firm focused on the blockchain in
 [Original/Source Press Release](https://blockchainwire.io/press-release/10-million-investment-secured-hash-ai-becomes-the-first-ai-mining-company-to-receive-venture-capitalist-funding)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hash-ai-secures-10-million-investment-from-bolt-s-capital-for-future-of-mining/51b61da9ee5723683f342bc7094be14d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/hash-ai-secures-10-million-investment-from-bolt-s-capital-for-future-of-mining)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/hash-ai-secures-10-million-investment-from-bolt-s-capital-for-future-of-mining)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/hash-ai-secures-10-million-investment-pioneering-ai-driven-sustainable-crypto-mining)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hash-ai-secures-10-million-investment-pioneers-ai-optimized-crypto-mining/20245227)
+
+Pickup - [advos.io](https://advos.io/en/hash-ai-secures-10-million-investment-from-bolt-s-capital/20245227)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hash-ai-secures-10-million-investment-pioneering-ai-driven-sustainable-crypto-mining)
+ 
 
 
 

@@ -7,7 +7,17 @@ ALBUQUERQUE, NM, August 29, 2024 /24-7PressRelease/ -- Has this summer got you t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513885/fall-is-the-best-time-to-install-a-patio-cover-in-new-mexico)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beat-the-heat-allstate-roofing-remodeling-offers-custom-patio-covers-for-outdoor-living/8704ffe3ee264f42793fdb70e390df27) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/autumn-the-ideal-season-for-patio-cover-installation-in-new-mexico)
+
+Pickup - [fishervista.com](https://fishervista.com/en/why-fall-is-the-ideal-time-for-new-mexico-homeowners-to-install-patio-covers/20246367)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/allstate-roofing-remodeling-promotes-fall-as-ideal-season-for-patio-cover-installation-in-new-mexico/20246367)
+
+Pickup - [advos.io](https://advos.io/en/fall-the-optimal-time-for-patio-cover-installations-in-new-mexico/20246367)
+ 
 
 
 

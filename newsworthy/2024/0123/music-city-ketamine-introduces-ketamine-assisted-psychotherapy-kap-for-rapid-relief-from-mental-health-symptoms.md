@@ -15,7 +15,9 @@ For more information about Music City Ketamine and its Ketamine Assisted Psychot
 [Original/Source Press Release](https://newsworthy.ai/news/202401231017/music-city-ketamine-introduces-ketamine-assisted-psychotherapy-kap-for-rapid-relief-from-mental-health-symptoms)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-ketamine-assisted-psychotherapy-treatment-for-mental-health-conditions/d2cbc0ddf5b756a5d3d48f2e4d1ea91c) 
+
+ 
 
 
 

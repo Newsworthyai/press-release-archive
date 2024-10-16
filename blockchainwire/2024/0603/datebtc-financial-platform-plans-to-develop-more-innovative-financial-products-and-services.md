@@ -35,7 +35,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/datebtc-financial-platform-plans-to-develop-more-innovative-financial-products-and-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/datebtc-financial-platform-announces-strategic-collaboration-with-major-exchanges/aeeaf322d3572db3951e3ccbe8533ecc) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/datebtc-financial-platform-announces-strategic-collaboration-with-major-exchanges)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/datebtc-financial-platform-announces-strategic-collaboration-with-major-exchanges)
+ 
 
 
 

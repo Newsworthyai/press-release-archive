@@ -64,7 +64,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-aiming-to-innovate-with-new-staking-as-a-business-service)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-to-launch-staking-as-a-business-democratizing-crypto-staking-for-investors/6efac2ab078a0a4b5b8e8975d672c454) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/stakingfarm-introduces-staking-as-a-business-service-to-revolutionize-cryptocurrency-investment)
+ 
 
 
 

@@ -9,7 +9,11 @@ Vision and Mission StatementAt Geeko Dex, our vision is to establish a unified p
 [Original/Source Press Release](https://blockchainwire.io/press-release/geeko-dex-the-universal-solution-in-crypto-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/geeko-dex-revolutionizing-digital-currency-trading-with-multi-chain-functionality-and-ai-integration/c445991b89887cebf4305a72aa3a5641) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/15/geeko-dex-pioneering-decentralized-exchange-revolutionizes-cross-chain-trading)
+ 
 
 
 

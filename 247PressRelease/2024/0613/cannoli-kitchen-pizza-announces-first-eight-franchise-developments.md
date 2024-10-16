@@ -7,7 +7,11 @@ WEST PALM BEACH, FL, June 13, 2024 /24-7PressRelease/ -- Cannoli Kitchen Pizzaâ„
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511691/cannoli-kitchen-pizza-announces-first-eight-franchise-developments)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cannoli-kitchen-pizza-announces-first-eight-franchise-developments/8b0c0ab6db3598a47d3f651b71b650dd) 
+
+
+Pickup - [advos.io](https://advos.io/en/cannoli-kitchen-pizza-announces-expansion-with-eight-new-franchise-developments/20244109)
+ 
 
 
 

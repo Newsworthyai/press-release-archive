@@ -29,7 +29,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/copper-proper
 [Original/Source Press Release](https://newsdirect.com/news/copper-property-ctl-pass-through-trust-files-amended-annual-report-for-the-year-ended-december-31-2023-212776573)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/copper-property-ctl-pass-through-trust-files-amended-annual-report/54e42f3036c5fd9a0eae50829b320b04) 
+
+ 
 
 
 

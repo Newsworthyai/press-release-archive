@@ -7,7 +7,11 @@ COLUMBUS, OH, April 04, 2024 /24-7PressRelease/ -- Fast Guard Service, the natio
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509781/fast-guard-service-leading-the-charge-in-emergency-security-solutions-amidst-tornado-devastation-across-ohio-michigan-west-virginia-and-kentucky)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fast-guard-service-extends-aid-to-businesses-affected-by-tornadoes/0ec1f38ed59ca0b534cd29d5eea84cb3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/fast-guard-service-stands-resolute-in-safeguarding-businesses-amid-tornado-devastation)
+ 
 
 
 

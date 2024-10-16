@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/announcing-ni
 [Original/Source Press Release](https://newsdirect.com/news/announcing-nilu27-a-hypercar-brand-from-celebrated-designer-sasha-selipanov-206444675)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nilu27-to-debut-revolutionary-nilu-hypercar-at-pebble-beach/574787d05d92bb1f6e0e94626fbd2d34) 
+
+ 
 
 
 

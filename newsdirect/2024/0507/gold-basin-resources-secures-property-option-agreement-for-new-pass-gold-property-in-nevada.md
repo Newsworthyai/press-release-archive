@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/gold-basin-re
 [Original/Source Press Release](https://newsdirect.com/news/gold-basin-resources-secures-property-option-agreement-for-new-pass-gold-property-in-nevada-377106162)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-basin-resources-secures-property-option-agreement-for-new-pass-gold-property-in-nevada/56ae68437aec0956999eef1cf57463ff) 
+
+ 
 
 
 

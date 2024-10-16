@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-prepar
 [Original/Source Press Release](https://newsdirect.com/news/bitget-prepares-for-io-net-io-pre-market-listing-opening-new-avenues-for-crypto-enthusiasts-449581644)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-prepares-for-io-net-io-pre-market-listing-opening-new-avenues-for-crypto-enthusiasts/b80f82e35197deb39986b774b5a84719) 
+
+ 
 
 
 

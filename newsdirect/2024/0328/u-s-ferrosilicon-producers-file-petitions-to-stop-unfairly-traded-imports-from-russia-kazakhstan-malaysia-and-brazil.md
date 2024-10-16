@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/u-s-ferrosili
 [Original/Source Press Release](https://newsdirect.com/news/u-s-ferrosilicon-producers-file-petitions-to-stop-unfairly-traded-imports-from-russia-kazakhstan-malaysia-and-brazil-165378080)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-ferrosilicon-producers-fight-unfairly-traded-imports/8f4cc2730a73294b3798cda1d408be19) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/u-s-ferrosilicon-producers-take-legal-action-against-unfair-import-practices)
+ 
 
 
 

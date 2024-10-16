@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/eclypses-ushe
 [Original/Source Press Release](https://newsdirect.com/news/eclypses-ushers-in-new-era-of-cybersecurity-assurance-with-fips-140-3-validation-of-its-cryptographic-library-525410658)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/eclypses-achieves-fips-140-3-validation-for-cryptographic-library/745732fe69cb29e34989d20af09d5d59) 
+
+ 
 
 
 

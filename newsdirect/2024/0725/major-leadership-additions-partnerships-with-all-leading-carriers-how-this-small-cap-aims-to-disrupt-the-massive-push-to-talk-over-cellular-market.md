@@ -63,7 +63,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/major-leaders
 [Original/Source Press Release](https://newsdirect.com/news/major-leadership-additions-partnerships-with-all-leading-carriers-how-this-small-cap-aims-to-disrupt-the-massive-push-to-talk-over-cellular-market-376055872)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/siyata-mobile-inc-aims-to-disrupt-push-to-talk-over-cellular-market/c3c51e0b882399b8339ebf8c21272fda) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/siyata-mobile-poised-to-revolutionize-push-to-talk-over-cellular-market-with-strategic-moves)
+
+Pickup - [fishervista.com](https://fishervista.com/en/siyata-mobile-inc-makes-strategic-moves-to-revolutionize-push-to-talk-over-cellular-market/20245249)
+
+Pickup - [advos.io](https://advos.io/en/siyata-mobile-s-strategic-moves-poised-to-disrupt-push-to-talk-over-cellular-market/20245249)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/siyata-mobile-poised-to-disrupt-push-to-talk-over-cellular-market-with-strategic-moves)
+ 
 
 
 

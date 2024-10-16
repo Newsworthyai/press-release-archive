@@ -56,7 +56,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-setting-new-standards-in-finance-with-superior-staking-practices)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-revolutionizes-finance-with-launch-of-pioneering-eth-staking-and-farming-platform/6259aef00de9ccc15f748e43085d7b57) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/stakingfarm-redefining-passive-income-through-innovative-staking-and-farming)
+ 
 
 
 

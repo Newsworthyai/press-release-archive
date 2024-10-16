@@ -45,7 +45,11 @@ BEK TV broadcasts on television and across the world via the internet. For more 
 [Original/Source Press Release](https://newsworthy.ai/news/202404101145/bek-tv-brings-home-three-eric-sevareid-awards-for-outstanding-sports-play-by-play)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bek-tv-sportscasters-honored-at-eric-sevareid-awards/52727065914763f9a7327473deaa6c70) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/bek-tv-sportscasters-win-three-eric-sevareid-awards-for-outstanding-play-by-play)
+ 
 
 
 

@@ -57,7 +57,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/analyst-crypt
 [Original/Source Press Release](https://newsdirect.com/news/analyst-crypto-jebb-urges-to-buy-ethereum-right-now-cardano-left-in-the-dust-as-kangamoon-bull-run-continues-673796846)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-analyst-jebb-urges-to-buy-ethereum-now-cardano-left-in-the-dust-as-kangamoon-bull-run-continues/1b62caac163e16759da804c6c7dfa695) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/kangamoon-emerges-as-a-potential-crypto-powerhouse-outshining-ethereum-and-cardano)
+ 
 
 
 

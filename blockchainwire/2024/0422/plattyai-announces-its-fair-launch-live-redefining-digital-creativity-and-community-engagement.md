@@ -39,7 +39,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/plattyai-announces-its-fair-launch-live-redefining-digital-creativity-and-community-engagement)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/plattyai-launches-first-meme-programmed-ai-image-generator/d80db846a407406c82083853c506a159) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/plattyai-announces-its-fair-launch-live-redefining-digital-creativity-and-community-engagement)
+ 
 
 
 

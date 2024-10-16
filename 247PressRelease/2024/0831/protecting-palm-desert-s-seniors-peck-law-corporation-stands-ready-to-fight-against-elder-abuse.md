@@ -7,7 +7,17 @@ LOS ANGELES, CA, August 31, 2024 /24-7PressRelease/ -- Peck Law Corporation stan
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513953/protecting-palm-deserts-seniors-peck-law-corporation-stands-ready-to-fight-against-elder-abuse)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peck-law-corporation-stands-against-elder-abuse-in-palm-desert/447d35553365dae5f1be28b5c1b743ea) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/31/peck-law-corporation-champions-elder-abuse-prevention-in-palm-desert)
+
+Pickup - [fishervista.com](https://fishervista.com/en/peck-law-corporation-champions-elder-abuse-victims-in-palm-desert/20246417)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/peck-law-corporation-champions-elder-rights-in-palm-desert/20246417)
+
+Pickup - [advos.io](https://advos.io/en/peck-law-corporation-advocates-for-elder-abuse-victims-in-palm-desert/20246417)
+ 
 
 
 

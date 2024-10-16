@@ -7,7 +7,17 @@ NAIROBI, KENYA, August 17, 2024 /24-7PressRelease/ -- Burhani Engineers, a reput
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513516/transforming-healthcare-burhani-engineers-completes-solar-panel-project-at-malindi-hospital)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/burhani-engineers-completes-renewable-energy-project-at-malindi-hospital/fee8e12eb56a2c130d0e3338ad0ec61b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/17/burhani-engineers-revolutionizes-healthcare-with-solar-panel-installation-at-malindi-hospital)
+
+Pickup - [fishervista.com](https://fishervista.com/en/burhani-engineers-completes-solar-panel-project-at-malindi-hospital/20245800)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/burhani-engineers-completes-solar-panel-installation-at-malindi-hospital-addressing-critical-power-issues/20245800)
+
+Pickup - [advos.io](https://advos.io/en/burhani-engineers-completes-solar-panel-project-at-malindi-hospital-enhancing-healthcare-reliability/20245800)
+ 
 
 
 

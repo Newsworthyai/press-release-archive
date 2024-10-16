@@ -29,7 +29,21 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitstaker-raises-seed-funding-to-propel-its-growth-in-defi-staking-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitstaker-secures-major-seed-financing-for-defi-staking-platform-growth/c76b3e7134c26120966a0870877239c3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/bitstaker-secures-seed-funding-to-advance-defi-staking-innovation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitstaker-secures-seed-funding-to-advance-defi-staking-innovation/20246825)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bitstaker-secures-seed-funding-to-revolutionize-defi-staking/20246825)
+
+Pickup - [advos.io](https://advos.io/en/bitstaker-secures-seed-funding-to-advance-defi-staking-innovation/20246825)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitstaker-secures-major-seed-financing-for-defi-staking-platform-growth)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitstaker-secures-major-seed-financing-for-defi-staking-platform-growth)
+ 
 
 
 

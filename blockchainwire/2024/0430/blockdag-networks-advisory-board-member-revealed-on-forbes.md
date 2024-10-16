@@ -39,7 +39,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-networks-advisory-board-member-revealed-on-forbes-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-s-transparent-future-a-game-changer-for-crypto-industry/8566a61bcc1f016dcd5ffd3dfbdf1645) 
+
+ 
 
 
 

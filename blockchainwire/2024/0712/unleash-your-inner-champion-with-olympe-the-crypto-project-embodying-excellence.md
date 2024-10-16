@@ -9,7 +9,19 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-unleash-your-inner-champion-with-olymp-the-crypto-project-embodying-excellence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/olympe-cryptocurrency-launch-exceeds-expectations/df371b3297fe2f8a0a3480a456cda881) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/olympe-launches-innovative-crypto-project-inspired-by-olympic-spirit)
+
+Pickup - [fishervista.com](https://fishervista.com/en/olympe-crypto-project-launches-aiming-for-excellence-and-fairness/20244931)
+
+Pickup - [advos.io](https://advos.io/en/olympe-crypto-project-launches-with-a-vision-of-excellence-and-fairness/20244931)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/olympe-cryptocurrency-launch-exceeds-expectations)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/olympe-cryptocurrency-launch-exceeds-expectations)
+ 
 
 
 

@@ -25,7 +25,11 @@ Website Main: https://dtec.space
 [Original/Source Press Release](https://blockchainwire.io/press-release/ai-project-dtec-token-announces-reaching-usd-2-million-in-seed-round-and-going-for-pre-sale-in-april)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dtec-token-project-secures-usd-2-million-in-seed-round-funding/795fe81c4b38f682b0a10cbd17e70293) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/dtec-token-raises-2m-in-seed-round-prepares-for-april-pre-sale)
+ 
 
 
 

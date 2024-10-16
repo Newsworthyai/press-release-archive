@@ -40,7 +40,11 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/alpha-sigma-capital-research-releases-new-report-on-ceti-ai-ceti)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-research-released-on-ceti-ai-by-alpha-sigma-capital-research/913bd947f3aafa055df172465b702967) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/alpha-sigma-capital-research-unveils-report-on-ceti-ai-s-innovative-approach-to-decentralized-ai/20246724)
+ 
 
 
 

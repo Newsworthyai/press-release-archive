@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-partne
 [Original/Source Press Release](https://newsdirect.com/news/bitget-partners-with-onramp-money-for-seamless-fiat-to-crypto-transactions-across-5-local-currencies-653477550)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-partners-with-onramp-money-for-seamless-fiat-to-crypto-transactions/dab7245312aa07ab747e5558b9dc581c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/bitget-enhances-crypto-accessibility-with-onramp-money-partnership)
+ 
 
 
 

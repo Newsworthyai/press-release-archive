@@ -7,7 +7,17 @@ EDMONTON, AB, August 21, 2024 /24-7PressRelease/ -- Insight Works, a leading Ind
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513617/business-central-enables-more-companies-to-adopt-mobile-devices-for-warehouse-management)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/insight-works-launches-warehouse-insight-for-fast-and-effective-warehouse-management/17e71e5845411cb39b98000e27c29857) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/insight-works-revolutionizes-warehouse-management-with-rapid-mobile-device-integration-for-business-central)
+
+Pickup - [fishervista.com](https://fishervista.com/en/insight-works-modernizes-warehouse-operations-with-mobile-device-integration/20245865)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/insight-works-introduces-rapid-warehouse-management-system-deployment-for-business-central/20245865)
+
+Pickup - [advos.io](https://advos.io/en/insight-works-launches-warehouse-insight-app-for-seamless-warehouse-management/20245865)
+ 
 
 
 

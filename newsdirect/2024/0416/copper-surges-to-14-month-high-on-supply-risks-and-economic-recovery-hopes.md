@@ -85,7 +85,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/copper-surges
 [Original/Source Press Release](https://newsdirect.com/news/copper-surges-to-14-month-high-on-supply-risks-and-economic-recovery-hopes-578185945)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/copper-prices-surge-to-14-month-high-as-abitibi-metals-corp-positions-for-growth/a58e16c4b3d32b3658332d62e2a25b5c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/copper-prices-soar-on-supply-risks-and-economic-recovery-hopes)
+ 
 
 
 

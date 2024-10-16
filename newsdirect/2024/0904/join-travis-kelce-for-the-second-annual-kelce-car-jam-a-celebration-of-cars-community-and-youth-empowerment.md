@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/join-travis-k
 [Original/Source Press Release](https://newsdirect.com/news/join-travis-kelce-for-the-second-annual-kelce-car-jam-a-celebration-of-cars-community-and-youth-empowerment-886294455)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/join-travis-kelce-for-the-second-annual-kelce-car-jam-a-celebration-of-cars-community-and-youth-empowerment/5d6bbe89fb41af29c0401d2904a36cb1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/travis-kelce-s-kelce-car-jam-returns-to-kansas-city-blending-automotive-passion-with-youth-empowerment)
+
+Pickup - [fishervista.com](https://fishervista.com/en/travis-kelce-to-host-second-annual-kelce-car-jam-in-kansas-city/20246533)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/travis-kelce-s-kelce-car-jam-returns-to-kansas-city-blending-automotive-passion-with-youth-empowerment/20246533)
+
+Pickup - [advos.io](https://advos.io/en/travis-kelce-hosts-second-annual-kelce-car-jam-to-empower-youth-and-celebrate-community/20246533)
+ 
 
 
 

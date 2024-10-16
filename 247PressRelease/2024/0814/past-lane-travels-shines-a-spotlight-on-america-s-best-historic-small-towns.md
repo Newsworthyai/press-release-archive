@@ -7,7 +7,17 @@ GETTYSBURG, PA, August 14, 2024 /24-7PressRelease/ -- Past Lane Travels, a leadi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513420/past-lane-travels-shines-a-spotlight-on-americas-best-historic-small-towns)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/past-lane-travels-unveils-america-s-best-historic-small-towns-for-2024/2c62fad30288f438188816a83636b20e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/past-lane-travels-unveils-top-10-historic-small-towns-in-america-for-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/past-lane-travels-unveils-2024-s-best-historic-small-towns-in-america/20245714)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/past-lane-travels-unveils-top-10-historic-small-towns-in-america-for-2024/20245714)
+
+Pickup - [advos.io](https://advos.io/en/past-lane-travels-unveils-america-s-best-historic-small-towns-for-2024/20245714)
+ 
 
 
 

@@ -39,7 +39,13 @@ You can follow the project’s development and stay up to date at these links: W
 [Original/Source Press Release](https://blockchainwire.io/press-release/gevulot-sets-firestarter-mainnet-launch-on-july-15-explains-zk-endgame-approach)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gevulot-launches-zkcloud-for-zero-knowledge-proof-generation/91d80cd142bcd8b4bd4229235092f2bb) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gevulot-launches-zkcloud-for-zero-knowledge-proof-generation)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gevulot-launches-zkcloud-for-zero-knowledge-proof-generation)
+ 
 
 
 

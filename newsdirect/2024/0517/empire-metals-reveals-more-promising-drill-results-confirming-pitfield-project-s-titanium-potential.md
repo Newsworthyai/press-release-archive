@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/empire-metals
 [Original/Source Press Release](https://newsdirect.com/news/empire-metals-reveals-more-promising-drill-results-confirming-pitfield-projects-titanium-potential-705357211)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/empire-metals-reveals-promising-drill-results-at-pitfield-project/2dca868b4a044f2ff30b565acb2ce927) 
+
+ 
 
 
 

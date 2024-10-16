@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/isospec-analy
 [Original/Source Press Release](https://newsdirect.com/news/isospec-analytics-raises-1-9m-as-it-introduces-breakthrough-technology-to-rapidly-identify-unknown-molecules-at-scale-277812724)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/isospec-analytics-raises-1-9m-to-introduce-breakthrough-technology-for-rapidly-identifying-unknown-molecules-at-scale/285e5d491432475032cac335d57ddb46) 
+
+ 
 
 
 

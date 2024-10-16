@@ -7,7 +7,13 @@ LAS VEGAS, NV, June 20, 2023 /24-7PressRelease/ -- The 2024 International Whisky
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511866/the-2024-international-whisky-competition-results-announcement)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bacardi-s-aultmore-r-oloroso-sherry-cask-wins-whisky-of-the-year-at-2024-international-whisky-competition/1e6046a6b0f74b3704dcbe4deeb6b7e6) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/aultmore-r-oloroso-sherry-cask-25-year-old-wins-top-honors-at-2024-international-whisky-competition/20244330)
+
+Pickup - [advos.io](https://advos.io/en/2024-international-whisky-competition-announces-winners-bacardi-takes-top-honors/20244330)
+ 
 
 
 

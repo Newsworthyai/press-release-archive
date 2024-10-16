@@ -25,7 +25,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/maga-vps-mvp-market-cap-takes-off-eyes-trumps-figures-shib-and-doge-follow)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/maga-vp-market-cap-surges-by-44-7/bca889629386d4301ed925a1a9192bfc) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/maga-vp-market-cap-surges-by-44-7)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/maga-vp-market-cap-surges-by-44-7)
+ 
 
 
 

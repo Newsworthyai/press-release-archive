@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/liquid-death-
 [Original/Source Press Release](https://newsdirect.com/news/liquid-death-becomes-official-partner-of-brooklyn-football-clubs-womens-franchise-799938835)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/liquid-death-partners-with-brooklyn-fc-for-women-s-franchise/bc9231296200a4b1f3928a926c9046da) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/liquid-death-announces-sponsorship-of-brooklyn-football-club-s-women-s-team)
+
+Pickup - [fishervista.com](https://fishervista.com/en/liquid-death-partners-with-brooklyn-fc-womens-team-as-official-sponsor/20246345)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/liquid-death-sponsors-brooklyn-football-club-s-women-s-team-in-landmark-partnership/20246345)
+
+Pickup - [advos.io](https://advos.io/en/liquid-death-partners-with-brooklyn-football-club-womens-team/20246345)
+ 
 
 
 

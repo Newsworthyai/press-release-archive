@@ -7,7 +7,9 @@ LOS ANGELES, CA, May 23, 2024 /24-7PressRelease/ -- The Winkler Lowy Foundation,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511108/winkler-lowy-foundation-led-by-janine-lowy-donates-to-jewish-federation-of-greater-los-angeles)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/winkler-lowy-foundation-supports-jewish-federation-of-greater-los-angeles/da7d422670895d882b4b5ae14816503f) 
+
+ 
 
 
 

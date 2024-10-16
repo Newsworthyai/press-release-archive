@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/combatting-th
 [Original/Source Press Release](https://newsdirect.com/news/combatting-the-loneliness-epidemic-the-role-of-muah-ai-in-providing-emotional-support-283402436)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-chatbots-like-muah-ai-a-powerful-ally-in-the-fight-against-loneliness/f058100652adc32439e542056be5f8c8) 
+
+
+Pickup - [advos.io](https://advos.io/en/combatting-the-loneliness-epidemic-the-role-of-muah-ai-in-providing-emotional-support/20244140)
+ 
 
 
 

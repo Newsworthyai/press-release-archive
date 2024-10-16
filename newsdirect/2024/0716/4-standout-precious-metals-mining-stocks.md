@@ -67,7 +67,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/4-standout-pr
 [Original/Source Press Release](https://newsdirect.com/news/4-standout-precious-metals-mining-stocks-101347536)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investor-interest-in-mining-stocks-rises-amid-record-high-gold-prices/c07be1f3983db9666e7f939ea9609de4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/four-promising-precious-metals-mining-stocks-emerge-amid-gold-price-surge)
+
+Pickup - [fishervista.com](https://fishervista.com/en/investor-interest-peaks-as-four-precious-metals-mining-stocks-show-promising-growth/20244983)
+
+Pickup - [advos.io](https://advos.io/en/investment-opportunities-in-prominent-precious-metals-mining-companies/20244983)
+ 
 
 
 

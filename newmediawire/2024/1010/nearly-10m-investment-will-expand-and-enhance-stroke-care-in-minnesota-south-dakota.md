@@ -54,7 +54,9 @@
 [Original/Source Press Release](https://www.newmediawire.com/news/nearly-10m-investment-will-expand-and-enhance-stroke-care-in-minnesota-south-dakota-7076179)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-heart-association-and-helmsley-charitable-trust-commit-millions-to-improve-stroke-care-in-rural-areas/8e081d2f40707110d751ea132b25d6ba) 
+
+ 
 
 
 

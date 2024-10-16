@@ -45,7 +45,11 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-btc-faces-uncertain-rally-ethereum-eth-dips-amid-whale-moves-furrever-token-furr-offers-up-to-15x-returns)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-market-update-bitcoin-halving-ethereum-volatility-and-furrever-token-emergence/b5f18e0f7ee51ba240b370adb3cc20c0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/20/crypto-market-sees-volatility-as-bitcoin-halving-approaches-and-ethereum-faces-whale-sell-offs)
+ 
 
 
 

@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/xigem-technol
 [Original/Source Press Release](https://newsdirect.com/news/xigem-technologies-sees-blue-sky-ahead-with-growth-in-used-car-market-570827030)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xigem-technologies-sees-blue-sky-ahead-with-growth-in-used-car-market/06407cdeafeafa772a6f488cfdc2da67) 
+
+ 
 
 
 

@@ -37,7 +37,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/valuezone-enhances-trading-platform-announces-new-products-and-strategic-global-alliances)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/valuezone-expands-to-develop-innovative-financial-products-and-services/4a6f44b71cdb414de95fe57fad226de3) 
+
+ 
 
 
 

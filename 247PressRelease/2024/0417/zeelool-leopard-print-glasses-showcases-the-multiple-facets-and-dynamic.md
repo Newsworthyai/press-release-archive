@@ -7,7 +7,11 @@ NEW YORK, NY, April 17, 2024 /24-7PressRelease/ -- Features of ZEELOOL Pink Leop
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510084/zeelool-leopard-print-glasses-showcases-the-multiple-facets-and-dynamic)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zeelool-introduces-stylish-pink-leopard-glasses-for-fashionistas/c165b8586822bc874b60c81cb70ba491) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/zeelool-leopard-print-glasses-showcases-the-multiple-facets-and-dynamic-features-of-the-brand)
+ 
 
 
 

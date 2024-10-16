@@ -43,7 +43,13 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/egg-on-dog-eggdog-memecoin-goes-live-on-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-memecoin-takes-flight/ef55ab776d63da75685f36d178985cba) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/new-memecoin-takes-flight)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/new-memecoin-takes-flight)
+ 
 
 
 

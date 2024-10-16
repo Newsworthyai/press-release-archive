@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/valuezone-introduces-next-gen-automated-trading-for-effortless-crypto-investment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/valuezone-launches-automated-crypto-trading-platform-with-advanced-ai-technology/f186da597b39a2aa0a9918d12344e186) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/valuezone-introduces-next-gen-automated-trading-for-effortless-crypto-investment)
+ 
 
 
 

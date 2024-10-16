@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/baron-oil-adv
 [Original/Source Press Release](https://newsdirect.com/news/baron-oil-advances-gas-exploration-in-southeast-asia-with-chuditch-project-472235094)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/baron-oil-advances-gas-exploration-in-southeast-asia/49433759dcdc92db38a330ba41e3a7ed) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/baron-oil-advances-gas-exploration-in-southeast-asia-with-chuditch-project)
+ 
 
 
 

@@ -7,7 +7,11 @@ LONDON, ENGLAND, April 10, 2024 /24-7PressRelease/ -- "The 'telco-to-techco' amb
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509904/telcos-lag-six-years-behind-hyperscalers-in-key-tech-skills-jeopardizing-future-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/telcos-lagging-behind-tech-companies-in-acquiring-critical-skills/72e0ff898cb4215dd43230afd2d85ead) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/telcos-lag-six-years-behind-hyperscalers-in-key-tech-skills-jeopardizing-future-growth)
+ 
 
 
 

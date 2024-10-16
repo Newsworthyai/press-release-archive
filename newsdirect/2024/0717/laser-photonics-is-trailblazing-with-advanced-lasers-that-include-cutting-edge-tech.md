@@ -51,7 +51,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/laser-photoni
 [Original/Source Press Release](https://newsdirect.com/news/laser-photonics-is-trailblazing-with-advanced-lasers-that-include-cutting-edge-tech-177739420)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/laser-photonics-corp-trailblazing-with-advanced-laser-innovations/f499b6f46301ee2e92b3f940df49ba35) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/laser-photonics-pushes-boundaries-with-advanced-laser-technologies)
+
+Pickup - [fishervista.com](https://fishervista.com/en/laser-photonics-innovates-with-advanced-laser-technologies-and-anti-drone-systems/20245019)
+
+Pickup - [advos.io](https://advos.io/en/laser-photonics-pioneers-advanced-laser-technologies-for-diverse-applications/20245019)
+ 
 
 
 

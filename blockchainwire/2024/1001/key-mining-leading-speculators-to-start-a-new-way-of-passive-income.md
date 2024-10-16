@@ -35,7 +35,9 @@ In order to facilitate new and old users, KEY Mining has launched the latest APP
 [Original/Source Press Release](https://blockchainwire.io/press-release/key-mining-leading-speculators-to-start-a-new-way-of-passive-income)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/keymining-secure-reliable-and-user-friendly-cloud-mining-platform/b6eeed18ac58afab7ecfffd76b5735f6) 
+
+ 
 
 
 

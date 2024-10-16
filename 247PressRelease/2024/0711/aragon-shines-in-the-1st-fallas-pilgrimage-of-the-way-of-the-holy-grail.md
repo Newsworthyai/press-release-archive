@@ -7,7 +7,15 @@ VALENCIA, SPAIN, July 11, 2024 /24-7PressRelease/ -- Aragon became the main stag
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512404/aragon-shines-in-the-1st-fallas-pilgrimage-of-the-way-of-the-holy-grail)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/first-fallas-pilgrimage-of-the-way-of-the-holy-grail/cc68b838d212303233787f2e5c099410) 
+
+
+Pickup - [advos.io](https://advos.io/en/aragon-hosts-historic-1st-fallas-pilgrimage-of-the-way-of-the-holy-grail/20244852)
+
+Pickup - [fishervista.com](https://fishervista.com/en/aragon-hosts-landmark-1st-fallas-pilgrimage-of-the-way-of-the-holy-grail/20244852)
+
+Pickup - [citybuzz.co](https://citybuzz.co/fallas-pilgrimage-highlights-aragon-s-role-in-way-of-the-holy-grail-cultural-route)
+ 
 
 
 

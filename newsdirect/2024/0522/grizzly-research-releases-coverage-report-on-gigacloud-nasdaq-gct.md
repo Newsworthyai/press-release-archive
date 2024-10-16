@@ -54,7 +54,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/grizzly-resea
 [Original/Source Press Release](https://newsdirect.com/news/grizzly-research-releases-coverage-report-on-gigacloud-nasdaq-gct-899597226)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/grizzly-research-report-reveals-concerns-about-gigacloud-nasdaq-gct/d3b47449b5b61bfc80ce3d716e4d025e) 
+
+ 
 
 
 

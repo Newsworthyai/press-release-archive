@@ -7,7 +7,17 @@ LACONIA, NH, August 15, 2024 /24-7PressRelease/ -- Rogue Space Systems Corporati
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513371/rogue-wins-spacewerx-award-for-breakthrough-in-satellite-characterization-upgrades)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rogue-space-systems-corporation-awarded-1m-contract-by-spacewerx-for-satellite-characterization-technology/3fb10cf1d92a83b6ec13a99c462f9dc5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/rogue-space-systems-awarded-1m-for-innovative-satellite-characterization-technology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rogue-space-systems-wins-1m-spacewerx-award-for-satellite-characterization-innovation/20245750)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/rogue-space-systems-awarded-1m-for-satellite-characterization-technology/20245750)
+
+Pickup - [advos.io](https://advos.io/en/rogue-space-systems-wins-1m-spacewerx-award-for-satellite-characterization-innovation/20245750)
+ 
 
 
 

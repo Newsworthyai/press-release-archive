@@ -43,7 +43,9 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/leetah-launches-presale-phase-for-leet-tokens-eyeing-5-million-soft-cap)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leetah-launches-presale-for-leet-token-with-innovative-engagement-opportunities/77e2fbd3d7241f6010cdb3d73c977b6b) 
+
+ 
 
 
 

@@ -47,7 +47,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/revolutionizi
 [Original/Source Press Release](https://newsdirect.com/news/revolutionizing-trading-bullrushs-plan-to-change-the-game-745007677)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bullrush-the-gamified-trading-platform-where-traders-compete-for-cash-prizes/6ffdc9ab4c754d9013e6114e6fdef7b7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/bullrush-launches-innovative-trading-platform-combining-fantasy-sports-and-multi-asset-trading)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bullrush-introduces-gamified-trading-platform-with-multi-asset-competitions/20246486)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/bullrush-launches-innovative-trading-platform-with-gamified-competitions/20246486)
+
+Pickup - [advos.io](https://advos.io/en/bullrush-introduces-gamified-trading-competitions-with-global-reach/20246486)
+ 
 
 
 

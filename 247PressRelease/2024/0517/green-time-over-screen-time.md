@@ -7,7 +7,9 @@ BALSAM, NC, May 17, 2024 /24-7PressRelease/ -- Increased time staring at screens
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510971/green-time-over-screen-time)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/outdoor-time-proven-to-calm-symptoms-of-adhd-in-youth/70910fc069e0f2d109df9d46175d1381) 
+
+ 
 
 
 

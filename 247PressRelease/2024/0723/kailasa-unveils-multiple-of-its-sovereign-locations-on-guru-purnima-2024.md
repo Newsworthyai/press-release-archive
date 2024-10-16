@@ -7,7 +7,15 @@ LOS ANGELES, CA, July 23, 2024 /24-7PressRelease/ -- The United States of KAILAS
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512735/kailasa-unveils-multiple-of-its-sovereign-locations-on-guru-purnima-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kailasa-celebrates-historic-unveiling-of-multiple-sovereign-locations-on-guru-purnima/ab1ad523f53b077df165025cbdb88902) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/kailasa-unveils-multiple-sovereign-locations-marking-new-era-for-global-hindu-community)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kailasa-celebrates-unveiling-of-multiple-sovereign-locations-on-guru-purnima-2024/20245167)
+
+Pickup - [advos.io](https://advos.io/en/kailasa-unveils-multiple-sovereign-locations-on-guru-purnima-2024/20245167)
+ 
 
 
 

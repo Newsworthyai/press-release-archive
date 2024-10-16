@@ -7,7 +7,11 @@ Introduction FxBox.io:GameFi, NFTs & DeFi with Forex Trading (Investing & Tradin
 [Original/Source Press Release](https://blockchainwire.io/press-release/fxbox---crypto-gamefi--defi-with-forex-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gamefi-nfts-defi-with-forex-trading-on-fxbox-io/07da1ee644ffb1f5f23abf061f4e214a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/19/fxbox-revolutionizing-gamefi-and-defi-with-forex-trading)
+ 
 
 
 

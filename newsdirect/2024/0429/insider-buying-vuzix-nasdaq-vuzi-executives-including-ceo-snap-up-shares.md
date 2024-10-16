@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/insider-buyin
 [Original/Source Press Release](https://newsdirect.com/news/insider-buying-vuzix-nasdaq-vuzi-executives-including-ceo-snap-up-shares-510830373)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vuzix-corp-nasdaq-vuzi-executives-including-ceo-snap-up-shares/29fe23b2cdf152b41e1bcf108e278baa) 
+
+ 
 
 
 

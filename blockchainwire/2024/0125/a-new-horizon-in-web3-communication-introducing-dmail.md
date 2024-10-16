@@ -47,7 +47,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/a-new-horizon-in-web3-communication-introducing-dmail)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/okx-jumpstart-announces-launch-of-dmail-a-groundbreaking-web3-communication-protocol/604ec45b411c37d816ea5885383f2ec8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/25/dmail-revolutionizing-web3-communication)
+ 
 
 
 

@@ -67,7 +67,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/venhubs-wants
 [Original/Source Press Release](https://newsdirect.com/news/venhubs-wants-to-revolutionize-retail-through-its-fully-autonomous-retail-robots-but-some-have-objections-heres-why-consumers-may-not-need-to-worry-381620514)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/venhub-revolutionizes-retail-with-autonomous-smart-stores/acc4ca460c3e8ca459eb49ff368b8f8b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/venhub-s-autonomous-retail-robots-addressing-concerns-and-reshaping-the-industry)
+
+Pickup - [fishervista.com](https://fishervista.com/en/venhub-s-autonomous-smart-stores-aim-to-revolutionize-retail-addressing-consumer-concerns/20245687)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/venhub-s-autonomous-smart-stores-aim-to-transform-retail-landscape/20245687)
+
+Pickup - [advos.io](https://advos.io/en/venhub-s-autonomous-retail-robots-aim-to-transform-retail-landscape-amid-objections/20245687)
+ 
 
 
 

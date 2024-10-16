@@ -19,7 +19,9 @@ Website: https://smartlab.international/index.html
 [Original/Source Press Release](https://blockchainwire.io/press-release/smartlab-international-ventures-into-the-blockchain-sector-with-its-ground-breaking-product)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/smartlab-international-launches-innovative-c-a-p-product-for-cryptocurrency-trading/2b5ddf1ccd3f1e10b27140f8694bb9e7) 
+
+ 
 
 
 

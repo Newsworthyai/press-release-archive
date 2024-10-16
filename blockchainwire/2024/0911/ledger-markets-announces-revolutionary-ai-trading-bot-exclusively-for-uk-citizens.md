@@ -39,7 +39,21 @@ Don’t miss out on the future of trading – take the first step towards smarte
 [Original/Source Press Release](https://blockchainwire.io/press-release/ledger-markets-announces-revolutionary-ai-trading-bot-exclusively-for-uk-citizens)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ledger-markets-launches-revolutionary-ai-trading-bot-for-uk-citizens/80559b0ab8c063a3bda53bcf2a491074) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ledger-markets-launches-revolutionary-ai-trading-bot-for-uk-citizens)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ledger-markets-launches-revolutionary-ai-trading-bot-for-uk-citizens)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/ledger-markets-unveils-ai-trading-bot-with-92-4-success-rate-for-uk-citizens)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ledger-markets-unveils-cutting-edge-ai-trading-bot-for-uk-market/20246732)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ledger-markets-unveils-ai-trading-bot-with-92-4-success-rate-for-uk-traders/20246732)
+
+Pickup - [advos.io](https://advos.io/en/ledger-markets-launches-high-performance-ai-trading-bot-for-uk-citizens/20246732)
+ 
 
 
 

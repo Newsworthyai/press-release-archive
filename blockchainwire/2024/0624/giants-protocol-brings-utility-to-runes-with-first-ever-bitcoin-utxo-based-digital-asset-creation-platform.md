@@ -52,7 +52,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/giants-protocol-brings-utility-to-runes-with-first-ever-bitcoin-utxo-based-digital-asset-creation-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/giants-protocol-pioneering-bitcoin-digital-asset-creation/393fd33dc86257de1b72f813aa617c06) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/giants-protocol-revolutionizes-digital-asset-creation-on-bitcoin-blockchain/20244433)
+
+Pickup - [advos.io](https://advos.io/en/giants-protocol-launches-first-bitcoin-utxo-based-digital-asset-creation-platform/20244433)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/giants-protocol-pioneering-bitcoin-digital-asset-creation)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/giants-protocol-pioneering-bitcoin-digital-asset-creation)
+ 
 
 
 

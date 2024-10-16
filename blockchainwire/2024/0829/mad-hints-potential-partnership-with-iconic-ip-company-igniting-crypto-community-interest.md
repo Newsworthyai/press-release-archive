@@ -33,7 +33,21 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/-mad-hints-potential-partnership-with-iconic-ip-company-igniting-crypto-community-interest)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/memesafterdark-mad-teases-potential-collaboration-with-major-iconic-ip-brand/a063fdd35346a6f5832edb18159d62e4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/mad-cryptocurrency-hints-at-potential-partnership-with-major-ip-brand)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mad-teases-potential-collaboration-with-iconic-ip-brand-sparking-major-interest-in-crypto-community/20246387)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/meme-coin-mad-hints-at-potential-partnership-with-major-ip-brand/20246387)
+
+Pickup - [advos.io](https://advos.io/en/mad-hints-at-major-partnership-stirring-crypto-community/20246387)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/memesafterdark-mad-teases-potential-collaboration-with-major-iconic-ip-brand)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/memesafterdark-mad-teases-potential-collaboration-with-major-iconic-ip-brand)
+ 
 
 
 

@@ -45,7 +45,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/nodifi-pioneering-the-future-of-defi-with-revolutionary-nodes-as-a-service-naas-protocol)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nodifi-ai-revolutionizing-defi-with-speed-security-and-anonymity/84f015d72a36d99f9610a3709ad4a425) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/nodifi-revolutionizing-defi-with-ai-powered-nodes-as-a-service)
+ 
 
 
 

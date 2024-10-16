@@ -7,7 +7,9 @@ COLORADO CITY, CO, May 10, 2024 /24-7PressRelease/ -- Theory Comics celebrates v
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510766/jennifer-swartwood-walker-triumphs-at-2024-american-legacy-book-awards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/theory-comics-the-ferrokin-origin-wins-2024-american-legacy-book-awardstm/50f9e40d92b56c0100d2daf98e6ed086) 
+
+ 
 
 
 

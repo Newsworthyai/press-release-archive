@@ -35,7 +35,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/bladerite-solanas-aaa-battle-royale-goes-mobile-partners-with-g2-for-web3-game-promotion-concludes-genesis-hero-nft-mint)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bladerite-launches-mobile-version-enters-strategic-cooperation-with-g2/c8ef72999d20c470089b10bf7684a6a6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/12/bladerite-solana-s-aaa-battle-royale-expands-to-mobile-partners-with-g2-esports)
+ 
 
 
 

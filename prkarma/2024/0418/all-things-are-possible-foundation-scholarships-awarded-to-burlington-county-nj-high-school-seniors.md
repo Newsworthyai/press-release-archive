@@ -62,7 +62,9 @@ Visit Our Website
 [Original/Source Press Release](https://newsroom.prkarma.com/atapfoundation/news_release/1448)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atap-foundation-awards-7500-in-scholarships-to-burlington-county-high-school-seniors/b731e151b0cdce5430553b19b0abede7) 
+
+ 
 
 
 

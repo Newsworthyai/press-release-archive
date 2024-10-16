@@ -17,7 +17,11 @@ Offering a ray of hope to those affected by PTSD, MeRT therapy's primary goal is
 [Original/Source Press Release](https://newsworthy.ai/news/20240214962/brainstim-centers-introduces-mert-therapy-for-ptsd-a-breakthrough-non-invasive-treatment-option)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/groundbreaking-mert-therapy-revolutionizes-ptsd-treatment/3027aa0bf3d8be9490762e7ed459a05d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/14/breakthrough-mert-therapy-offers-new-hope-for-ptsd-patients)
+ 
 
 
 

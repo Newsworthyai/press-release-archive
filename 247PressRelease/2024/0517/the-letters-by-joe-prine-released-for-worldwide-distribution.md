@@ -7,7 +7,9 @@ BILOXI, MS, May 17, 2024 /24-7PressRelease/ -- The Letters (ISBN 979-8218414825,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510934/the-letters-by-joe-prine-released-for-worldwide-distribution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-release-the-letters-a-gripping-suspenseful-thriller-by-joe-prine/800d9ad68e3417fbacee99d7338c730e) 
+
+ 
 
 
 

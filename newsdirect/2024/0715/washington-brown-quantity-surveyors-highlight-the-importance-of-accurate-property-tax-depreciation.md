@@ -37,7 +37,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/washington-br
 [Original/Source Press Release](https://newsdirect.com/news/washington-brown-quantity-surveyors-highlight-the-importance-of-accurate-property-tax-depreciation-350447758)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/washington-brown-quantity-surveyors-navigating-property-tax-depreciation-with-precision/97621198f29efacc1eb80dd09adf0403) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/washington-brown-quantity-surveyors-stresses-precision-in-property-tax-returns-amid-ato-scrutiny)
+
+Pickup - [fishervista.com](https://fishervista.com/en/washington-brown-quantity-surveyors-stress-the-importance-of-accurate-property-tax-depreciation/20244954)
+
+Pickup - [advos.io](https://advos.io/en/washington-brown-quantity-surveyors-stress-accuracy-in-property-tax-depreciation-amid-ato-scrutiny/20244954)
+ 
 
 
 

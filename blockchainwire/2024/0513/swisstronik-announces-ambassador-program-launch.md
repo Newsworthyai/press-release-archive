@@ -61,7 +61,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/swisstronik-announces-ambassador-program-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/swisstronik-launches-ambassador-program-to-drive-blockchain-adoption/4e60d6fe82ca661a3b38aecedeb41f6d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/swisstronik-launches-ambassador-program-to-drive-blockchain-adoption)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/swisstronik-launches-ambassador-program-to-drive-blockchain-adoption)
+ 
 
 
 

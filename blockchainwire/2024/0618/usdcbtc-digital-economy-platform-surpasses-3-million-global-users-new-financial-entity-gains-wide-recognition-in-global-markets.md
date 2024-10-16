@@ -25,7 +25,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/usdcbtc-digital-economy-platform-surpasses-3-million-global-users-new-financial-entity-gains-wide-recognition-in-global-markets)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/digital-economy-platform-usdcbtc-surpasses-3-million-users/b69a8f5fd7e848051de19f4925d6c93e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/usdcbtc-digital-economy-platform-surpasses-3-million-global-users/20244263)
+
+Pickup - [advos.io](https://advos.io/en/usdcbtc-digital-economy-platform-surpasses-3-million-global-users-gains-wide-recognition-in-global-markets/20244263)
+ 
 
 
 

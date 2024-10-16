@@ -7,7 +7,9 @@ ATLANTA, GA, May 24, 2024 /24-7PressRelease/ -- Sucré, a New Orleans-founded lu
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511163/sucr%C3%A9-to-open-sweets-boutique-in-downtown-woodstock-ga)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/luxury-patisserie-sucre-expands-to-downtown-woodstock-ga/6f5a20a755702f88cfa88cbc29d6056a) 
+
+ 
 
 
 

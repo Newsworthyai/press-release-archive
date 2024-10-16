@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/i-on-digital-
 [Original/Source Press Release](https://newsdirect.com/news/i-on-digital-corp-announces-delay-in-annual-report-filing-491990201)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/i-on-digital-corp-delays-annual-report-filing/973f3353b4cdb8691b49c02dda5090bb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/i-on-digital-corp-delays-annual-report-filing)
+ 
 
 
 

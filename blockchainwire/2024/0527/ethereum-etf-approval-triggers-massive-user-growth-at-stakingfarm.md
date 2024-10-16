@@ -41,7 +41,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/ethereum-etf-approval-triggers-massive-user-growth-at-stakingfarm)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-sees-surge-in-user-activity-following-approval-of-ethereum-etfs/b7e6c8403958258ee14f33626c316d41) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/stakingfarm-sees-surge-in-user-activity-following-approval-of-ethereum-etfs)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/stakingfarm-sees-surge-in-user-activity-following-approval-of-ethereum-etfs)
+ 
 
 
 

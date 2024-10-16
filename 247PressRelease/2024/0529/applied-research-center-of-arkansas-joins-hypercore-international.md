@@ -7,7 +7,9 @@ LITTLE ROCK, AR, May 29, 2024 /24-7PressRelease/ -- hyperCORE International is p
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511221/applied-research-center-of-arkansas-joins-hypercore-international)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hypercore-international-welcomes-arc-to-clinical-trial-network/67d21805b671c28c007a7a833e61f098) 
+
+ 
 
 
 

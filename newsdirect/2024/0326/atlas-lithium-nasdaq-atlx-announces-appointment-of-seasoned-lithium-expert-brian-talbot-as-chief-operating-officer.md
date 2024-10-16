@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/atlas-lithium
 [Original/Source Press Release](https://newsdirect.com/news/atlas-lithium-nasdaq-atlx-announces-appointment-of-seasoned-lithium-expert-brian-talbot-as-chief-operating-officer-309554393)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atlas-lithium-appoints-seasoned-expert-brian-talbot-as-coo-to-capitalize-on-brazil-s-lithium-reserves/7a7f6b6ebc490a8caad81bc5742bac32) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/atlas-lithium-bolsters-leadership-with-lithium-veteran-brian-talbot)
+ 
 
 
 

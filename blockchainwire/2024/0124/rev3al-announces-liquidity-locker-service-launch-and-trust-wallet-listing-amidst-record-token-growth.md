@@ -29,7 +29,11 @@ LinkedIn: https://www.linkedin.com/company/rev3al/about/
 [Original/Source Press Release](https://blockchainwire.io/press-release/rev3al-announces-liquidity-locker-service-launch-and-trust-wallet-listing-amidst-record-token-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rev3al-announces-new-liquidity-locker-service-and-trust-wallet-listing/02140806c8b854c3c0d67ad1e78edced) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/24/rev3al-unveils-liquidity-locker-service-and-trust-wallet-listing-amid-soaring-token-growth)
+ 
 
 
 

@@ -87,7 +87,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/mercury-13-an
 [Original/Source Press Release](https://newsdirect.com/news/mercury-13-and-f-c-como-women-reimagines-womens-football-with-new-elevated-brand-identity-targeting-female-audience-844180961)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/f-c-como-women-unveils-game-changing-new-brand-identity-for-serie-a-femminile-ebay-season/716e1f0cf709c1724b8f04114921789a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/f-c-como-women-unveils-groundbreaking-brand-identity-to-revolutionize-women-s-football)
+
+Pickup - [fishervista.com](https://fishervista.com/en/f-c-como-women-unveils-new-brand-identity-to-empower-female-audience/20245091)
+
+Pickup - [advos.io](https://advos.io/en/f-c-como-women-unveils-new-brand-identity-to-inspire-and-empower-women-globally/20245091)
+ 
 
 
 

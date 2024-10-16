@@ -33,7 +33,11 @@ Lexaria Bioscience (NASDAQ: LEXX, LEXXW), a global innovator in drug-delivery pl
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-bioscience-nasdaq-lexx-reports-on-positive-results-from-molecular-characterization-study/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lexaria-bioscience-releases-positive-findings-from-applied-research-program-with-nrc/605a70050cd5e7a8dbf0f41ca5f28071) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/lexaria-bioscience-reports-promising-results-in-semaglutide-delivery-study)
+ 
 
 
 

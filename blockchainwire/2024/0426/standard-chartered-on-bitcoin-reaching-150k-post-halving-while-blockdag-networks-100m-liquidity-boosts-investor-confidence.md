@@ -45,7 +45,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/standard-chartered-on-bitcoin-reaching-150k-post-halving-while-blockdag-networks-100m-liquidity-boosts-investor-confidence-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-predicted-to-reach-150k-blockdag-network-receives-100m-liquidity-boost/3f1086117e4da79d4f3fd2df6e77a070) 
+
+ 
 
 
 

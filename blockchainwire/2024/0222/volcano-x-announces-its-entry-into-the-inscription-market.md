@@ -49,7 +49,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/volcano-x-announces-its-entry-into-the-inscription-market)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/volcano-x-fund-management-enters-inscription-market/d39f31e5028908ed7b51046c324b61b6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/22/volcano-x-embraces-inscriptions-a-pioneering-move-in-the-cryptocurrency-investment-landscape)
+ 
 
 
 

@@ -58,7 +58,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-media-age
 [Original/Source Press Release](https://newsdirect.com/news/the-media-agency-shift-genius-monkeys-assessment-213033689)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-media-agency-shift-genius-monkey-s-assessment/7e1a4bd1644f95072b63ef57df049f2a) 
+
+ 
 
 
 

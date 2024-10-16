@@ -23,7 +23,11 @@ Unearth the secrets of client relationship excellence. Dive in at www.ClientRela
 [Original/Source Press Release](https://newsworthy.ai/news/20231221792/introducing-clientrelations-io-the-premier-destination-for-client-relationship-mastery)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clientrelations-io-the-ultimate-platform-for-client-relationship-management/a55d14354ce01b6371042e8716ec7789) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/21/clientrelations-io-mastering-the-art-of-client-relationship-management)
+ 
 
 
 

@@ -7,7 +7,11 @@ Aptos, which launched on 18/10/2022 has shown incredible strength during this be
 [Original/Source Press Release](https://blockchainwire.io/press-release/aptos-based-meme-token-mau-receives-grant-funding-and-on-the-path-to-contend-with-bonk)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aptos-soars-559-amid-bear-market-unveils-scalable-blockchain-and-meme-token-mau/0d126c75f810f6f700e5ae4a8938e92d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/11/mau-token-gains-momentum-on-aptos-network-with-grant-funding)
+ 
 
 
 

@@ -53,7 +53,21 @@ While PoW and PoS operate differently, both serve the essential purpose of facil
 [Original/Source Press Release](https://blockchainwire.io/press-release/ethergalaxy-trading-center-understanding-the-differences-between-proof-of-work-and-proof-of-stake)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/understanding-the-difference-between-proof-of-work-and-proof-of-stake-in-cryptocurrency/a11e3c409599141de2a7881a7157e973) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/proof-of-work-vs-proof-of-stake-understanding-cryptocurrency-consensus-mechanisms)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ethergalaxy-trading-center-explains-key-differences-between-proof-of-work-and-proof-of-stake/20245442)
+
+Pickup - [advos.io](https://advos.io/en/ethergalaxy-trading-center-explains-key-differences-between-proof-of-work-and-proof-of-stake/20245442)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/understanding-the-difference-between-proof-of-work-and-proof-of-stake-in-cryptocurrency)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/understanding-the-difference-between-proof-of-work-and-proof-of-stake-in-cryptocurrency)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/decoding-cryptocurrency-consensus-proof-of-work-vs-proof-of-stake)
+ 
 
 
 

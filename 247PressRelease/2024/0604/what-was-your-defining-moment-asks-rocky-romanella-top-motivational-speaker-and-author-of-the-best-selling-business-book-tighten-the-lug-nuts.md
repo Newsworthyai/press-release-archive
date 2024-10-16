@@ -7,7 +7,9 @@ WILMINGTON, NC, June 04, 2024 /24-7PressRelease/ -- What is a defining moment? I
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511374/what-was-your-defining-moment-asks-rocky-romanella-top-motivational-speaker-and-author-of-the-best-selling-business-book-tighten-the-lug-nuts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rocky-romanella-shares-leadership-insights-and-defining-moments-in-recent-article/2dc4f29aeab326d8febd9f84a381514a) 
+
+ 
 
 
 

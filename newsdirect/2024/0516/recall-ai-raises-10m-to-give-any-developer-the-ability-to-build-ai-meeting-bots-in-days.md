@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/recall-ai-rai
 [Original/Source Press Release](https://newsdirect.com/news/recall-ai-raises-10m-to-give-any-developer-the-ability-to-build-ai-meeting-bots-in-days-298036258)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/recall-ai-raises-10m-to-enable-ai-meeting-bots-in-days/2d82c77ee9087b75def7e595c5297c5b) 
+
+ 
 
 
 

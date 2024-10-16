@@ -7,7 +7,11 @@ LOS ANGELES, CA, March 09, 2024 /24-7PressRelease/ -- According to the NIH in t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509133/diuretic-and-anti-inflammatory-pill-opening-a-new-chapter-in-chronic-epididymitis-treatment-banishing-pain-from-your-life)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/traditional-chinese-medicine-offers-hope-for-epididymitis-treatment/44fcda12373589a067c8b21da327b387) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/09/diuretic-and-anti-inflammatory-pill-a-natural-solution-for-chronic-epididymitis)
+ 
 
 
 

@@ -7,7 +7,13 @@ KERRVILLE, TX, June 22, 2024 /24-7PressRelease/ -- Alternative Payments merchant
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511928/alternative-payments-expands-to-brazils-pix-with-dpmaxbrazil)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alternative-payments-launches-dpmaxbrazil-for-real-time-secure-payments-in-brazil/828fbc09fbdf2bc9a6b0686e2dd0389d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/alternative-payments-integrates-brazil-s-pix-with-dpmaxbrazil-to-boost-e-commerce/20244390)
+
+Pickup - [advos.io](https://advos.io/en/alternative-payments-expands-services-to-brazil-with-pix-integration-via-dpmaxbrazil/20244390)
+ 
 
 
 

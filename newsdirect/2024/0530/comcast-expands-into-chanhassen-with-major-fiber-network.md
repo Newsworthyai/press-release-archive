@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/comcast-expan
 [Original/Source Press Release](https://newsdirect.com/news/comcast-expands-into-chanhassen-with-major-fiber-network-475250160)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-expands-next-generation-xfinity-network-into-chanhassen-minnesota/2da3fc68d4f2f3285e8a1433fdf689e1) 
+
+ 
 
 
 

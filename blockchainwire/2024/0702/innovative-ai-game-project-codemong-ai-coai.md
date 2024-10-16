@@ -29,7 +29,19 @@ Website: [https://www.codemong.ai/](https://www.codemong.ai/)Whitepaper: [https:
 [Original/Source Press Release](https://blockchainwire.io/press-release/innovative-ai-game-project-codemong-ai--coai)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/code-mong-augmented-reality-tcg-game-with-ai-technology/a382f26da0f638525edf4436c2dd0fba) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/codemong-ai-a-new-era-in-augmented-reality-and-ai-based-tcg-gaming/20244671)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/codemong-ai-pioneering-augmented-reality-and-ai-in-trading-card-games)
+
+Pickup - [advos.io](https://advos.io/en/innovative-ai-driven-tcg-game-codemong-ai-launches-with-solana-based-coai-token/20244671)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/code-mong-augmented-reality-tcg-game-with-ai-technology)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/code-mong-augmented-reality-tcg-game-with-ai-technology)
+ 
 
 
 

@@ -49,7 +49,17 @@
 [Original/Source Press Release](https://www.newmediawire.com/news/nfl-play-60-and-the-nation-of-lifesavers-programs-kickoff-for-2024-season-7075994)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-heart-association-kansas-city-chiefs-and-nfl-launch-health-and-safety-programs-at-three-trails-elementary-school/c5bde33bdf8d52a1f261bec2626d71fb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/nfl-and-american-heart-association-launch-2024-health-initiatives)
+
+Pickup - [fishervista.com](https://fishervista.com/en/american-heart-association-nfl-and-kansas-city-chiefs-launch-2024-health-and-cpr-initiatives/20246491)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/nfl-and-american-heart-association-launch-health-initiatives-for-2024-season/20246491)
+
+Pickup - [advos.io](https://advos.io/en/nfl-play-60-and-nation-of-lifesavers-programs-launch-for-2024-season/20246491)
+ 
 
 
 

@@ -53,7 +53,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/tectum-blockchain-hits13-million-transactions-per-second-mark-in-guinness-world-record-attempt-phase-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tectum-blockchain-sets-guinness-world-record-with-1-3-million-transactions-per-second/bcb833a842d7cff68d8d409628f1f733) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/08/tectum-blockchain-shatters-records-with-1-3-million-transactions-per-second)
+ 
 
 
 

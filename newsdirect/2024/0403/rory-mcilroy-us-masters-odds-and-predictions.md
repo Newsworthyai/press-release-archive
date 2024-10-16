@@ -34,7 +34,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/rory-mcilroy-
 [Original/Source Press Release](https://newsdirect.com/news/rory-mcilroy-us-masters-odds-and-predictions-901416327)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rory-mcilroys-us-masters-odds-and-predictions/e4f84a86d6de007416129900de437ed2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/rory-mcilroy-aims-for-elusive-masters-victory-in-2024)
+ 
 
 
 

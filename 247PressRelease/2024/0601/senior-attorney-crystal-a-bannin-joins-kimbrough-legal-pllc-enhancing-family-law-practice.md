@@ -7,7 +7,9 @@ AUSTIN, TX, June 01, 2024 /24-7PressRelease/ -- Kimbrough Legal, PLLC proudly an
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511363/senior-attorney-crystal-a-bannin-joins-kimbrough-legal-pllc-enhancing-family-law-practice)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kimbrough-legal-pllc-welcomes-senior-attorney-crystal-a-bannin-to-esteemed-legal-team/fbb1789089be55b13d2cad7eba0e7c80) 
+
+ 
 
 
 

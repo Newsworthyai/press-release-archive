@@ -43,7 +43,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/tremp-crypto-
 [Original/Source Press Release](https://newsdirect.com/news/tremp-crypto-and-meme-coins-rise-to-center-stage-in-the-2024-election-after-trumps-endorsement-820140324)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trump-s-pro-crypto-stance-sends-meme-coins-soaring/39ee6a711d322e0092d3de59cd0a8615) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/trump-s-pro-crypto-stance-sends-meme-coins-soaring)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/trump-s-pro-crypto-stance-sends-meme-coins-soaring)
+ 
 
 
 

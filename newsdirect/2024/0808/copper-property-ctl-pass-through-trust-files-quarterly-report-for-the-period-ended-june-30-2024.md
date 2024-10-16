@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/copper-proper
 [Original/Source Press Release](https://newsdirect.com/news/copper-property-ctl-pass-through-trust-files-quarterly-report-for-the-period-ended-june-30-2024-322958241)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/copper-property-ctl-pass-through-trust-files-quarterly-report/a98d7e8411b2f5e89e1d519b7bce521a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/copper-property-ctl-pass-through-trust-announces-q2-2024-results-and-upcoming-conference-call)
+
+Pickup - [fishervista.com](https://fishervista.com/en/copper-property-ctl-pass-through-trust-releases-q2-2024-financial-results/20245599)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/copper-property-ctl-pass-through-trust-announces-q2-2024-financial-results-and-upcoming-conference-call/20245599)
+
+Pickup - [advos.io](https://advos.io/en/copper-property-ctl-pass-through-trust-releases-q2-2024-financial-report/20245599)
+ 
 
 
 

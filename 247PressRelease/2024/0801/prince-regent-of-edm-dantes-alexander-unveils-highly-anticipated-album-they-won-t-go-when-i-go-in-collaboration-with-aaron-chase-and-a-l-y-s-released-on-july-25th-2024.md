@@ -7,7 +7,17 @@ NEW YORK, NY, August 01, 2024 /24-7PressRelease/ -- Chicago Music Award Nominee 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512970/prince-regent-of-edm-dant%C3%A8s-alexander-unveils-highly-anticipated-album-they-wont-go-when-i-go-in-collaboration-with-aaron-chase-and-alys-released-on-july-25th-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/edm-artist-dantes-alexander-unveils-new-album-they-won-t-go-when-i-go/a4ebab58342aedc9a9b1767fda05da2b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/edm-innovator-dantes-alexander-releases-genre-blending-album-they-won-t-go-when-i-go)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dantes-alexander-releases-groundbreaking-album-they-won-t-go-when-i-go/20245419)
+
+Pickup - [advos.io](https://advos.io/en/dantes-alexander-releases-groundbreaking-album-they-won-t-go-when-i-go/20245419)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/edm-artist-dantes-alexander-releases-genre-blending-album-they-won-t-go-when-i-go)
+ 
 
 
 

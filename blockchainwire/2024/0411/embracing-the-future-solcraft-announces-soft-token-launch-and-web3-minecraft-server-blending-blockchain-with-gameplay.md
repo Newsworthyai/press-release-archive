@@ -46,7 +46,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/embracing-the-future-solcraft-announces-soft-token-launch-and-web3-minecraft-server-blending-blockchain-with-gameplay)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solcraft-to-launch-soft-token-and-web3-minecraft-server-redefining-gaming-with-solana-blockchain-integration/e437d96d7e9840d44ca3ef7502fb96ca) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/solcraft-announces-soft-token-launch-and-web3-minecraft-server)
+ 
 
 
 

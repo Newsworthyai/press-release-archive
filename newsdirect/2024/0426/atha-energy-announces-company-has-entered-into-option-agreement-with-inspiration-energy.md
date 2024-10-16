@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/atha-energy-a
 [Original/Source Press Release](https://newsdirect.com/news/atha-energy-announces-company-has-entered-into-option-agreement-with-inspiration-energy-558984162)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atha-energy-announces-exclusive-option-agreement-with-inspiration-energy-corp/74935aace7b96e552c598db171b06314) 
+
+ 
 
 
 

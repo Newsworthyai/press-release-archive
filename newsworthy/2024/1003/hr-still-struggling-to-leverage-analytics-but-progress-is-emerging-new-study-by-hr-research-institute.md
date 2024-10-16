@@ -31,7 +31,9 @@ info@hr.comHR.com Newsroom
 [Original/Source Press Release](https://newsworthy.ai/news/202410031301/hr-still-struggling-to-leverage-analytics-but-progress-is-emerging-new-study-by-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/organizations-struggle-with-people-analytics-effectiveness-hr-com-study-reveals/7f358d219fa0b4324d8d3b2a6f4583b1) 
+
+ 
 
 
 

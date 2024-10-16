@@ -67,7 +67,17 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-spike-you-always-deserved-relaunched-by-the-original-creative-team-and-new-devs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-legend-of-spike-a-memecoin-forged-from-artistic-origins/e48e3feeb915e76953fd1c86469991fe) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/relaunch-of-spike-a-promising-future-for-the-iconic-memecoin/20244613)
+
+Pickup - [advos.io](https://advos.io/en/relaunch-of-spike-a-memecoin-with-deep-roots-and-new-potential/20244613)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/the-legend-of-spike-a-memecoin-forged-from-artistic-origins)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/the-legend-of-spike-a-memecoin-forged-from-artistic-origins)
+ 
 
 
 

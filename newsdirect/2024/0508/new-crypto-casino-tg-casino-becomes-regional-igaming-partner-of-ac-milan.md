@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-crypto-ca
 [Original/Source Press Release](https://newsdirect.com/news/new-crypto-casino-tg-casino-becomes-regional-igaming-partner-of-ac-milan-372013869)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tg-casino-partners-with-ac-milan-for-exclusive-igaming-opportunities/4c52980448424347d9c14e1646e897bd) 
+
+ 
 
 
 

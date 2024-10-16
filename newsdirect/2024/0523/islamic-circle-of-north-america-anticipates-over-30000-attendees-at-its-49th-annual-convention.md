@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/islamic-circl
 [Original/Source Press Release](https://newsdirect.com/news/islamic-circle-of-north-america-anticipates-over-30-000-attendees-at-its-49th-annual-convention-888741741)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/islamic-circle-of-north-america-anticipates-over-30000-attendees-at-its-annual-convention/c3fe51c7913eac2de39b8d0833ada052) 
+
+ 
 
 
 

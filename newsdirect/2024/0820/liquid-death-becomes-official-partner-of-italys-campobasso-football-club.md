@@ -43,7 +43,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/liquid-death-
 [Original/Source Press Release](https://newsdirect.com/news/liquid-death-becomes-official-partner-of-italys-campobasso-football-club-975678858)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/liquid-death-partners-with-campobasso-football-club/77018c4aee8e51161e1864252d713d9e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/liquid-death-partners-with-campobasso-fc-marking-its-entry-into-european-football)
+
+Pickup - [fishervista.com](https://fishervista.com/en/liquid-death-partners-with-italy-s-campobasso-football-club/20245846)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/liquid-death-partners-with-italy-s-campobasso-fc-in-groundbreaking-sponsorship-deal/20245846)
+
+Pickup - [advos.io](https://advos.io/en/liquid-death-partners-with-italy-s-campobasso-football-club/20245846)
+ 
 
 
 

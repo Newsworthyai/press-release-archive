@@ -7,7 +7,9 @@ SAINT JOHN, NB, June 04, 2024 /24-7PressRelease/ -- Sensory Friendly Solutions i
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511393/free-quiz-helps-businesses-become-sensory-friendly-and-inclusive)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sensory-friendly-solutions-launches-free-business-quiz-to-create-inclusive-environments/71ecb2b92b8a9004eee349916d40b1a3) 
+
+ 
 
 
 

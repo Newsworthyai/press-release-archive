@@ -29,7 +29,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/valuezone-adds-pepe-to-its-trading-platform-as-it-reaches-usd-71-billion-market-cap)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/valuezone-welcomes-pepe-token-investors-with-usd-7-1-billion-market-cap/8f11bb4f5ef8b4e410706e42bd178ea6) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/valuezone-welcomes-pepe-token-investors-with-usd-7-1-billion-market-cap)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/valuezone-welcomes-pepe-token-investors-with-usd-7-1-billion-market-cap)
+ 
 
 
 

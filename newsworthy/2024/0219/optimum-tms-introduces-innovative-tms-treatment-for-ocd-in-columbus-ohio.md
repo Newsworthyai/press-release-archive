@@ -15,7 +15,11 @@ With Optimum TMS's innovative approach and commitment to patient care, individua
 [Original/Source Press Release](https://newsworthy.ai/news/202402191073/optimum-tms-introduces-innovative-tms-treatment-for-ocd-in-columbus-oh)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-tms-therapy-for-ocd-introduced-in-columbus-oh/d59ee42fba56772fb5c110678d749a17) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/19/optimum-tms-offers-innovative-tms-treatment-for-ocd-in-columbus)
+ 
 
 
 

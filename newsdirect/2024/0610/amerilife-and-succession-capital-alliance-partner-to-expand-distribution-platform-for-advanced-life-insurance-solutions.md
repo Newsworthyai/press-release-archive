@@ -51,7 +51,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/amerilife-and
 [Original/Source Press Release](https://newsdirect.com/news/amerilife-and-succession-capital-alliance-partner-to-expand-distribution-platform-for-advanced-life-insurance-solutions-159155538)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amerilife-and-succession-capital-alliance-partner-to-expand-distribution-platform-for-advanced-life-insurance-solutions/ab35918e23d399b8f26aac3ab30438f6) 
+
+
+Pickup - [advos.io](https://advos.io/en/amerilife-and-succession-capital-alliance-partner-to-expand-distribution-platform-for-advanced-life-insurance-solutions/20243977)
+ 
 
 
 

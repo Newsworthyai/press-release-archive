@@ -31,7 +31,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/biomatrix-revealed-as-the-surprising-contender-at-token2049-launches-beta-app-to-redefine-inclusive-finance-via-universal-basic-income)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/biomatrix-launches-revolutionary-mobile-app-beta-at-token2049-summit-in-dubai/b362e0596cc355cf6174105c551b4a51) 
+
+ 
 
 
 

@@ -7,7 +7,9 @@ MIAMI, FL, April 12, 2024 /24-7PressRelease/ -- Kentucky Governor Andy Beshear h
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510012/former-political-prisoner-greg-tambone-commissioned-as-colonel-by-gov-beshear)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gregory-tambone-awarded-esteemed-title-of-colonel-by-kentucky-governor-andy-beshear/b614bd791ddd6ee09ebee1f8c3ecc5db) 
+
+ 
 
 
 

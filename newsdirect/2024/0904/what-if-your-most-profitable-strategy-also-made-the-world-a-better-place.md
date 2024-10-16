@@ -62,7 +62,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/what-if-your-
 [Original/Source Press Release](https://newsdirect.com/news/what-if-your-most-profitable-strategy-also-made-the-world-a-better-place-159229890)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-study-explores-how-companies-can-generate-profit-and-foster-societal-well-being/754688e12057fdcb56fa1920a916d273) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/new-study-reveals-benefits-of-social-profit-orientation-for-businesses-and-society)
+
+Pickup - [fishervista.com](https://fishervista.com/en/study-highlights-profitable-strategies-for-societal-impact/20246527)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/new-study-reveals-benefits-of-social-profit-orientation-for-businesses-and-society/20246527)
+
+Pickup - [advos.io](https://advos.io/en/new-study-highlights-profitability-and-positive-societal-impact-through-social-profit-orientation/20246527)
+ 
 
 
 

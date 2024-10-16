@@ -97,7 +97,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcx-redefining-future-payments-and-financial-services-based-on-graphene)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/upcx-redefines-payments-and-financial-services-with-blockchain-technology/f09f7efeb42c86657ff5621a59f73cc3) 
+
+
+Pickup - [advos.io](https://advos.io/en/upcx-revolutionizing-payments-and-financial-services-with-blockchain-technology/20244156)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/upcx-redefines-payments-and-financial-services-with-blockchain-technology)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/upcx-redefines-payments-and-financial-services-with-blockchain-technology)
+ 
 
 
 

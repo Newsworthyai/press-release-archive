@@ -33,7 +33,9 @@ Kate Chaney   Manager, External Communications   [kchaney@babson.edu](mailto:k
 [Original/Source Press Release](https://newsdirect.com/news/babson-college-announces-tuscany-as-the-venue-for-babson-connect-worldwide-2025-the-leading-global-summit-on-entrepreneurship-426861319)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/babson-college-to-host-ninth-babson-connect-worldwide-conference-in-tuscany-italy/49474432b67fbb7bb8714cb540da8c5d) 
+
+ 
 
 
 

@@ -7,7 +7,13 @@ LOS ANGELES, CA, June 22, 2024 /24-7PressRelease/ -- The Winkler Lowy Foundation
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511926/winkler-lowy-foundation-under-leadership-of-janine-winkler-lowy-supports-high-impact-scholarship-program-for-ethiopian-israeli-college-students)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/winkler-lowy-foundation-empowers-ethiopian-israeli-students-at-reichman-university/e419a46a267f923cd0e19d87201d8e75) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/winkler-lowy-foundation-boosts-scholarship-program-for-ethiopian-israeli-students/20244392)
+
+Pickup - [advos.io](https://advos.io/en/winkler-lowy-foundation-backs-scholarship-program-for-ethiopian-israeli-students-at-reichman-university/20244392)
+ 
 
 
 

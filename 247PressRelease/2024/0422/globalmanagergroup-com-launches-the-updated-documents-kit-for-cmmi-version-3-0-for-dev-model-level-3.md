@@ -7,7 +7,11 @@ NEW YORK, NY, April 22, 2024 /24-7PressRelease/ -- With a sense of accomplishmen
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510174/globalmanagergroupcom-launches-the-updated-documents-kit-for-cmmi-version-30-for-dev-model-level-3)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/globalmanagergroup-com-launches-updated-documents-kit-for-cmmi-version-3-0/42742b3020efe55afd7db4e29ebb004d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/globalmanagergroup-com-launches-the-updated-documents-kit-for-cmmi-version-3-0-for-dev-model-level-3)
+ 
 
 
 

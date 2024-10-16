@@ -7,7 +7,11 @@ DELAWARE, March 16, 2024 /24-7PressRelease/ -- SocialPilot, a leading SaaS platf
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509287/socialpilot-wins-the-next-frontier-startup-award-by-saasboomi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/socialpilot-wins-next-frontier-startup-award-at-saasboomi-awards-2024/80cc39af8b6179606df1235e384dcf67) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/16/socialpilot-wins-prestigious-next-frontier-startup-award-at-saasboomi-2024)
+ 
 
 
 

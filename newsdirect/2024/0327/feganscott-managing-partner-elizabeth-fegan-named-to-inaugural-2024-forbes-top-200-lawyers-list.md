@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/feganscott-ma
 [Original/Source Press Release](https://newsdirect.com/news/feganscott-managing-partner-elizabeth-fegan-named-to-inaugural-2024-forbes-top-200-lawyers-list-662772831)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/feganscott-managing-partner-elizabeth-fegan-named-to-forbes-top-200-lawyers-list/ca0b7af8bbc7793b26140bae8e53892b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/feganscott-s-elizabeth-fegan-recognized-among-forbes-top-200-lawyers)
+ 
 
 
 

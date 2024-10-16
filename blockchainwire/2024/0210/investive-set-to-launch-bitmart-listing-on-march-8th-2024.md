@@ -23,7 +23,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/investive-set-to-launch-bitmart-listing-on-march-8th-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investive-announces-official-listing-date-of-march-8th-2024/862a59f61c4a4aa66b14ddb8a8882a50) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/10/investive-gears-up-for-bitmart-listing-on-march-8th-2024)
+ 
 
 
 

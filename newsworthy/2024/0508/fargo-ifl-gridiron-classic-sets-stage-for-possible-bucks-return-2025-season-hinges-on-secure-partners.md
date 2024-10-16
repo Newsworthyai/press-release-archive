@@ -19,7 +19,9 @@ The IFL is entering its 16th season of play, making it the longest-running indoo
 [Original/Source Press Release](https://newsworthy.ai/news/202405081159/fargo-ifl-gridiron-classic-sets-stage-for-possible-bucks-return-2025-season-hinges-on-secure-partners)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dakota-bucks-future-in-professional-indoor-football-a-look-at-the-fargo-ifl-gridiron-classic/309dd2fed9a83008944b51dc4cce6042) 
+
+ 
 
 
 

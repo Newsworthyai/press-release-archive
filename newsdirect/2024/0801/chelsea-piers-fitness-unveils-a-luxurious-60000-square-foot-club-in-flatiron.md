@@ -50,7 +50,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/chelsea-piers
 [Original/Source Press Release](https://newsdirect.com/news/chelsea-piers-fitness-unveils-a-luxurious-60-000-square-foot-club-in-flatiron-194334183)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chelsea-piers-fitness-unveils-luxurious-60000-square-foot-club-in-flatiron/236104d729148acc8df079f7a46ce45f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/chelsea-piers-fitness-opens-luxurious-60000-square-foot-club-in-flatiron-district)
+
+Pickup - [fishervista.com](https://fishervista.com/en/chelsea-piers-fitness-opens-luxurious-60000-square-foot-facility-in-flatiron/20245434)
+
+Pickup - [advos.io](https://advos.io/en/chelsea-piers-fitness-launches-luxurious-60000-square-foot-club-in-flatiron/20245434)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/chelsea-piers-fitness-expands-with-luxurious-60000-square-foot-flatiron-club)
+ 
 
 
 

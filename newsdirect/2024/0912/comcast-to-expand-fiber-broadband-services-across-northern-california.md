@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/comcast-to-ex
 [Original/Source Press Release](https://newsdirect.com/news/comcast-to-expand-fiber-broadband-services-across-northern-california-870388345)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-to-expand-fiber-broadband-services-across-northern-california/1aacc0e52077defa2de13f1dd1121ae0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/comcast-to-bring-high-speed-fiber-broadband-to-underserved-areas-in-northern-california)
+
+Pickup - [fishervista.com](https://fishervista.com/en/comcast-expands-high-speed-fiber-broadband-to-underserved-areas-in-northern-california/20246802)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/comcast-expands-high-speed-fiber-network-to-underserved-areas-in-northern-california/20246802)
+
+Pickup - [advos.io](https://advos.io/en/comcast-to-bring-high-speed-fiber-broadband-to-underserved-areas-in-northern-california/20246802)
+ 
 
 
 

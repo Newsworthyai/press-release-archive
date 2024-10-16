@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/crypto-lendin
 [Original/Source Press Release](https://newsdirect.com/news/crypto-lending-101-making-the-most-of-your-idle-digital-assets-986440897)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-lending-101-making-the-most-of-your-idle-digital-assets/681dd77dd3e2cd9a8ba97b1fe121ff14) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/unleashing-the-potential-of-your-idle-crypto-assets)
+ 
 
 
 

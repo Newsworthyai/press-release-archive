@@ -7,7 +7,11 @@ AUBURN, CA, April 05, 2024 /24-7PressRelease/ -- Emphasizing its leadership in p
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509834/south-fork-instruments-simplifies-chlorine-dioxide-monitoring-with-launch-of-kemtrak-dcp007-photometer)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/south-fork-instruments-launches-breakthrough-chlorine-dioxide-photometer/429f0d3a8027247a9e8897cadee2de9a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/south-fork-instruments-unveils-groundbreaking-chlorine-dioxide-photometer)
+ 
 
 
 

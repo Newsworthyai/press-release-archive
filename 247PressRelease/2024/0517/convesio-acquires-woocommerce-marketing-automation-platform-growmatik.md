@@ -7,7 +7,9 @@ NAPLES, FL, May 17, 2024 /24-7PressRelease/ -- Convesio, a high performance WooC
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510977/convesio-acquires-woocommerce-marketing-automation-platform-growmatik)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/convesio-acquires-growmatik-to-enhance-marketing-automation-capabilities/0179110e12361c660e0bec1fccbeb13f) 
+
+ 
 
 
 

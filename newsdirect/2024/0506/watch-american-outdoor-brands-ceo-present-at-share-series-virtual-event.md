@@ -19,7 +19,9 @@ View original content to download multimedia: https://newsdirect.com/news/watch-
 [Original/Source Press Release](https://newsdirect.com/news/watch-american-outdoor-brands-ceo-present-at-share-series-virtual-event-713490516)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-outdoor-brands-ceo-to-present-at-share-series-event/9b2784f1668663c0e4ce2d5ab139786d) 
+
+ 
 
 
 

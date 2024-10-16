@@ -51,7 +51,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcx-becomes-main-sponsor-of-webx2024-and-showcases-its-innovative-payment-system)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/upcx-to-showcase-revolutionary-payment-system-at-webx2024/42a66b63a1900f5dfa461a194b21df3b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/14/upcx-becomes-main-sponsor-of-webx2024-and-showcases-its-innovative-payment-system)
+ 
 
 
 

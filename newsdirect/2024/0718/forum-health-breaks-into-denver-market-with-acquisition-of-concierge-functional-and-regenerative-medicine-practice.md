@@ -47,7 +47,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/forum-health-
 [Original/Source Press Release](https://newsdirect.com/news/forum-health-breaks-into-denver-market-with-acquisition-of-concierge-functional-and-regenerative-medicine-practice-614339937)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/forum-health-expands-into-denver-with-acquisition-of-revolutionarymd/d06d8829cad5253528c17676c2e851cc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/forum-health-expands-to-denver-with-acquisition-of-revolutionary-functional-medicine-practice)
+
+Pickup - [fishervista.com](https://fishervista.com/en/forum-health-expands-into-denver-with-acquisition-of-revolutionarymd/20245093)
+ 
 
 
 

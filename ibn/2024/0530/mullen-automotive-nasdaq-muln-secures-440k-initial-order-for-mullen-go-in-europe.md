@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, t
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-secures-440k-initial-order-for-mullen-go-in-europe/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-secures-new-european-purchase-order-for-mullen-go-urban-delivery-vehicles/75b2882299e117fc05cbae786f7997bf) 
+
+ 
 
 
 

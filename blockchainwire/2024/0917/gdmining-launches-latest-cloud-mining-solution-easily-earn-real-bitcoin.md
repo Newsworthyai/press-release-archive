@@ -29,7 +29,17 @@ About GDMiningGDMining is a leading cloud mining platform specializing in provid
 [Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-launches-latest-cloud-mining-solution-easily-earn-real-bitcoin)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gdmining-unveils-advanced-cloud-mining-solution-for-effortless-bitcoin-mining/3aa12d120de3e64c5813607002da29eb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/gdmining-introduces-advanced-cloud-mining-solution-for-easy-bitcoin-earnings)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gdmining-introduces-new-cloud-mining-solution-for-easy-bitcoin-earnings/20246909)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gdmining-introduces-innovative-cloud-mining-solution-for-accessible-bitcoin-earnings/20246909)
+
+Pickup - [advos.io](https://advos.io/en/gdmining-introduces-new-cloud-mining-solution-for-easy-bitcoin-earnings/20246909)
+ 
 
 
 

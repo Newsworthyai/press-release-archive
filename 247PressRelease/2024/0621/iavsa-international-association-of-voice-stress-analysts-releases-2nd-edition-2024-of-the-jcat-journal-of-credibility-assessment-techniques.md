@@ -7,7 +7,13 @@ FORT SMITH, AR, June 21, 2024 /24-7PressRelease/ -- IAVSA is pleased to announce
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511877/iavsa-international-association-of-voice-stress-analysts-releases-2nd-edition-2024-of-the-jcat-journal-of-credibility-assessment-techniques)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iavsa-announces-release-of-2nd-edition-2024-of-the-jcat/c24e65145eed99ad78b9c020f979f1c8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/iavsa-releases-2nd-edition-of-jcat-journal-for-voice-stress-analysis-industry/20244363)
+
+Pickup - [advos.io](https://advos.io/en/iavsa-releases-2nd-edition-2024-of-the-journal-of-credibility-assessment-techniques/20244363)
+ 
 
 
 

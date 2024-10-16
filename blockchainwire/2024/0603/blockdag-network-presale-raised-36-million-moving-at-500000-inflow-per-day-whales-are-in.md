@@ -59,7 +59,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-network-presale-raised-36-million-moving-at-500000-inflow-per-day-whales-are-in)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-raises-36m-in-presale-whales-expected-to-skyrocket-inflow/d9716c4065af40e7d2c18efe871b041c) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blockdag-network-raises-36m-in-presale-whales-expected-to-skyrocket-inflow)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blockdag-network-raises-36m-in-presale-whales-expected-to-skyrocket-inflow)
+ 
 
 
 

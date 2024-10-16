@@ -36,7 +36,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/etf-insights-
 [Original/Source Press Release](https://newsdirect.com/news/etf-insights-with-jay-hatfield-shaping-modern-portfolios-467070976)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/join-the-etf-insights-webinar-with-jay-hatfield-shaping-modern-portfolios/8248c1a31dc14b57fb2d0ac8d079e023) 
+
+ 
 
 
 

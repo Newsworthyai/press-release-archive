@@ -7,7 +7,9 @@ NEW YORK, NY, October 01, 2024 /24-7PressRelease/ -- SuperReturn, the world's le
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514807/superreturn-north-america-to-run-november-12-13-in-new-york)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/superreturn-north-america-leading-private-equity-and-venture-capital-conference-series-to-host-event-in-new-york/718d56faeed0dfba88f79f1d5c677969) 
+
+ 
 
 
 

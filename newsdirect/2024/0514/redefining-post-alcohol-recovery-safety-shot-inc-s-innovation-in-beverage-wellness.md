@@ -63,7 +63,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/redefining-po
 [Original/Source Press Release](https://newsdirect.com/news/redefining-post-alcohol-recovery-safety-shot-inc-s-innovation-in-beverage-wellness-500791686)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/safety-shot-inc-nasdaq-shot-revolutionizes-post-alcohol-recovery-with-groundbreaking-beverage/75d3443e07aae619298df4a80f2bc03a) 
+
+ 
 
 
 

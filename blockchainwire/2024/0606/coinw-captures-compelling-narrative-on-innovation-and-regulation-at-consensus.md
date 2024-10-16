@@ -23,7 +23,15 @@ For media inquiries please contact ronnie.albone@eakdigital.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-captures-compelling-narrative-on-innovation-and-regulation-at-consensus)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-hosts-successful-expedition-trek-series-at-coindesk-consensus/270de2c7d189c8bcb0cfd29df233015e) 
+
+
+Pickup - [advos.io](https://advos.io/en/coinw-explores-innovation-and-regulation-at-consensus-2023/20243896)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-hosts-successful-expedition-trek-series-at-coindesk-consensus)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-hosts-successful-expedition-trek-series-at-coindesk-consensus)
+ 
 
 
 

@@ -9,7 +9,9 @@ By investing in ASIC Coin, you are not just purchasing a token; you are particip
 [Original/Source Press Release](https://blockchainwire.io/press-release/asic--revolutionizing-cryptocurrency-mining-and-security-audit)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/asic-coin-revolutionizes-cryptocurrency-mining-with-advanced-asic-technology/894eefb057b488aa244c60c8f3a90be5) 
+
+ 
 
 
 

@@ -23,7 +23,11 @@ Navigate the World of Cars with Precision. Explore insights and more at www.CarQ
 [Original/Source Press Release](https://newsworthy.ai/news/20231220787/introducing-carquotes-io-the-ultimate-destination-for-comprehensive-car-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/carquotes-io-launches-as-the-definitive-guide-for-auto-enthusiasts-and-industry-experts/082df87de3f9eccd9abfb8e3746eacad) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/20/carquotes-io-emerges-as-automotive-knowledge-hub)
+ 
 
 
 

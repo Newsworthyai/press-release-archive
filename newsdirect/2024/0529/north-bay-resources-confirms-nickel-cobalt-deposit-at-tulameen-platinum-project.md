@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/north-bay-res
 [Original/Source Press Release](https://newsdirect.com/news/north-bay-resources-confirms-nickel-cobalt-deposit-at-tulameen-platinum-project-243027741)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/north-bay-resources-confirms-multi-metal-deposit-at-tulameen-platinum-project/9d71ae12ff2bd31ebb087d3db70550e7) 
+
+ 
 
 
 

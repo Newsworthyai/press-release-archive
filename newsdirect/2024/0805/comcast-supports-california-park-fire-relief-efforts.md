@@ -83,7 +83,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/comcast-suppo
 [Original/Source Press Release](https://newsdirect.com/news/comcast-supports-california-park-fire-relief-efforts-967487456)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/comcast-supports-california-park-fire-relief-efforts/b25a23b779bec8be119a3d5f0ca87307) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/comcast-launches-comprehensive-support-for-california-park-fire-relief)
+
+Pickup - [fishervista.com](https://fishervista.com/en/comcast-bolsters-relief-efforts-for-california-s-park-fire-victims/20245500)
+
+Pickup - [advos.io](https://advos.io/en/comcast-extends-comprehensive-support-for-california-s-park-fire-relief-efforts/20245500)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/comcast-launches-multi-faceted-support-for-california-park-fire-relief)
+ 
 
 
 

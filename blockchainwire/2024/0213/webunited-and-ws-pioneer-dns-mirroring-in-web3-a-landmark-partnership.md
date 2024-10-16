@@ -33,7 +33,11 @@ hello@webunited.comPaul Apanowicz paul.apanowicz@website.ws
 [Original/Source Press Release](https://blockchainwire.io/press-release/webunited-and-ws-pioneer-dns-mirroring-in-web3-a-landmark-partnership)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ws-and-webunited-partner-to-integrate-domain-services-with-blockchain/d54efded6c62bc0907556ef8d33251c3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/13/webunited-and-ws-forge-a-pioneering-partnership-in-web3-domain-integration)
+ 
 
 
 

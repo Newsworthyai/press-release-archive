@@ -7,7 +7,13 @@ RITZVILLE, WA, June 21, 2024 /24-7PressRelease/ -- Washington Association of Whe
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511867/columbia-snake-river-system-stakeholders-to-explore-midwest-collaboration-establish-relationships-on-upcoming-mississippi-river-tour)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/washington-association-of-wheat-growers-to-participate-in-mississippi-river-tour/a1900fdef6b360a7742d6cd93381a6b4) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/columbia-snake-river-stakeholders-to-forge-midwest-collaboration-on-upcoming-mississippi-river-tour/20244355)
+
+Pickup - [advos.io](https://advos.io/en/columbia-snake-river-stakeholders-to-collaborate-on-mississippi-river-tour/20244355)
+ 
 
 
 

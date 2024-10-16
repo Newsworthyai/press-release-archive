@@ -7,7 +7,11 @@ ROSELAND, NJ, March 22, 2024 /24-7PressRelease/ -- Bill Wittler, the compliance 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509419/bill-wittler-of-next-generation-services-earns-prestigious-anti-money-laundering-certification)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/next-generation-services-compliance-manager-earns-anti-money-laundering-certification/daacabc5a9e161aca76d6c41fd4c3dd7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/next-generation-services-compliance-manager-earns-anti-money-laundering-certification)
+ 
 
 
 

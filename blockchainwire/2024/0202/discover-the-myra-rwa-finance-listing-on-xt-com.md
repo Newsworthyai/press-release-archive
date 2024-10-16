@@ -51,7 +51,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-myrarwa-finance-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-myra-rwa-finance-on-its-platform-signifying-a-commitment-to-diverse-investment-opportunities/e976a8048055613de09e269e431aa4df) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/02/xt-com-lists-myra-rwa-finance-token-on-its-platform)
+ 
 
 
 

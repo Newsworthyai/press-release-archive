@@ -73,7 +73,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcx-pioneers-quantum-safe-blockchain-wallet-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-computing-and-upcx-the-future-of-security/d01dd72672790685773140b3f5402faf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/12/upcx-pioneers-quantum-safe-blockchain-wallet-technology)
+ 
 
 
 

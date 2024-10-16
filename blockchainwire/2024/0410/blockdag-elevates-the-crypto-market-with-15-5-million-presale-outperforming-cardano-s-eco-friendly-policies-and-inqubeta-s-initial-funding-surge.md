@@ -37,7 +37,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-elevates-the-crypto-market-with-155-million-presale-outperforming-cardanos-eco-friendly-policies-and-inqubetas-initial-funding-surge)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-redefining-blockchain-with-revolutionary-integration/93858351b33aae64863f01ed456eb04b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/blockdag-leads-crypto-market-with-15-5-million-presale)
+ 
 
 
 

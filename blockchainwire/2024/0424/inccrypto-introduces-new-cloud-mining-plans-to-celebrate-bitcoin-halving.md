@@ -53,7 +53,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/inccrypto-introduces-new-cloud-mining-plans-to-celebrate-bitcoin-halving)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/inccrypto-launches-new-bitcoin-mining-plans-in-celebration-of-bitcoin-halving/6b72083fce0cd4f64246b29271778a12) 
+
+ 
 
 
 

@@ -33,7 +33,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/navex-announc
 [Original/Source Press Release](https://newsdirect.com/news/navex-announces-new-bangalore-office-following-international-expansion-561353859)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/navex-expands-into-south-asia-with-new-bangalore-office/9d807464ec06306058e6726b1b0430ee) 
+
+ 
 
 
 

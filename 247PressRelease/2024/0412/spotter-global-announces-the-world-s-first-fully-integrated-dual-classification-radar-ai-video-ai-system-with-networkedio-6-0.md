@@ -7,7 +7,11 @@ OREM, UT, April 12, 2024 /24-7PressRelease/ -- Protectors of the Electrical Grid
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510001/spotter-global-announces-the-worlds-first-fully-integrated-dual-classification-radar-ai-video-ai-system-with-networkedio-60)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/spotter-global-unveils-nio-6-0-with-advanced-ai-security-solutions/bce732e07059dc5fd2f6356fe3828a98) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/spotter-global-announces-the-world-s-first-fully-integrated-dual-classification-radar-ai-video-ai-system-with-networkedio-6-0)
+ 
 
 
 

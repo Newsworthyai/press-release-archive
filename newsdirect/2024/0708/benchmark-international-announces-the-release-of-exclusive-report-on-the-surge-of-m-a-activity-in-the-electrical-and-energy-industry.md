@@ -36,7 +36,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-announces-the-release-of-exclusive-report-on-the-surge-of-manda-activity-in-the-electrical-and-energy-industry-470056870)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-exclusive-report-m-a-opportunities-in-energy-sector/cb7a1959c4e2cd8e397b3f69c578be3e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-unveils-report-on-m-a-trends-in-the-electrical-and-energy-industry/20244755)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/benchmark-international-releases-report-on-surging-m-a-activity-in-energy-sector)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-releases-report-on-m-a-surge-in-electrical-and-energy-industry/20244755)
+ 
 
 
 

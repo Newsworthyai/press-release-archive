@@ -7,7 +7,9 @@ FOUNTAIN INN, SC, April 15, 2024 /24-7PressRelease/ -- Southern Benefit Systems 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509995/southern-benefit-systems-shakes-up-the-employee-benefits-landscape-with-its-new-hire)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sbs-appoints-charley-worley-as-new-employee-benefits-consultant/01c42e618045bfd87027bd63653f3bc0) 
+
+ 
 
 
 

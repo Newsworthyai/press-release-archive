@@ -35,7 +35,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-fuzuki-inu-revolutionizing-the-crypto-landscape-with-uniswap-launch-and-community-centric-innovations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fuzuki-inu-listed-on-uniswap-dex-token-value-surges-by-500/0390a0f8432bff00e96988390ae04fc9) 
+
+ 
 
 
 

@@ -7,7 +7,11 @@ LAFAYETTE, LA, March 31, 2024 /24-7PressRelease/ -- Each year thousands journey 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509693/antique-bank-found-in-louisiana-flea-market-discovered-to-be-never-before-seen-copy-of-famous-leonardo-da-vinci-painting-salvator-mundi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/antique-trade-days-fair-unveils-potential-art-world-mystery/9ffed5dd32b17217115a604a76e1aaf7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/31/mechanical-bank-uncovered-at-louisiana-flea-market-possibly-a-lost-da-vinci-invention)
+ 
 
 
 

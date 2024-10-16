@@ -7,7 +7,15 @@ MYRTLE BEACH, SC, July 23, 2024 /24-7PressRelease/ -- Grande Shores Ocean Resort
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512749/grande-shores-ocean-resort-unveils-renovations-to-enhance-your-myrtle-beach-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/grande-shores-ocean-resort-unveils-renovations-to-enhance-guest-experience/347a5b794f2ded6394c58c2ebd5d571d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/grande-shores-ocean-resort-completes-major-renovation-to-enhance-guest-experience)
+
+Pickup - [fishervista.com](https://fishervista.com/en/grande-shores-ocean-resort-unveils-major-renovations-to-enhance-myrtle-beach-experience/20245170)
+
+Pickup - [advos.io](https://advos.io/en/grande-shores-ocean-resort-completes-renovations-to-elevate-myrtle-beach-experience/20245170)
+ 
 
 
 

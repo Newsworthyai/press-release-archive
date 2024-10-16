@@ -37,7 +37,13 @@ X (Twitter) | Instagram | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/mr-based-to-launch-purpose-driven-memecoin-on-the-basechain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mr-based-launches-purpose-driven-memecoin-on-base-blockchain/4da02f33c14f87505551b637deff8810) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/mr-based-launches-purpose-driven-memecoin-on-base-blockchain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/mr-based-launches-purpose-driven-memecoin-on-base-blockchain)
+ 
 
 
 

@@ -7,7 +7,17 @@ DUBAI, UAE, September 17, 2024 /24-7PressRelease/ -- The UAE Ministry of Economy
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514343/uae-tourism-sector-witnesses-steady-growth-with-hotel-establishment-revenues-increasing-by-7-per-cent-to-reach-aed-246-billion-in-h1-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uae-tourism-sector-booms-hotel-revenues-reach-aed-24-6-billion-in-h1-2024/0250d92ea3e6ee80a6803ee670072c79) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/uae-tourism-sector-experiences-robust-growth-in-first-half-of-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/uae-tourism-sector-sees-7-revenue-increase-in-first-half-of-2024/20246880)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/uae-tourism-sector-booms-with-7-revenue-increase-in-first-half-of-2024/20246880)
+
+Pickup - [advos.io](https://advos.io/en/uae-tourism-sector-sees-7-revenue-growth-in-first-half-of-2024/20246880)
+ 
 
 
 

@@ -17,7 +17,11 @@ TMS Therapy is a beacon of hope for individuals who have exhausted traditional a
 [Original/Source Press Release](https://newsworthy.ai/news/202402241090/innovative-tms-therapy-in-phoenix-az-provides-non-invasive-relief-for-depression-and-anxiety)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-tms-therapy-changing-the-game-for-mental-health-treatment/ddff64d2c90e50bfa47a28cb431bdce0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/24/innovative-tms-therapy-offers-non-invasive-relief-for-mental-health-conditions)
+ 
 
 
 

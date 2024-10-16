@@ -7,7 +7,17 @@ LOUISVILLE, KY, September 14, 2024 /24-7PressRelease/ -- Karen T. Lockridge, a t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514324/karen-t-lockridge-unveils-distant-lands-dark-horizon-a-new-epic-fantasy-adventure)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-release-distant-lands-dark-horizon-by-karen-t-lockridge-takes-readers-on-a-thrilling-adventure/24f8c10b3f04b4db7df42fb07877ad72) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/14/karen-t-lockridge-launches-epic-fantasy-series-with-distant-lands-dark-horizon)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kentucky-author-karen-t-lockridge-launches-new-epic-fantasy-series/20246831)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/karen-t-lockridge-s-distant-lands-dark-horizon-launches-new-epic-fantasy-series/20246831)
+
+Pickup - [advos.io](https://advos.io/en/karen-t-lockridge-launches-new-epic-fantasy-series-with-distant-lands-dark-horizon/20246831)
+ 
 
 
 

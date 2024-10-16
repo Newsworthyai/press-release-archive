@@ -37,7 +37,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-wallet
 [Original/Source Press Release](https://newsdirect.com/news/bitget-wallet-unveils-getdrop-an-exclusive-airdrop-platform-for-high-quality-projects-481200160)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-wallet-unveils-exclusive-airdrop-platform-getdrop-for-high-quality-projects/6b75f9033bcf4766e138e110424baedb) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitget-wallet-unveils-exclusive-airdrop-platform-getdrop-for-high-quality-projects)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitget-wallet-unveils-exclusive-airdrop-platform-getdrop-for-high-quality-projects)
+ 
 
 
 

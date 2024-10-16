@@ -27,7 +27,13 @@ Babylon is a blockchain project that designs security sharing protocols for the 
 [Original/Source Press Release](https://blockchainwire.io/press-release/tomo-launches-extension-wallet-and-announces-integration-in-babylon-testnet-with-sbtc-faucet-tokens-for-tomo-users--1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tomo-launches-multichain-wallet-extension-in-collaboration-with-babylon-testnet/0504ce6d8ee5450f70abd37540fc68e1) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tomo-launches-multichain-wallet-extension-in-collaboration-with-babylon-testnet)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tomo-launches-multichain-wallet-extension-in-collaboration-with-babylon-testnet)
+ 
 
 
 

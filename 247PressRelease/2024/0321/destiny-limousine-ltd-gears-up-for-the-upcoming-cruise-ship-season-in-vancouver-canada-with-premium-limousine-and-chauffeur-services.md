@@ -7,7 +7,11 @@ VANCOUVER, BC, March 21, 2024 /24-7PressRelease/ -- Destiny Limousine Ltd, a lea
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509442/destiny-limousine-ltd-gears-up-for-the-upcoming-cruise-ship-season-in-vancouver-canada-with-premium-limousine-and-chauffeur-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/destiny-limousine-ltd-announces-tailored-services-for-upcoming-cruise-ship-season/e9ee2b60c617574dc8e594106ae01c62) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/destiny-limousine-ltd-rolls-out-premium-transportation-for-vancouver-s-cruise-season)
+ 
 
 
 

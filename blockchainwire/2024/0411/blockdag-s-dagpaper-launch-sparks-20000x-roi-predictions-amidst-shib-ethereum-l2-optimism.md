@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockdags-dagpaper-launch-sparks-20000x-roi-predictions-amidst-shib--ethereum-l2-optimism)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-s-v2-whitepaper-unveiling-ignites-crypto-enthusiasm/2790e5cd1dc0a031c4022727ba87f9c9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/blockdag-s-dagpaper-launch-sparks-20000x-roi-predictions-amidst-shib-ethereum-l2-optimism)
+ 
 
 
 

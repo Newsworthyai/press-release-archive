@@ -11,7 +11,11 @@ FLOKITA ( $FLOKITA ) isn't just another Floki in the pond. We're the cute new fa
 [Original/Source Press Release](https://blockchainwire.io/press-release/bsc-flokita---flokita---labelled-the-next-pepe)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/flokita-flokita-the-next-game-changer-in-the-crypto-world/e52e972537728f7ee565439b7e551909) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/flokita-the-blue-pepe-stirring-up-the-bsc-meme-coin-pond)
+ 
 
 
 

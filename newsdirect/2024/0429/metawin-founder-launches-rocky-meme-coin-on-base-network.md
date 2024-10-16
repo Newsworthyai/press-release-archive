@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/metawin-found
 [Original/Source Press Release](https://newsdirect.com/news/metawin-founder-launches-rocky-meme-coin-on-base-network-386970809)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metawin-founder-launches-rocky-meme-coin-on-base-network/cd13f947a75431fb06c2c22a5771583b) 
+
+ 
 
 
 

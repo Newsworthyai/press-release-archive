@@ -21,7 +21,11 @@ OrthodontiCell Inc. is a biotechnology company specializing in precise controlle
 [Original/Source Press Release](https://newsworthy.ai/news/20231220914/straightening-teeth-in-three-months-possible-new-science-says-yes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/orthodonticell-inc-announces-positive-data-for-accelerated-teeth-straightening-study/509f9363b4f8518a5322898f8b5971e8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/20/breakthrough-therapy-promises-faster-teeth-straightening-with-less-pain)
+ 
 
 
 

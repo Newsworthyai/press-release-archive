@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/puerto-ricos-
 [Original/Source Press Release](https://newsdirect.com/news/puerto-ricos-day-at-the-ballpark-continues-series-in-2024-200950411)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prcda-presents-puerto-rico-day-at-the-ballpark-honoring-marcus-stroman/29ed333d7bd3d63b20e80166b20365c4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/puerto-rico-s-baseball-celebration-continues-its-nationwide-tour)
+ 
 
 
 

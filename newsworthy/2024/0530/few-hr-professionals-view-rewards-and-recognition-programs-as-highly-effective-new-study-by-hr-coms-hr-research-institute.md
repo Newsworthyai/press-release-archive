@@ -27,7 +27,11 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202405301181/few-hr-professionals-view-rewards-and-recognition-programs-as-highly-effective-new-study-by-hr-coms-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-study-reveals-challenges-in-employee-recognition-programs/f8b900b797840f5866a2b4e632995a91) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/study-reveals-low-effectiveness-of-rewards-and-recognition-programs-in-organizations/20243543)
+ 
 
 
 

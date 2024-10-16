@@ -7,7 +7,11 @@ DES PLAINES, IL, April 10, 2024 /24-7PressRelease/ -- "Many of our customers are
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509891/delivering-the-lending-solutions-and-the-service-that-transform-stress-into-smiles)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/americash-loans-providing-empathetic-financial-solutions/933c23fc7b88e72d9dc379764f4b0d85) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/americash-loans-delivering-lending-solutions-and-service-that-transforms-stress-into-smiles)
+ 
 
 
 

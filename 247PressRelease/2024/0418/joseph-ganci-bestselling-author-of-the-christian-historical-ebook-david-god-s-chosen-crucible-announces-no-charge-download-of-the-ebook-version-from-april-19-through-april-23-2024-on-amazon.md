@@ -7,7 +7,11 @@ WILMINGTON, NC, April 18, 2024 /24-7PressRelease/ -- Some Christians find the Ol
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510088/joseph-ganci-bestselling-author-of-the-christian-historical-ebook-david-gods-chosen-crucible-announces-no-charge-download-of-the-ebook-version-from-april-19-through-april-23-2024-on-amazon)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/author-joseph-ganci-releases-free-ebook-david-god-s-chosen-crucible-in-the-empire-of-israel-series/0d70b7664a067bdd5da243fdb0db905f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/bestselling-author-joseph-ganci-offers-free-download-of-david-god-s-chosen-crucible-on-amazon)
+ 
 
 
 

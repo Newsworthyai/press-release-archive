@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/fantasy-metav
 [Original/Source Press Release](https://newsdirect.com/news/fantasy-metaverse-darklume-presale-is-live-954312044)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/darklume-vr-launches-immersive-metaverse-experience-with-dlume-currency-system/593fd2be7f973865958d57a25ae3f0c9) 
+
+ 
 
 
 

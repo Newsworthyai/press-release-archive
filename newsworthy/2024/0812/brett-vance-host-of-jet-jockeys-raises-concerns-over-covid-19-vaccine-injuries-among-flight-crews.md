@@ -27,7 +27,17 @@ For more information about Brett Vance and Jet Jockeys, click here: https://www.
 [Original/Source Press Release](https://newsworthy.ai/news/202408121231/brett-vance-host-of-jet-jockeys-raises-concerns-over-covid-19-vaccine-injuries-among-flight-crews)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jet-jockeys-host-raises-concerns-about-covid-19-vaccine-injuries/3179dfdd0211aa45d01b79f597304912) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/aviation-expert-brett-vance-voices-concerns-over-covid-19-vaccine-injuries-among-flight-crews)
+
+Pickup - [fishervista.com](https://fishervista.com/en/jet-jockeys-host-brett-vance-raises-alarms-over-covid-19-vaccine-injuries-in-aviation/20245663)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/aviation-expert-brett-vance-raises-alarm-on-covid-19-vaccine-injuries-among-flight-crews/20245663)
+
+Pickup - [advos.io](https://advos.io/en/aviation-show-host-brett-vance-raises-alarms-over-covid-19-vaccine-injuries-among-pilots/20245663)
+ 
 
 
 

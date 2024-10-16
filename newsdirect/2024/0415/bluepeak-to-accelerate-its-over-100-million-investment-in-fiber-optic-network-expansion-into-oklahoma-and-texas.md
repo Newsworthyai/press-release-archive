@@ -40,7 +40,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bluepeak-to-a
 [Original/Source Press Release](https://newsdirect.com/news/bluepeak-to-accelerate-its-over-100-million-investment-in-fiber-optic-network-expansion-into-oklahoma-and-texas-230192440)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bluepeak-expanding-fiber-network-to-over-ten-new-markets-in-oklahoma-and-texas/bf53a6fe3e5db8442cd3e414fbde3f68) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/bluepeak-to-accelerate-its-over-100-million-investment-in-fiber-optic-network-expansion-into-oklahoma-and-texas)
+ 
 
 
 

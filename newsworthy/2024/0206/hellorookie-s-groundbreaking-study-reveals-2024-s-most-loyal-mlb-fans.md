@@ -19,7 +19,11 @@ Hello Rookie is not just a website, it’s a one-stop platform for all sports en
 [Original/Source Press Release](https://newsworthy.ai/news/202402061054/hellorookie-s-groundbreaking-study-reveals-2024-s-most-loyal-mlb-fans)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hellorookie-unveils-most-loyal-mlb-fans-study/a32b2a52ea8c8eb7df195de736478d1d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/06/hellorookie-unveils-2024-s-most-loyal-mlb-fan-bases)
+ 
 
 
 

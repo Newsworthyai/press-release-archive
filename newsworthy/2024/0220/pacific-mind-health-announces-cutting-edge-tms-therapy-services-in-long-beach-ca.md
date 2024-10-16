@@ -17,7 +17,9 @@ To further extend their support, Pacific Mind Health provides a complimentary co
 [Original/Source Press Release](https://newsworthy.ai/news/202402201075/pacific-mind-health-announces-cutting-edge-tms-therapy-services-in-long-beach-ca)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pacific-mind-health-introduces-cutting-edge-tms-therapy-in-long-beach-ca/d1215b0d8f83c59bbc30b0e8706275e0) 
+
+ 
 
 
 

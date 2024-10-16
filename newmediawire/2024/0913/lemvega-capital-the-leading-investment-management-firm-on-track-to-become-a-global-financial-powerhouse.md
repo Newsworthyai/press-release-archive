@@ -55,7 +55,17 @@ Media Inquiries Email: info@lemvegacapital.com
 [Original/Source Press Release](https://www.newmediawire.com/news/lemvega-capital-the-leading-investment-management-firm-on-track-to-become-a-global-financial-powerhouse-7076051)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lemvega-capital-redefining-financial-landscape-with-global-expansion/90cb0e836247ee4db79e6b556291e878) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/lemvega-capital-poised-for-global-expansion-with-innovative-investment-strategies)
+
+Pickup - [fishervista.com](https://fishervista.com/en/lemvega-capital-poised-for-global-expansion-aiming-for-1-billion-in-assets-by-2025/20246873)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/lemvega-capital-poised-for-global-expansion-under-leadership-of-young-ceo/20246873)
+
+Pickup - [advos.io](https://advos.io/en/lemvega-capital-poised-for-global-expansion-with-innovative-financial-model/20246873)
+ 
 
 
 

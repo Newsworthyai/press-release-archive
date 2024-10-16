@@ -39,7 +39,15 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/unlocking-potential-furrever-tokens-25-bonus-amid-bitcoin-and-ethereums-success)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-s-etf-surge-ethereum-s-anticipation-and-furrever-token-s-opportunity/c873cef7fc9a38ff26f8990483d13fe4) 
+
+
+Pickup - [advos.io](https://advos.io/en/furrever-token-offers-25-bonus-amid-bitcoin-and-ethereum-s-market-surge/20243880)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-s-etf-surge-ethereum-s-anticipation-and-furrever-token-s-opportunity)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-s-etf-surge-ethereum-s-anticipation-and-furrever-token-s-opportunity)
+ 
 
 
 

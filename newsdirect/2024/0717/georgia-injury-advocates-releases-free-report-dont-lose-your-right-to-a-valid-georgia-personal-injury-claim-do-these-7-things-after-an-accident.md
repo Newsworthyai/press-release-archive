@@ -53,7 +53,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/georgia-injur
 [Original/Source Press Release](https://newsdirect.com/news/georgia-injury-advocates-releases-free-report-dont-lose-your-right-to-a-valid-georgia-personal-injury-claim-do-these-7-things-after-an-accident-225483147)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/georgia-injury-advocates-releases-essential-free-report-for-accident-victims/9a9c78d98103b6d65af4f1a8eb99cd6e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/georgia-injury-advocates-unveils-essential-guide-for-accident-victims)
+
+Pickup - [fishervista.com](https://fishervista.com/en/georgia-injury-advocates-releases-crucial-report-on-protecting-personal-injury-claims/20245030)
+
+Pickup - [advos.io](https://advos.io/en/georgia-injury-advocates-releases-essential-guide-for-accident-victims/20245030)
+ 
 
 
 

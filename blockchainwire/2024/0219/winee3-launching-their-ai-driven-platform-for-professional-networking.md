@@ -51,7 +51,11 @@ With Winee3, step into the future of professional networking and be part of the 
 [Original/Source Press Release](https://blockchainwire.io/press-release/winee3-launching-their-ai-driven-platform-for-professional-networking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/winee3-revolutionizing-professional-networking-for-the-web3-era/233a95c7cb3476b8e222c15b6058aa8c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/19/winee3-revolutionizing-professional-networking-in-the-web3-era)
+ 
 
 
 

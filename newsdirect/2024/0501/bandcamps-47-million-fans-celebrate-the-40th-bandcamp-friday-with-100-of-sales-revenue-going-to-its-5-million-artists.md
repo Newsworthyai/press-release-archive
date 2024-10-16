@@ -46,7 +46,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/bandcamps-47-
 [Original/Source Press Release](https://newsdirect.com/news/bandcamps-47-million-fans-celebrate-the-40th-bandcamp-friday-with-100-of-sales-revenue-going-to-its-5-million-artists-856260889)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bandcamp-celebrates-40th-bandcamp-friday-with-100-of-sales-revenue-going-to-its-5-million-artists/7ac13212513394c4a741b2b51c90dcf4) 
+
+ 
 
 
 

@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/pathai-launch
 [Original/Source Press Release](https://newsdirect.com/news/pathai-launches-met-predict-on-aisight-to-enhance-nsclc-assessments-427563234)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pathai-launches-met-predict-on-aisight-to-enhance-nsclc-assessments/a4a67e93fa8a3985c36890fa86f87a04) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/pathai-introduces-ai-powered-tool-to-enhance-lung-cancer-assessments)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pathai-unveils-met-predict-to-enhance-non-small-cell-lung-cancer-assessments/20246669)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/pathai-introduces-ai-powered-tool-to-enhance-lung-cancer-assessments/20246669)
+
+Pickup - [advos.io](https://advos.io/en/pathai-introduces-ai-powered-met-predict-to-improve-lung-cancer-diagnostics/20246669)
+ 
 
 
 

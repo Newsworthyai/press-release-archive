@@ -31,7 +31,13 @@ HR.com, the largest network of HR professionals, is committed to helping HR prof
 [Original/Source Press Release](https://newsworthy.ai/news/20240122367/hr-com-elevates-hr-experience-with-revamped-hr-excellence-magazines)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-announces-restructuring-of-hr-excellence-magazines/26335c44eaa5e4797a7ba991f7153a91) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-com-restructures-hr-excellence-magazines-to-enhance-professional-development/202437)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/22/hr-com-revamps-hr-excellence-magazines-for-enhanced-experience)
+ 
 
 
 

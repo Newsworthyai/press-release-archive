@@ -46,7 +46,11 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/ycommunicate/news_release/1434)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/y-communicate-founder-wins-outstanding-leadership-award-at-marketing-2-0-conference/ecbef9468b22136f7e247e78e99a7a31) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/y-communicate-s-founder-shines-at-marketing-2-0-conference)
+ 
 
 
 

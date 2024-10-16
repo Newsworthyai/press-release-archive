@@ -25,7 +25,9 @@ For more information about Phoenic Hera, visit www.phoenichera.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/miracle-estate-breaks-ground-on-project-aimed-at-solving-cypruss-real-estate-challenges-with-nfts-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/miracle-estate-breaks-ground-for-phoenic-hera-hotel-and-residence-complex-in-northern-cyprus/cfa0407b22a8fd9ebe754318b6102718) 
+
+ 
 
 
 

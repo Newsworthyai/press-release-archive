@@ -45,7 +45,21 @@ Contract Address (CA): 0xD09Eb9099faC55eDCbF4965e0A866779ca365a0C
 [Original/Source Press Release](https://blockchainwire.io/press-release/-meet-colon-the-true-father-of-all-doge-memecoins)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/colon-the-father-of-doge-and-all-dog-memecoins/74d1ffb974f5f36105a76e94834a262d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/colon-the-unsung-progenitor-of-dog-themed-cryptocurrencies)
+
+Pickup - [fishervista.com](https://fishervista.com/en/colon-the-unsung-originator-of-dog-themed-memecoins/20245884)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/colon-the-unsung-progenitor-of-dog-themed-cryptocurrencies/20245884)
+
+Pickup - [advos.io](https://advos.io/en/colon-the-unsung-forefather-of-dog-themed-memecoins/20245884)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/colon-the-father-of-doge-and-all-dog-memecoins)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/colon-the-father-of-doge-and-all-dog-memecoins)
+ 
 
 
 

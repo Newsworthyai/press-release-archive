@@ -7,7 +7,11 @@ GILBERT, AZ, June 02, 2024 /24-7PressRelease/ -- The Eddy Torriente Scholarship 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511355/eddy-torriente-scholarship-for-single-mothers-a-beacon-of-hope-for-aspiring-scholars-nationwide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/eddy-torriente-scholarship-for-single-mothers-now-accepting-applications-for-2025-award-cycle/c23f6fed3ba5e0ec562eb20c016ca4ce) 
+
+
+Pickup - [advos.io](https://advos.io/en/eddy-torriente-scholarship-empowering-single-mothers-through-education/20243609)
+ 
 
 
 

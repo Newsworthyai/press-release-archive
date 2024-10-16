@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/housebell-lau
 [Original/Source Press Release](https://newsdirect.com/news/housebell-launches-a-property-dealing-platform-assisting-chinese-residents-in-singapore-645575703)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/housebell-launches-platform-to-assist-chinese-residents-in-singapore/c1b107bdf04d76d74e6937e79fb0fb44) 
+
+ 
 
 
 

@@ -7,7 +7,11 @@ NEW YORK, NY, March 16, 2024 /24-7PressRelease/ -- Direct Kinetics Solutions (DK
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509300/direct-kinetic-solutions-gets-awarded-tacfi-funding-by-afwerx-to-power-up-air-force-missions-accelerating-innovation-in-clean-energy-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dks-awarded-1-9m-contract-for-radioisotopic-power-technology-by-afwerx/3c7746a707ba658849b42cd083c39311) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/16/direct-kinetic-solutions-secures-tacfi-funding-for-radioisotopic-power-technology)
+ 
 
 
 

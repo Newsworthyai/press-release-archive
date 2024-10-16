@@ -13,7 +13,11 @@ During the treatment process, patients self-administer the nasal spray under the
 [Original/Source Press Release](https://newsworthy.ai/news/20231223940/prime-psychiatry-offers-spravato-treatment-for-treatment-resistant-depression-in-frisco-and-plano-texas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prime-psychiatry-introduces-fast-acting-antidepressant-spravato-for-treatment-resistant-depression/d9ecb13ce269921ae1066d784765d5d6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/23/prime-psychiatry-brings-cutting-edge-spravato-treatment-for-treatment-resistant-depression-to-north-texas)
+ 
 
 
 

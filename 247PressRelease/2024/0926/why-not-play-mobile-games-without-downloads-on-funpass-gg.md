@@ -7,7 +7,9 @@ NEW YORK, NY, September 26, 2024 /24-7PressRelease/ -- Mobile gaming has never b
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514714/why-not-play-mobile-games-without-downloads-on-funpassgg)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/funpass-gg-revolutionizes-mobile-gaming-with-cloud-gaming-platform/a03ba3b7303b2cd32ec7431d6a5a2db7) 
+
+ 
 
  
 

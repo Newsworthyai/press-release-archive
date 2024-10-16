@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bridgeft-achi
 [Original/Source Press Release](https://newsdirect.com/news/bridgeft-achieves-soc-2-type-ii-certification-for-wealthtech-as-a-service-platform-706371706)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bridgeft-achieves-soc-2-type-ii-certification-for-wealthtech-as-a-service-platform/88759125085bc89475074fc2779ec538) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/bridgeft-achieves-rigorous-soc-2-type-ii-security-certification)
+ 
 
 
 

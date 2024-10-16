@@ -23,7 +23,11 @@ For the latest updates and articles, visit www.NurseMagazine.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231218854/nurse-magazine-launches-the-destination-for-nursing-insights-and-expertise)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nurse-magazine-launches-as-a-premier-online-resource-for-nursing-professionals/7227d93414228e52c9f83b6176d017e7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/18/nurse-magazine-elevates-nursing-discourse-with-expert-insights)
+ 
 
 
 

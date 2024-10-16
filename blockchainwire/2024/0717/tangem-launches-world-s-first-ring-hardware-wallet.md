@@ -33,7 +33,19 @@ Socials: X / Telegram / Discord / YouTube / Instagram / LinkedIn
 [Original/Source Press Release](https://blockchainwire.io/press-release/tangem-launches-worlds-first-ring-hardware-wallet)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tangem-launches-world-s-first-ring-shaped-crypto-wallet/cd8d990190a0105699ddb6b18a4ec17e) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tangem-launches-world-s-first-ring-shaped-crypto-wallet)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tangem-launches-world-s-first-ring-shaped-crypto-wallet)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/tangem-introduces-revolutionary-ring-shaped-cryptocurrency-wallet)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tangem-unveils-world-s-first-ring-hardware-wallet/20245062)
+
+Pickup - [advos.io](https://advos.io/en/tangem-unveils-world-s-first-ring-hardware-wallet/20245062)
+ 
 
 
 

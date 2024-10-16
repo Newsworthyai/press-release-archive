@@ -7,7 +7,17 @@ ATLANTA, GA, August 12, 2024 /24-7PressRelease/ -- With great excitement, Punyam
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513307/punyam-academy-is-happy-to-introduce-an-e-learning-course-on-iso-42001-internal-auditor-training-for-ai-management-system)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/punyam-academy-launches-groundbreaking-iso-42001-lead-auditor-training-course/4272e5f734792767c7a8291e7d7c7c8d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/punyam-academy-launches-pioneering-iso-42001-internal-auditor-training-for-ai-management-systems)
+
+Pickup - [fishervista.com](https://fishervista.com/en/punyam-academy-launches-world-s-first-iso-42001-internal-auditor-training-for-ai-management-systems/20245641)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/punyam-academy-launches-pioneering-iso-42001-internal-auditor-training-for-ai-management-systems/20245641)
+
+Pickup - [advos.io](https://advos.io/en/punyam-academy-introduces-groundbreaking-iso-42001-internal-auditor-training-for-ai-management-systems/20245641)
+ 
 
 
 

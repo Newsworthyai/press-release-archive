@@ -75,7 +75,17 @@ Coinstore Social MediaTwitter | Discord | Facebook | Instagram | Youtube | Teleg
 [Original/Source Press Release](https://blockchainwire.io/press-release/bethel-platform---hack-proof-blockchain-based-secure-decentralised-file-storage-with-zkp-zero-knowledge-proofs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bethel-platform-introduces-state-of-the-art-decentralized-storage-solution/a41f85379285065589c2d566108696b8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bethel-platform-introduces-revolutionary-blockchain-based-secure-decentralized-file-storage/20244432)
+
+Pickup - [advos.io](https://advos.io/en/bethel-platform-revolutionizes-data-management-with-zero-knowledge-proofs/20244432)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bethel-platform-introduces-state-of-the-art-decentralized-storage-solution)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bethel-platform-introduces-state-of-the-art-decentralized-storage-solution)
+ 
 
 
 

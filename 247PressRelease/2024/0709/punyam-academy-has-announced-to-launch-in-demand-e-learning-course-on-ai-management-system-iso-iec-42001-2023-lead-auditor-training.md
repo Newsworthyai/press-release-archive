@@ -7,7 +7,15 @@ LOS ANGELES, CA, July 09, 2024 /24-7PressRelease/ -- First time in the globe Pun
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512321/punyam-academy-has-announced-to-launch-in-demand-e-learning-course-on-ai-management-system-isoiec-420012023-lead-auditor-training)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/punyam-academy-launches-iso-42001-lead-auditor-training-course/19a5d370bed2fa773a8ca68b99a8c04f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/punyam-academy-launches-iso-iec-42001-2023-lead-auditor-training-course-for-ai-management-systems/20244780)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/punyam-academy-launches-pioneering-iso-42001-lead-auditor-training-for-ai-management-systems)
+
+Pickup - [advos.io](https://advos.io/en/punyam-academy-launches-pioneering-iso-42001-lead-auditor-training-for-ai-management-systems/20244780)
+ 
 
 
 

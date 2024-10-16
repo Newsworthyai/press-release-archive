@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-expand
 [Original/Source Press Release](https://newsdirect.com/news/bitget-expands-offerings-by-listing-parcl-prcl-in-solana-ecosystem-and-rwa-zone-639767170)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-lists-parcl-prcl-in-solana-ecosystem-and-rwa-zone/15701c8baf81e380d4bd325f0b9dc44e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/bitget-expands-offerings-by-listing-parcl-prcl-in-solana-ecosystem-and-rwa-zone)
+ 
 
 
 

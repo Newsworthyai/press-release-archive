@@ -7,7 +7,17 @@ DALLAS, TX, August 19, 2024 /24-7PressRelease/ -- Item by Item (IBI), the leadin
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513536/item-by-item-ibi-releases-microsoft-dynamics-365-quality-management-online-training-curriculum)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ibi-launches-new-microsoft-dynamics-365-quality-management-training-curriculum/e99d953c08446d3d4b39ad131fbcbea9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/19/item-by-item-launches-comprehensive-microsoft-dynamics-365-quality-management-training-curriculum)
+
+Pickup - [fishervista.com](https://fishervista.com/en/item-by-item-introduces-comprehensive-microsoft-dynamics-365-quality-management-training/20245807)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/item-by-item-expands-microsoft-dynamics-365-training-with-quality-management-curriculum/20245807)
+
+Pickup - [advos.io](https://advos.io/en/item-by-item-releases-comprehensive-microsoft-dynamics-365-quality-management-training/20245807)
+ 
 
 
 

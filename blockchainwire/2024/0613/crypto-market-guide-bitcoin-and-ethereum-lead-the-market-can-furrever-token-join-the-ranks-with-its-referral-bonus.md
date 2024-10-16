@@ -27,7 +27,15 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-market-guide-bitcoin-and-ethereum-lead-the-market---can-furrever-token-join-the-ranks-with-its-referral-bonus)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/furrever-token-the-new-contender-in-the-cryptocurrency-market/95458f84bf8a41ea62698bc679acb784) 
+
+
+Pickup - [advos.io](https://advos.io/en/furrever-token-emerges-as-a-new-contender-in-the-crypto-market-with-unique-referral-bonus-system/20244113)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/furrever-token-the-new-contender-in-the-cryptocurrency-market)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/furrever-token-the-new-contender-in-the-cryptocurrency-market)
+ 
 
 
 

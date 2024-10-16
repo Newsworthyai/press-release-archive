@@ -53,7 +53,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/lobo-technolo
 [Original/Source Press Release](https://newsdirect.com/news/lobo-technologies-wants-to-have-it-all-with-line-of-electric-mobility-products-and-investors-seem-to-be-taking-notice-of-its-expansion-plans-905880352)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lobo-technologies-aims-to-dominate-electric-mobility-market-with-wide-range-of-products/3d59ca7fdb3bec4e25b012a7b5327e41) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/lobo-technologies-expands-electric-mobility-market-with-innovative-products-and-global-reach/20244491)
+
+Pickup - [advos.io](https://advos.io/en/lobo-technologies-expands-electric-mobility-offerings-amid-global-demand-surge/20244491)
+ 
 
 
 

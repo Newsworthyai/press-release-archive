@@ -7,7 +7,17 @@ FORT WORTH, TX, August 06, 2024 /24-7PressRelease/ -- Phyllis LaVelle proudly an
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513011/traveling-warrior-healer-now-open-for-business-at-the-salon-spa-galleria-bridgewood)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/phyllis-lavelle-opens-new-reiki-healing-office-in-fort-worth-texas/8750a26f36396f2722ae83ca16b44a87) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/new-reiki-healing-office-opens-in-fort-worth-traveling-warrior-healer-brings-holistic-wellness-to-salon-spa-galleria-bridgewood)
+
+Pickup - [fishervista.com](https://fishervista.com/en/traveling-warrior-healer-opens-new-reiki-office-in-fort-worth-s-salon-spa-galleria-bridgewood/20245502)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-reiki-healing-office-opens-in-fort-worth-offering-holistic-wellness-services)
+
+Pickup - [advos.io](https://advos.io/en/traveling-warrior-healer-opens-reiki-healing-office-at-salon-spa-galleria-bridgewood/20245502)
+ 
 
 
 

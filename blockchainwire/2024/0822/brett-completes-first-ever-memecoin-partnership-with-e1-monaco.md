@@ -37,7 +37,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/brett-completes-first-ever-memecoin-partnership-with-e1-monaco)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/memecoin-brett-sponsors-first-ever-e1-all-electric-boat-racing-event/af838994e559cc84a2a13c361c485c48) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/memecoin-brett-makes-history-with-e1-monaco-sponsorship)
+
+Pickup - [fishervista.com](https://fishervista.com/en/brett-partners-with-e1-monaco-in-historic-memecoin-sponsorship/20245890)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/memecoin-brett-makes-history-as-first-cryptocurrency-to-sponsor-e1-monaco-race/20245890)
+
+Pickup - [advos.io](https://advos.io/en/brett-partners-with-e1-monaco-for-groundbreaking-electric-boat-racing-event/20245890)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/memecoin-brett-sponsors-first-ever-e1-all-electric-boat-racing-event)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/memecoin-brett-sponsors-first-ever-e1-all-electric-boat-racing-event)
+ 
 
 
 

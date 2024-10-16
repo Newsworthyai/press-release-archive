@@ -25,7 +25,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-advances-los-azules-project-with-comprehensive-drilling-program/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-copper-inc-advances-los-azules-project-with-completion-of-70000-meters-drilling-program/01127cd7ef111d45ded50792d29bdc83) 
+
+ 
 
 
 

@@ -23,7 +23,11 @@ Discover the world of small business leadership at www.SmallBizLeader.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231222877/introducing-smallbizleader-com-a-destination-for-small-business-leaders-worldwide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-smallbizleader-com-empowering-small-business-leaders-worldwide/49b90444327d7b7b6c4720e10abb6d11) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/22/smallbizleader-com-emerges-as-premier-destination-for-small-business-leaders-worldwide)
+ 
 
 
 

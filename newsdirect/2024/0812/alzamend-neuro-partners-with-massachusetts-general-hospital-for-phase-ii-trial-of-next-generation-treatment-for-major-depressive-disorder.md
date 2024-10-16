@@ -63,7 +63,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/alzamend-neur
 [Original/Source Press Release](https://newsdirect.com/news/alzamend-neuro-partners-with-massachusetts-general-hospital-for-phase-ii-trial-of-next-generation-treatment-for-major-depressive-disorder-278270744)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alzamend-neuro-and-massachusetts-general-hospital-launch-phase-ii-trials-of-al001-for-bipolar-disorder-and-alzheimers/ba8f349b6769972a7022b911d4775da9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/alzamend-neuro-and-massachusetts-general-hospital-collaborate-on-phase-ii-trial-for-major-depressive-disorder-treatment)
+
+Pickup - [fishervista.com](https://fishervista.com/en/alzamend-neuro-collaborates-with-massachusetts-general-hospital-for-phase-ii-trial-of-advanced-mdd-treatment/20245655)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/alzamend-neuro-and-massachusetts-general-hospital-launch-phase-ii-trial-for-novel-mdd-treatment/20245655)
+
+Pickup - [advos.io](https://advos.io/en/alzamend-neuro-collaborates-with-massachusetts-general-hospital-for-advanced-mdd-treatment-trial/20245655)
+ 
 
 
 

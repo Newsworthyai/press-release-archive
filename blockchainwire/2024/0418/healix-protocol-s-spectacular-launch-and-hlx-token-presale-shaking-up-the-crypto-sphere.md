@@ -39,7 +39,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/healix-protocols-spectacular-launch-and-hlx-token-presale-shaking-up-the-crypto-sphere)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/healix-protocol-launches-hlx-token-presale-revolutionizing-healthcare-with-blockchain/1c44c305533db434995c6d6785f87753) 
+
+ 
 
 
 

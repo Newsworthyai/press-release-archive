@@ -23,7 +23,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-breaks-71000-ethereum-etf-imminent-furrever-tokens-1500-returns-captivate-investors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-and-ethereum-reach-new-highs-furrever-token-attracts-whales/9ebd83673edb4bb57c03466641cfbd6d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-and-ethereum-reach-new-highs-furrever-token-attracts-whales)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-and-ethereum-reach-new-highs-furrever-token-attracts-whales)
+ 
 
 
 

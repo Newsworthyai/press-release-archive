@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/encrytionswap-exchange-launches-globally-leading-privacy-protection-feature-enhancing-user-transaction-security)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/encrytionswap-launches-groundbreaking-privacy-protection-feature/7a7085b92d1ed6ec24bae8610969c865) 
+
+
+Pickup - [advos.io](https://advos.io/en/encrytionswap-exchange-introduces-advanced-privacy-protection-feature/20244135)
+ 
 
 
 

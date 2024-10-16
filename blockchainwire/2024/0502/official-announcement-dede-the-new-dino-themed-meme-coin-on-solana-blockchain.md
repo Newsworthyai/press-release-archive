@@ -35,7 +35,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/official-announcement-dede-the-new-dino-themed-meme-coin-on-solana-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-dinosaur-themed-cryptocurrency-dede-launches-on-solana-blockchain/961951f61a40e39d69505c3439cddf56) 
+
+ 
 
 
 

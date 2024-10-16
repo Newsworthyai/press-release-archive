@@ -17,7 +17,15 @@ Press Inquiries:Tom RicherCEO[investorrelations@cloudbench.net](mailto:investorr
 [Original/Source Press Release](https://blockchainwire.io/press-release/cloudbench-receives-distinction-for-financial-services-expertise-from-google-cloud)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloudbench-earns-google-cloud-expertise-designation-in-financial-services/2caa9ceea48b961b702129a340bba5d5) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cloudbench-earns-google-cloud-expertise-in-financial-services/20244728)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/cloudbench-achieves-google-cloud-financial-services-expertise-designation)
+
+Pickup - [advos.io](https://advos.io/en/cloudbench-earns-google-cloud-expertise-in-financial-services/20244728)
+ 
 
 
 

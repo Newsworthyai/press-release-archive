@@ -71,7 +71,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/headline-3831
 [Original/Source Press Release](https://newsdirect.com/news/headline-383147319)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alzamend-neuro-advances-next-generation-treatments-for-mental-health-disorders/8e7cff14c7a1cb21ee7eb8dda6a99796) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/alzamend-neuro-advances-bipolar-disorder-treatment-with-new-clinical-trial-at-massachusetts-general-hospital/20245525)
+
+Pickup - [advos.io](https://advos.io/en/alzamend-neuro-advances-bipolar-disorder-treatment-with-mgh-partnership/20245525)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/alzamend-neuro-partners-with-massachusetts-general-hospital-for-groundbreaking-bipolar-disorder-treatment-study)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/alzamend-neuro-partners-with-massachusetts-general-hospital-for-groundbreaking-bipolar-disorder-treatment-trial)
+ 
 
 
 

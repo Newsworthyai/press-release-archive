@@ -51,7 +51,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/could-ai-thre
 [Original/Source Press Release](https://newsdirect.com/news/could-ai-threaten-the-grid-companies-like-ben-are-bringing-efficient-ai-technology-to-the-forefront-195011391)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-s-impact-on-power-grid-ben-s-sustainable-solution/6dead804e3650f01c8c2a3a74f9ea802) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/efficient-ai-technology-emerges-as-crucial-solution-to-grid-strain/20244826)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/ai-s-power-demand-surge-threatens-grid-stability-but-efficient-solutions-emerge)
+
+Pickup - [advos.io](https://advos.io/en/could-ai-threaten-the-grid-companies-like-ben-are-bringing-efficient-ai-technology-to-the-forefront/20244826)
+ 
 
 
 

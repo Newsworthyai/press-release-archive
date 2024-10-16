@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/antipa-minera
 [Original/Source Press Release](https://newsdirect.com/news/antipa-minerals-delivers-significant-exploration-achievements-317861478)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/antipa-minerals-delivers-significant-exploration-achievements/84eb6992b24e1407392f6ffa8748a754) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/antipa-minerals-achieves-significant-exploration-milestones)
+ 
 
 
 

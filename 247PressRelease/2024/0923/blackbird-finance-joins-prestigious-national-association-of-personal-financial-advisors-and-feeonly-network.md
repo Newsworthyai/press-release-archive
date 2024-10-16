@@ -7,7 +7,9 @@ PAGOSA SPRINGS, CO, September 23, 2024 /24-7PressRelease/ -- BlackBird Finance, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514479/blackbird-finance-joins-prestigious-national-association-of-personal-financial-advisors-and-feeonly-network)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blackbird-finance-accepted-into-napfa-and-the-feeonly-network/7f87dc8107cbdf5b4f20445047f2605b) 
+
+ 
 
 
 

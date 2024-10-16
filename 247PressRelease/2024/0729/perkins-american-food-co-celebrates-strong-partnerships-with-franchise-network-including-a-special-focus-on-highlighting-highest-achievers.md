@@ -7,7 +7,17 @@ ATLANTA, GA, July 29, 2024 /24-7PressRelease/ -- After a hiatus driven by pandem
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512911/perkins-american-food-co-celebrates-strong-partnerships-with-franchise-network-including-a-special-focus-on-highlighting-highest-achievers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/perkins-american-food-co-relaunches-brand-conference-recognizes-top-franchise-partners/fb2b85430e05cfa5d791643943b7654c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/perkins-american-food-co-celebrates-franchise-network-with-awards-at-elevate-conference/20245310)
+
+Pickup - [advos.io](https://advos.io/en/perkins-american-food-co-relaunches-brand-conference-honors-top-franchisees/20245310)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/perkins-american-food-co-honors-top-franchisees-at-elevate-brand-conference)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/perkins-american-food-co-honors-top-franchisees-at-elevate-conference)
+ 
 
 
 

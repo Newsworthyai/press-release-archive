@@ -23,7 +23,11 @@ Discover the future of retail at www.RetailingCentral.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231205873/retailingcentral-com-the-new-digital-destination-for-retail-industry-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-retailingcentral-com-a-new-digital-platform-for-the-retail-sector/bd4d00cd3c23cd9c43a9d61d96d55fc6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/05/retailingcentral-com-a-new-digital-destination-for-retail-professionals)
+ 
 
 
 

@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/alusid-launch
 [Original/Source Press Release](https://newsdirect.com/news/alusid-launches-eco-friendly-floor-tiles-and-prepares-for-ipo-197275925)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alusid-launches-eco-friendly-floor-tiles-and-prepares-for-ipo/7c56f32dfbb04e63510c1fac9c2b185d) 
+
+ 
 
 
 

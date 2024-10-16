@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/condor-resour
 [Original/Source Press Release](https://newsdirect.com/news/condor-resources-reappoints-dr-quinton-hennigh-to-board-of-directors-amidst-continued-growth-609696491)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/condor-resources-reappoints-dr-quinton-hennigh-to-board-of-directors-amidst-continued-growth/dc5c3b1c0d025427bfb6076c2c599309) 
+
+ 
 
 
 

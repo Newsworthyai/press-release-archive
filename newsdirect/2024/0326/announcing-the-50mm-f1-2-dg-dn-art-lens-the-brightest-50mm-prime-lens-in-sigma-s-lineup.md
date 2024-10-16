@@ -217,7 +217,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/announcing-th
 [Original/Source Press Release](https://newsdirect.com/news/announcing-the-50mm-f1-2-dg-dn-art-lens-the-brightest-50mm-prime-lens-in-sigmas-lineup-264535198)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sigma-announces-new-50mm-f1-2-dg-dn-art-lens-for-full-frame-mirrorless-cameras/564382f68b6264bf4b479f2d01fe61e7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/sigma-unveils-ultra-bright-50mm-f1-2-dg-dn-art-lens-for-mirrorless-cameras)
+ 
 
 
 

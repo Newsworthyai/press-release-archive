@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/learning-tech
 [Original/Source Press Release](https://newsdirect.com/news/learning-technologies-reports-steady-performance-amid-economic-challenges-829565438)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/learning-technologies-group-ceo-discusses-2023-financial-results-and-future-plans/7f61ec0ee71f414863d31278cbf08689) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/learning-technologies-reports-steady-performance-amid-economic-challenges)
+ 
 
 
 

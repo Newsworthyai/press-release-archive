@@ -40,7 +40,13 @@ For all information about this release, please contact anna.ivanova@eakdigital.c
 [Original/Source Press Release](https://blockchainwire.io/press-release/metacannes-2024-by-theta-network-and-the-squad-delivered-ai-and-tech-forward-experiences-to-attendees-and-participants)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metacannes-film3-festival-a-groundbreaking-blockchain-based-event/ba3c40777afe5cea805541bc552dcf6d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/metacannes-film3-festival-a-groundbreaking-blockchain-based-event)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/metacannes-film3-festival-a-groundbreaking-blockchain-based-event)
+ 
 
 
 

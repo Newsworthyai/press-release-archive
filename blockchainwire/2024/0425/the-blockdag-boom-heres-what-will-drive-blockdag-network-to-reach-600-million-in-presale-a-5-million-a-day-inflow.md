@@ -47,7 +47,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-blockdag-boomheres-what-will-drive-blockdag-network-to-reach-600-million-in-presale-a-5-million-a-day-inflow-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-poised-to-reach-600-million-in-presale-funding/44a8f5cf23e3fbb9c4d48742253d0dde) 
+
+ 
 
 
 

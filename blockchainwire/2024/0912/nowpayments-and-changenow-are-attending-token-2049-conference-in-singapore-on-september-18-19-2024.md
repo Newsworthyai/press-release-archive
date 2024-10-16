@@ -19,7 +19,17 @@ About NOWPaymentsNOWPayments is a leading crypto payment gatewayproviding easy 
 [Original/Source Press Release](https://blockchainwire.io/press-release/nowpayments-and-changenow-are-attending-token-2049-conference-in-singapore-on-september-18-19-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/nowpayments-and-changenow-set-to-participate-in-token-2049-conference-in-singapore)
+
+Pickup - [fishervista.com](https://fishervista.com/en/nowpayments-and-changenow-to-showcase-crypto-payment-solutions-at-token-2049-conference/20246765)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/nowpayments-and-changenow-set-to-participate-in-token-2049-conference-signaling-growing-importance-of-crypto-payment-solutions/20246765)
+
+Pickup - [advos.io](https://advos.io/en/nowpayments-and-changenow-to-attend-token-2049-conference-in-singapore/20246765)
+ 
 
  
 

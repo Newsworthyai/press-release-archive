@@ -41,7 +41,21 @@ The first community-led Accelerator, built by the largest media company on X and
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitfi-kicks-off-seed-round-with-fundamental-labs-ibc-group-as-anchor-investors-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pioneering-cedefi-platform-bitfi-announces-50m-seed-round-fundraising/655f2f78758fea742e6c62cf8a5403df) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/pioneering-cedefi-platform-bitfi-announces-50m-seed-round-fundraising)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/pioneering-cedefi-platform-bitfi-announces-50m-seed-round-fundraising)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/bitfi-launches-seed-round-with-50-million-valuation-backed-by-major-blockchain-investors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitfi-secures-seed-round-funding-with-50-million-valuation-backed-by-leading-investors/20245269)
+
+Pickup - [advos.io](https://advos.io/en/bitfi-launches-50-million-seed-round-with-major-investors/20245269)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bitfi-launches-seed-round-with-50-million-valuation-attracting-major-investors)
+ 
 
 
 

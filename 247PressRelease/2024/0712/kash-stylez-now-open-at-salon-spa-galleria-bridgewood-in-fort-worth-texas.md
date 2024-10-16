@@ -7,7 +7,15 @@ FORT WORTH, TX, July 12, 2024 /24-7PressRelease/ -- Kashawna Burks proudly annou
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512469/kashstylez-now-open-at-salon-spa-galleria-bridgewood-in-fort-worth-texas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-salon-kash-stylez-opens-in-fort-worth-texas/1c60bccb9e46b136c56a17d81e3fa241) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/new-hair-salon-kash-stylez-opens-in-fort-worth-offering-diverse-styling-services)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kash-stylez-opens-new-salon-in-fort-worth-s-salon-spa-galleria-bridgewood/20244901)
+
+Pickup - [advos.io](https://advos.io/en/kash-stylez-salon-opens-at-salon-spa-galleria-bridgewood-in-fort-worth-texas/20244901)
+ 
 
 
 

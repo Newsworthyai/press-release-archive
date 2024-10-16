@@ -27,7 +27,13 @@ Stay tuned for more developments from Trace Labs’ involvement in the NVIDIA In
 [Original/Source Press Release](https://blockchainwire.io/press-release/trace-labs-joins-nvidia-inception-program-to-advance-the-verifiable-internet-for-ai)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trace-labs-joins-nvidia-inception-program-to-advance-verifiable-internet-for-ai/de78deda789cd5a83071dbe44a06ea10) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/trace-labs-joins-nvidia-inception-program-to-advance-verifiable-internet-for-ai)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/trace-labs-joins-nvidia-inception-program-to-advance-verifiable-internet-for-ai)
+ 
 
 
 

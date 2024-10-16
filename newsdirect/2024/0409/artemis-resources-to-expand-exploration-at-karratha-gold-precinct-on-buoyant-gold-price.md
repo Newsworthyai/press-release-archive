@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/artemis-resou
 [Original/Source Press Release](https://newsdirect.com/news/artemis-resources-to-expand-exploration-at-karratha-gold-precinct-on-buoyant-gold-price-632653259)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/artemis-resources-to-expand-exploration-at-karratha-gold-precinct-on-buoyant-gold-price/6beb3b12c4aee9f0a662f408fad2d589) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/artemis-resources-gears-up-for-expanded-exploration-at-karratha-gold-precinct)
+ 
 
 
 

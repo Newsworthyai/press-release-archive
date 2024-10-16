@@ -7,7 +7,9 @@ BRISBANE, AUSTRALIA, October 14, 2024 /24-7PressRelease/ -- Held at the vibrant 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515226/unforgettable-finale-the-shincheonji-jeonju-evangelism-seminar)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-church-of-jesus-hosts-vibrant-finale-in-south-korea/cfbe9b73d55d0c5c4ae16a197d8fd970) 
+
+ 
 
 
 

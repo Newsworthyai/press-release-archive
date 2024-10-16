@@ -39,7 +39,21 @@ Twitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Teleg
 [Original/Source Press Release](https://blockchainwire.io/press-release/gaui-empowering-liquidity-and-stability-in-the-gaugecash-defi-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gaugecash-introduces-gaui-token-to-enhance-ecosystem-stability/463c421ecaa7393e1c5f4f7609e3c78d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/gaui-token-launches-to-bolster-gaugecash-defi-ecosystem)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gaui-empowering-liquidity-and-stability-in-the-gaugecash-defi-ecosystem/20245332)
+
+Pickup - [advos.io](https://advos.io/en/gaui-token-enhances-liquidity-and-stability-in-gaugecash-defi-ecosystem/20245332)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gaugecash-introduces-gaui-token-to-enhance-ecosystem-stability)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gaugecash-introduces-gaui-token-to-enhance-ecosystem-stability)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/gaugecash-introduces-gaui-token-to-enhance-defi-ecosystem-stability)
+ 
 
 
 

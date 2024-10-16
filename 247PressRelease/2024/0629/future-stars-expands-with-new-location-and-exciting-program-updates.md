@@ -7,7 +7,13 @@ LONG ISLAND, NY, June 29, 2024 /24-7PressRelease/ -- Future Stars Summer Camps, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512131/future-stars-expands-with-new-location-and-exciting-program-updates)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/future-stars-summer-camps-adds-new-location-for-summer-2024/21d200a5d1fa3a77bcb71b80c27ab4af) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/future-stars-summer-camps-unveil-new-selden-location-and-program-enhancements/20244594)
+
+Pickup - [advos.io](https://advos.io/en/future-stars-summer-camps-expands-with-new-selden-location-and-program-enhancements/20244594)
+ 
 
 
 

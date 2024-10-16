@@ -67,7 +67,11 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/top-10-crypto-trends-for-2024-alpha-sigma-capitals-predictions-for-whats-next-in-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alpha-sigma-capital-research-releases-2023-2024-annual-report-and-top-10-crypto-trends/f393d3e22ab663c6a635542bfd164d0d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/18/alpha-sigma-capital-unveils-top-10-crypto-trends-for-2024)
+ 
 
 
 

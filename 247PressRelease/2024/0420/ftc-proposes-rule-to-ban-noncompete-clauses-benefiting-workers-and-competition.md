@@ -7,7 +7,9 @@ MEMPHIS, TN, April 20, 2024 /24-7PressRelease/ -- The Federal Trade Commission (
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510215/ftc-proposes-rule-to-ban-noncompete-clauses-benefiting-workers-and-competition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ftc-proposes-ban-on-non-compete-clauses-to-promote-worker-rights-and-competition/eea298a19db23c3203babcfed9fd4711) 
+
+ 
 
 
 

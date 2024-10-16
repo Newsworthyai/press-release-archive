@@ -21,7 +21,11 @@ For additional information about[NOWPayments](https://nowpayments.io/?utm_source
 [Original/Source Press Release](https://blockchainwire.io/press-release/nowpayments-reveals-the-dynamics-in-stablecoin-use-in-its-crypto-payment-gateway)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nowpayments-study-reveals-trends-in-stablecoin-usage/587e5c60c8d2d2f5331fa5a35e5a4b60) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/nowpayments-unveils-stablecoin-usage-trends-in-crypto-payment-gateway)
+ 
 
 
 

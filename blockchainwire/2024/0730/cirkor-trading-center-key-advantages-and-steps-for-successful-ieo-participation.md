@@ -39,7 +39,21 @@ Note: IEOs can sell out rapidly, so it's crucial to act quickly once the IEO sta
 [Original/Source Press Release](https://blockchainwire.io/press-release/cirkor-trading-center-key-advantages-and-steps-for-successful-ieo-participation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ieos-advantages-and-how-to-participate/afc00744b7d3ad3d81eaa7bc2fcc4008) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/cirkor-trading-center-highlights-key-advantages-and-steps-for-ieo-participation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cirkor-trading-center-highlights-key-advantages-and-steps-for-successful-ieo-participation/20245347)
+
+Pickup - [advos.io](https://advos.io/en/cirkor-trading-center-highlights-key-advantages-and-steps-for-successful-ieo-participation/20245347)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ieos-advantages-and-how-to-participate)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ieos-advantages-and-how-to-participate)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cirkor-trading-center-highlights-benefits-and-process-of-initial-exchange-offerings)
+ 
 
  
 

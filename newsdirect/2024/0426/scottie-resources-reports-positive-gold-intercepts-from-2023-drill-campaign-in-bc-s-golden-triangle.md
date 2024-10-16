@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/scottie-resou
 [Original/Source Press Release](https://newsdirect.com/news/scottie-resources-reports-positive-gold-intercepts-from-2023-drill-campaign-in-bcs-golden-triangle-121259527)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scottie-resources-reports-positive-gold-intercepts-in-bc-s-golden-triangle/e3dfbaa4e8a34168e7ea1d93517a026a) 
+
+ 
 
 
 

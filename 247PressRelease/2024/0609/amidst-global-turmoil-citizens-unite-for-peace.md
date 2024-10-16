@@ -7,7 +7,11 @@ NEW YORK, NY, June 09, 2024 /24-7PressRelease/ -- As conflicts erupt worldwide t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511553/amidst-global-turmoil-citizens-unite-for-peace)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-citizens-unite-for-peace-at-hwpl-s-11th-annual-commemoration/c4cf7df53d9771d393047267dc799252) 
+
+
+Pickup - [advos.io](https://advos.io/en/global-citizens-unite-for-peace-at-hwpl-s-11th-annual-commemoration-event/20243960)
+ 
 
 
 

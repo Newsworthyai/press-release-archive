@@ -25,7 +25,9 @@ BEK emphasizes its fast, friendly, local service experience and a broad portfoli
 [Original/Source Press Release](https://newsworthy.ai/news/202404301155/bek-introduces-bek-smartbiz-a-game-changing-solution-for-small-businesses-to-elevate-connectivity-and-productivity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bek-communications-cooperative-launches-bek-smartbiz-for-small-businesses/e39d8cf2c2c5a8dbc0e9916126a0b3fa) 
+
+ 
 
 
 

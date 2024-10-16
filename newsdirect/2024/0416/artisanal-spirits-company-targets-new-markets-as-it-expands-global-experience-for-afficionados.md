@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/artisanal-spi
 [Original/Source Press Release](https://newsdirect.com/news/artisanal-spirits-company-targets-new-markets-as-it-expands-global-experience-for-afficionados-885508845)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/artisanal-spirits-company-expands-global-market-presence-with-new-acquisition/b1e9f09c46b2337838ed07e3c1b49d60) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/artisanal-spirits-company-expands-global-reach-for-whisky-enthusiasts)
+ 
 
 
 

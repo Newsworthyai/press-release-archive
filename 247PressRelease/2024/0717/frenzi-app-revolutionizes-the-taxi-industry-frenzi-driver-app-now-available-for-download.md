@@ -7,7 +7,15 @@ LEEDS, ENGLAND, July 17, 2024 /24-7PressRelease/ --   Empowering Drivers to Earn
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512573/frenzi-app-revolutionizes-the-taxi-industry-frenzi-driver-app-now-available-for-download)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/frenzi-app-revolutionizes-taxi-industry-in-the-uk-with-fair-earning-model-and-enhanced-safety-features/720167dd6c99d3525173dae00fe0b63f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/frenzi-app-launches-driver-platform-set-to-transform-uk-taxi-industry)
+
+Pickup - [fishervista.com](https://fishervista.com/en/frenzi-app-launches-driver-centric-platform-to-transform-uk-taxi-industry/20245010)
+
+Pickup - [advos.io](https://advos.io/en/frenzi-app-launches-to-revolutionize-the-uk-taxi-industry/20245010)
+ 
 
 
 

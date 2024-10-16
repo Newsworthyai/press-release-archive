@@ -51,7 +51,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/super-league-
 [Original/Source Press Release](https://newsdirect.com/news/super-league-enterprise-nasdaq-sle-q4-and-fy2023-earnings-record-quarterly-revenues-achieved-annual-net-loss-narrowed-620565322)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/super-league-enterprise-achieves-record-revenues-in-q4-and-fy2023/caec14230c1c7e392a4da643a9678251) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/super-league-enterprise-nasdaq-sle-q4-and-fy2023-earnings-record-quarterly-revenues-achieved-annual-net-loss-narrowed)
+ 
 
 
 

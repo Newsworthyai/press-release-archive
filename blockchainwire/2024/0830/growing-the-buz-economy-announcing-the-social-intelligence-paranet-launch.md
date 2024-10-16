@@ -29,7 +29,21 @@ The traditional wisdom of the crowds concept eliminates idiosyncratic noise asso
 [Original/Source Press Release](https://blockchainwire.io/press-release/growing-the-buz-economy-announcing-the-social-intelligence-paranet-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lunarcrush-and-origintrail-launch-social-intelligence-paranet/4fd04a3685b06f22789c7005488010ad) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/30/lunarcrush-and-origintrail-launch-social-intelligence-paranet-to-revolutionize-ai-powered-decision-making)
+
+Pickup - [fishervista.com](https://fishervista.com/en/lunarcrush-and-origintrail-launch-social-intelligence-paranet-to-revolutionize-ai-driven-insights/20246419)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/lunarcrush-and-origintrail-launch-social-intelligence-paranet-to-revolutionize-data-transparency/20246419)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/lunarcrush-and-origintrail-launch-social-intelligence-paranet)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/lunarcrush-and-origintrail-launch-social-intelligence-paranet)
+
+Pickup - [advos.io](https://advos.io/en/lunarcrush-and-origintrail-launch-social-intelligence-paranet-on-decentralized-knowledge-graph/20246419)
+ 
 
 
 

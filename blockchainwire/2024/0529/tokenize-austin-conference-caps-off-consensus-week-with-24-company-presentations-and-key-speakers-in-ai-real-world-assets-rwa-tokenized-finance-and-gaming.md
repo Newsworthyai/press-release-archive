@@ -26,7 +26,13 @@ Disclaimer: Tokenize! is being presented as part of Consensus Week side events a
 [Original/Source Press Release](https://blockchainwire.io/press-release/tokenize-austin-conference-caps-off-consensus-week-with-24-company-presentations-and-key-speakers-in-ai-real-world-assets-rwa-tokenized-finance-and-gaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tokenize-austin-leading-crypto-entrepreneurs-and-investors-gather-for-two-day-conference/44fe76c436f4cc85276cef690a63c73a) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tokenize-austin-leading-crypto-entrepreneurs-and-investors-gather-for-two-day-conference)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tokenize-austin-leading-crypto-entrepreneurs-and-investors-gather-for-two-day-conference)
+ 
 
 
 

@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ballymore-res
 [Original/Source Press Release](https://newsdirect.com/news/ballymore-resources-unveils-promising-results-from-dittmer-gold-project-in-queensland-843062478)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ballymore-resources-unveils-promising-results-from-dittmer-gold-project-in-queensland/874b7e10918ebf31296a685f9ed1561d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/ballymore-resources-unveils-promising-results-from-dittmer-gold-project-in-queensland)
+ 
 
 
 

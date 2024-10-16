@@ -71,7 +71,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/generation-sh
 [Original/Source Press Release](https://newsdirect.com/news/generation-shift-why-millennials-and-gen-z-might-ditch-old-school-investment-firms-830856126)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/millennials-and-gen-z-set-to-ditch-traditional-wealth-management-firms/e9957368db754f8e78acf806956dda12) 
+
+ 
 
 
 

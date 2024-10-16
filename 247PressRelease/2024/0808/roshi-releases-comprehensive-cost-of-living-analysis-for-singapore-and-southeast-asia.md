@@ -7,7 +7,17 @@ SINGAPORE, August 08, 2024 /24-7PressRelease/ -- Key findings highlight Singapor
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513206/roshi-releases-comprehensive-cost-of-living-analysis-for-singapore-and-southeast-asia)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/singapore-s-cost-of-living-index-revealed-roshi-founder-comments/6b8e60a2109c3fa1e3005cb66c955d4d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/roshi-s-analysis-reveals-singapore-as-southeast-asia-s-most-expensive-country/20245564)
+
+Pickup - [advos.io](https://advos.io/en/roshi-analyzes-cost-of-living-in-singapore-and-southeast-asia/20245564)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/singapore-tops-southeast-asia-in-cost-of-living-roshi-report-reveals/20245564)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/singapore-tops-southeast-asia-in-cost-of-living-roshi-report-reveals)
+ 
 
 
 

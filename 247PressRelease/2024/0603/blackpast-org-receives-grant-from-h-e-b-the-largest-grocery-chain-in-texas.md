@@ -7,7 +7,11 @@ SEATTLE, WA, June 03, 2024 /24-7PressRelease/ -- BlackPast.org is proud to annou
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511373/blackpastorg-receives-grant-from-h-e-b-the-largest-grocery-chain-in-texas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blackpast-org-receives-10000-grant-from-h-e-b/b491155249b0460dddc009c250b6034d) 
+
+
+Pickup - [advos.io](https://advos.io/en/blackpast-org-receives-grant-from-h-e-b-the-largest-grocery-chain-in-texas/20243618)
+ 
 
 
 

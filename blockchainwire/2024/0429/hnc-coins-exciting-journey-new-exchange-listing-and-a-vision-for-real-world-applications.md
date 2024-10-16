@@ -13,7 +13,9 @@ After the ATH of $4,83 on July 14th 2021, and the sudden departure of the previo
 [Original/Source Press Release](https://blockchainwire.io/press-release/hnc-coins-exciting-journey-new-exchange-listing-and-a-vision-for-real-world-applications)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hnc-coin-announces-new-coinstore-exchange-listing/d69bd16721f82a5eeeb23ba191b90069) 
+
+ 
 
 
 

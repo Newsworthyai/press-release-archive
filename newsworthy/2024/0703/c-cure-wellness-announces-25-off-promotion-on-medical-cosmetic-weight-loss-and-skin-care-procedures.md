@@ -15,7 +15,9 @@ To take advantage of this limited-time offer, book an appointment by visiting ww
 [Original/Source Press Release](https://newsworthy.ai/news/202407031205/c-cure-wellness-announces-25-off-promotion-on-medical-cosmetic-weight-loss-and-skin-care-procedures)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/get-25-off-any-service-at-c-cure-wellness-in-new-city-ny/ed38aea185235631930456cf9758268a) 
+
+ 
 
 
 

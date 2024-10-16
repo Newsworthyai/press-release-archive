@@ -7,7 +7,13 @@ WEST CHESTER, PA, June 19, 2024 /24-7PressRelease/ -- With a deep understanding 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511792/carosella-lawyers-help-clients-navigate-child-custody-complexities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/carosella-associates-compassionate-guidance-in-child-custody-disputes/25d89a7c3d5721c1a53f8617e91a6339) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/carosella-associates-offers-expert-guidance-in-navigating-child-custody-disputes/20244272)
+
+Pickup - [advos.io](https://advos.io/en/carosella-associates-offer-expert-guidance-in-child-custody-disputes/20244272)
+ 
 
 
 

@@ -29,7 +29,9 @@ Explore more about this seamless integration of quality cannabis products by vis
 [Original/Source Press Release](https://newsworthy.ai/news/20231123893/lucky-lion-weed-dispensary-a-haven-for-cannabis-enthusiasts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lucky-lion-premier-recreational-cannabis-dispensary-in-portland/79a72220dd75497732ed10288ecb7ce0) 
+
+ 
 
 
 

@@ -7,7 +7,17 @@ CHICAGO, IL, August 28, 2024 /24-7PressRelease/ -- Model Act Studios is thrilled
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513844/model-act-studios-talent-asher-joins-general-hospital)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/talented-star-asher-lands-role-on-general-hospital/9a4a1a3eb1c8bd8a2140cdde02d9b467) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/model-act-studios-rising-star-asher-secures-role-on-general-hospital)
+
+Pickup - [fishervista.com](https://fishervista.com/en/model-act-studios-talent-asher-joins-general-hospital/20246316)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/model-act-studios-talent-asher-secures-role-on-general-hospital/20246316)
+
+Pickup - [advos.io](https://advos.io/en/model-act-studios-talent-asher-joins-cast-of-general-hospital/20246316)
+ 
 
 
 

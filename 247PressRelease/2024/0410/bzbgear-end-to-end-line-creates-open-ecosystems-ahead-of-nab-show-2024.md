@@ -7,7 +7,11 @@ SACRAMENTO, CA, April 10, 2024 /24-7PressRelease/ -- BZBGEAR®, a global leader 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509937/bzbgear-end-to-end-line-creates-open-ecosystems-ahead-of-nab-show-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bzbgear-r-to-showcase-complete-4k-8k-solutions-at-nab-show-2024/2707ad30dfdf5560c3faf0fd6d4038ac) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/bzbgear-unveils-complete-end-to-end-line-of-av-and-broadcasting-solutions-ahead-of-nab-show-2024)
+ 
 
 
 

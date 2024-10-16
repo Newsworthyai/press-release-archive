@@ -45,7 +45,9 @@ Tokeativity is the largest community for cannabis and plant medicine loving femi
 [Original/Source Press Release](https://newsworthy.ai/news/202406181197/groove-into-pride-with-studio-420-tokeativity-r-and-the-cannadiva-s-ultimate-70s-inspired-bash)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/studio-420-throwback-pride-brunch-celebration-by-tokeativity-r-and-the-cannadiva/d051617a44698f7ebbccd8a4d3d8f3d5) 
+
+ 
 
 
 

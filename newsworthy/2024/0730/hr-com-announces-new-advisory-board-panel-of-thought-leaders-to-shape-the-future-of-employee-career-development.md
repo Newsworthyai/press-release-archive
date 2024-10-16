@@ -50,7 +50,19 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202407301219/hr-com-announces-new-advisory-board-panel-of-thought-leaders-to-shape-the-future-of-employee-career-development)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/industry-experts-unite-for-hr-com-s-future-of-career-development-mobility-advisory-board-2024/dbaae0abb171974af44236a57bdd888d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/hr-com-unveils-expert-panel-to-guide-future-of-employee-career-development)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-com-establishes-advisory-board-to-advance-employee-career-development/20245344)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hr-com-launches-advisory-board-to-revolutionize-employee-career-development/20245344)
+
+Pickup - [advos.io](https://advos.io/en/hr-com-assembles-expert-panel-to-drive-future-of-employee-career-development/20245344)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hr-com-assembles-expert-panel-to-guide-future-of-employee-career-development)
+ 
 
 
 

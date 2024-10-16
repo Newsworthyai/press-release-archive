@@ -39,7 +39,9 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/shiba-inu-eyes-0001-amidst-supply-challenges-ethereum-targets-uptrend-with-eip-7702-furrever-token-rallies-community-with-20000-competition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-market-update-shib-eth-and-furr-show-unique-growth-potentials/fa494ff3789314f8a1eb4bd7b2cd23ba) 
+
+ 
 
 
 

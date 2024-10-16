@@ -67,7 +67,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/armed-with-it
 [Original/Source Press Release](https://newsdirect.com/news/armed-with-its-patent-portfolio-biorestorative-therapies-has-success-in-the-laboratory-and-at-the-negotiating-table-is-profitability-close-behind-695822785)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/biorestorative-therapies-sees-progress-in-clinical-trials-and-expands-into-commercialization-of-biocosmeceuticals/d748508f2e804eb37fdd64845a7a7853) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/biorestorative-therapies-advances-clinical-trials-and-expands-patent-portfolio-in-stem-cell-therapies)
+
+Pickup - [fishervista.com](https://fishervista.com/en/biorestorative-therapies-advances-in-stem-cell-research-signal-potential-market-breakthrough/20246734)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/biorestorative-therapies-reports-progress-in-stem-cell-research-and-potential-market-opportunities/20246734)
+
+Pickup - [advos.io](https://advos.io/en/biorestorative-therapies-reports-promising-advances-in-stem-cell-treatments-and-commercial-ventures/20246734)
+ 
 
 
 

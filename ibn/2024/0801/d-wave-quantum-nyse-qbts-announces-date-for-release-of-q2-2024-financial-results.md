@@ -31,7 +31,9 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-quantum-nyse-qbts-announces-date-for-release-of-q2-2024-financial-results/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-inc-set-to-release-q2-2024-financial-results-and-host-conference-call-on-august-8-2024/84ac99426567c8899f5ef17e230f8d7b) 
+
+ 
 
 
 

@@ -7,7 +7,11 @@ ALBANY, NY, June 11, 2024 /24-7PressRelease/ -- FabTech Software is celebrating 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511559/fabtech-software-launches-its-2024-annual-summer-sale-on-5th-june-offers-exciting-deals-on-flagship-products-in-video-and-ai-software-industry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fabtech-software-anniversary-sale-huge-discounts-on-video-converter-and-ai-powered-products/125e18eff03ea8658043710aa1a7cc8e) 
+
+
+Pickup - [advos.io](https://advos.io/en/fabtech-software-launches-exciting-summer-sale-with-major-discounts-on-ai-and-video-products/20244021)
+ 
 
 
 

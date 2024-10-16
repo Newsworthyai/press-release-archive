@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/light-science
 [Original/Source Press Release](https://newsdirect.com/news/light-science-technologies-secures-first-distribution-agreement-with-south-africas-agrilogiq-259900043)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/light-science-technologies-secures-first-distribution-agreement-with-south-africa-s-agrilogiq/376e68f4ee7fd42e1c19f7a8a30ca7f1) 
+
+ 
 
 
 

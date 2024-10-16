@@ -63,7 +63,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/where-wolf-leading-the-gamefi-nfts-and-space-themed-gaming-adventure-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/intense-battle-of-life-and-death-in-new-play-to-earn-game-where-wolf/f22276e406a1b769fae5d8ac254621a4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/12/space-alpacas-battle-werewolf-in-thrilling-gamefi-adventure)
+ 
 
 
 

@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/smc-announces
 [Original/Source Press Release](https://newsdirect.com/news/smc-announces-loi-to-acquire-chaintrade-ltd-805311841)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/smc-enters-loi-to-acquire-ai-fintech-company-chaintrade-ltd/25f73982a4f2f28c1ace355ba5af306b) 
+
+ 
 
 
 

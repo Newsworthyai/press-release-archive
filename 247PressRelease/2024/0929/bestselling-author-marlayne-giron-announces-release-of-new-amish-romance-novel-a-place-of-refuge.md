@@ -7,7 +7,9 @@ WILMINGTON, NC, September 29, 2024 /24-7PressRelease/ -- Bestselling author Marl
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514792/bestselling-author-marlayne-giron-announces-release-of-new-amish-romance-novel-a-place-of-refuge)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-marlayne-giron-releases-new-amish-romance-novel-a-place-of-refuge/2d51bd5825563b370733075655f35fc0) 
+
+ 
 
 
 

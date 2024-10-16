@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/noblemarriage
 [Original/Source Press Release](https://newsdirect.com/news/noblemarriage-launches-advanced-matrimonial-app-for-muslims-seeking-life-partners-105236603)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/noblemarriage-launches-advanced-matrimonial-app-for-muslims-seeking-life-partners/a50070370b8e8f2169a3f9aeece8ef5a) 
+
+
+Pickup - [advos.io](https://advos.io/en/noblemarriage-launches-advanced-matrimonial-app-for-muslims-seeking-life-partners/20243626)
+ 
 
 
 

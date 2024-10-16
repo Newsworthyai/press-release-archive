@@ -7,7 +7,13 @@ FREMONT, CA, June 27, 2024 /24-7PressRelease/ -- Learn And Play® Montessori Sch
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512072/learn-and-play-montessori-school-announces-updated-daycare-program-content-and-expansion-to-new-campuses)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/learn-and-play-r-montessori-expands-daycare-program-to-new-campuses-in-the-bay-area/2161cde895673847932d016d3385e43d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/learn-and-play-r-montessori-school-expands-daycare-program-to-new-campuses-in-milpitas-and-santa-clara/20244530)
+
+Pickup - [advos.io](https://advos.io/en/learn-and-play-montessori-expands-daycare-program-and-opens-new-campuses-in-milpitas-and-santa-clara/20244530)
+ 
 
 
 

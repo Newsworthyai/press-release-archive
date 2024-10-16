@@ -7,7 +7,11 @@ ATLANTA, GA, April 05, 2024 /24-7PressRelease/ -- Dr. Ken Anderson, founder and 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509816/dr-ken-anderson-wins-international-hair-restoration-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-ken-anderson-receives-best-hair-restoration-award-at-amwc-in-monaco/b571c5ec9a7f80834547340b0e0dbbfb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/dr-ken-anderson-wins-prestigious-global-hair-restoration-award)
+ 
 
 
 

@@ -41,7 +41,15 @@ Disclaimer: The artist Banksy is not officially involved and has not directly en
 [Original/Source Press Release](https://blockchainwire.io/press-release/axl-finance-revolutionizing-trading-for-australian-clients-with-cutting-edge-ai)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/axl-finance-revolutionizes-trading-with-unique-ai-development-platform/2588b5c02ca0af71fa4926bb0c9c7182) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/19/axl-finance-introduces-ai-powered-trading-platform-for-australian-clients)
+
+Pickup - [fishervista.com](https://fishervista.com/en/axl-finance-transforms-australian-trading-with-advanced-ai-platform/20245123)
+
+Pickup - [advos.io](https://advos.io/en/axl-finance-transforms-australian-trading-with-advanced-ai-platform/20245123)
+ 
 
 
 

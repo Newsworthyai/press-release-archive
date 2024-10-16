@@ -7,7 +7,11 @@ NEW YORK, NY, April 24, 2024 /24-7PressRelease/ -- No more turning handles to gr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510277/convenient-features-with-simple-design-barrier-free-push-pull-handle-specialist-anylock-launches-2nd-new-product-line-on-kickstarter-in-the-united-states)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/anylock-introduces-barrier-free-push-pull-handle-for-safer-and-more-convenient-access/0bacd4117faa5feaa1b68789efc910dd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/convenient-features-with-simple-design-barrier-free-push-pull-handle-specialist-anylock-launches-2nd-new-product-line-on-kickstarter-in-the-united-states)
+ 
 
 
 

@@ -25,7 +25,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/spectra-syste
 [Original/Source Press Release](https://newsdirect.com/news/spectra-systems-ceo-announces-major-contract-with-central-bank-for-sensor-manufacturing-747891824)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/spectra-systems-ceo-secures-37-9m-contract-for-sensor-manufacturing/f91a479f380a84d5159e89f3e4cc8a43) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/spectra-systems-secures-39-6-million-contract-for-central-bank-sensor-manufacturing)
+
+Pickup - [fishervista.com](https://fishervista.com/en/spectra-systems-secures-37-9-million-contract-with-central-bank-for-sensor-manufacturing/20245086)
+
+Pickup - [advos.io](https://advos.io/en/spectra-systems-secures-39-6-million-contract-with-central-bank-for-sensor-manufacturing/20245086)
+ 
 
 
 

@@ -25,7 +25,17 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-subsidiary-achieves-important-accomplishment-with-carb-certification/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bollinger-motors-receives-carb-certification-for-b4-all-electric-truck/504856a66007ca862de01f69b4bfc4d4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/mullen-s-subsidiary-bollinger-motors-secures-carb-certification-for-b4-electric-truck)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mullen-subsidiary-bollinger-motors-achieves-carb-certification-for-b4-electric-truck/20246668)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bollinger-motors-secures-carb-certification-for-b4-electric-truck-paving-way-for-incentives-and-market-expansion/20246668)
+
+Pickup - [advos.io](https://advos.io/en/mullen-subsidiary-bollinger-motors-achieves-carb-certification-for-b4-electric-truck/20246668)
+ 
 
 
 

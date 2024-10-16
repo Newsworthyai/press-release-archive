@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/surge-copper-
 [Original/Source Press Release](https://newsdirect.com/news/surge-copper-outlines-technical-work-program-to-help-support-pre-feasibility-at-berg-project-259433037)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/surge-copper-ceo-discusses-strategic-plans-for-berg-project-with-proactive/6c8c5fc339f621fc1b45941c0ec186e2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/surge-copper-announces-technical-work-program-for-berg-project-pre-feasibility-study)
+ 
 
 
 

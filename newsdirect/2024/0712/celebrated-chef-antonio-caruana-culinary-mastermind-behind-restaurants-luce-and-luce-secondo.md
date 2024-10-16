@@ -35,7 +35,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/celebrated-ch
 [Original/Source Press Release](https://newsdirect.com/news/celebrated-chef-antonio-caruana-culinary-mastermind-behind-restaurants-luce-and-luce-secondo-240510614)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chef-antonio-caruana-named-best-chef-by-coastal-virginia-magazine/71ca11ccf92283b3b2f18cf5491598e7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/chef-antonio-caruana-named-best-chef-in-coastal-virginia-elevating-italian-cuisine)
+
+Pickup - [fishervista.com](https://fishervista.com/en/chef-antonio-caruana-named-best-chef-by-coastal-virginia-magazine/20244930)
+
+Pickup - [advos.io](https://advos.io/en/chef-antonio-caruana-named-best-chef-by-coastal-virginia-magazine/20244930)
+ 
 
 
 

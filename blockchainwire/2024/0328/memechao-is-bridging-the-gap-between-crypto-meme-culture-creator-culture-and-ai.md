@@ -9,7 +9,11 @@ At the heart of Memechao'
 [Original/Source Press Release](https://blockchainwire.io/press-release/memechao-is-bridging-the-gap-between-crypto-meme-culture-creator-culture-and-ai)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/memechao-revolutionizing-meme-coins-and-blockchain-technology/103ca6cb737a37a88b09a68fca3e05b1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/memechao-where-crypto-memes-and-ai-converge)
+ 
 
 
 

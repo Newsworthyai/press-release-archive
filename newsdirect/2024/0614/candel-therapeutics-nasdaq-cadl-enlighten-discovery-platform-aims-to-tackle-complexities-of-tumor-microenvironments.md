@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/candel-therap
 [Original/Source Press Release](https://newsdirect.com/news/candel-therapeutics-nasdaq-cadl-enlighten-discovery-platform-aims-to-tackle-complexities-of-tumor-microenvironments-800566721)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/candel-therapeutics-enlighten-discovery-platform-aims-to-tackle-complexities-of-tumor-microenvironments/4578d805ad7d512bb5a610698242cdc2) 
+
+
+Pickup - [advos.io](https://advos.io/en/candel-therapeutics-enlighten-discovery-platform-a-novel-approach-to-tackle-tumor-microenvironments/20244157)
+ 
 
 
 

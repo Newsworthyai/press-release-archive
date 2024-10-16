@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/is-gamificati
 [Original/Source Press Release](https://newsdirect.com/news/is-gamification-the-future-of-advertising-heres-how-one-company-is-shaking-up-the-industry-840289131)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/overplay-revolutionizes-advertising-with-gamification/746006609f321bc91fc90b7c109e5e04) 
+
+ 
 
 
 

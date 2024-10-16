@@ -47,7 +47,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/sky-quarry-in
 [Original/Source Press Release](https://newsdirect.com/news/sky-quarry-inc-announces-commencement-of-reg-a-offering-659813583)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sky-quarry-inc-launches-reg-a-offering-for-sustainable-energy-solutions/4cc595059c2a47dcb6111258eff5e112) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/sky-quarry-inc-launches-reg-a-offering-eyes-nasdaq-listing-with-innovative-waste-to-energy-solutions)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/sky-quarry-inc-launches-regulation-a-offering-eyes-nasdaq-listing/20245622)
+
+Pickup - [advos.io](https://advos.io/en/sky-quarry-inc-launches-reg-a-offering-ahead-of-nasdaq-listing/20245622)
+
+Pickup - [fishervista.com](https://fishervista.com/en/sky-quarry-inc-launches-regulation-a-offering-ahead-of-nasdaq-listing/20245622)
+ 
 
 
 

@@ -37,7 +37,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/finserv-found
 [Original/Source Press Release](https://newsdirect.com/news/finserv-foundation-welcomes-two-distinguished-leaders-to-its-board-of-directors-743047608)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/finserv-foundation-appoints-esteemed-leaders-to-board-of-directors/b3ebda1ee97fff9fee9c9fa2aff11b40) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/finserv-foundation-appoints-bonnie-m-treichel-and-dr-david-rhoiney-to-board-of-directors/20244833)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/finserv-foundation-expands-board-with-two-influential-leaders-in-financial-services)
+
+Pickup - [advos.io](https://advos.io/en/finserv-foundation-welcomes-two-distinguished-leaders-to-its-board-of-directors/20244833)
+ 
 
 
 

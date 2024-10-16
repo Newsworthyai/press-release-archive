@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/tharisa-plc-c
 [Original/Source Press Release](https://newsdirect.com/news/tharisa-plc-ceo-discusses-solid-q2-performance-and-innovative-energy-storage-solution-332273819)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tharisa-plc-ceo-discusses-solid-q2-performance-and-innovative-energy-storage-solution/7004d5934a79c851f01074afdae576ab) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/tharisa-plc-ceo-discusses-solid-q2-performance-and-innovative-energy-storage-solution)
+ 
 
 
 

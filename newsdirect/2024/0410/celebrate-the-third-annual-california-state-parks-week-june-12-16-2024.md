@@ -118,7 +118,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/celebrate-the
 [Original/Source Press Release](https://newsdirect.com/news/celebrate-the-third-annual-california-state-parks-week-june-12-16-2024-206015260)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/celebrate-the-third-annual-california-state-parks-week-june-12-16-2024/b4b5a2ab056be51c239f2d59cfe7e167) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/annual-california-state-parks-week-celebrates-nature-and-community)
+ 
 
 
 

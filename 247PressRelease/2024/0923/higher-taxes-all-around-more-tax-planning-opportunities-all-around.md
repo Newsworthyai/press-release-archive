@@ -7,7 +7,9 @@ VANCOUVER, BC, September 23, 2024 /24-7PressRelease/ -- Canadian taxpayers—tak
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514562/higher-taxes-all-around-more-tax-planning-opportunities-all-around)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/2024-federal-budget-brings-changes-to-capital-gains-taxation-in-canada/c4f48ff4144cf4d01773e31b548e80d4) 
+
+ 
 
 
 

@@ -79,7 +79,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/air-new-zeala
 [Original/Source Press Release](https://newsdirect.com/news/air-new-zealands-electric-flight-initiative-prepares-for-takeoff-156368311)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/air-new-zealand-and-surf-air-mobility-inc-pioneering-electric-aviation/c518783286f30d1944e6efee1e0f3801) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/air-new-zealand-s-electric-flight-initiative-prepares-for-takeoff)
+ 
 
 
 

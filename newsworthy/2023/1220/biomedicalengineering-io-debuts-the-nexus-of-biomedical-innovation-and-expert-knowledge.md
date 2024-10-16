@@ -23,7 +23,11 @@ Embark on a journey of discovery and innovation at www.BiomedicalEngineering.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231220782/biomedicalengineering-io-debuts-the-nexus-of-biomedical-innovation-and-expert-knowledge)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-platform-biomedicalengineering-io-revolutionizes-access-to-expert-insights-in-biomedical-engineering/79c9c70c8d11a4b1a5379afec86d9407) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/20/biomedicalengineering-io-emerges-as-premier-hub-for-biomedical-innovation)
+ 
 
 
 

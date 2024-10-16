@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kangamoon-kan
 [Original/Source Press Release](https://newsdirect.com/news/kangamoon-kang-surpasses-3-7m-milestone-myro-surges-34-can-pepefork-keep-up-699508286)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/myro-myro-surges-34-and-kangamoon-kang-raises-3-7m-what-about-pepefork-pork/d0a5886ee3e44019958fa6ab4775c942) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/kangamoon-presale-surges-past-3-7m-as-myro-soars-34)
+ 
 
 
 

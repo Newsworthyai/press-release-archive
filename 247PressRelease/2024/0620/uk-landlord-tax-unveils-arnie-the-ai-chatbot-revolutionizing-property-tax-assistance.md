@@ -7,7 +7,13 @@ WOLVERHAMPTON, ENGLAND, June 20, 2024 /24-7PressRelease/ -- As the first of its 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511833/uk-landlord-tax-unveils-arnie-the-ai-chatbot-revolutionizing-property-tax-assistance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arnie-ai-tool-revolutionizes-property-tax-management/7e2130a70af3b5da66fb7bddbf769fea) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/uk-landlord-tax-introduces-arnie-ai-chatbot-to-transform-property-tax-assistance/20244295)
+
+Pickup - [advos.io](https://advos.io/en/uk-landlord-tax-introduces-arnie-ai-chatbot-for-property-tax-assistance/20244295)
+ 
 
 
 

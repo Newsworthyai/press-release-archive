@@ -27,7 +27,11 @@ Media Contact:David HaefeleFortyThree, Inc.advokate@43pr.com831.888.9011
 [Original/Source Press Release](https://newsworthy.ai/news/20231214908/hello-kitty-seven-wonders-unveils-joyful-christmas-special-in-metagaia-metaverse)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metagaia-and-sanrio-hong-kong-launch-limited-time-christmas-special-in-hello-kitty-seven-wonders-metaverse/dcc7bcc5c0b674391fca0fdeb9079620) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/14/hello-kitty-seven-wonders-spreads-holiday-cheer-with-festive-metaverse-experience)
+ 
 
 
 

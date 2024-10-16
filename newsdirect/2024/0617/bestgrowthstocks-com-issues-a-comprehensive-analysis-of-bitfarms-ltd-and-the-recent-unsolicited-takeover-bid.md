@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bestgrowthsto
 [Original/Source Press Release](https://newsdirect.com/news/bestgrowthstocks-com-issues-a-comprehensive-analysis-of-bitfarms-ltd-and-the-recent-unsolicited-takeover-bid-167661780)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/best-growth-stocks-issues-comprehensive-analysis-of-bitfarms-ltd-and-recent-takeover-bid/5ff26c8bff870e004d092128c921a652) 
+
+
+Pickup - [advos.io](https://advos.io/en/bestgrowthstocks-com-offers-comprehensive-analysis-of-bitfarms-ltd-amid-unsolicited-takeover-bid/20244193)
+ 
 
 
 

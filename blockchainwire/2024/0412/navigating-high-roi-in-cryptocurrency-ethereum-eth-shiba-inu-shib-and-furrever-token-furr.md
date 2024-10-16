@@ -41,7 +41,11 @@ Media Contact: Robert Smith support(at)furrevertoken.com [https://furrevertoken.
 [Original/Source Press Release](https://blockchainwire.io/press-release/navigating-high-roi-in-cryptocurrency-ethereum-eth-shiba-inu-shib-and-furrever-token-furr)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-market-update-eth-and-shib-face-challenges-furr-surpasses-fundraising-goals/23d662775a51606b5ad33daa6881e9a9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/navigating-high-roi-in-cryptocurrency-ethereum-eth-shiba-inu-shib-and-furrever-token-furr)
+ 
 
 
 

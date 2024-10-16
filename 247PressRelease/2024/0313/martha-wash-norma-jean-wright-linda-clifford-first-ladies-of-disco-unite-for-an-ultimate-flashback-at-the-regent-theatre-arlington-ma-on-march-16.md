@@ -7,7 +7,11 @@ NEW YORK, NY, March 13, 2024 /24-7PressRelease/ -- Two-time Grammy nominee Marth
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509193/martha-wash-norma-jean-wright-linda-clifford-first-ladies-of-disco-unite-for-an-ultimate-flashback-at-the-regent-theatre-arlington-ma-on-march-16)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/first-ladies-of-disco-the-ultimate-flashback-experience/2e4084c05b0bc265f61cb56e035a8bbe) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/13/disco-legends-unite-for-unforgettable-flashback-experience)
+ 
 
 
 

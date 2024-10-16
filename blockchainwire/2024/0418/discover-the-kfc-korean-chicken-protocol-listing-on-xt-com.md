@@ -53,7 +53,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-kfc-korean-chicken-protocol-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-kfc-token-for-korean-chicken-protocol-on-socially-infused-trading-platform/a6faba7672aae605300f9b91fec17890) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/discover-the-kfc-korean-chicken-protocol-listing-on-xt-com)
+ 
 
 
 

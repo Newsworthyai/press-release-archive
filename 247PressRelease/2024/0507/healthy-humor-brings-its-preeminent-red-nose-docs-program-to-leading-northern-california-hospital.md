@@ -7,7 +7,9 @@ NEW YORK, NY, May 07, 2024 /24-7PressRelease/ -- Healthy Humor (HH), a national,
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510698/healthy-humor-brings-its-preeminent-red-nose-docs-program-to-leading-northern-california-hospital)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/healthy-humor-announces-collaboration-with-lucile-packard-children-s-hospital-stanford/38ceaa3baaf279b474448dbd598f95e0) 
+
+ 
 
 
 

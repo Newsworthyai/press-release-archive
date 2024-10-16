@@ -7,7 +7,13 @@ DUBUQUE, IA, June 24, 2024 /24-7PressRelease/ -- Esteemed author Dan Avenarius i
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511937/new-book-by-renowned-author-dan-avenarius-tackles-racism-justice-and-religion-in-america)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-author-dan-avenarius-releases-compelling-new-book-on-racial-injustice/5265327faf9811b0f921b2493533f2be) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dan-avenarius-releases-provocative-new-book-on-racism-justice-and-religion-in-america/20244404)
+
+Pickup - [advos.io](https://advos.io/en/dan-avenarius-releases-new-book-on-racism-justice-and-religion-in-america/20244404)
+ 
 
 
 

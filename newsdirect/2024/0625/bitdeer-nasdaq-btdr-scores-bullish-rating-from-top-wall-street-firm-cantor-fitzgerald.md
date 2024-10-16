@@ -53,7 +53,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitdeer-nasda
 [Original/Source Press Release](https://newsdirect.com/news/bitdeer-nasdaq-btdr-scores-bullish-rating-from-top-wall-street-firm-cantor-fitzgerald-519044951)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitdeer-on-the-precipice-of-a-breakout/798c48d6f35069cdab576eb9c31b5045) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitdeer-receives-strong-endorsement-from-cantor-fitzgerald-shares-surge/20244457)
+
+Pickup - [advos.io](https://advos.io/en/bitdeer-gains-bullish-rating-from-cantor-fitzgerald-sees-significant-stock-surge/20244457)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitdeer-on-the-precipice-of-a-breakout)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitdeer-on-the-precipice-of-a-breakout)
+ 
 
 
 

@@ -50,7 +50,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-introduces-customizable-crypto-trading-plans-tailoring-solutions-to-every-investors-needs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-unveils-customizable-crypto-investment-plans-with-advanced-technology/5d9aca3bc99e2d7b38dd6adc3054339a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/26/defiquant-unveils-customizable-crypto-trading-plans-with-ai-powered-tools)
+ 
 
 
 

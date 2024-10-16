@@ -29,7 +29,21 @@ Join our community: Telegram Discord
 [Original/Source Press Release](https://blockchainwire.io/press-release/metawin-celebrates-major-wins-and-launches-250000-usdc-summer-sizzler-competition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metawin-announces-250000-usdc-summer-sizzler-competition/9dfa1cf75fd6006cec042e5a6482eba2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/metawin-launches-250000-usdc-summer-sizzler-competition-amid-major-achievements)
+
+Pickup - [fishervista.com](https://fishervista.com/en/metawin-launches-250000-usdc-summer-sizzler-competition-amid-major-achievements/20245600)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/metawin-launches-250000-usdc-summer-sizzler-competition-amid-major-achievements/20245600)
+
+Pickup - [advos.io](https://advos.io/en/metawin-launches-250000-usdc-summer-sizzler-amidst-major-milestones/20245600)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/metawin-announces-250000-usdc-summer-sizzler-competition)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/metawin-announces-250000-usdc-summer-sizzler-competition)
+ 
 
 
 

@@ -7,7 +7,11 @@ TAMPA, FL, March 28, 2024 /24-7PressRelease/ -- Kimberly Boone PhD launched her 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509630/kimberly-boone-phds-book-i-am-unique-not-weird-becomes-a-best-seller)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-best-seller-i-am-unique-not-weird-inspires-embracing-uniqueness/f98de3dfc8e57ba602131c9baab271c9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/kimberly-boone-s-children-s-book-i-am-unique-not-weird-celebrates-individuality)
+ 
 
 
 

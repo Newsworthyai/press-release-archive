@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/northstar-gol
 [Original/Source Press Release](https://newsdirect.com/news/northstar-gold-corp-signs-letter-of-intent-for-philip-property-acquisition-305004661)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/northstar-gold-corp-signs-letter-of-intent-for-philip-property-acquisition/2d6e65740bff08863c2766630030a8f9) 
+
+ 
 
 
 

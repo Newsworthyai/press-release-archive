@@ -7,7 +7,9 @@ EDMONTON, AB, June 05, 2024 /24-7PressRelease/ -- Insight Works, a leader in pro
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511222/boosting-business-central-capabilities-optimizing-order-fulfillment-in-supply-chain-operations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/insight-works-order-fulfillment-worksheet-app-revolutionizes-business-central/99889121657d9a8d4f7a515316b8a775) 
+
+ 
 
 
 

@@ -7,7 +7,17 @@ LOS ANGELES, CA, August 30, 2024 /24-7PressRelease/ -- As the educational landsc
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513921/edyouthe-trusted-ally-empowering-teachers-and-transforming-modern-education)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/edyou-transforming-education-with-innovative-tools-and-research-backed-strategies/1d2733234b6c9d1ffbed5630992954d1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/30/edyou-revolutionizes-education-with-innovative-tools-and-support-for-teachers)
+
+Pickup - [fishervista.com](https://fishervista.com/en/edyou-empowers-educators-and-enhances-modern-education/20246394)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/edyou-revolutionizes-education-with-innovative-tools-and-support-for-teachers/20246394)
+
+Pickup - [advos.io](https://advos.io/en/edyou-empowers-teachers-and-transforms-modern-education/20246394)
+ 
 
 
 

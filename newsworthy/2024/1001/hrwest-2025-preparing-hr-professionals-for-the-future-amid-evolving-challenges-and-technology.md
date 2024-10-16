@@ -38,7 +38,9 @@ Contact: [hrwest@hr.com](mailto:hrwest@hr.com) [HR.com Newsroom](https://www.hr.
 [Original/Source Press Release](https://newsworthy.ai/news/202410011293/hrwest-2025-preparing-hr-professionals-for-the-future-amid-evolving-challenges-and-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-unveils-hrwest-2025-conference-for-hr-professionals/30a398450359d94f76d83dfff5328ec8) 
+
+ 
 
 
 

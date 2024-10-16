@@ -25,7 +25,9 @@ Contract Address: DJrEMstYCgyXEx8dUvNCRd96v29NsqsakiiXc3tbuJfkDisclaimer: The in
 [Original/Source Press Release](https://blockchainwire.io/press-release/peter-emerges-as-a-king-of-crypto-meme-coins-enhancing-community-engagement-in-crypto-meme-space)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peter-coin-the-king-of-crypto-meme-coins/56bf64a8ede3bf67029ecb1dc4aaa52a) 
+
+ 
 
 
 

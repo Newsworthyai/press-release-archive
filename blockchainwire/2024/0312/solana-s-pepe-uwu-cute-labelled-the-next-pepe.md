@@ -19,7 +19,11 @@ https://t.me/PEPEUWUCUTEhttps://twitter.com/PEPEUWUCUTE[https://pepeuwu.com/](ht
 [Original/Source Press Release](https://blockchainwire.io/press-release/solanas-pepe-uwu-cute-labelled-the-next-pepe)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pepe-uwu-cute-the-next-big-meme-coin-on-solana/b6b32ad89c23f6f57786f53d96934d81) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/the-blue-pepe-pepe-uwu-cute-emerges-as-solana-s-meme-coin-contender)
+ 
 
 
 

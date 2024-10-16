@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/cwg-markets-e
 [Original/Source Press Release](https://newsdirect.com/news/cwg-markets-emerges-as-a-standout-participant-at-the-money-expo-mexico-651817988)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cwg-markets-stands-out-at-money-expo-mexico/46cc3740e67be468fb812563a91854e4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/cwg-markets-shines-at-the-money-expo-mexico)
+ 
 
 
 

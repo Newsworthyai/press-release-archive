@@ -83,7 +83,9 @@ B2i Digital to Showcase Digital Profiles of 30+ Presenting Companies in the Heal
 [Original/Source Press Release](http://www.newmediawire.com/news/b2i-digital-confirmed-as-marketing-partner-for-the-3rd-annual-roth-healthcare-opportunities-conference-7076094)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/b2i-digital-selected-as-marketing-partner-for-roth-healthcare-opportunities-conference/24b278d959256d91b23adbcd8cb3bab6) 
+
+ 
 
 
 

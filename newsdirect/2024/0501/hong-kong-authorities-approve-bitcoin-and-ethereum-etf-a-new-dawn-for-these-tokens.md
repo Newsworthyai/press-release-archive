@@ -55,7 +55,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/hong-kong-aut
 [Original/Source Press Release](https://newsdirect.com/news/hong-kong-authorities-approve-bitcoin-and-ethereum-etf-a-new-dawn-for-these-tokens-990894943)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hong-kong-s-approval-of-bitcoin-and-ethereum-etfs-marks-new-dawn-for-tokens/ecf29527034e9687d65b9caea0e360e7) 
+
+ 
 
 
 

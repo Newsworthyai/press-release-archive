@@ -57,7 +57,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/what-do-elect
 [Original/Source Press Release](https://newsdirect.com/news/what-do-electric-vehicles-energy-storage-systems-and-electric-aircraft-have-in-common-the-argument-for-lithiums-long-term-value-496730849)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-growing-demand-for-lithium-a-strategic-positioning-for-long-term-growth/911d4ce9b753f2e4b1433352f9004e74) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/lithium-s-critical-role-in-sustainable-energy-future-across-multiple-industries)
+
+Pickup - [fishervista.com](https://fishervista.com/en/lithium-s-long-term-value-in-electric-vehicles-energy-storage-and-electric-aircraft/20245685)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/lithium-s-critical-role-in-sustainable-energy-future-across-multiple-industries/20245685)
+
+Pickup - [advos.io](https://advos.io/en/lithium-s-crucial-role-in-sustainable-energy-and-transportation/20245685)
+ 
 
 
 

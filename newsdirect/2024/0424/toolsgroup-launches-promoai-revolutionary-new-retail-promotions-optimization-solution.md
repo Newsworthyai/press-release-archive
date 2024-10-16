@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/toolsgroup-la
 [Original/Source Press Release](https://newsdirect.com/news/toolsgroup-launches-promoai-revolutionary-new-retail-promotions-optimization-solution-719436700)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/toolsgroup-launches-promoai-revolutionary-new-retail-promotions-optimization-solution/341c8188ea8d21a9ee3c19e84a624e75) 
+
+ 
 
 
 

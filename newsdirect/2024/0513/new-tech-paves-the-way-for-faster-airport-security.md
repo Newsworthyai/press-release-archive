@@ -77,7 +77,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-tech-pave
 [Original/Source Press Release](https://newsdirect.com/news/new-tech-paves-the-way-for-faster-airport-security-793973013)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-tech-paves-the-way-for-faster-airport-security/43c7780692b00271e57d91ce303a11ea) 
+
+ 
 
 
 

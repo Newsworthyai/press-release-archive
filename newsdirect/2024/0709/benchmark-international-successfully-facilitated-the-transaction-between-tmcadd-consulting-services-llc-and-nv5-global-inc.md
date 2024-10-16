@@ -35,7 +35,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-tmcadd-consulting-and-services-llc-and-nv5-global-inc-138000347)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nv5-global-inc-acquires-mybimteam-benchmark-international-facilitates-the-deal/b7f9b32f712be5ad463e02350859d994) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/nv5-global-inc-acquires-tmcadd-consulting-services-llc/20244794)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-acquisition-of-mybimteam-by-nv5-global-inc/20244794)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/nv5-global-acquires-mybimteam-expanding-digital-building-management-capabilities)
+ 
 
 
 

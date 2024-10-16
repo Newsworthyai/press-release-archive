@@ -7,7 +7,15 @@ LOS ANGELES, CA, July 05, 2024 /24-7PressRelease/ -- Casey Bloys, the current Ch
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512166/casey-bloys-secret-to-success-in-the-entertainment-industry-revealed)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hbo-ceo-casey-bloys-secret-to-success-revealed/667704920df2df652728819c7fabccd1) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/casey-bloys-networking-acumen-key-to-success-in-the-entertainment-industry/20244723)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/hbo-ceo-casey-bloys-attributes-career-success-to-networking-and-risk-taking)
+
+Pickup - [advos.io](https://advos.io/en/casey-bloys-attributes-hbo-success-to-networking-and-genuine-connections/20244723)
+ 
 
 
 

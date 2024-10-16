@@ -35,7 +35,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/pepe-20-pepe2-surges-123-following-original-pepes-2-billion-market-cap-milestone)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pepe-hits-2-billion-market-cap-milestone-pepe-2-0-gains-traction-in-crypto-space/837ac278cb5043eb2ba2948774333e34) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/04/pepe-2-0-rides-wave-of-meme-coin-revival)
+ 
 
 
 

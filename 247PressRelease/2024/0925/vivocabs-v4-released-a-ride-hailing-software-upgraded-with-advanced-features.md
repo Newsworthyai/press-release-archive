@@ -7,7 +7,9 @@ MOHALI, INDIA, September 25, 2024 /24-7PressRelease/ -- FATbit Technologies, a l
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514614/vivocabs-v4-released-a-ride-hailing-software-upgraded-with-advanced-features)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fatbit-technologies-unveils-new-features-in-vivocabs-ride-hailing-software/089d05f9785ad9e95c4dbb2a5b7044c5) 
+
+ 
 
 
 

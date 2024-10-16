@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-unit
 [Original/Source Press Release](https://newsdirect.com/news/tron-dao-unites-with-global-community-at-token2049-singapore-946665870)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tron-dao-unites-with-global-community-at-token2049-singapore/0eb9262f7e7359cf7f82b6c999ec4acf) 
+
+ 
 
 
 

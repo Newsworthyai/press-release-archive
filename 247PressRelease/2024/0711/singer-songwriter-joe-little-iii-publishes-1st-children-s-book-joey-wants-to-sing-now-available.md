@@ -7,7 +7,15 @@ LOS ANGELES, CA, July 11, 2024 /24-7PressRelease/ -- Congratulations are in orde
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512390/singer-songwriter-joe-little-iii-publishes-1st-childrens-book-joey-wants-to-sing-now-available)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-rnb-artist-joe-little-iii-writes-children-s-book-joey-wants-to-sing/57fb40b9e575763a079ae9ae1a79eadf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/11/grammy-winning-artist-joe-little-iii-releases-first-children-s-book-joey-wants-to-sing)
+
+Pickup - [advos.io](https://advos.io/en/grammy-award-winner-joe-little-iii-releases-childrens-book-joey-wants-to-sing/20244866)
+
+Pickup - [fishervista.com](https://fishervista.com/en/joe-little-iii-of-rnb-group-rude-boys-releases-debut-children-s-book-joey-wants-to-sing/20244866)
+ 
 
 
 

@@ -7,7 +7,17 @@ ST. AUGUSTINE, FL, September 09, 2024 /24-7PressRelease/ -- In the first-of-its-
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514122/cei-institute-partners-with-filene-research-institute-to-address-racial-economic-equity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/filene-and-cei-institute-launch-ree-incubator-to-address-economic-disparities/fa5391bc66ca0cb8d7e5927621f76c09) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/cei-institute-and-filene-research-institute-collaborate-to-address-racial-economic-disparities)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cei-institute-and-filene-research-institute-collaborate-to-promote-racial-economic-equity/20246613)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/credit-unions-and-community-partners-join-forces-to-address-racial-economic-disparities/20246613)
+
+Pickup - [advos.io](https://advos.io/en/cei-institute-and-filene-research-institute-collaborate-to-advance-racial-economic-equity/20246613)
+ 
 
 
 

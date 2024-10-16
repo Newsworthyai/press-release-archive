@@ -7,7 +7,11 @@ RICHMOND, MI, April 10, 2024 /24-7PressRelease/ -- Imagine going into the afterl
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509935/discover-the-path-to-redemption-in-heavens-redemption)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heaven-s-redemption-a-soul-s-journey-a-profound-novel-of-spiritual-transformation/67d69270592081eb16042bac434d9483) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/discover-the-path-to-redemption-in-heaven-s-redemption-by-d-l-render)
+ 
 
 
 

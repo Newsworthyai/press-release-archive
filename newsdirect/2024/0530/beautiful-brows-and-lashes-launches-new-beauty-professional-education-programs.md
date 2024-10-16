@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/beautiful-bro
 [Original/Source Press Release](https://newsdirect.com/news/beautiful-brows-and-lashes-launches-new-beauty-professional-education-programs-800623096)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beautiful-brows-and-lashes-launches-new-beauty-professional-education-programs/12eb85e34195eda6c0c9f45fe59e94f4) 
+
+ 
 
 
 

@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/loserball-com
 [Original/Source Press Release](https://newsdirect.com/news/loserball-com-announces-launch-of-unique-fantasy-football-game-for-casual-fans-199427756)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/loserball-com-launches-unique-fantasy-football-game/522b1de28d340599109a0b30fdcd58cf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/loserball-com-launches-innovative-fantasy-football-game-focused-on-losing)
+
+Pickup - [fishervista.com](https://fishervista.com/en/loserball-com-launches-innovative-fantasy-football-game-for-casual-fans/20246350)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/loserball-com-launches-innovative-fantasy-football-game-focused-on-losing/20246350)
+
+Pickup - [advos.io](https://advos.io/en/loserball-com-launches-innovative-fantasy-football-game-targeting-casual-fans/20246350)
+ 
 
 
 

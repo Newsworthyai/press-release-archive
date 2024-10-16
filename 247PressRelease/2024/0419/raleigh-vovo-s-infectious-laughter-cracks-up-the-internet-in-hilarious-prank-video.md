@@ -7,7 +7,9 @@ RALEIGH, NC, April 19, 2024 /24-7PressRelease/ -- A delightful prank has taken t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510203/raleigh-vovos-infectious-laughter-cracks-up-the-internet-in-hilarious-prank-video)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heartwarming-viral-video-showcases-raleigh-grandmother-s-infectious-laughter/7087e8b5bc1467a488931269c4e18a15) 
+
+ 
 
 
 

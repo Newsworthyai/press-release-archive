@@ -93,7 +93,17 @@ www.creativemanagementpartners.com
 [Original/Source Press Release](https://www.newmediawire.com/news/creative-management-partners-chaingmai-book-manuscript-screen-writing-proposals-cut-authors-cost-70-7076038)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cmp-agent-alan-morell-reaches-137th-milestone-sales-for-books-feature-film-options/3607d662061b0e426cf0c6cefe6c2fa7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/creative-management-partners-introduces-ai-powered-book-and-screenplay-development-cutting-costs-by-70)
+
+Pickup - [fishervista.com](https://fishervista.com/en/creative-management-partners-unveils-ai-driven-solution-to-cut-authors-costs-by-70/20246745)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/creative-management-partners-introduces-ai-powered-book-and-screenplay-development-service/20246745)
+
+Pickup - [advos.io](https://advos.io/en/creative-management-partners-unveils-ai-driven-chaingmai-to-revolutionize-publishing-and-screenwriting/20246745)
+ 
 
 
 

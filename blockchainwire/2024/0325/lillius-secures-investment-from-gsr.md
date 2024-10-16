@@ -17,7 +17,11 @@ GSR has over ten years of digital asset market expertise as a liquidity provider
 [Original/Source Press Release](https://blockchainwire.io/press-release/lillius-secures-investment-from-gsr)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lillius-secures-investment-from-gsr-for-ai-sports-challenge-platform/6e021be0d4c01212d7dafe7e0d889935) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/lillius-secures-investment-from-crypto-investor-gsr)
+ 
 
 
 

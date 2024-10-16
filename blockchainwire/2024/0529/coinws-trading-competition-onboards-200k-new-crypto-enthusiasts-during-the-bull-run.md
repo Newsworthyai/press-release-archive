@@ -19,7 +19,13 @@ About CoinW
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinws-trading-competition-onboards-200k-new-crypto-enthusiasts-during-the-bull-run)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-s-spring-trading-competition-drives-200-billion-in-trading-volume/9f893c9011bcc7ea198a91acc257abc7) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-s-spring-trading-competition-drives-200-billion-in-trading-volume)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-s-spring-trading-competition-drives-200-billion-in-trading-volume)
+ 
 
 
 

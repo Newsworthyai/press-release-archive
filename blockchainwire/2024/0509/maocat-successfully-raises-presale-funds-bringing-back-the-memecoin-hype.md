@@ -42,7 +42,9 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/maocat-successfully-raises-presale-funds-bringing-back-the-memecoin-hype)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/maocat-successfully-raises-over-300000-in-presale-sets-new-standards-for-memecoins/db0e18591a08f183baabf60e467ca19f) 
+
+ 
 
 
 

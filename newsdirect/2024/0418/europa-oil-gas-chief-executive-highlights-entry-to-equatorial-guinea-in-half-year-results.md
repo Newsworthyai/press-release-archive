@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/europa-oil-an
 [Original/Source Press Release](https://newsdirect.com/news/europa-oil-and-gas-chief-executive-highlights-entry-to-equatorial-guinea-in-half-year-results-689228349)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/europa-oil-gas-ceo-highlights-entry-into-equatorial-guinea-in-half-year-results/f6e4b21c992e9c411faa051c3e8390f6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/europa-oil-gas-chief-executive-highlights-entry-to-equatorial-guinea-in-half-year-results)
+ 
 
 
 

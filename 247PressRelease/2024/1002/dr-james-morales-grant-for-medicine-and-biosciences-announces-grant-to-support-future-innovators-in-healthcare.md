@@ -7,7 +7,9 @@ HOWELL, NJ, October 02, 2024 /24-7PressRelease/ -- The Dr. James Morales Grant f
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514874/dr-james-morales-grant-for-medicine-and-biosciences-announces-grant-to-support-future-innovators-in-healthcare)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-james-morales-grant-empowering-future-innovators-in-healthcare/4fae8dac31d1cf9324e51d26736253e0) 
+
+ 
 
 
 

@@ -48,7 +48,11 @@ Twitter: @PowerMetaMarket
 [Original/Source Press Release](https://blockchainwire.io/press-release/dmos-revolutionizes-decentralized-computing-landscape-with-groundbreaking-cloud-operating-system)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/power-meta-corp-unveils-dmos-a-revolutionary-cloud-operating-system/2fc399184918744820142464933a42ef) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/dmos-revolutionizes-decentralized-computing-landscape-with-groundbreaking-cloud-operating-system)
+ 
 
 
 

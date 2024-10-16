@@ -53,7 +53,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blast-hoge-token-takes-the-defi-world-by-storm-on-the-blast-network-surpasses-3m-market-cap-in-just-3-days-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blast-hoge-token-launches-on-blasterswap-dex/1e33186430d819c1fce002b3bde98ceb) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blast-hoge-token-launches-on-blasterswap-dex)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blast-hoge-token-launches-on-blasterswap-dex)
+ 
 
 
 

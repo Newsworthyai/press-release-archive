@@ -33,7 +33,17 @@ CNS Pharmaceuticals (NASDAQ: CNSP), a biopharmaceutical company specializing in 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/cns-pharmaceuticals-nasdaq-cnsp-ceo-to-be-featured-in-virtual-investor-ceo-connect-segment/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cns-pharmaceuticals-to-be-featured-in-virtual-investor-ceo-connect/1ccec4b55dbdcfbad336c2a578fac947) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cns-pharmaceuticals-ceo-to-participate-in-virtual-investor-ceo-connect-segment/20246090)
+
+Pickup - [advos.io](https://advos.io/en/cns-pharmaceuticals-ceo-to-feature-in-virtual-investor-ceo-connect-webcast/20246090)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/23/cns-pharmaceuticals-ceo-to-present-at-virtual-investor-ceo-connect-event)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cns-pharmaceuticals-ceo-to-present-at-virtual-investor-ceo-connect-event/20246090)
+ 
 
 
 

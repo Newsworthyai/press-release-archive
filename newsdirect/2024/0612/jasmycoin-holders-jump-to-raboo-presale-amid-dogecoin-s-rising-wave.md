@@ -37,7 +37,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/jasmycoin-hol
 [Original/Source Press Release](https://newsdirect.com/news/jasmycoin-holders-jump-to-raboo-presale-amid-dogecoins-rising-wave-739442053)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/raboo-emerges-as-a-strong-contender-against-dogecoin-and-jasmycoin/c86d8a020e82b75ca9f483802c3c6595) 
+
+
+Pickup - [advos.io](https://advos.io/en/jasmycoin-holders-shift-to-raboo-presale-amid-dogecoin-s-market-dynamics/20244068)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/raboo-emerges-as-a-strong-contender-against-dogecoin-and-jasmycoin)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/raboo-emerges-as-a-strong-contender-against-dogecoin-and-jasmycoin)
+ 
 
 
 

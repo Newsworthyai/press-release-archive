@@ -23,7 +23,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/baorui-exchanges-global-vision-leading-the-cryptocurrency-market)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/baorui-exchange-unveils-global-expansion-strategy/f6f17dfa5ac4c89f9af16a2127319881) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/26/baorui-exchange-unveils-global-expansion-strategy-solidifying-its-leadership-in-cryptocurrency-trading)
+ 
 
 
 

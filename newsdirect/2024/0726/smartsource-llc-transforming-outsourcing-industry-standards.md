@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/smartsource-l
 [Original/Source Press Release](https://newsdirect.com/news/smartsource-llc-transforming-outsourcing-industry-standards-804421526)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/smartsource-llc-transforming-the-outsourcing-industry-standards/d5843833b6bcd638b50587d73ece5f2a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/smartsource-llc-revolutionizes-outsourcing-industry-with-innovative-approach)
+
+Pickup - [fishervista.com](https://fishervista.com/en/smartsource-llc-revolutionizes-outsourcing-industry-with-innovative-approaches/20245283)
+
+Pickup - [advos.io](https://advos.io/en/smartsource-llc-redefining-standards-in-the-outsourcing-industry/20245283)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/smartsource-llc-revolutionizes-outsourcing-with-innovative-approach-to-marketing-communications)
+ 
 
 
 

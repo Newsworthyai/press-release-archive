@@ -38,7 +38,11 @@ You can learn more about Saakuru at these links:[X (Twitter)](https://twitter.co
 [Original/Source Press Release](https://blockchainwire.io/press-release/saakuru-leads-the-gasless-blockchain-revolution-disrupting-the-industry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/saakuru-milestones-gasless-blockchain-revolution/538d7a0ae7e2a88aa7587a063da339a7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/saakuru-leads-the-gasless-blockchain-revolution-disrupting-the-industry)
+ 
 
 
 

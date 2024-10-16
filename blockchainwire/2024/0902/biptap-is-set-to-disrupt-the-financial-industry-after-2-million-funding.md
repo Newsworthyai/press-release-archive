@@ -27,7 +27,21 @@ penny@biptap.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/biptap-is-set-to-disrupt-the-financial-industry-after-2-million-funding)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/biptap-secures-2m-funding-to-revolutionize-financial-privacy/1e3e67e271a4b99eb8c0586cd0ecc7d8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/02/biptap-secures-2-million-in-pre-seed-funding-to-revolutionize-privacy-centric-offshore-banking)
+
+Pickup - [fishervista.com](https://fishervista.com/en/biptap-secures-2-million-in-funding-to-revolutionize-privacy-centric-banking/20246431)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/biptap-secures-2-million-in-pre-seed-funding-to-advance-privacy-centric-banking-solutions/20246431)
+
+Pickup - [advos.io](https://advos.io/en/biptap-secures-2-million-in-pre-seed-funding-to-revolutionize-financial-privacy/20246431)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/biptap-secures-2m-funding-to-revolutionize-financial-privacy)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/biptap-secures-2m-funding-to-revolutionize-financial-privacy)
+ 
 
 
 

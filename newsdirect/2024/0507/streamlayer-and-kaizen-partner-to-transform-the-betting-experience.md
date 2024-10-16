@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/streamlayer-a
 [Original/Source Press Release](https://newsdirect.com/news/streamlayer-and-kaizen-partner-to-transform-the-betting-experience-445848186)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/streamlayer-and-kaizen-partner-to-transform-the-betting-experience/83bd5deb19e3da7a99b7b3ff3512123f) 
+
+ 
 
 
 

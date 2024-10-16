@@ -19,7 +19,13 @@ During the Paris-based Proof of Talk event, CoinW will co-host one of the most s
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-kicks-off-the-summer-season-with-huge-sponsorship-presence-at-three-key-web3-events)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-sponsors-key-industry-events-and-continues-global-expansion/46e58cae29bb7467feac9dd4cdd83ce9) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-sponsors-key-industry-events-and-continues-global-expansion)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-sponsors-key-industry-events-and-continues-global-expansion)
+ 
 
 
 

@@ -7,7 +7,11 @@ SALT LAKE CITY, UT, April 03, 2024 /24-7PressRelease/ -- The Utah Lady Grizzlies
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509753/utah-lady-grizzlies-name-rob-johnson-as-16u-tier-2-coach-and-director-of-tier-1-operations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/utah-lady-grizzlies-appoint-rob-johnson-as-new-16u-tier-2-coach-and-director-of-tier-1/bf338b0d8fc882be3e2b48fb4733a3e0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/utah-lady-grizzlies-bolster-coaching-ranks-with-rob-johnson)
+ 
 
 
 

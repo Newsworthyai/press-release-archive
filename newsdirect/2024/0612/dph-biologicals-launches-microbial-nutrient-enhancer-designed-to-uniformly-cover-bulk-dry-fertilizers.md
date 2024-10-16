@@ -42,7 +42,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/dph-biologica
 [Original/Source Press Release](https://newsdirect.com/news/dph-biologicals-launches-microbial-nutrient-enhancer-designed-to-uniformly-cover-bulk-dry-fertilizers-249275499)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dph-biologicals-launches-envelix-prime-a-revolutionary-biological-nutrient-enhancer/c2c7bc2a9db6eda2057f3ba19c3c09cc) 
+
+
+Pickup - [advos.io](https://advos.io/en/dph-biologicals-introduces-envelix-prime-a-revolutionary-microbial-nutrient-enhancer/20244076)
+ 
 
 
 

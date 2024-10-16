@@ -25,7 +25,13 @@ RChilli is the trusted partner for parsing, matching, and data enrichment, provi
 [Original/Source Press Release](https://newsworthy.ai/news/202403201121/rchilli-now-parses-in-slovak-language)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-announces-breakthrough-in-slovak-language-parsing-technology/c640975c83789eeb2e3bedf9021fe57f) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-expands-parsing-capabilities-to-include-slovak-language/2024865)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/rchilli-expands-language-capabilities-with-slovak-parsing)
+ 
 
 
 

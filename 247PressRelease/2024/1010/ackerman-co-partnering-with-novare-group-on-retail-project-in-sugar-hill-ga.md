@@ -7,7 +7,9 @@ ATLANTA, GA, October 10, 2024 /24-7PressRelease/ -- Ackerman & Co. and Novare Gr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515120/ackerman-co-partnering-with-novare-group-on-retail-project-in-sugar-hill-ga)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ackerman-novare-group-to-develop-retail-project-in-sugar-hill-ga/1aaece140aa2bdaa9843880a45db58fd) 
+
+ 
 
 
 

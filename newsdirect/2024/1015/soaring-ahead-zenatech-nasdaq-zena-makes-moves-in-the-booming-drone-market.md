@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/soaring-ahead
 [Original/Source Press Release](https://newsdirect.com/news/soaring-ahead-zenatech-nasdaq-zena-makes-moves-in-the-booming-drone-market-939815690)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zenatech-nasdaq-zena-making-moves-in-the-booming-drone-market/21ae33d5ddf1f88a3049842283841aa9) 
+
+ 
 
 
 

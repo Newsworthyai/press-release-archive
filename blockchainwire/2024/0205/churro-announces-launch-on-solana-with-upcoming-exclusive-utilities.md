@@ -35,7 +35,11 @@ X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/churro-announces-launch-on-solana-with-upcoming-exclusive-utilities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/a-new-era-of-decentralized-finance-churro-debuts-on-solana/1e0be664752a4d3867c23af0a7263280) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/05/churro-launches-on-solana-bringing-innovative-defi-solutions)
+ 
 
 
 

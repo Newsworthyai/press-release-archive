@@ -57,7 +57,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/aeva-enables-
 [Original/Source Press Release](https://newsdirect.com/news/aeva-enables-customers-to-go-where-they-have-never-gone-before-looking-into-automated-vehicles-and-network-effects-from-an-expanding-list-of-customers-816357239)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aeva-s-advanced-lidar-technology-transforming-autonomous-vehicles/a032c4cd8c95cf5d0d9619caf6cdd84f) 
+
+ 
 
 
 

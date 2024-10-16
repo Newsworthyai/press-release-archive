@@ -21,7 +21,9 @@ About CoinWFounded in 2017, CoinW is a leading global crypto exchange with a com
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-unveils-platinum-sponsorship-at-future-blockchain-summit-in-partnership-with-dubai-blockchain-center)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-announces-platinum-sponsorship-of-future-blockchain-summit/25fad46f4957426e78a270418171618b) 
+
+ 
 
 
 

@@ -39,7 +39,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cloudminers-strategic-vision-transforming-passive-income-in-cryptocurrency-through-cloud-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cloudminer-revolutionizes-cloud-mining-for-passive-income-in-cryptocurrency-world/fb8dbf3cb8a19efd8551f3d34fe38ba3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/01/cloudminer-pioneers-accessible-passive-income-in-cryptocurrency)
+ 
 
 
 

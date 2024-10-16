@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/responsible-g
 [Original/Source Press Release](https://newsdirect.com/news/responsible-gambling-affiliate-association-opens-membership-374604678)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/responsible-gambling-affiliate-association-launches-new-membership-program-at-sbc-summit-north-america/9c0f54e5f3a02a86298a2a0ee98ae1ef) 
+
+ 
 
 
 

@@ -7,7 +7,11 @@ LAS VEGAS, NV, March 16, 2024 /24-7PressRelease/ -- The case against Microsoft a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509305/musk-case-against-microsoft-and-openai-gains-support-amicus-brief-motion-details-human-extinction-risks)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elon-musk-and-dr-leonard-g-horowitz-file-lawsuit-against-microsoft-and-openai/f1e2153fdb7c4a95b76d47e847fa6818) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/16/musk-s-case-against-microsoft-and-openai-gains-support-over-ai-extinction-risks)
+ 
 
 
 

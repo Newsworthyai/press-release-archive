@@ -45,7 +45,9 @@ X (Twitter) | Telegram | Instagram | YouTube
 [Original/Source Press Release](https://blockchainwire.io/press-release/maocat-presale-surpasses-300000-with-first-ever-cat-memecoin-on-ethereum)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/maocat-project-surpasses-300000-in-presale-triumph/70ff621c5a2aae3f7b6135f93b842328) 
+
+ 
 
 
 

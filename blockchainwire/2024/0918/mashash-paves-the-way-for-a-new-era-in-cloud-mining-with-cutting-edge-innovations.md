@@ -32,7 +32,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/mashash-paves-the-way-for-a---new-era-in-cloud-mining-with---cutting-edge-innovations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mashash-revolutionizes-cloud-mining-with-state-of-the-art-technology-and-user-friendly-platform/2d7b49ba93da67eca92c43600df624df) 
+
+ 
 
 
 

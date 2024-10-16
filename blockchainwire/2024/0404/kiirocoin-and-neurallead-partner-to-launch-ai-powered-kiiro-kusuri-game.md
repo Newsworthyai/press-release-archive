@@ -29,7 +29,11 @@ Company: [Neurallead](https://www.neurallead.com)Contact Name: SimonJriddixEmail
 [Original/Source Press Release](https://blockchainwire.io/press-release/kiirocoin-and-neurallead-partner-to-launch-ai-powered-kiiro-kusuri-game)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kiirocoin-and-neurallead-introduce-ai-powered-kiiro-kusuri-game/97af88386ca9426413d8257262f1b7a0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/kiirocoin-and-neurallead-unveil-kiiro-kusuri-an-ai-powered-gaming-revolution)
+ 
 
 
 

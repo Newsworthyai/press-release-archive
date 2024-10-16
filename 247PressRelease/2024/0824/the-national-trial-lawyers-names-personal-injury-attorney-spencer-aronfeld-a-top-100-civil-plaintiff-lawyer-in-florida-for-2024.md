@@ -7,7 +7,17 @@ MIAMI, FL, August 24, 2024 /24-7PressRelease/ -- Aronfeld Trial Lawyers is pleas
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513736/the-national-trial-lawyers-names-personal-injury-attorney-spencer-aronfeld-a-top-100-civil-plaintiff-lawyer-in-florida-for-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/spencer-aronfeld-named-top-100-trial-lawyer-for-civil-plaintiff-in-florida/f4b7064c6c43fd970187d278dff61d4e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/24/spencer-aronfeld-named-top-100-civil-plaintiff-lawyer-in-florida-for-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/spencer-aronfeld-named-among-top-100-civil-plaintiff-lawyers-in-florida-by-the-national-trial-lawyers/20245959)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/spencer-aronfeld-named-top-100-civil-plaintiff-lawyer-in-florida-by-the-national-trial-lawyers/20245959)
+
+Pickup - [advos.io](https://advos.io/en/spencer-aronfeld-named-top-100-civil-plaintiff-lawyer-in-florida-for-2024/20245959)
+ 
 
 
 

@@ -51,7 +51,11 @@ Website: www.chatuni.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-worlds-first-ai-watch-where-cutting-edge-innovation-meets-everyday-comfort-and-ease)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gaia-ai-lab-launches-chatuni-one-ai-watch-redefining-daily-life/c5b2228a3e85546620ed4eb486b4bb0d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/20/introducing-chatuni-one-the-world-s-first-ai-watch)
+ 
 
 
 

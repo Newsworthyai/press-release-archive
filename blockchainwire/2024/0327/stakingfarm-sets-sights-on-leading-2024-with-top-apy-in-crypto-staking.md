@@ -58,7 +58,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-sets-sights-on-leading-2024-with-top-apy-in-crypto-staking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-to-lead-crypto-staking-industry-with-highest-apy-offerings-in-2024/44c33a47fefcd369b1e3032a4e0f6fe1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/stakingfarm-poised-to-offer-highest-apy-in-crypto-staking-for-2024)
+ 
 
 
 

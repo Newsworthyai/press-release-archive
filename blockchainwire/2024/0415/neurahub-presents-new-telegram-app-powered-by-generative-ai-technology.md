@@ -45,7 +45,11 @@ X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/neurahub-presents-new-telegram-app-powered-by-generative-ai-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/neurahub-announces-revolutionary-telegram-app-utilizing-advanced-ai-technology/b675471ccd1615688e2fe3cd72e15f06) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/neurahub-presents-new-telegram-app-powered-by-generative-ai-technology)
+ 
 
 
 

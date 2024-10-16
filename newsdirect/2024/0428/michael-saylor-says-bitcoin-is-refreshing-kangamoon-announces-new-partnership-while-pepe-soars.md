@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/michael-saylo
 [Original/Source Press Release](https://newsdirect.com/news/michael-saylor-says-bitcoin-is-refreshing-kangamoon-announces-new-partnership-while-pepe-soars-157468847)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-news-saylor-s-bitcoin-tweet-kangamoon-s-partnership-and-pepe-s-coinbase-listing/f7521caa8f17291e4e29c8d6140245e5) 
+
+ 
 
 
 

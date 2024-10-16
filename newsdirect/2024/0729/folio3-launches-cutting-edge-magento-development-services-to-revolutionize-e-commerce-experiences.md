@@ -37,7 +37,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/folio3-launch
 [Original/Source Press Release](https://newsdirect.com/news/folio3-launches-cutting-edge-magento-development-services-to-revolutionize-e-commerce-experiences-645897654)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/folio3-launches-advanced-magento-development-services/4bde5c59d5098dc205bc31bfa5ca89f2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/folio3-expands-e-commerce-offerings-with-new-magento-development-services)
+
+Pickup - [fishervista.com](https://fishervista.com/en/folio3-unveils-advanced-magento-development-services-to-elevate-e-commerce-standards/20245330)
+
+Pickup - [advos.io](https://advos.io/en/folio3-unveils-advanced-magento-development-services-to-elevate-e-commerce/20245330)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/folio3-expands-e-commerce-offerings-with-advanced-magento-development-services)
+ 
 
 
 

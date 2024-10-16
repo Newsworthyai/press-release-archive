@@ -7,7 +7,17 @@ DALLAS, TX, August 30, 2024 /24-7PressRelease/ -- MorganHill, a recognized leade
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513906/morganhill-announces-launch-of-comprehensive-iso-27001-policy-templates-to-enhance-data-security)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/morganhill-launches-innovative-iso-27001-policy-templates/387f90a65af4985a8c96615b5802cf8e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/30/morganhill-launches-comprehensive-iso-27001-policy-templates-to-strengthen-data-security)
+
+Pickup - [fishervista.com](https://fishervista.com/en/morganhill-introduces-comprehensive-iso-27001-policy-templates-to-strengthen-data-security/20246395)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/morganhill-launches-comprehensive-iso-27001-policy-templates-to-streamline-data-security-compliance/20246395)
+
+Pickup - [advos.io](https://advos.io/en/morganhill-introduces-iso-27001-policy-templates-to-strengthen-data-security/20246395)
+ 
 
 
 

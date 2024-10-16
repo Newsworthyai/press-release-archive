@@ -47,7 +47,9 @@ investors@aemetis.com
 [Original/Source Press Release](https://www.newmediawire.com/news/aemetis-biogas-completes-initial-construction-phase-of-multi-dairy-digester-7076149)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aemetis-announces-biogas-production-to-begin-by-year-end-2024/24bfc581d7b68db427ff47147b1b1816) 
+
+ 
 
 
 

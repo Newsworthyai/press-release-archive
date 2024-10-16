@@ -44,7 +44,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/b-side-lounge
 [Original/Source Press Release](https://newsdirect.com/news/b-side-lounge-the-newest-music-venue-opens-at-graton-resort-and-casino-351960013)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/graton-resort-casino-unveils-new-music-venue-b-side-lounge/24de13ae73a1f6884fb803f3e8120735) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/b-side-lounge-opens-at-graton-resort-casino-with-exciting-lineup/20244805)
+
+Pickup - [advos.io](https://advos.io/en/b-side-lounge-new-music-venue-opens-at-graton-resort-casino/20244805)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/graton-resort-casino-unveils-b-side-lounge-a-new-hub-for-live-music-and-entertainment)
+ 
 
 
 

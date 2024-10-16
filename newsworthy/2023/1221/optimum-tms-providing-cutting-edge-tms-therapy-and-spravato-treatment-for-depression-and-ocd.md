@@ -15,7 +15,11 @@ To determine if patients qualify for TMS therapy or Spravato treatment, Optimum 
 [Original/Source Press Release](https://newsworthy.ai/news/20231221922/optimum-tms-providing-cutting-edge-tms-therapy-and-spravato-treatment-for-depression-and-ocd)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-hope-for-depression-optimum-tms-offers-innovative-tms-therapy-and-ocd-treatment/e753b753079795f7ead7136d65db48c4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/21/optimum-tms-pioneering-tms-therapy-and-spravato-treatment-for-depression-and-ocd)
+ 
 
 
 

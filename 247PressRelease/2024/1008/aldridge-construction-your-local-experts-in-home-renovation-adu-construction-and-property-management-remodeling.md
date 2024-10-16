@@ -7,7 +7,9 @@ SALINAS, CA, October 08, 2024 /24-7PressRelease/ -- Aldridge Construction, a tru
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515031/aldridge-construction-your-local-experts-in-home-renovation-adu-construction-and-property-management-remodeling)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aldridge-construction-announces-full-suite-of-home-renovation-and-adu-construction-services-in-salinas/1694913e56fce9b6fa6576fb8afbda65) 
+
+ 
 
 
 

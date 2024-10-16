@@ -23,7 +23,11 @@ ROCCAT is an emerging company that dedicates its efforts to pushing the boundari
 [Original/Source Press Release](https://blockchainwire.io/press-release/-roccat-launches-innovative-memecoin-roccat-with-unprecedented-community-focus-2)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/roccat-unveils-roccat-an-innovative-memecoin-set-to-revolutionize-cryptocurrency/3e3589db42fd1e0575663b86751384ee) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/07/roccat-unveils-innovative-memecoin-roccat-with-unprecedented-community-focus)
+ 
 
 
 

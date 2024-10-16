@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/team-internet
 [Original/Source Press Release](https://newsdirect.com/news/team-internet-celebrates-milestone-year-with-strong-2023-financial-performance-doubles-dividend-650742081)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/team-internet-achieves-milestone-year-with-strong-2023-financial-performance/a1bd886876ab649880feac33de5d48b1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/team-internet-soars-with-record-breaking-financials-and-doubled-dividend)
+ 
 
 
 

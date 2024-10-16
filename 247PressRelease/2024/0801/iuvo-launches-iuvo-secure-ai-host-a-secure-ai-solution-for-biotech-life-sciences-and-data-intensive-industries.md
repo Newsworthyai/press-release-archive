@@ -7,7 +7,17 @@ BOSTON, MA, August 01, 2024 /24-7PressRelease/ -- iuvo, a leading provider of pr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512972/iuvo-launches-iuvo-secure-ai-host-a-secure-ai-solution-for-biotech-life-sciences-and-data-intensive-industries)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iuvo-launches-secure-ai-host-for-data-intensive-industries/3ba67e5bd2d6aa00c4c731352dcc3c87) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/iuvo-introduces-secure-ai-host-for-data-intensive-industries)
+
+Pickup - [fishervista.com](https://fishervista.com/en/iuvo-unveils-secure-ai-host-for-enhanced-data-security-in-biotech-and-life-sciences/20245408)
+
+Pickup - [advos.io](https://advos.io/en/iuvo-introduces-secure-ai-solution-for-biotech-and-data-intensive-industries/20245408)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/iuvo-introduces-secure-ai-solution-for-data-sensitive-industries)
+ 
 
 
 

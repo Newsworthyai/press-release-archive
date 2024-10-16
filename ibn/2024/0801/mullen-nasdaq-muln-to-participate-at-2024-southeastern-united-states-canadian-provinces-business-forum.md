@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/mullen-nasdaq-muln-to-participate-at-2024-southeastern-united-states-canadian-provinces-business-forum/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-to-showcase-commercial-evs-at-2024-seus-cp-business-forum/e5cd9923cb5305be3c1ed88710a23178) 
+
+ 
 
 
 

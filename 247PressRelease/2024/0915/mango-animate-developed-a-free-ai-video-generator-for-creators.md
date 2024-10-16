@@ -7,7 +7,17 @@ HONG KONG, September 15, 2024 /24-7PressRelease/ -- In the last few years, the u
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514331/mango-animate-developed-a-free-ai-video-generator-for-creators)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mango-animate-launches-free-ai-video-generator-mango-ai/51817bb77c4c3224a86f94eff473b031) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/15/mango-animate-launches-free-ai-video-generator-to-revolutionize-content-creation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mango-animate-launches-free-ai-video-generator-revolutionizing-content-creation/20246834)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mango-animate-launches-free-ai-video-generator-revolutionizing-content-creation/20246834)
+
+Pickup - [advos.io](https://advos.io/en/mango-animate-launches-free-ai-video-generator-to-revolutionize-content-creation/20246834)
+ 
 
 
 

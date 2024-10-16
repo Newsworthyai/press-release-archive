@@ -32,7 +32,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cure-alzheime
 [Original/Source Press Release](https://newsdirect.com/news/cure-alzheimers-fund-receives-338-384-donation-from-tara-manufacturing-395480246)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tara-manufacturing-donates-338384-01-to-cure-alzheimer-s-fund/49e129c97b62a97c5f036df6d867d56a) 
+
+ 
 
 
 

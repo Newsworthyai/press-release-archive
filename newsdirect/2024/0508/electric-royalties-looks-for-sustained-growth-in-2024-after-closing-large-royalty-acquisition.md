@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/electric-roya
 [Original/Source Press Release](https://newsdirect.com/news/electric-royalties-looks-for-sustained-growth-in-2024-after-closing-large-royalty-acquisition-927051561)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/electric-royalties-acquires-comprehensive-lithium-portfolio-in-ontario/82f8d3f2b55e682a1ba62738b3d9b970) 
+
+ 
 
 
 

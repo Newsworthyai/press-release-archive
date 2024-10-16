@@ -43,7 +43,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/tron-network-
 [Original/Source Press Release](https://newsdirect.com/news/tron-network-officially-supported-by-layerzero-684887492)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tron-dao-announces-layerzero-support-for-tron-blockchain/5ffa7ef120bfdf324a4c1147946ea525) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tron-dao-announces-layerzero-support-for-tron-blockchain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tron-dao-announces-layerzero-support-for-tron-blockchain)
+ 
 
 
 

@@ -23,7 +23,9 @@ Token2049 is the world’s largest Web3 event, attracting thousands of blockchai
 [Original/Source Press Release](https://blockchainwire.io/press-release/bydfi-showcases-at-token2049-leading-the-next-wave-in-the-crypto-industry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bydfi-to-sponsor-token2049-in-singapore-driving-innovation-in-crypto/cb28ca92f2024a4528d04aeb111132ad) 
+
+ 
 
 
 

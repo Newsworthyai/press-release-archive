@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/complecure-pa
 [Original/Source Press Release](https://newsdirect.com/news/complecure-partners-with-agc-biologics-chiba-site-to-develop-advanced-anti-cancer-therapeutic-using-pioneering-amdc-technology-954514741)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/agc-biologics-partners-with-complecure-to-develop-advanced-anti-cancer-therapeutic-using-pioneering-amdc-technology/3f3f3074c0501f2e2211b07b97c4eeb0) 
+
+ 
 
 
 

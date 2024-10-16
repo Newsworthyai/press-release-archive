@@ -60,7 +60,13 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/nexgami-secures-25-million-in-seed-round-ido-rollout-on-5-major-launchpads-and-nexg-token-on-kucoins-burningdrop)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nexgami-completes-2-5m-seed-round-launches-nexg-on-major-platforms/2f1d07b57686f613688a983eeac01286) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/nexgami-completes-2-5m-seed-round-launches-nexg-on-major-platforms)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/nexgami-completes-2-5m-seed-round-launches-nexg-on-major-platforms)
+ 
 
 
 

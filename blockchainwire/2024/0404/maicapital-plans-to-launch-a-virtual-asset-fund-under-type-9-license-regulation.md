@@ -17,7 +17,11 @@ An investment in any strategy, including the strategy described herein, involves
 [Original/Source Press Release](https://blockchainwire.io/press-release/maicapital-plans-to-launch-a-virtual-asset-fund-under-type-9-license-regulation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/maicapital-limited-launches-virtual-asset-fund-pse-trading-flagship/33abad1f9ce25bb1a4d635be3609af74) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/maicapital-to-launch-virtual-asset-fund-compliant-with-sfc-type-9-license)
+ 
 
 
 

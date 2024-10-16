@@ -7,7 +7,11 @@ NEWPORT BEACH, CA, April 16, 2024 /24-7PressRelease/ -- Martindale-Hubbell has c
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510064/attorney-paul-w-raymond-has-achieved-the-av-preeminent-rating-the-highest-possible-rating-from-martindale-hubbell)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/attorney-paul-w-raymond-achieves-martindale-hubbell-s-av-preeminent-rating/abecb90b1384a4d20f63d7edd263484b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/attorney-paul-w-raymond-achieves-highest-possible-martindale-hubbell-rating)
+ 
 
 
 

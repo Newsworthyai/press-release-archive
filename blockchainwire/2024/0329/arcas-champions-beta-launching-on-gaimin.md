@@ -45,7 +45,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/arcas-champions-beta-launching-on-gaimin)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arcas-champions-to-launch-beta-featuring-play-to-airdrop-treasure-hunt-and-arcas-tokens-on-bnb-chain/25afc09c0f71359c24e415fbe5d980e5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/arcas-champions-launches-beta-on-gaimin-with-play-to-airdrop-treasure-hunt)
+ 
 
 
 

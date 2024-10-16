@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/goodway-group
 [Original/Source Press Release](https://newsdirect.com/news/goodway-group-welcomes-rick-watrall-as-new-chief-data-and-analytics-officer-415352769)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/goodway-group-appoints-rick-watrall-as-chief-data-and-analytics-officer/5275b3b7612e8567376d4c6329b63e57) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/goodway-group-appoints-rick-watrall-as-chief-data-and-analytics-officer-to-drive-innovation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/goodway-group-appoints-rick-watrall-as-chief-data-and-analytics-officer/20246310)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/goodway-group-appoints-rick-watrall-as-chief-data-and-analytics-officer-to-drive-innovation/20246310)
+
+Pickup - [advos.io](https://advos.io/en/goodway-group-appoints-rick-watrall-as-chief-data-and-analytics-officer/20246310)
+ 
 
 
 

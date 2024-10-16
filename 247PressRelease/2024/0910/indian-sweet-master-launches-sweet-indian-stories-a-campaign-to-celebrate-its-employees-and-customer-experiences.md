@@ -7,7 +7,17 @@ BRAMPTON, ON, September 10, 2024 /24-7PressRelease/ -- Indian Sweet Master—a 1
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514174/indian-sweet-master-launches-sweet-indian-stories-a-campaign-to-celebrate-its-employees-and-customer-experiences)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/indian-sweet-master-launches-sweet-indian-stories-campaign/df3d7a0e3b7454d4cccaf473cd7de946) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/indian-sweet-master-launches-sweet-indian-stories-campaign-to-honor-employees-and-customers)
+
+Pickup - [fishervista.com](https://fishervista.com/en/indian-sweet-master-launches-sweet-indian-stories-campaign-celebrating-employees-and-customers/20246655)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/indian-sweet-master-launches-sweet-indian-stories-campaign-to-celebrate-employees-and-customers/20246655)
+
+Pickup - [advos.io](https://advos.io/en/indian-sweet-master-launches-sweet-indian-stories-campaign-celebrating-employees-and-customers/20246655)
+ 
 
 
 

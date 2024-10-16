@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/fathom-nickel
 [Original/Source Press Release](https://newsdirect.com/news/fathom-nickel-ceo-ian-fraser-discusses-companys-expansion-plans-and-market-strategy-781508391)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fathom-nickel-ceo-ian-fraser-discusses-company-s-expansion-plans-and-market-strategy/5bd46458944e91037c7a1160f9d95af9) 
+
+ 
 
 
 

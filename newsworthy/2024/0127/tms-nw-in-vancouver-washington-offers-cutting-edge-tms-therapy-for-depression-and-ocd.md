@@ -15,7 +15,11 @@ While TMS NW focuses on administering TMS therapy, they encourage clients to con
 [Original/Source Press Release](https://newsworthy.ai/news/202401271040/tms-nw-in-vancouver-washington-offers-cutting-edge-tms-therapy-for-depression-and-ocd)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-tms-therapy-now-available-in-vancouver/8b4851484f3b729cf51af65314c7630a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/27/tms-nw-offers-innovative-brain-stimulation-therapy-for-depression-and-ocd)
+ 
 
 
 

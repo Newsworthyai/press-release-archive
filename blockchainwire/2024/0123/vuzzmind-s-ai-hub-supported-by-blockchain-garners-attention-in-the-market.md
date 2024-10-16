@@ -50,7 +50,11 @@ Telegram: [@Arpita_nca](https://t.me/Arpita_nca)
 [Original/Source Press Release](https://blockchainwire.io/press-release/vuzzminds-ai-hub-supported-by-blockchain-garners-attention-in-the-market)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vuzzmind-ai-hub-launches-with-ethical-standards-and-advanced-ai-capabilities/ab6f79f9cba9098698e9e86b92a4c2a4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/23/vuzzmind-s-blockchain-powered-ai-hub-revolutionizes-the-ai-landscape)
+ 
 
 
 

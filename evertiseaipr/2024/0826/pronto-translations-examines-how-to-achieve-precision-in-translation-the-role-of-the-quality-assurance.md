@@ -72,7 +72,11 @@ The Skopos Approach, developed in 1984, serves an even more important function t
 [Original/Source Press Release](https://evertise.net/pronto-translations-examines-how-to-achieve-precision-in-translation-the-role-of-the-quality-assurance/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-skopos-approach-navigating-translation-challenges-in-the-age-of-ai/3039693df8f44c4c9393fd6eb47bf4ed) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/pronto-translations-highlights-importance-of-skopos-approach-in-modern-translation/20246441)
+ 
 
 
 

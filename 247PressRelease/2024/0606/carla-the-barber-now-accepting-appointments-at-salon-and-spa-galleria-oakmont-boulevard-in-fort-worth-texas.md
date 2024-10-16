@@ -7,7 +7,11 @@ FORT WORTH, TX, June 06, 2024 /24-7PressRelease/ -- Whether it's braids and trim
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511434/carla-the-barber-now-accepting-appointments-at-salon-and-spa-galleria-oakmont-boulevard-in-fort-worth-texas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/carla-the-barber-a-new-salon-experience-in-fort-worth/4933561d1ee0f1c7740217eee2e1be7a) 
+
+
+Pickup - [advos.io](https://advos.io/en/carla-the-barber-now-open-at-salon-and-spa-galleria-oakmont-boulevard-in-fort-worth/20243873)
+ 
 
 
 

@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, h
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-three-approved-for-massachusetts-15000-voucher-program/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-nasdaq-muln-qualifies-for-massachusetts-15000-cash-rebate-voucher-program/9e64e5f2b77c34ea34cda1650dd8bf7a) 
+
+ 
 
 
 

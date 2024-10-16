@@ -27,7 +27,11 @@ City：CroswellDisclaimer:This press release may contain forward-looking stateme
 [Original/Source Press Release](https://blockchainwire.io/press-release/fb-finance-institute-wilbur-clarks-vision-for-ai-driven-quantitative-trading)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fb-finance-institute-transitions-to-ai-trading-gains-competitive-edge/450d78ffeccaba92a366fc4a11abf55f) 
+
+
+Pickup - [advos.io](https://advos.io/en/fb-finance-institute-embraces-ai-driven-quantitative-trading-under-wilbur-clark-s-vision/20244050)
+ 
 
 
 

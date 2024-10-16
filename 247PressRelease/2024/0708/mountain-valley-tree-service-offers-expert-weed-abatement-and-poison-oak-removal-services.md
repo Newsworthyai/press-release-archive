@@ -7,7 +7,15 @@ MONTEREY, CA, July 08, 2024 /24-7PressRelease/ -- Mountain Valley Tree Service, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512312/mountain-valley-tree-service-offers-expert-weed-abatement-and-poison-oak-removal-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mountain-valley-tree-service-announces-dedicated-poison-oak-removal-services-in-monterey-salinas-and-carmel-california/c29f61232cb462a62fa11da0062a1084) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/mountain-valley-tree-service-enhances-community-safety-with-expert-weed-abatement-and-poison-oak-removal/20244751)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/mountain-valley-tree-service-expands-poison-oak-removal-and-weed-abatement-services-in-california)
+
+Pickup - [advos.io](https://advos.io/en/mountain-valley-tree-service-expands-expert-weed-abatement-and-poison-oak-removal-in-monterey-area/20244751)
+ 
 
 
 

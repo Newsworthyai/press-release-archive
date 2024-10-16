@@ -7,7 +7,11 @@ FORT WORTH, TX, April 02, 2024 /24-7PressRelease/ -- Are you on the hunt for the
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509413/recently-built-office-warehouse-space-ready-for-occupancy-in-alvarado-business-park)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prime-commercial-space-for-lease-outside-alvarado-917-industrial-park-expansion/84153de4dea430a31999b34a35db730f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/prime-commercial-space-available-in-alvarado-business-park)
+ 
 
 
 

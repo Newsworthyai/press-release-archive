@@ -45,7 +45,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/zen42ai-joins-mobii-green-energy-groups-new-zealand-green-hi-city-project-set-to-launch-carbon-credit-based-stablecoin)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zen42-ai-joins-mobii-green-energy-s-new-zealand-green-hi-city-project/1fdbe5f801a53397c6886a7c9d2b3806) 
+
+ 
 
 
 

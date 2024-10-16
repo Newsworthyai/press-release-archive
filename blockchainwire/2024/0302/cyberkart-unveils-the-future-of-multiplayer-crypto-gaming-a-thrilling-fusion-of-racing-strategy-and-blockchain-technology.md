@@ -31,7 +31,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/cyberkart-unveils-the-future-of-multiplayer-crypto-gaming-a-thrilling-fusion-of-racing-strategy-and-blockchain-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cyberkart-launches-multiplayer-crypto-racing-game-with-blockchain-integration/a3fbd861da443e93e0c61a715b1c8f39) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/02/cyberkart-where-crypto-gaming-and-kart-racing-collide)
+ 
 
 
 

@@ -45,7 +45,17 @@ Zenith Asset Investment Education Foundation remains steadfast in its mission to
 [Original/Source Press Release](https://blockchainwire.io/press-release/zenith-asset-investment-education-foundation-arthur-franks-vision-for-advancing-investment-education)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zenith-asset-foundation-advances-investment-education-and-ai-system-upgrades/572b5ac9cdcec197586293dd980bd26b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/10/zenith-asset-investment-education-foundation-revolutionizes-financial-literacy-with-ai-driven-approach)
+
+Pickup - [fishervista.com](https://fishervista.com/en/zenith-asset-investment-education-foundation-enhances-financial-literacy-and-investment-skills/20245633)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/zenith-asset-investment-education-foundation-revolutionizes-financial-literacy/20245633)
+
+Pickup - [advos.io](https://advos.io/en/zenith-asset-investment-education-foundation-enhances-financial-literacy-with-ai-and-big-data/20245633)
+ 
 
 
 

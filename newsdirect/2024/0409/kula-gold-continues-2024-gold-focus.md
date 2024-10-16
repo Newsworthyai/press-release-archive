@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kula-gold-con
 [Original/Source Press Release](https://newsdirect.com/news/kula-gold-continues-2024-gold-focus-798288114)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kula-gold-makes-promising-strides-in-gold-exploration-in-2024/cdd4a7629397f65cbbd40ec4f8f3ce25) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/kula-gold-advances-gold-exploration-efforts-in-western-australia)
+ 
 
 
 

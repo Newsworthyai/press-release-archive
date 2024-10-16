@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/tailored-canv
 [Original/Source Press Release](https://newsdirect.com/news/tailored-canvases-launches-new-collection-for-coffee-lovers-embracing-home-brewing-297764545)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tailored-canvases-launches-new-coffee-themed-collection-for-home-brewing-enthusiasts/5d81e66a08613019277763b80dd23bbc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/16/tailored-canvases-unveils-coffee-themed-art-collection-for-home-brewers)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tailored-canvases-introduces-coffee-themed-collection-for-home-brewers/20245780)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/tailored-canvases-unveils-coffee-themed-art-collection-for-home-brewers/20245780)
+
+Pickup - [advos.io](https://advos.io/en/tailored-canvases-launches-coffee-themed-collection-for-home-brewing-enthusiasts/20245780)
+ 
 
 
 

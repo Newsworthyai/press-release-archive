@@ -25,7 +25,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/synergist-tec
 [Original/Source Press Release](https://newsdirect.com/news/synergist-technology-partners-with-microsoft-to-drive-ethical-and-compliant-ai-innovation-488202106)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/synergist-technology-partners-with-microsoft-to-drive-ethical-and-compliant-ai-innovation/48ced7dc2356dbd36f648699c82255d5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/synergist-technology-and-microsoft-join-forces-to-advance-ethical-ai-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/synergist-technology-partners-with-microsoft-to-enhance-ethical-ai-innovation/20246372)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/synergist-technology-and-microsoft-join-forces-to-advance-ethical-ai-solutions/20246372)
+
+Pickup - [advos.io](https://advos.io/en/synergist-technology-partners-with-microsoft-to-enhance-ethical-ai-governance/20246372)
+ 
 
 
 

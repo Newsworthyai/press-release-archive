@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/saverone-inks
 [Original/Source Press Release](https://newsdirect.com/news/saverone-inks-major-oem-deal-with-iveco-distracted-driving-software-to-be-installed-in-all-its-light-medium-and-heavy-commercial-vehicles-936446056)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/saverone-partners-with-iveco-to-install-distracted-driving-software-in-commercial-vehicles/0accfff79a646be76bd9a742e9dae7cc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/saverone-secures-major-oem-deal-with-iveco-for-distracted-driving-prevention)
+ 
 
 
 

@@ -7,7 +7,17 @@ KUALA LUMPUR, MALAYSIA, September 09, 2024 /24-7PressRelease/ -- Punyam Academy,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514121/punyam-academy-offers-globally-recognized-integrated-management-system-lead-auditor-training-courses)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/punyam-academy-launches-globally-recognized-ims-lead-auditor-training-course/77b3285c329845cb6d81be473c654231) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/punyam-academy-launches-global-online-integrated-management-system-lead-auditor-training)
+
+Pickup - [fishervista.com](https://fishervista.com/en/punyam-academy-launches-globally-recognized-ims-lead-auditor-training/20246611)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/punyam-academy-launches-global-online-integrated-management-system-lead-auditor-training/20246611)
+
+Pickup - [advos.io](https://advos.io/en/punyam-academy-launches-globally-recognized-ims-lead-auditor-training-courses/20246611)
+ 
 
 
 

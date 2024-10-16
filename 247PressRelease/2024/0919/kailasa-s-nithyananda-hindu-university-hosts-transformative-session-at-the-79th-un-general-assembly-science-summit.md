@@ -7,7 +7,9 @@ NEW YORK, NY, September 19, 2024 /24-7PressRelease/ -- This session, telecast li
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514455/kailasas-nithyananda-hindu-university-hosts-transformative-session-at-the-79th-un-general-assembly-science-summit)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/knhu-s-groundbreaking-research-on-sustainable-mental-health-presented-at-unga-science-summit/9194b862ebccfea2753eefcaa348cf58) 
+
+ 
 
 
 

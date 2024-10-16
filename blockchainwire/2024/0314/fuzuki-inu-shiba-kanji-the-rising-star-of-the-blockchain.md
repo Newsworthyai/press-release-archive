@@ -27,7 +27,11 @@ Step into Fuzuki Inu, where innovation meets finance in a bold new way. Launchin
 [Original/Source Press Release](https://blockchainwire.io/press-release/fuzuki-inu-shiba-kanji-the-rising-star-of-the-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fuzuki-inu-shiba-kanji-the-rising-star-of-the-blockchain/8799e5e3b969084d5d995814078f16ac) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/fuzuki-inu-the-shiba-kanji-uniting-community-and-crypto)
+ 
 
 
 

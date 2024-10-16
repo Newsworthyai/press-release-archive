@@ -36,7 +36,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/manduka-r-lau
 [Original/Source Press Release](https://newsdirect.com/news/manduka-r-launches-the-dhara-yoga-apparel-collection-for-women-719754032)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/manduka-launches-sustainable-dhara-yoga-apparel-collection/2cb9bfe824c79fd95ffffacf04288078) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/manduka-introduces-sustainable-dhara-yoga-apparel-collection-for-women)
+
+Pickup - [fishervista.com](https://fishervista.com/en/manduka-introduces-sustainable-dhara-yoga-apparel-collection-for-women/20246784)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/manduka-unveils-sustainable-dhara-yoga-apparel-collection-for-women/20246784)
+
+Pickup - [advos.io](https://advos.io/en/manduka-unveils-sustainable-dhara-yoga-apparel-collection-for-women/20246784)
+ 
 
 
 

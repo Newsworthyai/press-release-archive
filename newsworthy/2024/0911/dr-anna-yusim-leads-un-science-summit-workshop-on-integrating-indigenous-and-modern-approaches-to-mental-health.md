@@ -48,7 +48,17 @@ Dr. Anna Yusim is a board-certified psychiatrist & Clinical Assistant Professor 
 [Original/Source Press Release](https://newsworthy.ai/news/202409111260/indigenous-mental-health-integrating-traditional-indigenous-and-modern-approaches-to-mental-health-at-the-un-general-assembly-science-summit)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/workshop-on-integrating-traditional-indigenous-and-modern-approaches-to-mental-health/69e85dd7568c67c5e803e6518876efeb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/11/un-science-summit-workshop-to-explore-integration-of-indigenous-and-modern-mental-health-approaches)
+
+Pickup - [fishervista.com](https://fishervista.com/en/un-science-summit-to-address-integration-of-indigenous-and-modern-mental-health-approaches/20246743)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/un-science-summit-to-host-workshop-on-integrating-indigenous-and-modern-mental-health-approaches/20246743)
+
+Pickup - [advos.io](https://advos.io/en/un-science-summit-to-explore-integrative-approaches-to-mental-health/20246743)
+ 
 
 
 

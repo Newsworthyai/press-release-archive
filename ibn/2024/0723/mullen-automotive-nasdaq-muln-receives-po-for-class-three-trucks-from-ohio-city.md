@@ -23,7 +23,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, h
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-receives-po-for-class-three-trucks-from-ohio-city/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-secures-major-municipal-purchase-for-class-3-electric-truck/fbd45bc2a75fcdf597f04e46fc97f572) 
+
+ 
 
 
 

@@ -25,7 +25,21 @@ Disclaimer: This publication is for informational purpose only and is not intend
 [Original/Source Press Release](https://blockchainwire.io/press-release/redotpay-obtains-vasp-registration-from-lithuanias-financial-crime-investigation-service-to-expand-products-and-services-offerings)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/redotpay-obtains-vasp-registration-from-lithuania-s-fcis/053d2778edaea3569ef5b364b782f715) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/redotpay-obtains-vasp-registration-from-lithuania-s-fcis)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/redotpay-obtains-vasp-registration-from-lithuania-s-fcis)
+
+Pickup - [fishervista.com](https://fishervista.com/en/redotpay-secures-vasp-registration-from-lithuania-s-fcis-expands-digital-payment-services-in-europe/20245984)
+
+Pickup - [advos.io](https://advos.io/en/redotpay-secures-vasp-registration-from-lithuania-s-fcis-expands-crypto-services/20245984)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/redotpay-secures-vasp-registration-in-lithuania-expanding-crypto-services-in-europe)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/redotpay-secures-vasp-registration-in-lithuania-expanding-crypto-payment-services/20245984)
+ 
 
 
 

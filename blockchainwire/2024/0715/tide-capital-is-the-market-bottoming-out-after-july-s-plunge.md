@@ -72,7 +72,15 @@ The information and data presented in this article are obtained from public sour
 [Original/Source Press Release](https://blockchainwire.io/press-release/tide-capital-is-the-market-bottoming-out-after-julysplunge)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/german-government-transfers-seized-bitcoins-bitcoin-etfs-see-inflows/42e071bd769432ba5bf299ef1262a5ba) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/crypto-market-shows-signs-of-recovery-after-july-downturn)
+
+Pickup - [fishervista.com](https://fishervista.com/en/crypto-market-shows-signs-of-recovery-amid-market-adjustments/20245071)
+
+Pickup - [advos.io](https://advos.io/en/market-bottoming-out-as-bitcoin-shows-signs-of-recovery/20245071)
+ 
 
 
 

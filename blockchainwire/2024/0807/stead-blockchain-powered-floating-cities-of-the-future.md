@@ -71,7 +71,21 @@ Twitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Teleg
 [Original/Source Press Release](https://blockchainwire.io/press-release/stead---blockchain-powered-floating-cities-of-the-future)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stead-decentralized-funding-platform-for-floating-infrastructure-in-southeast-asia/5d8b1b84ff8956ad94e2df18edf43a94) 
+
+
+Pickup - [advos.io](https://advos.io/en/stead-blockchain-powered-floating-cities-emerge-in-southeast-asia/20245557)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/stead-decentralized-funding-platform-for-floating-infrastructure-in-southeast-asia)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/stead-decentralized-funding-platform-for-floating-infrastructure-in-southeast-asia)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/stead-pioneering-blockchain-powered-floating-cities-for-a-sustainable-future)
+
+Pickup - [fishervista.com](https://fishervista.com/en/stead-introduces-blockchain-powered-floating-cities-for-sustainable-development/20245557)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/stead-introduces-blockchain-powered-floating-cities-a-new-frontier-in-real-estate-and-cryptocurrency/20245557)
+ 
 
 
 

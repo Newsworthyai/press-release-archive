@@ -17,7 +17,17 @@ View original content to download multimedia: https://newsdirect.com/news/news-d
 [Original/Source Press Release](https://newsdirect.com/news/news-directs-ongoing-marketing-campaign-turns-its-focus-to-the-benefits-of-its-unique-in-platform-stakeholder-collaboration-tool-859510391)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/news-direct-highlights-benefits-of-in-platform-stakeholder-collaboration-tool/1c0123d58362a9786d237a81fe81061c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/news-direct-highlights-advantages-of-in-platform-stakeholder-collaboration-tool/20245734)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/news-direct-highlights-innovative-stakeholder-collaboration-tool-in-latest-marketing-push/20245734)
+
+Pickup - [advos.io](https://advos.io/en/news-direct-highlights-benefits-of-unique-in-platform-stakeholder-collaboration-tool/20245734)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/news-direct-highlights-in-platform-collaboration-tool-for-stakeholder-engagement)
+ 
 
 
 

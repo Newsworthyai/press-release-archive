@@ -51,7 +51,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/expert-tips-t
 [Original/Source Press Release](https://newsdirect.com/news/expert-tips-to-support-and-celebrate-aging-pets-270667640)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/expert-tips-to-support-and-celebrate-aging-pets/4260f6e6f719a3cd32a00203083746ec) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/expert-tips-on-supporting-and-celebrating-aging-pets/20244266)
+
+Pickup - [advos.io](https://advos.io/en/expert-tips-on-supporting-and-celebrating-aging-pets/20244266)
+ 
 
 
 

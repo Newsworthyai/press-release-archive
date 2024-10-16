@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/shiba-inu-significant-cryptocurrency-shib-gains-new-shiba-inu-rival-set-for-100x)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiba-inu-faces-new-competition-from-shiba-budz/a149f1e1fb2e6fe7ff42c3e40a3faf70) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/shiba-inu-faces-potential-100x-rival-in-shiba-budz)
+ 
 
 
 

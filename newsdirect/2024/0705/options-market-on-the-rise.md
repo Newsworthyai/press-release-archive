@@ -43,7 +43,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/options-marke
 [Original/Source Press Release](https://newsdirect.com/news/options-market-on-the-rise-870036114)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/options-trading-gains-momentum-with-retail-investors/932de14b7b6b5258d97d40ac705fd108) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/options-market-sees-significant-growth-increased-accessibility-and-innovation-drive-expansion/20244733)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/options-trading-surges-industry-growth-and-innovation-drive-increased-adoption)
+
+Pickup - [advos.io](https://advos.io/en/options-market-experiences-significant-growth-amid-increased-retail-participation/20244733)
+ 
 
 
 

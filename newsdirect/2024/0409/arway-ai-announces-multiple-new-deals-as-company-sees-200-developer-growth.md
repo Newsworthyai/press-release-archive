@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/arway-ai-anno
 [Original/Source Press Release](https://newsdirect.com/news/arway-ai-announces-multiple-new-deals-as-company-sees-200-developer-growth-337497724)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arway-ai-sees-200-developer-growth-with-new-saas-deals-in-saudi-arabia-and-spain/c3054a24428d72ba2d6dfe164c23dff3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/arway-ai-expands-global-reach-with-new-developer-deals-and-university-partnerships)
+ 
 
 
 

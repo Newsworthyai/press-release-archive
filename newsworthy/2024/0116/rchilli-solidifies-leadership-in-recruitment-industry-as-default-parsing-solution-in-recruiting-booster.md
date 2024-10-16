@@ -25,7 +25,13 @@ RChilli is the trusted partner for parsing, matching, and data enrichment, provi
 [Original/Source Press Release](https://newsworthy.ai/news/20240116990/rchilli-solidifies-leadership-in-recruitment-industry-as-default-parsing-solution-in-recruiting-booster)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rchilli-becomes-default-parsing-solution-for-oracle-recruiting-booster/6e494e7a27cc450ef6bf6031e9afc7c6) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/rchilli-becomes-default-parsing-solution-in-oracle-recruiting-booster/2024272)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/16/rchilli-solidifies-leadership-with-oracle-recruiting-booster-integration)
+ 
 
 
 

@@ -54,7 +54,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/cprex-enters-
 [Original/Source Press Release](https://newsdirect.com/news/cprex-enters-orlando-market-with-acquisition-of-fully-leased-industrial-property-146505197)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cprex-acquires-fully-leased-industrial-property-in-orlando-fl/2ca3b7990665de52e7af6148297bd028) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/cprex-expands-industrial-real-estate-portfolio-with-orlando-acquisition)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cprex-expands-into-orlando-with-acquisition-of-fully-leased-industrial-property/20245849)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cprex-expands-industrial-real-estate-portfolio-with-orlando-acquisition/20245849)
+
+Pickup - [advos.io](https://advos.io/en/cprex-expands-orlando-footprint-with-key-industrial-acquisition/20245849)
+ 
 
 
 

@@ -7,7 +7,9 @@ DUBAI, UAE, October 01, 2024 /24-7PressRelease/ -- 30 September 2024- The Mohamm
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514804/mohammed-bin-rashid-al-maktoum-knowledge-foundation-launches-future-skills-academy-as-part-of-the-knowledge-project)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mbrf-and-undp-launch-future-skills-academy-to-empower-people-across-the-arab-world/caec261fdf588bdd851bf208c980c6f2) 
+
+ 
 
 
 

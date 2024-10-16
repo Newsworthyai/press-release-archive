@@ -39,7 +39,9 @@ Copyright 2023 Lionheart Health, Inc. All Rights Reserved
 [Original/Source Press Release](https://newsworthy.ai/news/20240424980/lionheart-health-expands-health-span-product-portfolio-with-unveiling-of-both-klotho-patch-tm-and-klotho-pod-tm-wearable-technologies)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lionheart-health-inc-unveils-klotho-patchtm-and-klotho-podtm-to-extend-healthspan-and-enhance-aesthetics/3aab642bbf6e4709b9bac128fea18323) 
+
+ 
 
 
 

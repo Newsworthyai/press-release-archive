@@ -37,7 +37,9 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/solana-and-bitcoin-stabilize-while-furrever-token-approaches-11-million-in-presale-funding)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/furrever-token-furr-emerges-as-a-compelling-newcomer-in-the-crypto-landscape/49a53c9f6ff62c181cb29e8762a54982) 
+
+ 
 
 
 

@@ -23,7 +23,11 @@ Unearth the world of PR expertise at www.PublicRelationsAdvice.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231215868/introducing-publicrelationsadvice-com-the-ultimate-destination-for-pr-expertise-and-guidance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-platform-publicrelationsadvice-com-launched-to-transform-pr-landscape/3990f7dd396ff2127a2efa72bd424d29) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/15/publicrelationsadvice-com-empowering-pr-professionals-with-expert-insights)
+ 
 
 
 

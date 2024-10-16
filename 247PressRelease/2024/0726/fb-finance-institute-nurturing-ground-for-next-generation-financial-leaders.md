@@ -7,7 +7,17 @@ SALT LAKE CITY, UT, July 26, 2024 /24-7PressRelease/ -- Wilbur Clark, who grew u
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512851/fb-finance-institute-nurturing-ground-for-next-generation-financial-leaders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wilbur-clark-s-fb-finance-institute-cultivating-future-investment-experts/e9d19b238c61ab7c8b9193f939f97c20) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/fb-finance-institute-shaping-the-future-of-global-financial-leadership)
+
+Pickup - [fishervista.com](https://fishervista.com/en/fb-finance-institute-shaping-future-financial-leaders-with-innovation-and-responsibility/20245275)
+
+Pickup - [advos.io](https://advos.io/en/fb-finance-institute-cultivates-future-financial-leaders-through-innovation-and-social-responsibility/20245275)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/fb-finance-institute-shaping-the-future-of-financial-leadership-and-social-progress)
+ 
 
 
 

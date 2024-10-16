@@ -49,7 +49,11 @@ CoinGecko: https://www.coingecko.com/en/coins/metfiInstagram: https://instagram.
 [Original/Source Press Release](https://blockchainwire.io/press-release/marine-moguls-by-metfi-59-million-erc-404-airdrop-making-early-waves)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marine-moguls-airdrop-revolutionizing-token-and-nft-distribution/9ba10971e1d14b5ca65842876e8a3d46) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/marine-moguls-by-metfi-pioneering-the-future-of-token-and-nft-integration)
+ 
 
 
 

@@ -29,7 +29,11 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-expands-product-roadmap-to-bring-power-of-quantum-to-ai-ml/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-expands-leap-quantum-cloud-service-to-boost-ai-and-ml-capabilities/dc78b83321da4360e83503e9e796a7a2) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/d-wave-quantum-unveils-expanded-product-roadmap-to-integrate-quantum-computing-with-ai-and-machine-learning/20246213)
+ 
 
 
 

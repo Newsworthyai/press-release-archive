@@ -7,7 +7,9 @@ GEORGETOWN, KY, September 26, 2024 /24-7PressRelease/ -- Karen T. Lockridge, an 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514652/karen-t-lockridge-unveils-distant-lands-dark-horizon-a-new-epic-fantasy-adventure)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-dark-fantasy-novel-distant-lands-dark-horizon-takes-readers-on-an-epic-adventure/d73ef316b3434be72501a735280a1966) 
+
+ 
 
 
 

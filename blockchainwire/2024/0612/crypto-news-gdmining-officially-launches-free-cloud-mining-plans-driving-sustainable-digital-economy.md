@@ -43,7 +43,15 @@ GDMining is a leading provider of cloud mining services, offering users worldwid
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-news-gdmining-officially-launches-free-cloud-mining-plans-driving-sustainable-digital-economy-2)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gdmining-launches-new-bitcoin-cloud-mining-plans-and-affiliate-program/a4fbfaa46f0160aa1dd6a3526884e922) 
+
+
+Pickup - [advos.io](https://advos.io/en/gdmining-launches-free-cloud-mining-plans-to-promote-sustainable-digital-economy/20244091)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gdmining-launches-new-bitcoin-cloud-mining-plans-and-affiliate-program)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gdmining-launches-new-bitcoin-cloud-mining-plans-and-affiliate-program)
+ 
 
 
 

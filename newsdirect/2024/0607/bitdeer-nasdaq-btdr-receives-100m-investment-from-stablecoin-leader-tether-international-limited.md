@@ -51,7 +51,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitdeer-nasda
 [Original/Source Press Release](https://newsdirect.com/news/bitdeer-nasdaq-btdr-receives-100m-investment-from-stablecoin-leader-tether-international-limited-902451832)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tether-international-limited-invests-100m-in-bitdeer-technologies-group/44f22b61aca0a3935078fef745f4b00c) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tether-international-limited-invests-100m-in-bitdeer-technologies-group)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tether-international-limited-invests-100m-in-bitdeer-technologies-group)
+ 
 
 
 

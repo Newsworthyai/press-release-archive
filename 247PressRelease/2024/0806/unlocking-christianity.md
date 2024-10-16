@@ -7,7 +7,17 @@ COLLIE, AUSTRALIA, August 06, 2024 /24-7PressRelease/ -- PCRS proudly announces 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513157/unlocking-christianity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-the-key-unlocking-christianity-to-revolutionize-spiritual-connection/83cc09287c31d880f1c571ce9ae94a66) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/new-book-the-key-unlocking-christianity-offers-fresh-perspective-on-faith)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-book-by-sam-finn-aims-to-revolutionize-christian-spirituality/20245510)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-book-the-key-unlocking-christianity-offers-fresh-approach-to-spiritual-growth)
+
+Pickup - [advos.io](https://advos.io/en/sam-finn-s-new-book-the-key-unlocking-christianity-to-offer-practical-spiritual-insights/20245510)
+ 
 
 
 

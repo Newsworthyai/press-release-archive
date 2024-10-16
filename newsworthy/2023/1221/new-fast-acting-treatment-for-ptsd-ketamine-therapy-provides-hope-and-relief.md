@@ -15,7 +15,9 @@ As the prevalence of PTSD continues to rise, raising awareness about the options
 [Original/Source Press Release](https://newsworthy.ai/news/20231221918/new-fast-acting-treatment-for-ptsd-ketamine-therapy-provides-hope-and-relief)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ketamine-therapy-a-new-hope-for-ptsd-relief/5fb55d172156529060adfce98f16bc58) 
+
+ 
 
 
 

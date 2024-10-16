@@ -9,7 +9,11 @@ With its seamless integration of text, voice, and video calls within the dynamic
 [Original/Source Press Release](https://blockchainwire.io/press-release/revolutionizing-communication-solchat-set-to-transform-the-future-of-messaging-on-the-solana-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solchat-redefines-digital-interaction-with-new-communication-protocol/7e9b6d9ef2596ef06c52bde745eb1cbc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/11/solchat-revolutionizing-communication-on-the-solana-blockchain)
+ 
 
 
 

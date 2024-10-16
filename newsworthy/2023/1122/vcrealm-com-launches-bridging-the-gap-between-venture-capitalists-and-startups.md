@@ -23,7 +23,11 @@ Stay informed and connected with the venture capital ecosystem at www.VCRealm.co
 [Original/Source Press Release](https://newsworthy.ai/news/20231122884/vcrealm-com-launches-bridging-the-gap-between-venture-capitalists-and-startups)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-vcrealm-com-the-ultimate-platform-for-venture-capital-professionals/ec95c7f55d50009dca371b2dddd0ee4a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/22/vcrealm-com-the-new-hub-for-venture-capital-insights-and-connections)
+ 
 
 
 

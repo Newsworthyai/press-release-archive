@@ -43,7 +43,17 @@ Download Earn Alliance App: Google Play Store | Apple Store
 [Original/Source Press Release](https://blockchainwire.io/press-release/gaming-discovery-platform-earn-alliance-announces-team-expansion)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/earn-alliance-announces-key-hires-to-redefine-future-of-gaming-ecosystems/775650d7405a439167168f875ae19483) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/earn-alliance-expands-team-with-key-industry-veterans/20244331)
+
+Pickup - [advos.io](https://advos.io/en/earn-alliance-expands-team-to-propel-web3-gaming-innovations/20244331)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/earn-alliance-announces-key-hires-to-redefine-future-of-gaming-ecosystems)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/earn-alliance-announces-key-hires-to-redefine-future-of-gaming-ecosystems)
+ 
 
 
 

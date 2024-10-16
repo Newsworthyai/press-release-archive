@@ -43,7 +43,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/paragon-network-unveils-test-net-showcasing-breakthrough-capabilities-in-decentralized-computing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/paragon-network-launches-highly-anticipated-test-net-for-decentralized-computing/a079d0601a8bd015c44996742beb58af) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/paragon-network-unveils-groundbreaking-test-net-for-decentralized-computing)
+ 
 
 
 

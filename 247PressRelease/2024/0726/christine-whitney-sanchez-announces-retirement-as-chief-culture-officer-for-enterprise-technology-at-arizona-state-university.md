@@ -7,7 +7,17 @@ PHOENIX, AZ, July 26, 2024 /24-7PressRelease/ -- Christine Whitney Sanchez, Chie
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512884/christine-whitney-sanchez-announces-retirement-as-chief-culture-officer-for-enterprise-technology-at-arizona-state-university)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/asu-chief-culture-officer-retires-plans-to-empower-women-and-organizations/3f1ffcb9503620647ed1360b4cd8be9d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/arizona-state-university-s-chief-culture-officer-christine-whitney-sanchez-announces-retirement)
+
+Pickup - [fishervista.com](https://fishervista.com/en/christine-whitney-sanchez-retires-as-chief-culture-officer-at-asu/20245280)
+
+Pickup - [advos.io](https://advos.io/en/christine-whitney-sanchez-retires-as-chief-culture-officer-of-asu-enterprise-technology/20245280)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/christine-whitney-sanchez-retires-as-chief-culture-officer-at-arizona-state-university)
+ 
 
 
 

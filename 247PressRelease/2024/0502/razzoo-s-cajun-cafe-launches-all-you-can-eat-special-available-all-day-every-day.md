@@ -7,7 +7,9 @@ IRVING, TX, May 02, 2024 /24-7PressRelease/ -- Call your mama and grab your bib 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510599/razzoos-cajun-cafe-launches-all-you-can-eat-special-available-all-day-every-day)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/razzoo-s-cajun-cafe-offers-all-you-can-eat-seafood-special-for-14-99/1d783b9a8f5688eb141a6b59c9c7bd27) 
+
+ 
 
 
 

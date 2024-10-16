@@ -32,7 +32,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/db-schenker-c
 [Original/Source Press Release](https://newsdirect.com/news/db-schenker-collaborates-with-microsoft-cloud-logistics-on-low-carbon-intercontinental-transportation-and-sustainable-logistics-838791767)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/db-schenker-and-microsoft-cloud-logistics-partner-to-reduce-carbon-emissions-in-transportation-and-logistics/72ebaa8892908aceb9a00663a976c96a) 
+
+ 
 
 
 

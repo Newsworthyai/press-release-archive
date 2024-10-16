@@ -72,7 +72,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ethical-searc
 [Original/Source Press Release](https://newsdirect.com/news/ethical-search-engine-karma-arrives-in-the-u-s-empowers-users-to-protect-animals-and-biodiversity-by-browsing-the-web-953405198)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ethical-search-engine-karma-arrives-in-the-u-s/45c8ea449d0d758caf8d9110d8244ca0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/ethical-search-engine-karma-arrives-in-the-u-s-empowering-users-to-protect-animals-and-biodiversity)
+ 
 
 
 

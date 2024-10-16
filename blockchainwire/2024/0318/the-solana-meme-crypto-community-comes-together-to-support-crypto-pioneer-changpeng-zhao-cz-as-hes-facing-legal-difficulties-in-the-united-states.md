@@ -29,7 +29,11 @@ For more information and regular updates please visit [the official website](htt
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-solana-meme-crypto-community-comes-together-to-support-crypto-pioneer-changpeng-zhao-cz-as-hes-facing-legal-difficulties-in-the-united-states-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/czolana-token-celebrating-cz-s-contributions-and-generating-value/321a1147f3384d7c11a1e2934f62b400) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/solana-community-rallies-behind-crypto-pioneer-cz-with-czolana-token)
+ 
 
 
 

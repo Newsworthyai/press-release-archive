@@ -7,7 +7,11 @@ PLANTATION, FL, March 23, 2024 /24-7PressRelease/ -- Jason Chalik, founding part
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509511/jason-chalik-makes-the-national-trial-lawyers-top-100-list)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jason-chalik-awarded-spot-on-national-trial-lawyers-top-100-list/e17f79edc30f32e19b6236c1d48d4086) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/23/jason-chalik-joins-national-trial-lawyers-top-100-list)
+ 
 
 
 

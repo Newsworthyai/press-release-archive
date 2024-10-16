@@ -43,7 +43,9 @@ Follow us on Twitter | LinkedIn | CrunchBase | Founder & CEO Profile
 [Original/Source Press Release](https://blockchainwire.io/press-release/sameer-group-llc-ramps-up-crypto-investment-with-30m-commitment-to-solana-memecoin-michi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sameer-group-increases-investment-in-michi-showcasing-growing-interest-in-cryptocurrency/865f278f772c8e45bf6bb7d68440c0e6) 
+
+ 
 
 
 

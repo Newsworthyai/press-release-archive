@@ -7,7 +7,9 @@ NEW YORK, NY, October 07, 2024 /24-7PressRelease/ -- Globalmanagergroup.com, a l
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514974/globalmanagergroupcom-launches-comprehensive-documentation-kit-for-iso-71012023-healthcare-quality-management-system)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/globalmanagergroup-com-launches-iso-7101-2023-documentation-kit-for-healthcare-organizations/215269db7db165c14b2e44dd4e754774) 
+
+ 
 
 
 

@@ -57,7 +57,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/laser-photoni
 [Original/Source Press Release](https://newsdirect.com/news/laser-photonics-nasdaq-lase-h1-milestones-update-expanded-and-upgraded-product-offering-deepened-partnerships-successful-anti-drone-laser-tech-testing-and-more-939864486)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/laser-photonics-nasdaq-lase-hits-milestones-in-h1-with-product-launches-partnerships-and-anti-drone-tech-testing/ef1c61643b1808ff586284ef46f0baef) 
+
+
+Pickup - [advos.io](https://advos.io/en/laser-photonics-achieves-key-milestones-in-h1-2024-with-new-products-partnerships-and-successful-anti-drone-tech-testing/20244877)
+
+Pickup - [fishervista.com](https://fishervista.com/en/laser-photonics-achieves-key-milestones-in-h1-2024-with-expanded-product-offerings-and-strategic-partnerships/20244877)
+
+Pickup - [citybuzz.co](https://citybuzz.co/laser-photonics-reports-significant-progress-in-first-half-of-2024)
+ 
 
 
 

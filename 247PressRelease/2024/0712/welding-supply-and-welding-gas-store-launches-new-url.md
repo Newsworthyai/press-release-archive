@@ -7,7 +7,15 @@ MINNEAPOLIS, MN, July 12, 2024 /24-7PressRelease/ -- Toll Gas, a leading provide
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512477/welding-supply-and-welding-gas-store-launches-new-url)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/toll-gas-launches-new-url-for-enhanced-user-experience/329fd24edce02c75518ef19ace912cd6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/toll-gas-unveils-new-url-for-enhanced-welding-supply-and-gas-shopping-experience)
+
+Pickup - [fishervista.com](https://fishervista.com/en/toll-gas-unveils-new-url-to-enhance-customer-experience/20244899)
+
+Pickup - [advos.io](https://advos.io/en/toll-gas-launches-new-url-to-enhance-customer-experience/20244899)
+ 
 
 
 

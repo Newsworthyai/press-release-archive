@@ -7,7 +7,11 @@ BEVERLY HILLS, CA, March 11, 2024 /24-7PressRelease/ -- The Biggest Award night 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509187/gbk-brand-bar-celebrated-their-15th-annual-luxury-lounge-prior-to-oscars-presented-by-care-a2)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/star-studded-15th-annual-oscar-luxury-lounge-presents-over-100000-in-gifts/d25dd228e0366114083f1bc6570d0aa1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/stars-shine-at-gbk-brand-bar-s-15th-annual-oscar-luxury-lounge)
+ 
 
 
 

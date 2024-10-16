@@ -7,7 +7,17 @@ PROSPER, TX, August 08, 2024 /24-7PressRelease/ -- Kyle S. Owens, MD, has been r
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513098/dermatologist-kyle-owens-named-a-2024-castle-connolly-rising-star)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dermatologist-dr-kyle-s-owens-named-2024-castle-connolly-rising-star/57a12fb1c8ff40fdbc8be089e19c3d72) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/dermatologist-kyle-owens-named-2024-castle-connolly-rising-star/20245574)
+
+Pickup - [advos.io](https://advos.io/en/kyle-owens-named-2024-castle-connolly-rising-star/20245574)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dermatologist-kyle-owens-recognized-as-2024-castle-connolly-rising-star/20245574)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/dr-kyle-owens-recognized-as-2024-castle-connolly-rising-star-in-dermatology)
+ 
 
 
 

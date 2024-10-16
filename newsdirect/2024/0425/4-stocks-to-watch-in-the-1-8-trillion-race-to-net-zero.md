@@ -77,7 +77,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/4-stocks-to-w
 [Original/Source Press Release](https://newsdirect.com/news/4-stocks-to-watch-in-the-1-8-trillion-race-to-net-zero-893807156)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investing-in-the-1-8-trillion-race-to-net-zero-4-stocks-to-watch/36cfc7d4393a177b9679a1a6f3db67d7) 
+
+ 
 
 
 

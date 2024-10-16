@@ -41,7 +41,11 @@ Discord: http://discord.gg/FQRA8wqRWa
 [Original/Source Press Release](https://blockchainwire.io/press-release/former-un-chief-of-commodities-joins-zengate-globals-advisory-board)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zengate-global-appoints-lamon-rutten-as-advisor-to-develop-palmyra-platform/7b838e7596f5bf7c37c2525ff69447c9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/01/commodities-veteran-joins-zengate-to-revolutionize-global-trading)
+ 
 
 
 

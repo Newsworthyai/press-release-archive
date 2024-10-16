@@ -61,7 +61,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ai-unpacks-ge
 [Original/Source Press Release](https://newsdirect.com/news/ai-unpacks-generational-stereotypes-highlighting-key-differences-but-beer-bridges-the-gap-726579514)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ai-unpacks-generational-stereotypes-beer-bridges-the-gap/7f2c8ebaf321a667243efdb5da0c4f85) 
+
+ 
 
 
 

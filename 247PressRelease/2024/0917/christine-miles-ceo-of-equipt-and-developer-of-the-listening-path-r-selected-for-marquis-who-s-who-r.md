@@ -7,7 +7,17 @@ PHILADELPHIA, PA, September 17, 2024 /24-7PressRelease/ -- Christine Miles, CEO 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514380/christine-miles-ceo-of-equipt-and-developer-of-the-listening-path-selected-for-marquis-whos-who)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ceo-of-equipt-and-developer-of-the-listening-path-r-recognized-by-marquis-who-s-who-r/85363a489aaec962e1e6675a1188e84b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/equipt-ceo-christine-miles-recognized-in-marquis-who-s-who-r-for-pioneering-work-in-listening-skills)
+
+Pickup - [fishervista.com](https://fishervista.com/en/christine-miles-ceo-of-equipt-recognized-in-marquis-who-s-who-r-for-pioneering-work-in-listening-skills/20246894)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/equipt-ceo-christine-miles-recognized-in-marquis-who-s-who-for-pioneering-work-in-listening-skills/20246894)
+
+Pickup - [advos.io](https://advos.io/en/equipt-ceo-christine-miles-recognized-in-marquis-who-s-who-for-listening-expertise/20246894)
+ 
 
 
 

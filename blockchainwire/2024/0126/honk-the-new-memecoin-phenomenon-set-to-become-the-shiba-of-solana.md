@@ -27,7 +27,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/honk-the-new-memecoin-phenomenon-set-to-become-the-shiba-of-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/honk-the-rise-of-a-memecoin-rivalry-on-solana-blockchain/1cb1247315a4d57b8c12a43e8fe63bce) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/26/honk-the-memecoin-phenomenon-aiming-to-become-the-shiba-of-solana)
+ 
 
 
 

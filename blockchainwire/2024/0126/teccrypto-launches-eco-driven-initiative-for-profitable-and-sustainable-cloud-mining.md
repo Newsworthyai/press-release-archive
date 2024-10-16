@@ -61,7 +61,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/teccrypto-launches-eco-driven-initiative-for-profitable-and-sustainable-cloud-mining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teccrypto-announces-eco-driven-initiative-to-revolutionize-sustainable-cloud-mining/b9aa6061e945478e250d5ecd9a7e5ed9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/26/teccrypto-pioneers-eco-friendly-and-profitable-cloud-mining)
+ 
 
 
 

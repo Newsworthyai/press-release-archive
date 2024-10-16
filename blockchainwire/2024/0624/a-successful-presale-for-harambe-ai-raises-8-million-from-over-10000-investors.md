@@ -13,7 +13,17 @@ Become a Part of the Harambe AI CommunityDue to its growing popularity, Harambe 
 [Original/Source Press Release](https://blockchainwire.io/press-release/a-successful-presale-for-harambe-ai-raises-8-million-from-over-10000-investors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/harambe-ai-new-age-meme-coins/18c8004b514179f319070a8498dba3f8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/harambe-ai-raises-8-million-in-presale-setting-stage-for-token-listing-and-airdrop/20244431)
+
+Pickup - [advos.io](https://advos.io/en/harambe-ai-presale-raises-8-million-sets-stage-for-token-listing/20244431)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/harambe-ai-new-age-meme-coins)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/harambe-ai-new-age-meme-coins)
+ 
 
 
 

@@ -7,7 +7,9 @@ MONTGOMERY, TX, May 29, 2024 /24-7PressRelease/ -- Patricia Fisk Harris's touchi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511229/embark-on-a-journey-of-love-and-healing-patricia-fisk-harris-shares-her-inspiring-memoir-finding-companionship-and-romance-after-loss)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rediscovering-love-a-memoir-of-companionship-and-healing/1577d1618ade59595274c86e55f21b74) 
+
+ 
 
 
 

@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/fpx-nickel-to
 [Original/Source Press Release](https://newsdirect.com/news/fpx-nickel-to-expand-mich-property-exploration-with-350-claim-increase-and-summer-surface-program-764460514)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fpx-nickel-expands-mich-property-exploration/0108be66d5614f37a366656ea1c97a33) 
+
+
+Pickup - [advos.io](https://advos.io/en/fpx-nickel-expands-mich-property-exploration-with-substantial-claim-increase-and-upcoming-surface-program/20243988)
+ 
 
 
 

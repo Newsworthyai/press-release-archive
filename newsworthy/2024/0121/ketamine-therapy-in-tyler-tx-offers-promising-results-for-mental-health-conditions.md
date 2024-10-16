@@ -17,7 +17,9 @@ As a potent tool in the mental health arsenal, ketamine therapy offers new hope 
 [Original/Source Press Release](https://newsworthy.ai/news/202401211006/ketamine-therapy-in-tyler-tx-offers-promising-results-for-mental-health-conditions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ketamine-therapy-a-game-changer-in-mental-health-treatment/e4f92957c1d420322e8189e4a93e1c9c) 
+
+ 
 
 
 

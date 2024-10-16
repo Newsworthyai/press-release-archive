@@ -34,7 +34,17 @@ ALEX offers a comprehensive suite of DeFi services, including a decentralized ex
 [Original/Source Press Release](https://blockchainwire.io/press-release/alexgo-and-zeroshadow-collaborate-to-create-security--recovery-solutions-for-stacks)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/alexgo-and-zeroshadow-join-forces-to-enhance-security-for-bitcoin-layer-2-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/alexgo-and-zeroshadow-partner-to-enhance-security-for-stacks-ecosystem/20245429)
+
+Pickup - [advos.io](https://advos.io/en/alexgo-and-zeroshadow-partner-to-bolster-security-in-stacks-ecosystem/20245429)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/alexgo-and-zeroshadow-partner-to-enhance-security-for-bitcoin-layer-2-solutions)
+ 
 
 
 

@@ -27,7 +27,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/fuzuki-inu---the-shiba-kanji-pre-sale-success-journey)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fuzuki-inu-the-shiba-kanji-transforming-the-cryptocurrency-market/ed12865fd1e5874d7aa494a64d14c0d6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/fuzuki-inu-the-shiba-kanji-pre-sale-success-journey)
+ 
 
 
 

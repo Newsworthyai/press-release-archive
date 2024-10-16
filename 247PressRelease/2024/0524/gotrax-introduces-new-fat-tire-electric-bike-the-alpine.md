@@ -7,7 +7,9 @@ DALLAS, TX, May 24, 2024 /24-7PressRelease/ -- GOTRAX, a leader in the industry 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511168/gotrax-introduces-new-fat-tire-electric-bike-the-alpine)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gotrax-announces-launch-of-versatile-alpine-electric-bike/8e25c52b50388f010643e02c5d196c1b) 
+
+ 
 
 
 

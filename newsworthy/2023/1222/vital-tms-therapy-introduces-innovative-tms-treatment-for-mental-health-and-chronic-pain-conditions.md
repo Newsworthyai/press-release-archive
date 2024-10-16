@@ -15,7 +15,11 @@ With the aid of CloudTMS technology, an advanced system that securely stores pra
 [Original/Source Press Release](https://newsworthy.ai/news/20231222938/vital-tms-therapy-introduces-innovative-tms-treatment-for-mental-health-and-chronic-pain-conditions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vital-tms-therapy-introduces-innovative-tms-treatment-for-mental-health-and-chronic-pain/7767c2c400896c302cd19d4009f3bf35) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/22/vital-tms-therapy-pioneers-innovative-brain-treatment-for-mental-health-and-chronic-pain)
+ 
 
 
 

@@ -39,7 +39,19 @@ Instagram: https://www.instagram.com/public_masterpiece/
 [Original/Source Press Release](https://blockchainwire.io/press-release/leading-the-rwa-revolution-public-masterpiece-announces-its-successful-transformation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/public-masterpiece-token-revolutionizing-real-world-asset-tokenization/ebc614aca97767e1aea64f8d95619ec5) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/public-masterpiece-revolutionizes-art-and-asset-ownership-with-blockchain/20244835)
+
+Pickup - [advos.io](https://advos.io/en/public-masterpiece-pioneers-blockchain-revolution-in-art-and-luxury-asset-tokenization/20244835)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/public-masterpiece-token-revolutionizes-real-world-asset-tokenization)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/public-masterpiece-token-revolutionizing-real-world-asset-tokenization)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/public-masterpiece-token-revolutionizing-real-world-asset-tokenization)
+ 
 
 
 

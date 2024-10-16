@@ -63,7 +63,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/luftgekuhlt-1
 [Original/Source Press Release](https://newsdirect.com/news/luftgekuhlt-10-celebrates-porsche-turbo-anniversary-at-universal-studios-backlot-950641992)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/luftgekuhlt-10-celebrates-50th-anniversary-of-porsche-911-turbo/f0778e0645348ecb458a51b6a9df5f6c) 
+
+ 
 
 
 

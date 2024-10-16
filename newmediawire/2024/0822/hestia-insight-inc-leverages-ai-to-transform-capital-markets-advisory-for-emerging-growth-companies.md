@@ -47,7 +47,11 @@ Email: Areyes@hestiainvestments.us
 [Original/Source Press Release](https://www.newmediawire.com/news/hestia-insight-inc-leverages-ai-to-transform-capital-markets-advisory-for-emerging-growth-companies-7075954)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hestia-insight-inc-shifts-focus-to-ai-enhanced-capital-markets-advisory-services/14e17196be85bed3c4ac531a32e7e230) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/hestia-insight-integrates-ai-into-capital-markets-advisory-services-for-emerging-growth-companies/20246461)
+ 
 
 
 

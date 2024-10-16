@@ -33,7 +33,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/clean-power-p
 [Original/Source Press Release](https://newsdirect.com/news/clean-power-provides-reliable-energy-during-peak-summer-months-524526153)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clean-power-reliable-energy-for-peak-summer-months/12c2ecb941904fe0db5c349b8116cd2f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/clean-energy-bolsters-grid-reliability-during-peak-summer-months/20244348)
+
+Pickup - [advos.io](https://advos.io/en/clean-power-ensures-reliable-energy-supply-during-peak-summer-months/20244348)
+ 
 
 
 

@@ -33,7 +33,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-files-new-composition-of-matter-patent-for-buntanetap/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annovis-bio-nyse-anvs-makes-strides-in-neurodegenerative-disease-research-with-new-patent-filing/41cc405e56d5989f0b014e98aed2955e) 
+
+ 
 
 
 

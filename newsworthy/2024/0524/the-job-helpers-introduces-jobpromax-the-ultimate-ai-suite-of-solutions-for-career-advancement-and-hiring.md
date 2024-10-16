@@ -27,7 +27,11 @@ For media inquiries or further information, please contact:Amanda Dissanayake, H
 [Original/Source Press Release](https://newsworthy.ai/news/202405241172/the-job-helpers-introduces-jobpromax-the-ultimate-ai-suite-of-solutions-for-career-advancement-and-hiring)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jobpromax-your-ultimate-career-assistance-tool/9575e384c3733cd723340dd51284b0a5) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/the-job-helpers-launches-jobpromax-ai-powered-career-advancement-platform/20243401)
+ 
 
 
 

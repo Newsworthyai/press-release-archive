@@ -39,7 +39,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/classiq-colla
 [Original/Source Press Release](https://newsdirect.com/news/classiq-collaborates-with-bmw-group-and-nvidia-to-drive-quantum-computing-applicability-in-electrical-systems-engineering-555609784)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/classiq-nvidia-and-bmw-group-collaborate-to-drive-quantum-computing-applicability-in-electrical-systems-engineering/da61832cf976f9933c18e109d83c1141) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/classiq-teams-up-with-bmw-group-and-nvidia-to-revolutionize-quantum-computing-in-automotive-engineering/20244316)
+
+Pickup - [advos.io](https://advos.io/en/classiq-partners-with-bmw-group-and-nvidia-to-revolutionize-quantum-computing-in-automotive-engineering/20244316)
+ 
 
 
 

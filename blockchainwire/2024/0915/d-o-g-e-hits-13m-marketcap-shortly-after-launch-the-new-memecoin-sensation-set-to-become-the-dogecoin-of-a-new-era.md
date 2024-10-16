@@ -41,7 +41,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/doge-hits-13m-marketcap-shortly-after-launch-the-new-memecoin-sensation-set-to-become-the-dogecoin-of-a-new-era)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-doge-coin-launched-a-political-and-crypto-collaboration/38acb305c178a579598632ffa4e91de3) 
+
+ 
 
 
 

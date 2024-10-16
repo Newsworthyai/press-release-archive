@@ -7,7 +7,11 @@ LOS ANGELES, CA, April 04, 2024 /24-7PressRelease/ -- As Easter brings a season 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509773/luca-meets-sonny-captivates-readers-receives-rave-reviews-and-attracts-barnes-noble-attention)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heartwarming-children-s-book-luca-meets-sonny-captivates-readers-with-tale-of-friendship-and-companionship/62e2f86a9375b46954541213a0381b29) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/heartwarming-tale-luca-meets-sonny-captivates-readers-earns-acclaim)
+ 
 
 
 

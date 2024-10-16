@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/crypto-whale-
 [Original/Source Press Release](https://newsdirect.com/news/crypto-whale-invests-11-695-in-pawfury-paw-presale-685714608)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-whale-makes-substantial-investment-in-pawfury-presale/ea28d5da03ea1862179a025231ecf5d1) 
+
+ 
 
 
 

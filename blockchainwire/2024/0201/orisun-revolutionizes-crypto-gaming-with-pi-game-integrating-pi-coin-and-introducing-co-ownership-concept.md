@@ -41,7 +41,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/orisun-revolutionizes-crypto-gaming-with-pigame-integrating-pi-coin-and-introducing-co-ownership-concept)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/orisun-introduces-pi-game-revolutionary-gaming-platform-with-pi-coin-integration-and-co-ownership-opportunities/040889225e5d5f72803058b7a4a6fbd6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/01/orisun-pioneers-crypto-gaming-revolution-with-pi-game)
+ 
 
 
 

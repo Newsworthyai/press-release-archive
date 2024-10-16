@@ -23,7 +23,11 @@ For insights and expert advice on plumbing, visit www.PlumberExperts.co.
 [Original/Source Press Release](https://newsworthy.ai/news/20231204863/plumberexperts-co-launches-the-destination-for-plumbing-knowledge-and-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/plumberexperts-co-unveiled-redefining-plumbing-expertise/287110736fee5c305c8abd9ffe610979) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/04/plumberexperts-co-the-new-go-to-destination-for-plumbing-knowledge)
+ 
 
 
 

@@ -7,7 +7,9 @@ EDMONTON, AB, September 18, 2024 /24-7PressRelease/ -- Insight Works, a leading 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514389/free-apps-for-dynamics-365-business-central-to-help-microsoft-partners-enhance-client-offerings)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/insight-works-renews-push-to-highlight-free-apps-for-microsoft-dynamics-365-business-central/cd993655ed27e94f4d5e2e9a460e9d30) 
+
+ 
 
 
 

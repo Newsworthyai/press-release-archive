@@ -7,7 +7,11 @@ BOSTON, MA, March 18, 2024 /24-7PressRelease/ -- Duddy, Goodwin & Pollard intend
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509309/duddy-goodwin-pollard-announces-2024-scholarship)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/duddy-goodwin-pollard-launches-community-leader-scholarship/c582efc28b907102c608184dfb6c5a0f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/duddy-goodwin-pollard-offers-community-leader-scholarship-for-2024)
+ 
 
 
 

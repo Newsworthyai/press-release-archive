@@ -61,7 +61,11 @@ Website: [https://www.lunar-wp.bet/](https://www.lunar-wp.bet/)Twitter: [https:/
 [Original/Source Press Release](https://blockchainwire.io/press-release/lunar-registered-and-licenced-crypto-casinogaming-platform-achievements)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lunar-cryptocurrency-project-overcoming-challenges-and-achieving-milestones/ba9e7504f5b24a53c70e72d946f067a6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/lunar-registered-and-licenced-crypto-casino-gaming-platform-achievements)
+ 
 
 
 

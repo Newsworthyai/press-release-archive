@@ -35,7 +35,9 @@ Presale: presale.whatsthisfor.ioDisclaimer: The information provided in this pre
 [Original/Source Press Release](https://blockchainwire.io/press-release/whats-this-for-token-wtf-pioneers-the-way-for-real-world-assets-tokenization-into-base-smart-chain-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-wtf-token-presale-now-live-on-base-smart-chain/25209cdc3a0d40f52c76fd92eaab4719) 
+
+ 
 
 
 

@@ -63,7 +63,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/geopolitical-
 [Original/Source Press Release](https://newsdirect.com/news/geopolitical-strategist-and-best-selling-author-peter-zeihan-to-speak-on-cutting-through-chaos-at-crossroads-summit-sponsored-by-tradestation-group-393676401)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crossroads-summit-navigating-the-changing-world-of-finance/63407ffe04a15d7e5e41ac004280e3b6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/30/geopolitical-expert-peter-zeihan-to-keynote-crossroads-summit-on-navigating-global-chaos)
+
+Pickup - [fishervista.com](https://fishervista.com/en/geopolitical-strategist-peter-zeihan-to-address-global-uncertainties-at-crossroads-summit/20246400)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/peter-zeihan-to-address-global-chaos-at-upcoming-crossroads-summit/20246400)
+
+Pickup - [advos.io](https://advos.io/en/peter-zeihan-to-address-geopolitical-challenges-at-crossroads-summit/20246400)
+ 
 
 
 

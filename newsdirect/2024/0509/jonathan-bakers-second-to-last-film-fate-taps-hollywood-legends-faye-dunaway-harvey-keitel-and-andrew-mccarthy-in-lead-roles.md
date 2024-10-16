@@ -84,7 +84,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/jonathan-bake
 [Original/Source Press Release](https://newsdirect.com/news/jonathan-bakers-second-to-last-film-fate-taps-hollywood-legends-faye-dunaway-harvey-keitel-and-andrew-mccarthy-in-lead-roles-924481446)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jonathan-baker-s-fate-taps-hollywood-legends-faye-dunaway-harvey-keitel-and-andrew-mccarthy-in-lead-roles/204cacb392e3ebe307a5b7e9bd873226) 
+
+ 
 
 
 

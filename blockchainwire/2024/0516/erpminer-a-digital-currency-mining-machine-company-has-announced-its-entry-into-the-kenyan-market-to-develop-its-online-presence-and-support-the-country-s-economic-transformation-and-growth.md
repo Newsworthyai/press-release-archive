@@ -23,7 +23,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/erpminer-a-digital-currency-mining-machine-company-has-announced-its-entry-into-the-kenyan-market-to-develop-its-online-presence-and-support-the-countrys-economic-transformation-and-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/erpminer-expanding-operations-in-kenya-to-capture-african-market/ae9ebf1ee9a7dde267b39fd675e73afb) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/erpminer-expanding-operations-in-kenya-to-capture-african-market)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/erpminer-expanding-operations-in-kenya-to-capture-african-market)
+ 
 
 
 

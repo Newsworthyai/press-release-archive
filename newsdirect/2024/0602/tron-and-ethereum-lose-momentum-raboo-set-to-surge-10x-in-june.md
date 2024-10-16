@@ -41,7 +41,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/tron-and-ethe
 [Original/Source Press Release](https://newsdirect.com/news/tron-and-ethereum-lose-momentum-raboo-set-to-surge-10x-in-june-150964041)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tron-and-ethereum-face-legal-battles-raboo-set-to-surge-10x-in-june/139e5f9a32e6da0d2b0a73493370e23e) 
+
+
+Pickup - [advos.io](https://advos.io/en/tron-and-ethereum-face-legal-battles-raboo-emerges-as-top-investment-in-june/20243610)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tron-and-ethereum-face-legal-battles-raboo-set-to-surge-10x-in-june)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tron-and-ethereum-face-legal-battles-raboo-set-to-surge-10x-in-june)
+ 
 
 
 

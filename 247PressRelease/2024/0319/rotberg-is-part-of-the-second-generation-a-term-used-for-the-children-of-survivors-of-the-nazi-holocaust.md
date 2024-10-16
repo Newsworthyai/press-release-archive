@@ -7,7 +7,11 @@ HAMILTON, ON, March 19, 2024 /24-7PressRelease/ -- Howard Rotberg, a retired law
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509365/rotberg-is-part-of-the-second-generation-a-term-used-for-the-children-of-survivors-of-the-nazi-holocaust)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/howard-rotberg-a-distinctive-voice-in-contemporary-literature/bb555ee785c8afc18d1054b57b7d9b3f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/howard-rotberg-a-voice-for-conservative-values-and-pro-israel-perspectives)
+ 
 
 
 

@@ -27,7 +27,11 @@ About NFT LA Community Week: NFT LA Community Week, from the original creators o
 [Original/Source Press Release](https://blockchainwire.io/press-release/edge-of-co-presents-nft-la-community-week-march-25-29-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/edge-of-company-announces-nft-la-community-week-in-downtown-los-angeles/3ab8b4c9e3ae538c95ed331a9af168cb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/nft-la-community-week-a-convergence-of-innovation-and-creativity)
+ 
 
 
 

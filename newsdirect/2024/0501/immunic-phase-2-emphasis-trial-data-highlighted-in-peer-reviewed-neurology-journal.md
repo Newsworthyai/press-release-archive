@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/immunic-phase
 [Original/Source Press Release](https://newsdirect.com/news/immunic-phase-2-emphasis-trial-data-highlighted-in-peer-reviewed-neurology-journal-229179119)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/immunic-inc-ceo-shares-positive-trial-data-in-peer-reviewed-journal/dcad63b5b15c5677dc673ae2679310f9) 
+
+ 
 
 
 

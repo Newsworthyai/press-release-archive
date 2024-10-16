@@ -51,7 +51,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/bobe-introduc
 [Original/Source Press Release](https://newsdirect.com/news/bobe-introduces-new-crypto-facilities-for-elite-world-of-memes-and-wealth-919944721)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-bobe-the-elite-world-of-memes-and-wealth/b18070f0459ac15096fabe1fed9aa270) 
+
+ 
 
 
 

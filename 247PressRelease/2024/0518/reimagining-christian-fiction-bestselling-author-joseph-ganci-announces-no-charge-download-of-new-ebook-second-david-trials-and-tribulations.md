@@ -7,7 +7,9 @@ WILMINGTON, NC, May 18, 2024 /24-7PressRelease/ -- Joseph Ganci, the author of t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510950/reimagining-christian-fiction-bestselling-author-joseph-ganci-announces-no-charge-download-of-new-ebook-second-david-trials-and-tribulations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/author-joseph-ganci-offers-latest-ebook-second-david-trials-and-tribulations-for-free-on-amazon/3626c56981f4332aec1113892b4eafe0) 
+
+ 
 
 
 

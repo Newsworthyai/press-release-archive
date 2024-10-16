@@ -47,7 +47,11 @@ Telegram | Medium | X (Twitter) | Instagram
 [Original/Source Press Release](https://blockchainwire.io/press-release/public-meme-token-pmt-conquers-presale-expectations-and-eyes-next-major-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/public-meme-token-s-successful-presale-rounds-and-strategic-vision/d28a9af66b41a50443a0f018e2775a8e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/20/public-meme-token-achieves-presale-success-sets-sights-on-major-exchanges)
+ 
 
 
 

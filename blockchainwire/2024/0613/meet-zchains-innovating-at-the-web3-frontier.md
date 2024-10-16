@@ -45,7 +45,15 @@ Instagram: https://www.instagram.com/zchains.io/
 [Original/Source Press Release](https://blockchainwire.io/press-release/meet-zchains-innovating-at-the-web3-frontier)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zchains-revolutionizing-blockchain-with-pos-brilliance-and-defi-apps/0a61c2ce060206d332fc3b11298379f6) 
+
+
+Pickup - [advos.io](https://advos.io/en/zchains-pioneering-the-future-of-web3-with-innovative-blockchain-solutions/20244114)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/zchains-revolutionizing-blockchain-with-pos-brilliance-and-defi-apps)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/zchains-revolutionizing-blockchain-with-pos-brilliance-and-defi-apps)
+ 
 
 
 

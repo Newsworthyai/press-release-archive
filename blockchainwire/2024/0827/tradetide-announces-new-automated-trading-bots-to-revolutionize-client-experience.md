@@ -39,7 +39,21 @@ With the launch of its next-generation automated trading bots, TradeTide is sett
 [Original/Source Press Release](https://blockchainwire.io/press-release/tradetide-announces-new-automated-trading-bots-to-revolutionize-client-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tradetide-launches-next-generation-automated-trading-bots-for-cryptocurrency-market/e55ce1fbdea8611227ed076913d787f5) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tradetide-launches-next-generation-automated-trading-bots-for-cryptocurrency-market)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tradetide-launches-next-generation-automated-trading-bots-for-cryptocurrency-market)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/tradetide-launches-advanced-automated-trading-bots-for-cryptocurrency-market)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tradetide-unveils-next-gen-automated-trading-bots-for-enhanced-client-experience/20246334)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/tradetide-launches-advanced-automated-trading-bots-for-cryptocurrency-markets/20246334)
+
+Pickup - [advos.io](https://advos.io/en/tradetide-unveils-advanced-automated-trading-bots-to-enhance-crypto-trading/20246334)
+ 
 
 
 

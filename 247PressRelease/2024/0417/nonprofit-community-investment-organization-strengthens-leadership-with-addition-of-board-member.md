@@ -7,7 +7,9 @@ RALEIGH, NC, April 17, 2024 /24-7PressRelease/ -- CAHEC is pleased to welcome St
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510095/nonprofit-community-investment-organization-strengthens-leadership-with-addition-of-board-member)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cahec-welcomes-stephen-o-conner-ph-d-to-board-of-directors/556e6dabc81005bd3bce734c9122ab2a) 
+
+ 
 
 
 

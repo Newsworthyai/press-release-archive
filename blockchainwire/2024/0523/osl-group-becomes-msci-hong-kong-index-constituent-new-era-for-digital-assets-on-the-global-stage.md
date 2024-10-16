@@ -37,7 +37,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-osl-group-becomes-msci-hong-kong-index-constituent----new-era-for-digital-assets-on-the-global-stage)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/osl-group-863-hk-included-in-msci-hong-kong-index/142309c3e7966e7d02111ba15424814b) 
+
+ 
 
 
 

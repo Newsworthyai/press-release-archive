@@ -7,7 +7,9 @@ PHOENIX, AZ, September 20, 2024 /24-7PressRelease/ -- XpertDox, a leader in AI-p
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514506/xpertdox-partners-with-blue-fish-pediatrics-to-enhance-medical-coding-efficiency-with-ai-powered-healthcare-coding-software)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xpertdox-partners-with-blue-fish-pediatrics-to-enhance-medical-coding/053d4612310c991c7df3c38b76575162) 
+
+ 
 
 
 

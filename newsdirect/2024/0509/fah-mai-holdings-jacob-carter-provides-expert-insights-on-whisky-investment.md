@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/fah-mai-holdi
 [Original/Source Press Release](https://newsdirect.com/news/fah-mai-holdings-jacob-carter-provides-expert-insights-on-whisky-investment-337664047)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/expert-insights-on-whisky-investment-key-tips-for-investors/335c7a10f34a5b2fb5d7885795c2a891) 
+
+ 
 
 
 

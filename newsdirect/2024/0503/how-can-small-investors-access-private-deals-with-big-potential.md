@@ -71,7 +71,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-can-small
 [Original/Source Press Release](https://newsdirect.com/news/how-can-small-investors-access-private-deals-with-big-potential-640148157)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ourcrowd-enables-small-investors-to-access-promising-startups/1291a288d953495f223c32dbf035d7e4) 
+
+ 
 
 
 

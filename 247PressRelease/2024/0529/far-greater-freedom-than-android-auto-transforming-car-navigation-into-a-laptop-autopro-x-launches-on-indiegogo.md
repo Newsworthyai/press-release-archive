@@ -7,7 +7,9 @@ NEW YORK, NY, May 29, 2024 /24-7PressRelease/ -- After the successful Kickstarte
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511204/far-greater-freedom-than-android-auto-transforming-car-navigation-into-a-laptop-autopro-x-launches-on-indiegogo)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mayton-motion-launches-autopro-x-funding-campaign-on-indiegogo/adc29531f693f4005ab675e5226407da) 
+
+ 
 
 
 

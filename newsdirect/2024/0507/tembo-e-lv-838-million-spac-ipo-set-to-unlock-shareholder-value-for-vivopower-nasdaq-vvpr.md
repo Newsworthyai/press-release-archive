@@ -65,7 +65,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/tembo-e-lv-83
 [Original/Source Press Release](https://newsdirect.com/news/tembo-e-lv-838-million-spac-ipo-set-to-unlock-shareholder-value-for-vivopower-nasdaq-vvpr-976288874)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vivopower-international-plc-tembo-e-lv-838-million-spac-ipo-set-to-unlock-shareholder-value/c07581be61f65e738f602fa73a5ab316) 
+
+ 
 
 
 

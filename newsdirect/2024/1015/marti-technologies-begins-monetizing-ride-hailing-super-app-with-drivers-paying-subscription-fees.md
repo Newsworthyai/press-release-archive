@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/marti-technol
 [Original/Source Press Release](https://newsdirect.com/news/marti-technologies-begins-monetizing-ride-hailing-super-app-with-drivers-paying-subscription-fees-101436569)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marti-technologies-monetizes-ride-hailing-super-app-with-driver-subscription-fees/8268c1618fb7db7e4cdf881ece93863e) 
+
+ 
 
 
 

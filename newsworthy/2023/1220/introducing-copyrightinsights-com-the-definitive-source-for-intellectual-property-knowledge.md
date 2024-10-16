@@ -23,7 +23,11 @@ For a world where creativity meets clarity. Dive in at www.CopyrightInsights.com
 [Original/Source Press Release](https://newsworthy.ai/news/20231220798/introducing-copyrightinsights-com-the-definitive-source-for-intellectual-property-knowledge)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/copyrightinsights-com-launches-innovative-platform-for-copyright-clarity/78a5f64ea4832f023dba240a5acf92c5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/20/copyrightinsights-com-launches-as-the-definitive-source-for-intellectual-property-knowledge)
+ 
 
 
 

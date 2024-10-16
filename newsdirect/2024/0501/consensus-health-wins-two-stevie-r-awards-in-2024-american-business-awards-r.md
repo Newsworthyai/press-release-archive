@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/consensus-hea
 [Original/Source Press Release](https://newsdirect.com/news/consensus-health-wins-two-stevie-r-awards-in-2024-american-business-awards-r-699438803)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/consensus-health-wins-two-stevie-r-awards-in-2024-american-business-awards-r/70d89b208d80b05b3b8413efa636ea9c) 
+
+ 
 
 
 

@@ -35,7 +35,11 @@ Rabbi David Dardashti has dedicated his life to understanding the keys of human 
 [Original/Source Press Release](https://newsworthy.ai/news/20231215906/ibogaine-by-david-dardashti-unveils-breakthrough-new-approach-to-trauma-treatment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ibogaine-clinic-inc-introduces-groundbreaking-trauma-therapy-approach/6629585089c579af8fcc35acc122bbf3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/15/ibogaine-clinic-pioneers-new-frontier-in-trauma-therapy)
+ 
 
 
 

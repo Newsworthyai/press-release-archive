@@ -7,7 +7,17 @@ LONDON, ENGLAND, August 29, 2024 /24-7PressRelease/ -- Collective Hospitality Pt
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513860/collective-hospitality-acquires-trading-assets-of-selina-hospitality-plc-in-administration)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/collective-hospitality-acquires-selina-hospitality-plc-expands-global-presence/58dbf2f85d84932cdc35dab9b3c57970) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/collective-hospitality-expands-global-footprint-with-acquisition-of-selina-hospitality-plc-assets)
+
+Pickup - [fishervista.com](https://fishervista.com/en/collective-hospitality-acquires-selina-hospitality-plc-assets-expanding-global-presence/20246357)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/collective-hospitality-expands-global-presence-with-acquisition-of-selina-hospitality-assets/20246357)
+
+Pickup - [advos.io](https://advos.io/en/collective-hospitality-acquires-selina-hospitality-plc-s-key-assets/20246357)
+ 
 
 
 

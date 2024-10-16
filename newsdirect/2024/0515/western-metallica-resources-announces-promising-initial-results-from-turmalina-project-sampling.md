@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/western-metal
 [Original/Source Press Release](https://newsdirect.com/news/western-metallica-resources-announces-promising-initial-results-from-turmalina-project-sampling-447265421)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/western-metallica-resources-announces-promising-initial-results-from-turmalina-project-sampling/9babab5a703ee4923fe7826dedffd0d7) 
+
+ 
 
 
 

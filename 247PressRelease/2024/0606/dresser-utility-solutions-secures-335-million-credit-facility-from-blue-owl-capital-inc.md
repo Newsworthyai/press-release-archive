@@ -7,7 +7,11 @@ HOUSTON, TX, June 06, 2024 /24-7PressRelease/ -- Dresser Utility Solutions, a le
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511478/dresser-utility-solutions-secures-335-million-credit-facility-from-blue-owl-capital-inc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dresser-utility-solutions-secures-335-million-credit-facility-for-future-growth/f2fbc37663f75dcbbf027468353d8667) 
+
+
+Pickup - [advos.io](https://advos.io/en/dresser-utility-solutions-secures-335-million-credit-facility-from-blue-owl-capital/20243868)
+ 
 
 
 

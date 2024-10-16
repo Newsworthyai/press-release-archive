@@ -7,7 +7,15 @@ PALM DESERT, CA, July 11, 2024 /24-7PressRelease/ -- In California's Palm Desert
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512450/university-parks-new-opportunities-at-nova-include-adu-casita-layouts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-design-opportunities-at-nova-neighborhood-in-university-park/2d8ab234a1536f5c4bf67658db132886) 
+
+
+Pickup - [advos.io](https://advos.io/en/university-park-s-nova-introduces-adu-and-casita-layouts-in-palm-desert/20244857)
+
+Pickup - [fishervista.com](https://fishervista.com/en/university-park-s-nova-neighborhood-introduces-versatile-home-designs-in-palm-desert/20244857)
+
+Pickup - [citybuzz.co](https://citybuzz.co/nova-neighborhood-in-palm-desert-unveils-new-home-layouts-with-adus-and-casitas)
+ 
 
 
 

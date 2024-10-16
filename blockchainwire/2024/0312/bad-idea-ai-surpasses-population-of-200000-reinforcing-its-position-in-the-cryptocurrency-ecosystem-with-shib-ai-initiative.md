@@ -21,7 +21,11 @@ Risk Warning and DisclaimerDisclaimer: The information provided in this press re
 [Original/Source Press Release](https://blockchainwire.io/press-release/bad-idea-ai-surpasses-population-of-200000-reinforcing-its-position-in-the-cryptocurrency-ecosystem-with-shib-ai-initiative)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bad-idea-ai-s-chatbot-reaches-200000-users-introduces-shib-ai-to-shiba-inu-community/4b41919205ccdb7f912adff95717c339) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/bad-idea-ai-reaches-milestone-integrates-with-shiba-inu-community)
+ 
 
 
 

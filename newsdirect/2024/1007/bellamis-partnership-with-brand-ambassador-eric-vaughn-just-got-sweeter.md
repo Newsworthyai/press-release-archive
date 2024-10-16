@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/bellamis-part
 [Original/Source Press Release](https://newsdirect.com/news/bellamis-partnership-with-brand-ambassador-eric-vaughn-just-got-sweeter-116441602)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bellami-x-eric-vaughn-collection-relaunched-with-10-pre-blended-shades/f2aefc8344c61e5ac6ba0097e0a18050) 
+
+ 
 
 
 

@@ -59,7 +59,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-empowers-women-in-crypto-trading-a-commitment-to-inclusivity-and-support)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-empowers-women-in-crypto-with-new-initiatives/cc00c7ce4fd82c24653001845095544e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/08/defiquant-breaks-barriers-for-women-in-crypto-trading)
+ 
 
 
 

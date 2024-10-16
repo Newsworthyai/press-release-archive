@@ -43,7 +43,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/digital-influence-how-blockdag-network-has-taken-over-the-digital-world-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-dominating-the-digital-landscape-with-innovative-marketing/ab704594f92144329463bade7c78b327) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blockdag-network-dominating-the-digital-landscape-with-innovative-marketing)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blockdag-network-dominating-the-digital-landscape-with-innovative-marketing)
+ 
 
 
 

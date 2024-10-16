@@ -51,7 +51,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/celebrity-fx-academy-apg-university-and-etoro-become-the-biggest-fx-education-hubs-worldwide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/apg-university-and-etoro-revolutionize-forex-trading-education-globally/3112ae245b506353d6d7646bfdef22f1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/celebrity-fx-academy-apg-university-and-etoro-become-the-biggest-fx-education-hubs-worldwide)
+ 
 
 
 

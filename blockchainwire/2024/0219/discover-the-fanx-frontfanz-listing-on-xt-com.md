@@ -58,7 +58,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-fanx-frontfanz-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-fanx-token-on-its-platform-ushering-in-a-new-era-of-decentralized-entertainment/123c6ba96a981d6854803ef469a27b24) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/19/frontfanz-s-fanx-token-debuts-on-xt-com-exchange)
+ 
 
 
 

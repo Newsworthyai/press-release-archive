@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cge-southern-
 [Original/Source Press Release](https://newsdirect.com/news/cge-southern-quickly-becoming-the-best-mechanical-company-in-the-south-east-802173825)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cge-southern-quickly-becoming-the-best-mechanical-company-in-the-south-east/a6dbf15395c18d3b73c901ed208333cf) 
+
+ 
 
 
 

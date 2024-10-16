@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/autonomix-med
 [Original/Source Press Release](https://newsdirect.com/news/autonomix-medical-nasdaq-amix-is-cracking-the-code-of-the-peripheral-nervous-system-with-its-breakthrough-technology-to-treat-diseases-172399566)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/autonomix-medical-inc-cracks-the-code-of-the-peripheral-nervous-system-with-breakthrough-technology/7bd14b77c32dcbb058a993ecac0f9e56) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/autonomix-medical-s-breakthrough-technology-to-treat-diseases-by-cracking-the-code-of-the-peripheral-nervous-system)
+ 
 
 
 

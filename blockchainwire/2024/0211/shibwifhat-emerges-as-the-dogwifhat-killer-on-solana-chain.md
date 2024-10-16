@@ -35,7 +35,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/shibwifhat-emerges-as-the-dogwifhat-killer-on-solana-chain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shibwifhat-the-ultimate-dogwifhat-killer-on-solana-blockchain/893e4b3133f3cf82d46f31d2d0288a08) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/11/shibwifhat-the-emerging-dogwifhat-killer-on-solana-chain)
+ 
 
 
 

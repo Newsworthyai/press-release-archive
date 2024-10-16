@@ -49,7 +49,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-discover-the-cirx-circular-protocol-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-announces-listing-of-cirx-on-its-socially-infused-trading-platform/23b38fb17efa6e111634daa529370d83) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/xt-announces-listing-of-cirx-circular-protocol-in-innovation-zone/20244466)
+
+Pickup - [advos.io](https://advos.io/en/xt-exchange-lists-cirx-token-a-new-era-for-circular-protocol/20244466)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/xt-announces-listing-of-cirx-on-its-socially-infused-trading-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/xt-announces-listing-of-cirx-on-its-socially-infused-trading-platform)
+ 
 
 
 

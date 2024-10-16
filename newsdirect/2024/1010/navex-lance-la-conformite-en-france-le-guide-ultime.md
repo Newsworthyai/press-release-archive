@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/navex-lance-l
 [Original/Source Press Release](https://newsdirect.com/news/navex-lance-la-conformite-en-france-le-guide-ultime-785528554)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/navex-lance-la-conformite-en-france-le-guide-ultime/db3625319904eddb6c40d226793f200a) 
+
+ 
 
 
 

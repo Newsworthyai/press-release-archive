@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/tnr-gold-reac
 [Original/Source Press Release](https://newsdirect.com/news/tnr-gold-reaches-milestone-with-gangengs-mariana-lithium-project-on-track-for-first-production-854166183)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tnr-gold-corp-set-to-generate-first-royalty-stream-with-mariana-lithium-project/c234a1e43117c42623eb37bbbd61b70f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/tnr-gold-reaches-milestone-with-mariana-lithium-project)
+ 
 
 
 

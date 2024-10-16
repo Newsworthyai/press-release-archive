@@ -17,7 +17,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/label-foundations-tracks-launches-web3-music-dapp-on-lg-smart-tvs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-web3-music-streaming-app-tracks-now-available-on-lg-smart-tvs/adce7db60f2b0db6734b927fb7860724) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/25/label-foundation-s-tracks-launches-web3-music-dapp-on-lg-smart-tvs)
+ 
 
 
 

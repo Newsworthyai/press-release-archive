@@ -7,7 +7,11 @@ NEW YORK, NY, March 17, 2024 /24-7PressRelease/ -- In 2023, conflicts like the R
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509327/international-experts-gather-to-discuss-institutionalizing-peace)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hwpl-hosts-8th-annual-commemoration-of-the-dpcw-gathering-12500-peace-experts/6ab038a5c2dc4776b56ea4e5da58e196) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/17/global-experts-convene-to-advance-institutional-peace)
+ 
 
 
 

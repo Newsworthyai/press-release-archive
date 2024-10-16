@@ -50,7 +50,11 @@ The WEMIX blockchain mega-ecosystem features innovative services including WEMIX
 [Original/Source Press Release](https://blockchainwire.io/press-release/wemix-launches-una-wallet-to-enable-safest-and-most-convenient-digital-asset-management-across-blockchains)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemix-foundation-launches-una-wallet-for-seamless-omnichain-asset-management/6d27566f2fc4569c5ec1ba5464a4c4d4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/17/wemix-unveils-una-wallet-for-seamless-cross-chain-digital-asset-management)
+ 
 
 
 

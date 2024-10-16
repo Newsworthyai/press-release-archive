@@ -57,7 +57,9 @@ Further, any forward-looking statement speaks only as of the date on which such 
 [Original/Source Press Release](https://www.newmediawire.com/news/zenatech-announces-approval-to-list-common-shares-on-the-nasdaq-capital-market-7076121)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zenatech-inc-nasdaq-zena-common-shares-approved-for-listing-on-nasdaq-capital-market/8242044db95f4ea3e79997aa1fe6d0c3) 
+
+ 
 
 
 

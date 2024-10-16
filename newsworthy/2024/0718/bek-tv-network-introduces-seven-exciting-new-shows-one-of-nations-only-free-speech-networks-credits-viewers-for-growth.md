@@ -29,7 +29,15 @@ BEK TV is the 2021, 2022, and 2023 winner of the Bismarck Tribune’s Best of th
 [Original/Source Press Release](https://newsworthy.ai/news/202407181045/bek-tv-network-introduces-seven-exciting-new-shows-one-of-nations-only-free-speech-networks-credits-viewers-for-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bek-tv-network-introduces-seven-exciting-new-shows-a-commitment-to-free-speech-and-diverse-viewpoints/7783c9401709524f435a4e5bc0a42766) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/bek-tv-network-expands-with-seven-new-uncensored-programs)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bek-tv-network-expands-programming-with-seven-new-shows/20245052)
+
+Pickup - [advos.io](https://advos.io/en/bek-tv-network-expands-lineup-with-seven-new-shows/20245052)
+ 
 
 
 

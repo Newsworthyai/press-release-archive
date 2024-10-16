@@ -7,7 +7,9 @@ NEW YORK, NY, September 22, 2024 /24-7PressRelease/ -- Franklin Publishers is th
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514557/franklin-publishers-announces-the-upcoming-release-of-murder-in-the-moon-when-the-leaves-fall-by-d-r-meredith)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+ 
 
  
 

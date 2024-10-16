@@ -23,7 +23,11 @@ To find out more about BEVM visit www.bevm.io or contact business@bevm.io
 [Original/Source Press Release](https://blockchainwire.io/press-release/bevm-bitcoin-layer2-closes-seed-round-with-rocktree-capital-sathoshi-lab--20-others)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bevm-completes-seed-and-series-a-rounds-valuation-reaches-200-million/7530d6e186c5b030a3dfa260048389cd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/bevm-secures-funding-from-major-investors-for-bitcoin-layer2-expansion)
+ 
 
 
 

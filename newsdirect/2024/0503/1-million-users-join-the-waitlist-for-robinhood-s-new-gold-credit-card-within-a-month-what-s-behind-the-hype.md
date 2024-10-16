@@ -55,7 +55,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/1-million-use
 [Original/Source Press Release](https://newsdirect.com/news/1-million-users-join-the-waitlist-for-robinhoods-new-gold-credit-card-within-a-month-whats-behind-the-hype-471002035)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/robinhood-gold-card-attracts-over-1-million-users-to-waitlist-in-one-month/5a41ee2f7185d30f052d8c5b3b92ca36) 
+
+ 
 
 
 

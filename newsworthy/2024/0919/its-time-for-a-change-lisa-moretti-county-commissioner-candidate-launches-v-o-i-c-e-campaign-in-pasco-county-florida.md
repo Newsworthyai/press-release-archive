@@ -49,7 +49,9 @@ For more information on Lisa Moretti’s campaign, visit www.votelisamoretti.com
 [Original/Source Press Release](https://newsworthy.ai/news/202409191269/its-time-for-a-change-lisa-moretti-county-commissioner-candidate-launches-v-o-i-c-e-campaign-in-pasco-county-florida)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lisa-moretti-endorses-v-o-i-c-e-initiative-for-new-leadership-in-pasco-county/11fc879b5522ae16433c0526a3aea106) 
+
+ 
 
 
 

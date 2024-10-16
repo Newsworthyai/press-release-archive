@@ -7,7 +7,13 @@ ORLANDO, FL, June 24, 2024 /24-7PressRelease/ -- This month marks the two-year a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511822/celebrating-the-two-year-anniversary-of-marketing-minds-a-look-at-psychology-in-marketing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rob-garay-celebrates-two-year-anniversary-of-marketing-minds-a-look-at-psychology-in-marketing/8808d3260e9e3e55cbb111f6ff2ffcfd) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/marketing-minds-celebrates-two-year-anniversary-highlighting-psychological-insights-in-ethical-marketing/20244400)
+
+Pickup - [advos.io](https://advos.io/en/marketing-minds-celebrates-two-year-anniversary-highlights-ethical-practices-in-marketing/20244400)
+ 
 
 
 

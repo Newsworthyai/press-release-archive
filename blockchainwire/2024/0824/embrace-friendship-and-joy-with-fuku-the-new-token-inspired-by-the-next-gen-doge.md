@@ -35,7 +35,21 @@ Risk Warning and Disclaimer: Disclaimer: The information provided in this press 
 [Original/Source Press Release](https://blockchainwire.io/press-release/embrace-friendship-and-joy-with-fuku-the-new-token-inspired-by-the-next-gen-doge)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-fuku-token-launched-to-celebrate-doge-legacy-and-friendship/70466ef1317dbcf3d25408ada050a9ee) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/new-fuku-token-launched-to-celebrate-doge-legacy-and-friendship)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/new-fuku-token-launched-to-celebrate-doge-legacy-and-friendship)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/24/new-fuku-token-celebrates-doge-legacy-and-friendship)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-meme-token-fuku-celebrates-friendship-and-joy-in-the-crypto-world/20245931)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-cryptocurrency-fuku-launches-inspired-by-doge-meme-legacy/20245931)
+
+Pickup - [advos.io](https://advos.io/en/launch-of-fuku-token-celebrates-friendship-and-transparency-in-crypto/20245931)
+ 
 
 
 

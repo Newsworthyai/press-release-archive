@@ -68,7 +68,13 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/wildcoin-to-enter-300b-animal-market-with-upcoming-ido-and-exchange-listing-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exciting-ido-and-exchange-listing-for-wildcoin-wild/28a8c43aae48ba606ea004e46ba27d9e) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/exciting-ido-and-exchange-listing-for-wildcoin-wild)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/exciting-ido-and-exchange-listing-for-wildcoin-wild)
+ 
 
 
 

@@ -17,7 +17,11 @@ However, the clinic emphasizes that medication alone is not a cure-all solution.
 [Original/Source Press Release](https://newsworthy.ai/news/20231223942/monticello-mental-health-clinic-offers-comprehensive-medication-management-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/monticello-mental-health-clinic-a-holistic-approach-to-mental-wellness/65e0bc065b8fd16668ad948cfa2a8b8e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/23/monticello-mental-health-clinic-offers-personalized-medication-management)
+ 
 
 
 

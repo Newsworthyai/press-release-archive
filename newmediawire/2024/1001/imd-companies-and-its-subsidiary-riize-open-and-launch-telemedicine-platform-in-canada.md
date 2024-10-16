@@ -55,7 +55,9 @@ info@imdcompaniesinc.com
 [Original/Source Press Release](https://www.newmediawire.com/news/imd-companies-and-its-subsidiary-riize-open-and-launch-telemedicine-platform-in-canada-7076130)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/imd-companies-inc-completes-expansion-into-canadian-marketplace/b143b204936ba475368c98f9980f8e75) 
+
+ 
 
 
 

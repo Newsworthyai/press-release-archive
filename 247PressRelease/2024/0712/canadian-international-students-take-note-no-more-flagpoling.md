@@ -7,7 +7,15 @@ VANCOUVER, BC, July 12, 2024 /24-7PressRelease/ -- On June 21, 2024, the Ministe
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512479/canadian-international-students-take-note-no-more-flagpoling)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/canada-ends-port-of-entry-option-for-pgwp-impacting-international-students/2417ad4ef498266b74e3e69c6228c433) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/canada-ends-flagpoling-for-post-graduation-work-permits-impacting-international-students)
+
+Pickup - [fishervista.com](https://fishervista.com/en/canada-eliminates-flagpoling-for-international-students-seeking-work-permits/20244905)
+
+Pickup - [advos.io](https://advos.io/en/canada-eliminates-flagpoling-for-international-students-seeking-work-permits/20244905)
+ 
 
 
 

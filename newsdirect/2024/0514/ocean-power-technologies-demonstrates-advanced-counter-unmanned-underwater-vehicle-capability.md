@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-t
 [Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-demonstrates-advanced-counter-unmanned-underwater-vehicle-capability-740553048)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ocean-power-technologies-demonstrates-advanced-underwater-vehicle-capability/4b5445469160600ef7730fa5c73b5d4d) 
+
+ 
 
 
 

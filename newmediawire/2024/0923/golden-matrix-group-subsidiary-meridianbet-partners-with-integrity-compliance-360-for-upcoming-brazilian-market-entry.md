@@ -65,7 +65,9 @@ Other important factors that may cause actual results and outcomes to differ mat
 [Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-subsidiary-meridianbet-partners-with-integrity-compliance-360-for-upcoming-brazilian-market-entry-7076079)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-matrix-group-announces-strategic-partnership-for-brazilian-market-entry/b4aa1ab6e15425af4434bed0b54b1ec2) 
+
+ 
 
 
 

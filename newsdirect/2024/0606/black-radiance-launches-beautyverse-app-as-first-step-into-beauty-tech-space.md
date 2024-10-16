@@ -29,7 +29,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/black-radianc
 [Original/Source Press Release](https://newsdirect.com/news/black-radiance-launches-beautyverse-app-as-first-step-into-beauty-tech-space-873379220)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/black-radiance-launches-beyond-radiant-ar-app/6e709a70664f62573365e7623f850453) 
+
+
+Pickup - [advos.io](https://advos.io/en/black-radiance-unveils-beyond-radiant-app-integrating-augmented-reality-and-beauty/20243884)
+ 
 
 
 

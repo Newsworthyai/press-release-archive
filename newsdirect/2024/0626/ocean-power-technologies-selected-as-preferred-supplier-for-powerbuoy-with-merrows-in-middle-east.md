@@ -19,7 +19,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-t
 [Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-selected-as-preferred-supplier-for-powerbuoy-with-merrows-in-middle-east-486482435)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ocean-power-technologies-chosen-as-preferred-supplier-for-powerbuoy-with-merrows-in-middle-east/b6407a9a0a84635c357535fa8953dab2) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/ocean-power-technologies-chosen-as-preferred-supplier-for-powerbuoy-in-the-middle-east/20244505)
+
+Pickup - [advos.io](https://advos.io/en/ocean-power-technologies-chosen-as-preferred-supplier-for-middle-east-powerbuoy-project/20244505)
+ 
 
 
 

@@ -7,7 +7,9 @@ WILMINGTON, NC, May 02, 2024 /24-7PressRelease/ -- Aaron's War is a harrowing an
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510524/aarons-war-new-historical-fiction-novel-by-richard-mcmaster-presents-a-gripping-tale-of-one-jewish-soldiers-moral-dilemma-and-struggles-with-ptsd-during-wwii)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aaron-s-war-a-compelling-wwii-historical-fiction-novel/987ce60d83b74e3ebaceac1b79ef4f2d) 
+
+ 
 
 
 

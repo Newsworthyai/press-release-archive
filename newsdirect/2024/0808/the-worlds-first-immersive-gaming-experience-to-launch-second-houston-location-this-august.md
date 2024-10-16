@@ -54,7 +54,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-worlds-fi
 [Original/Source Press Release](https://newsdirect.com/news/the-worlds-first-immersive-gaming-experience-to-launch-second-houston-location-this-august-207787694)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/activate-launches-second-houston-location-in-august-2024/cf8453f657bc833526bbebb826574cee) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/activate-to-open-second-immersive-gaming-venue-in-houston/20245586)
+
+Pickup - [advos.io](https://advos.io/en/activate-to-open-second-houston-location-this-august/20245586)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/activate-expands-immersive-gaming-experience-with-second-houston-location/20245586)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/activate-expands-immersive-gaming-experience-with-second-houston-location)
+ 
 
 
 

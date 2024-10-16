@@ -39,7 +39,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-unifi-avs-puffers-leap-into-decentralized-infrastructure)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/puffer-transitions-to-decentralized-infrastructure-with-launch-of-unifi-avs/bed207d005c9ca691ab5713586c234d8) 
+
+ 
 
 
 

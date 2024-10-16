@@ -31,7 +31,9 @@ This commitment to innovation and education not only positions AIT Community as 
 [Original/Source Press Release](https://blockchainwire.io/press-release/ait-community-lucius-bainbridge-pioneers-ai-driven-investment-empowerment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionizing-investment-with-ai-technology-and-expert-education/a53040ffb913c6bd6cb12026ffe56027) 
+
+ 
 
 
 

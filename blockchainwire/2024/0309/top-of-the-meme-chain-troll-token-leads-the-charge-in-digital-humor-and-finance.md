@@ -45,7 +45,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/top-of-the-meme-chain-troll-token-leads-the-charge-in-digital-humor-and-finance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/troll-face-inspires-creation-of-troll-meme-token-on-ethereum-network/705aec421915d18317021a1a5c26b111) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/09/troll-token-bringing-meme-culture-to-cryptocurrency)
+ 
 
 
 

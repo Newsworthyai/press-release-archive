@@ -7,7 +7,9 @@ LA MESA, CA, September 27, 2024 /24-7PressRelease/ -- GS Jones announces the rel
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514756/gs-jones-releases-riveting-new-novel-unforgiven-love)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gs-jones-releases-compelling-novel-unforgiven-love/25866db4ea0e4224997683ad3d6e9781) 
+
+ 
 
 
 

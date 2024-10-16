@@ -7,7 +7,17 @@ ATLANTA, GA, August 29, 2024 /24-7PressRelease/ -- Claiborne | Fox | Bradley | G
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513892/family-formation-expert-lila-bradley-offers-compassionate-guidance-on-navigating-failed-adoption-matches)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leading-law-firm-releases-guide-on-coping-with-failed-adoption-matches/c3a0c428602abdaf5da201f4be848e10) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/family-formation-expert-lila-bradley-releases-guide-on-failed-adoption-matches)
+
+Pickup - [fishervista.com](https://fishervista.com/en/lila-bradley-provides-essential-guidance-on-failed-adoption-matches/20246370)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/family-formation-attorney-lila-bradley-releases-comprehensive-guide-on-failed-adoption-matches/20246370)
+
+Pickup - [advos.io](https://advos.io/en/lila-bradley-provides-essential-guidance-on-coping-with-failed-adoption-matches/20246370)
+ 
 
 
 

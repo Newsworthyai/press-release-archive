@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/tarfb-revolut
 [Original/Source Press Release](https://newsdirect.com/news/tarfb-revolutionizes-apparel-market-insights-with-latest-report-release-211532570)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tarfb-releases-new-report-revolutionizing-apparel-market-insights/14b4425a369f5cae5b58886bb77a5008) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/07/tarfb-unveils-groundbreaking-apparel-market-insights-report)
+ 
 
 
 

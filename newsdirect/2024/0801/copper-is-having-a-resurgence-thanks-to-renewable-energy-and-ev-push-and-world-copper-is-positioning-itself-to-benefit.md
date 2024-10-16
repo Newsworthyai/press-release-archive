@@ -49,7 +49,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/copper-is-hav
 [Original/Source Press Release](https://newsdirect.com/news/copper-is-having-a-resurgence-thanks-to-renewable-energy-and-ev-push-and-world-copper-is-positioning-itself-to-benefit-251504844)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/copper-demand-surges-world-copper-positioned-for-growth/494f362e3781bf1a91cb8b1512113b4b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/world-copper-ltd-poised-to-capitalize-on-surging-copper-demand)
+
+Pickup - [fishervista.com](https://fishervista.com/en/copper-demand-surges-with-renewable-energy-and-ev-growth-world-copper-ltd-positioned-for-success/20245426)
+
+Pickup - [advos.io](https://advos.io/en/copper-resurgence-driven-by-renewable-energy-and-ev-demand-positions-world-copper-for-growth/20245426)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/world-copper-ltd-poised-to-capitalize-on-surging-copper-demand)
+ 
 
 
 

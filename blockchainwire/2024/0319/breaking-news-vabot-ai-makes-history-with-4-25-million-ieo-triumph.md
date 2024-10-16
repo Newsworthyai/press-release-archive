@@ -39,7 +39,11 @@ Join the spot trading action on Coinstore: https://www.coinstore.com/#/spot/VABT
 [Original/Source Press Release](https://blockchainwire.io/press-release/breaking-news-vabotai-makes-history-with-425-million-ieo-triumph)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vabot-ai-achieves-historic-4-25m-milestone-in-ieo-triumph/e3db7640d9c361b3f2a09dd61fe563e3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/vabot-ai-shatters-records-with-4-25-million-ieo-and-vab-token-launch)
+ 
 
 
 

@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ali-martinez-
 [Original/Source Press Release](https://newsdirect.com/news/ali-martinez-has-a-shocking-bitcoin-prediction-as-kangamoon-and-pepe-become-the-talk-of-the-meme-coin-market-672435829)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-expert-predicts-bitcoin-to-hit-85000-soon/e1ccdfc58557ab136592d95c319b51c9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/13/ali-martinez-s-shocking-bitcoin-prediction-and-the-rise-of-kangamoon-and-pepe-in-the-meme-coin-market)
+ 
 
 
 

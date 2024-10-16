@@ -31,7 +31,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/caddis-cloud-
 [Original/Source Press Release](https://newsdirect.com/news/caddis-cloud-solutions-a-new-force-in-cloud-infrastructure-and-data-center-development-570599367)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/caddis-cloud-solutions-a-new-force-in-cloud-infrastructure-and-data-center-development/097c31907c32187fdfb7a06dca7fcc26) 
+
+
+Pickup - [advos.io](https://advos.io/en/caddis-cloud-solutions-emerges-as-key-player-in-cloud-infrastructure-and-data-center-development/20245148)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/caddis-cloud-solutions-emerges-as-key-player-in-rapidly-growing-data-center-market)
+
+Pickup - [fishervista.com](https://fishervista.com/en/caddis-cloud-solutions-emerges-as-key-player-in-cloud-infrastructure-and-data-center-development/20245148)
+ 
 
 
 

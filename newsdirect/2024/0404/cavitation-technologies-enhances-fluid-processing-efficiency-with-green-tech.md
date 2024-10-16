@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/cavitation-te
 [Original/Source Press Release](https://newsdirect.com/news/cavitation-technologies-enhances-fluid-processing-efficiency-with-green-tech-155468276)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cavitation-technologies-ceo-neil-voloshin-discusses-advanced-fluid-processing-technologies-and-future-growth/bf03a30346c993cf9202b9140370a45d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/cavitation-technologies-pioneers-green-fluid-processing-solutions)
+ 
 
 
 

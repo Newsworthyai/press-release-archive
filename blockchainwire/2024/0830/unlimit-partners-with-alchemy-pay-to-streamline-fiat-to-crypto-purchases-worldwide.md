@@ -31,7 +31,21 @@ Press@alchemypay.org Ailona Tsik Head of marketing[n.ivanova@unlimit.com](mailto
 [Original/Source Press Release](https://blockchainwire.io/press-release/unlimit-partners-with-alchemy-pay-to-streamline-fiat-to-crypto-purchases-worldwide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unlimit-and-alchemy-pay-expand-partnership-to-enhance-global-payment-solutions/f7a46fd340ff2fa444c173a61c6df7d8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/30/unlimit-and-alchemy-pay-expand-partnership-to-enhance-global-crypto-fiat-transactions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/unlimit-and-alchemy-pay-partner-to-enhance-fiat-to-crypto-transactions-worldwide/20246418)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/unlimit-and-alchemy-pay-expand-partnership-to-enhance-global-crypto-adoption/20246418)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/unlimit-and-alchemy-pay-expand-partnership-to-enhance-global-payment-solutions)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/unlimit-and-alchemy-pay-expand-partnership-to-enhance-global-payment-solutions)
+
+Pickup - [advos.io](https://advos.io/en/unlimit-expands-partnership-with-alchemy-pay-to-enhance-global-fiat-to-crypto-transactions/20246418)
+ 
 
 
 

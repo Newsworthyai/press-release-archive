@@ -7,7 +7,9 @@ CHAGRIN, FALLS, OH, May 23, 2024 /24-7PressRelease/ -- At the center of this gri
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511132/new-book-miserere-by-daniel-michael-gallik-offers-a-haunting-exploration-of-human-struggle)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/masterful-compilation-of-vignettes-in-miserere-book-by-gallik/0d053b4b1de0fce49aff41507fc09e1c) 
+
+ 
 
 
 

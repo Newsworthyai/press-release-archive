@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/sustainable-f
 [Original/Source Press Release](https://newsdirect.com/news/sustainable-finance-the-vision-of-gsb-gold-standard-corporation-and-its-chairman-of-the-board-josip-heit-for-a-green-future-551455224)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gsb-gold-standard-corp-ag-chairman-s-vision-for-a-green-future/249a64a99cbee854381e4ec2ddbd11ac) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/gsb-gold-standard-corporation-leads-the-way-in-sustainable-finance)
+ 
 
 
 

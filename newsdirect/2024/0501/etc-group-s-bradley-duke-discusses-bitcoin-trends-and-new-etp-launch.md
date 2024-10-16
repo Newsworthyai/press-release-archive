@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/etc-groups-br
 [Original/Source Press Release](https://newsdirect.com/news/etc-groups-bradley-duke-discusses-bitcoin-trends-and-new-etp-launch-204250980)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/etc-group-founder-bradley-duke-discusses-bitcoin-trends-and-new-etp-launch/b444b2eb0f26bfcca9ce25c7e81d401f) 
+
+ 
 
 
 

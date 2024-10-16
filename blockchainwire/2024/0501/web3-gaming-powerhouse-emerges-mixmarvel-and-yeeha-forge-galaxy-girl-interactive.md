@@ -23,7 +23,9 @@ About MixMarvelMixMarvel is building the world’s leading blockchain content in
 [Original/Source Press Release](https://blockchainwire.io/press-release/web3-gaming-powerhouse-emerges-mixmarvel-and-yeeha-forge-galaxy-girl-interactive)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mixmarvel-and-yeeha-games-launch-galaxy-girl-interactive-to-revolutionize-web3-gaming-in-asia/aa6f4b5ff10e9f6f689da13f3380f61f) 
+
+ 
 
 
 

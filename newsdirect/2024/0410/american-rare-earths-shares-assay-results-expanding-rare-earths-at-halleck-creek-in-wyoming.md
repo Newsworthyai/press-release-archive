@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/american-rare
 [Original/Source Press Release](https://newsdirect.com/news/american-rare-earths-shares-assay-results-expanding-rare-earths-at-halleck-creek-in-wyoming-230656542)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-rare-earths-ceo-shares-significant-assay-results/71f9141916a80a7b2952cf0175ccda86) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/american-rare-earths-unveils-promising-assay-results-at-halleck-creek-in-wyoming)
+ 
 
 
 

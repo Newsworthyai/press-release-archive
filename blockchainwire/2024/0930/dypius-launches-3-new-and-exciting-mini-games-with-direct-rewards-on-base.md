@@ -51,7 +51,9 @@ You can join it too at these links: Dypius Website | World of Dypians | Twitt
 [Original/Source Press Release](https://blockchainwire.io/press-release/dypius-launches-3-new-and-exciting-mini-games-with-direct-rewards-on-base)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dypius-introduces-three-new-captivating-mini-games/a80aa846c3c2c89819ff23308148c9a6) 
+
+ 
 
 
 

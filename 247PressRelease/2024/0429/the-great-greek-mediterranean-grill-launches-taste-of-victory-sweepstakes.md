@@ -7,7 +7,9 @@ WEST PALM BEACH, FL, April 29, 2024 /24-7PressRelease/ -- The Great Greek Medite
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510424/the-great-greek-mediterranean-grill-launches-taste-of-victory-sweepstakes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/win-a-trip-to-greece-and-free-gyros-for-a-year-with-the-great-greek-mediterranean-grill-s-taste-of-victory-sweepstakes/a08260a2d54e2a9cfdf80c1155c4a4d8) 
+
+ 
 
 
 

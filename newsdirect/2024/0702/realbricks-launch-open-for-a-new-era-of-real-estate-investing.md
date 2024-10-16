@@ -67,7 +67,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/realbricks-la
 [Original/Source Press Release](https://newsdirect.com/news/realbricks-launch-open-for-a-new-era-of-real-estate-investing-293237143)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/realbricks-launches-new-era-of-real-estate-investing-with-primary-and-secondary-market/ac4a1f24d4ce3fd065541b8358149d2c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/realbricks-launches-new-platform-to-revolutionize-real-estate-investing/20244623)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/realbricks-launches-revolutionary-fractional-real-estate-investing-platform)
+
+Pickup - [advos.io](https://advos.io/en/realbricks-unveils-platform-revolutionizing-fractional-real-estate-investing/20244623)
+ 
 
 
 

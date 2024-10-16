@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kevin-triomph
 [Original/Source Press Release](https://newsdirect.com/news/kevin-triomphe-avec-la-premiere-transaction-nfc-de-compte-a-compte-sur-iphone-577928902)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kevin-makes-history-with-first-nfc-account-to-account-transaction-on-iphone/9c49de3f24e8e64c1e5ce66a60bc557e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/kevin-makes-history-with-first-nfc-peer-to-peer-transaction-on-iphone)
+ 
 
 
 

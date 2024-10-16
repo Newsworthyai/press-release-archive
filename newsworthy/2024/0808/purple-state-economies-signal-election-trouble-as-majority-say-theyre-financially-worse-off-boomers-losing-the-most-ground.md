@@ -55,7 +55,17 @@ Founded In 2021, RedBalloon has quickly become America’s largest woke-free job
 [Original/Source Press Release](https://newsworthy.ai/news/202408081229/purple-state-economies-signal-election-trouble-as-majority-say-theyre-financially-worse-off-boomers-losing-the-most-ground)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-survey-reveals-financial-struggles-of-americans-and-job-seekers/a238f9549806f6d4d162e827798ae00a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/economic-woes-in-purple-states-may-impact-upcoming-election)
+
+Pickup - [fishervista.com](https://fishervista.com/en/survey-reveals-financial-distress-among-americans-signaling-potential-election-impact/20245596)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/economic-woes-in-purple-states-could-impact-election-outcome/20245596)
+
+Pickup - [advos.io](https://advos.io/en/purple-state-economies-signal-election-trouble-as-majority-report-financial-decline/20245596)
+ 
 
 
 

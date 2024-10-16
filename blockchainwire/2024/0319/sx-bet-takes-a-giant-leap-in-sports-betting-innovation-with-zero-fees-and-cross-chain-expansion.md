@@ -27,7 +27,11 @@ X (Twitter) | Discord | YouTube
 [Original/Source Press Release](https://blockchainwire.io/press-release/sx-bet-takes-a-giant-leap-in-sports-betting-innovation-with-zero-fees-and-cross-chain-expansion)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sx-bet-revolutionizes-sports-betting-with-zero-fees-and-cross-chain-launch-on-arbitrum/353b65b808d0aef1ade90edc2bf08049) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/sx-bet-eliminates-fees-and-expands-to-arbitrum-revolutionizing-sports-betting)
+ 
 
 
 

@@ -31,7 +31,13 @@ You can follow the project and stay up to date with its development at these lin
 [Original/Source Press Release](https://blockchainwire.io/press-release/snpad-announces-uniswap-listing-and-plans-to-transform-tv-advertising-with-ai-powered-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-web3-platform-snpad-to-list-snpad-token-on-uniswap/58d1ff5f9e2871e0339fec6f9d5f3bb6) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/revolutionary-web3-platform-snpad-to-list-snpad-token-on-uniswap)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/revolutionary-web3-platform-snpad-to-list-snpad-token-on-uniswap)
+ 
 
 
 

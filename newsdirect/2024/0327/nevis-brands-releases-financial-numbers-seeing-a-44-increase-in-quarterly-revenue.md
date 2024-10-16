@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nevis-brands-
 [Original/Source Press Release](https://newsdirect.com/news/nevis-brands-releases-financial-numbers-seeing-a-44-increase-in-quarterly-revenue-209854143)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nevis-brands-sees-44-increase-in-quarterly-revenue-for-fiscal-year-2023/cc1068b83120bb955081eeb04fd7358c) 
+
+ 
 
 
 

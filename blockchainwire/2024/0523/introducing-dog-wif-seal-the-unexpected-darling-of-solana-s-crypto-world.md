@@ -7,7 +7,13 @@ In a surprising turn of events, the crypto community has been set ablaze with th
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-dog-wif-seal-the-unexpected-darling-of-solanas-crypto-world)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dog-wif-seal-the-unlikely-yet-captivating-project-making-waves-in-the-crypto-community/73ddb903585b591045575d95a4af1d50) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/dog-wif-seal-the-unlikely-yet-captivating-project-making-waves-in-the-crypto-community)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/dog-wif-seal-the-unlikely-yet-captivating-project-making-waves-in-the-crypto-community)
+ 
 
 
 

@@ -33,7 +33,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/business-phot
 [Original/Source Press Release](https://newsdirect.com/news/business-photo-ai-launches-cutting-edge-ai-driven-headshot-service-545114025)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/business-photo-ai-launches-cutting-edge-ai-driven-headshot-service/e643c834c1a49b7e88ec711905f6631e) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/business-photo-ai-introduces-revolutionary-ai-driven-headshot-service/20244462)
+
+Pickup - [advos.io](https://advos.io/en/business-photo-ai-introduces-revolutionary-ai-driven-headshot-service/20244462)
+ 
 
 
 

@@ -47,7 +47,9 @@ Coinstore Social MediaTwitter | Discord | Facebook | Instagram | Youtube | Teleg
 [Original/Source Press Release](https://blockchainwire.io/press-release/drift-labs-launches-on-coinstore-after-its-ieo-was-250-oversubscribscribed)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/drift-token-oversubscribed-by-250-on-coinstore-ieo/e57b3d76b15feafb51cb33786fcd1fe5) 
+
+ 
 
 
 

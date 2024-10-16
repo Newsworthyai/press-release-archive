@@ -21,7 +21,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/northstar-gol
 [Original/Source Press Release](https://newsdirect.com/news/northstar-gold-advances-exploration-with-successful-funding-and-promising-drill-targets-320198782)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/northstar-gold-corp-ceo-brian-fowler-announces-successful-private-placement-and-promising-exploration-results/0f6888c69efbf023f6212cc2fdca8488) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/northstar-gold-corp-secures-funding-for-critical-minerals-exploration-and-identifies-promising-copper-silver-targets)
+
+Pickup - [fishervista.com](https://fishervista.com/en/northstar-gold-secures-funding-and-identifies-high-potential-drill-targets/20245082)
+
+Pickup - [advos.io](https://advos.io/en/northstar-gold-corp-secures-funding-and-identifies-promising-drill-targets/20245082)
+ 
 
 
 

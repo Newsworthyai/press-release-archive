@@ -27,7 +27,19 @@ Disclaimer: The Loaf token is not endorsed by and has no affiliation with any sp
 [Original/Source Press Release](https://blockchainwire.io/press-release/sage-universe-launches-pfp-generator-and-announces-exciting-airdrops)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sage-universe-announces-pfp-generator-and-airdrops-amidst-crypto-market-turmoil/a5cc11b9b12943e08fc5e51e943e5043) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/sage-universe-launches-pfp-generator-amidst-market-volatility/20244804)
+
+Pickup - [advos.io](https://advos.io/en/sage-universe-launches-pfp-generator-amidst-crypto-market-volatility/20244804)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/sage-universe-launches-pfp-generator-and-airdrops-amidst-crypto-market-turmoil)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/sage-universe-announces-pfp-generator-and-airdrops-amidst-crypto-market-turmoil)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/sage-universe-announces-pfp-generator-and-airdrops-amidst-crypto-market-turmoil)
+ 
 
 
 

@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-scapes-group-llc-and-charter-vista-landscaping-llc-810863367)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/landscaping-acquisition-drives-growth-and-benefits-both-companies/19de5f501ff24cd916f899bb421cc757) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/benchmark-international-facilitates-strategic-merger-in-landscaping-industry)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-strategic-merger-between-scapes-group-and-charter-vista-landscaping/20245192)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-major-transaction-between-scapes-group-and-charter-vista-landscaping/20245192)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/scapes-group-acquired-by-charter-vista-landscaping-in-strategic-southeast-expansion)
+ 
 
 
 

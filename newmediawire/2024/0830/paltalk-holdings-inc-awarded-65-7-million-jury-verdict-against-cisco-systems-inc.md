@@ -33,7 +33,17 @@ nyc@clearthink.capital
 [Original/Source Press Release](https://www.newmediawire.com/news/paltalk-holdings-inc-awarded-65-7-million-jury-verdict-against-cisco-systems-inc-7075984)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/paltalk-inc-awarded-65-7-million-in-patent-infringement-lawsuit-against-cisco-systems-inc/77f93d6a3e8e24f46048c81df06b02e2) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/paltalk-wins-65-7-million-verdict-against-cisco-for-patent-infringement/20246444)
+
+Pickup - [advos.io](https://advos.io/en/paltalk-awarded-65-7-million-in-patent-infringement-case-against-cisco/20246444)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/30/paltalk-wins-65-7-million-patent-infringement-verdict-against-cisco)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/paltalk-wins-65-7-million-patent-infringement-verdict-against-cisco/20246444)
+ 
 
 
 

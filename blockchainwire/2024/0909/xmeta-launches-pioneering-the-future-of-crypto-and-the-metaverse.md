@@ -55,7 +55,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/xmeta-launches-pioneering-the-future-of-crypto-and-the-metaverse)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/x-metaverse-pro-s-xmeta-launches-poised-for-global-expansion/7ed35079514d747527042e0573d7e1ff) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/xmeta-poised-to-revolutionize-crypto-and-metaverse-markets/20246693)
+
+Pickup - [advos.io](https://advos.io/en/xmeta-launches-to-revolutionize-the-metaverse-and-digital-asset-market/20246693)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/xmeta-token-launches-with-ambitious-plans-for-metaverse-and-crypto-integration/20246693)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/xmeta-token-launches-aiming-to-revolutionize-crypto-and-metaverse-landscapes)
+ 
 
 
 

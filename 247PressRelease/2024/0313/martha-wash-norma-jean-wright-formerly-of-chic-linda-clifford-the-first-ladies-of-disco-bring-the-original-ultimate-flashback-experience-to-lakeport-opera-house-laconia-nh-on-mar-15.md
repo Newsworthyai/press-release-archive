@@ -7,7 +7,11 @@ NEW YORK, NY, March 13, 2024 /24-7PressRelease/ -- Two-time Grammy nominee Marth
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509194/martha-wash-norma-jean-wright-formerly-of-chic-linda-clifford-the-first-ladies-of-disco-bring-the-original-ultimate-flashback-experience-to-lakeport-opera-house-laconia-nh-on-mar-15)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iconic-disco-soul-singers-unite-for-ultimate-flashback-experience/8965b065d72c24dcd0cf65fd09672504) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/13/disco-legends-unite-for-ultimate-flashback-experience)
+ 
 
 
 

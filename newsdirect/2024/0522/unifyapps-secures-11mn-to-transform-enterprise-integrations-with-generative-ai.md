@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/unifyapps-sec
 [Original/Source Press Release](https://newsdirect.com/news/unifyapps-secures-11mn-to-transform-enterprise-integrations-with-generative-ai-868953499)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unifyapps-secures-11mn-to-transform-enterprise-integrations-with-generative-ai/5c36f8a32780bcca30139953b2ddef85) 
+
+ 
 
 
 

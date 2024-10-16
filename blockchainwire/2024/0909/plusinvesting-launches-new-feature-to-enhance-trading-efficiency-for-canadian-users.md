@@ -35,7 +35,17 @@ To learn more about this new feature and to start trading with enhanced efficien
 [Original/Source Press Release](https://blockchainwire.io/press-release/plusinvesting-launches-new-feature-to-enhance-trading-efficiency-for-canadian-users)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/plusinvesting-launches-advanced-efficiency-tools-for-canadian-traders/3855460676e487bd1f6139c1653a4ddc) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/plusinvesting-introduces-advanced-efficiency-tools-for-canadian-cryptocurrency-traders/20246698)
+
+Pickup - [advos.io](https://advos.io/en/plusinvesting-introduces-advanced-efficiency-tools-for-canadian-cryptocurrency-traders/20246698)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/plusinvesting-unveils-advanced-efficiency-tools-for-canadian-cryptocurrency-traders/20246698)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/plusinvesting-enhances-trading-efficiency-with-new-feature-for-canadian-users)
+ 
 
 
 

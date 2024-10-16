@@ -42,7 +42,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/iicspa-welcom
 [Original/Source Press Release](https://newsdirect.com/news/iicspa-welcomes-fourteen-new-fellows-for-2024-247865508)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/international-institute-of-computer-science-professional-association-iicspa-welcomes-fourteen-new-fellows-for-2024/1c57008ef1a64f94457df081a1bb3688) 
+
+ 
 
 
 

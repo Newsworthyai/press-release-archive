@@ -7,7 +7,11 @@ NEW YORK, NY, March 16, 2024 /24-7PressRelease/ -- Shincheonji Church of Jesus, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509285/shincheonji-church-of-jesus-commemorates-its-40th-anniversary)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-church-of-jesus-celebrates-40th-anniversary-with-special-sermon/d0b2d2dacf5758092e136d9814c71233) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/16/shincheonji-church-celebrates-40-years-of-bible-education)
+ 
 
 
 

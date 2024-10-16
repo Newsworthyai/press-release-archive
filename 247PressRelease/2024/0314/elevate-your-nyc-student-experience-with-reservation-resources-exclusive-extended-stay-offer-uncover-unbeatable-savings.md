@@ -7,7 +7,11 @@ NEW YORK, NY, March 14, 2024 /24-7PressRelease/ -- Opting for stays of 28 days o
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509222/elevate-your-nyc-student-experience-with-reservation-resources-exclusive-extended-stay-offer-uncover-unbeatable-savings)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exclusive-discounts-of-up-to-30-on-long-stays-in-new-york/94090b0cc884ca117f2dc7e2e6f98f4f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/14/unlock-unbeatable-savings-with-reservation-resources-exclusive-extended-stay-offer)
+ 
 
 
 

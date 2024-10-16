@@ -49,7 +49,11 @@ Discord: https://discord.gg/C9J2c7a3NX
 [Original/Source Press Release](https://blockchainwire.io/press-release/navs-bold-move-pioneering-structured-investment-products-in-the-defi-arena)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nav-secures-2-million-in-seed-funding-for-sophisticated-defi-investment-products/c8b42e70e1356aefb9050280df3ce5da) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/07/nav-finance-pioneering-structured-investment-products-in-defi)
+ 
 
 
 

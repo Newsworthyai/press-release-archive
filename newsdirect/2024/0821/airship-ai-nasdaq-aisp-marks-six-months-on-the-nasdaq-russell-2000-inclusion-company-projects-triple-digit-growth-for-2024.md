@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/airship-ai-na
 [Original/Source Press Release](https://newsdirect.com/news/airship-ai-nasdaq-aisp-marks-six-months-on-the-nasdaq-russell-2000-inclusion-company-projects-triple-digit-growth-for-2024-330668516)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/airship-ai-leading-the-way-in-ai-driven-surveillance-technology/48b8cefe78da21fa610695cf73510391) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/airship-ai-celebrates-nasdaq-milestone-forecasts-strong-growth)
+
+Pickup - [fishervista.com](https://fishervista.com/en/airship-ai-celebrates-six-months-on-nasdaq-with-projections-of-triple-digit-growth-for-2024/20245871)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/airship-ai-celebrates-six-months-on-nasdaq-projects-triple-digit-growth-for-2024/20245871)
+
+Pickup - [advos.io](https://advos.io/en/airship-ai-celebrates-six-months-on-nasdaq-with-strong-growth-projections/20245871)
+ 
 
 
 

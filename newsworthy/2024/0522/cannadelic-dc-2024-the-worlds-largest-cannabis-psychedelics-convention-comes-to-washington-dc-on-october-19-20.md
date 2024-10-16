@@ -30,7 +30,9 @@ Cannadelic Community Nonprofit is dedicated to improving the mental health and w
 [Original/Source Press Release](https://newsworthy.ai/news/202405221174/cannadelic-dc-2024-the-worlds-largest-cannabis-psychedelics-convention-comes-to-washington-dc-on-october-19-20-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cannadelic-dc-2024-pioneering-cannabis-psychedelics-conference-and-expo/312aebc2577fce1067b963f0ad4e4451) 
+
+ 
 
 
 

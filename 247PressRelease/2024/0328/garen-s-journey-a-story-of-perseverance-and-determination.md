@@ -7,7 +7,11 @@ KANSAS CITY, MO, March 28, 2024 /24-7PressRelease/ -- In a world fraught with ch
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509616/garens-journey-a-story-of-perseverance-and-determination)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/garen-armstrong-s-inspirational-journey-of-faith-and-triumph/bbc2a623ebe6307185f96e48e02d02d7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/garen-s-journey-a-remarkable-tale-of-resilience-and-unwavering-faith)
+ 
 
 
 

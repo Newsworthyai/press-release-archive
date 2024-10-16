@@ -41,7 +41,11 @@ Facebook Group | Facebook | Linkedin | X (Twitter) |Instagram | Pinterest
 [Original/Source Press Release](https://newsworthy.ai/news/202402221100/ai-brainstorm-creator-is-conducting-the-world-s-largest-experiment-ever-on-recommended-daily-allowances-for-emotions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ngo-launches-global-experiment-on-emotional-peak-experiences/e4dd800ff6b48ceabea53ce35a273292) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/22/ai-brainstorm-creator-conducts-global-experiment-on-emotional-peak-experiences)
+ 
 
 
 

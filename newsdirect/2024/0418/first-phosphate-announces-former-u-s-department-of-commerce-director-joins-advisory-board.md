@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/first-phospha
 [Original/Source Press Release](https://newsdirect.com/news/first-phosphate-announces-former-u-s-department-of-commerce-director-joins-advisory-board-249243374)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-u-s-department-of-commerce-director-joins-first-phosphate-corp-advisory-board/1382afa40e1164c8cc21e44052a18bfc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/first-phosphate-announces-former-u-s-department-of-commerce-director-joins-advisory-board)
+ 
 
 
 

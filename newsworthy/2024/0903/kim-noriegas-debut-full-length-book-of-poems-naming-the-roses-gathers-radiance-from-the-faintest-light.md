@@ -17,7 +17,17 @@ Dr. Luczaj concludes: “I only wish I could inhabit the unashamed, unpitying, b
 [Original/Source Press Release](https://newsworthy.ai/news/202409031248/kim-noriegas-debut-full-length-book-of-poems-naming-the-roses-gathers-radiance-from-the-faintest-light)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aim-higher-inc-releases-kim-noriegas-poetry-collection-naming-the-roses/2c8536d4c073ec83b5a46cd8b184e642) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/kim-noriega-s-naming-the-roses-sheds-light-on-addiction-and-abuse-through-powerful-poetry)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kim-noriega-s-debut-poetry-collection-naming-the-roses-explores-themes-of-violence-and-healing/20246473)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/kim-noriega-s-naming-the-roses-explores-trauma-and-resilience-in-powerful-poetry-collection/20246473)
+
+Pickup - [advos.io](https://advos.io/en/kim-noriegas-debut-poetry-collection-naming-the-roses-illuminates-dark-themes-with-subtle-beauty/20246473)
+ 
 
 
 

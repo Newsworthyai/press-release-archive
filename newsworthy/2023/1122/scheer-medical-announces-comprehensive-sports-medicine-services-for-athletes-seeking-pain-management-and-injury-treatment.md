@@ -15,7 +15,11 @@ Dr. Mark Johnson, a respected medical doctor at Scheer Medical, further explaine
 [Original/Source Press Release](https://newsworthy.ai/news/20231122891/scheer-medical-announces-comprehensive-sports-medicine-services-for-athletes-seeking-pain-management-and-injury-treatment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scheer-medical-unveils-cutting-edge-sports-medicine-services-for-athletes/7ee4525745a6ef659fccf56f0387148d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/22/scheer-medical-unveils-comprehensive-sports-medicine-services)
+ 
 
 
 

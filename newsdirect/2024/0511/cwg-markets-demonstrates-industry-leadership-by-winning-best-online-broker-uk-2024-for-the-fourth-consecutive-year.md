@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cwg-markets-d
 [Original/Source Press Release](https://newsdirect.com/news/cwg-markets-demonstrates-industry-leadership-by-winning-best-online-broker-uk-2024-for-the-fourth-consecutive-year-169979545)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cwg-markets-wins-best-online-broker-uk-for-fourth-consecutive-year/c88efef4ed2c8325ffdc5151ad92ba47) 
+
+ 
 
 
 

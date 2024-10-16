@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/hedge-funds-explore-new-defi-exchange-token-o2t-before-bitcoin-btc-halving-and-ethereum-eth-etf)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hedge-funds-turn-to-option2trade-o2t-as-bitcoin-halving-and-ethereum-etf-launch-loom/3e3720ec7568419029755764933bbf34) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/07/hedge-funds-eye-defi-token-option2trade-ahead-of-bitcoin-halving-and-ethereum-etf)
+ 
 
 
 

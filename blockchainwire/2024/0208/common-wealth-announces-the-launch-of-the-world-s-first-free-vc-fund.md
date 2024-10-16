@@ -52,7 +52,11 @@ hello@common-wealth.io
 [Original/Source Press Release](https://blockchainwire.io/press-release/common-wealth-announces-the-launch-of-the-worlds-first-free-vc-fund)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/common-wealth-launches-free-earn-to-own-vc-fund-for-web3-investments/64de996c5ef0e18dd9cbe028b2d7b37f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/08/common-wealth-launches-world-s-first-free-earn-to-own-vc-fund)
+ 
 
 
 

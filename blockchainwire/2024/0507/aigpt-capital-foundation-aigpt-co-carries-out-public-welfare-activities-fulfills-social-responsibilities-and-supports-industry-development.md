@@ -45,7 +45,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/aigpt-capital-foundation-aigptco-carries-out-public-welfare-activities-fulfills-social-responsibilities-and-supports-industry-development)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aigpt-announces-public-welfare-activities-to-fulfill-social-responsibility-and-support-industry-development/1649508e0a918f1ee708f2ca41d10d9b) 
+
+ 
 
 
 

@@ -7,7 +7,11 @@ ORLANDO, FL, April 07, 2024 /24-7PressRelease/ -- Sun Shade's upcoming release o
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509865/reggae-recording-artist-sun-shade-poised-to-release-against-all-odds-phil-collins-cover)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sun-shade-to-release-reggae-rendition-of-phil-collins-classic/9785798de9d262373e44d4a31f122639) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/07/reggae-artist-sun-shade-reimagines-phil-collins-classic)
+ 
 
 
 

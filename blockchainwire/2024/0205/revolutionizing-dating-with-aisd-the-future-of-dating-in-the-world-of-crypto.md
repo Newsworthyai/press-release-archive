@@ -59,7 +59,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/revolutionizing-dating-with-aisd-the-future-of-dating-in-the-world-of-crypto)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aisd-revolutionizing-dating-with-ai-and-blockchain-technology/31908e653ce4703901868173415bbb50) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/05/aisd-revolutionizing-dating-with-ai-and-blockchain-technology)
+ 
 
 
 

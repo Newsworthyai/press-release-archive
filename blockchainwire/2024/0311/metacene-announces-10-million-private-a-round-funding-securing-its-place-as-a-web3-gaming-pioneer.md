@@ -29,7 +29,11 @@ Website | Twitter | Discord
 [Original/Source Press Release](https://blockchainwire.io/press-release/metacene-announces-10-million-private-a-round-funding-securing-its-place-as-a-web3-gaming-pioneer)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metacene-secures-10m-funding-for-revolutionary-meta-mmo-platform/8c5da4abe190ca7a5638b7e2c9f4e21c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/metacene-secures-10-million-to-redefine-web3-gaming-experience)
+ 
 
 
 

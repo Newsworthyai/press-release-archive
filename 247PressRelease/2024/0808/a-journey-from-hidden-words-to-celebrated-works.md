@@ -7,7 +7,17 @@ EDINBURGH, IN, August 08, 2024 /24-7PressRelease/ -- At seventy-three, Carlotta 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513158/a-journey-from-hidden-words-to-celebrated-works)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/literary-beacon-carlotta-mcknight-releases-profound-debut-and-heartwarming-second-book/9e158ffaea7296b1f7d589d19acdfb51) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/carlotta-mcknight-from-hidden-words-to-celebrated-works/20245572)
+
+Pickup - [advos.io](https://advos.io/en/carlotta-mcknight-from-hidden-words-to-celebrated-literary-works/20245572)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/73-year-old-author-carlotta-mcknight-triumphs-with-debut-works/20245572)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/73-year-old-author-carlotta-mcknight-triumphs-with-debut-works)
+ 
 
 
 

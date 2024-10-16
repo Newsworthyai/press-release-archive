@@ -45,7 +45,21 @@ GDMining is a top cloud mining platform that allows users to mine cryptocurrenci
 [Original/Source Press Release](https://blockchainwire.io/press-release/uk-fac-officially-regulates-gdmining-launch-of-secure-risk-free-cloud-mining-contracts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gdmining-launches-fac-regulated-cloud-mining-contracts/b46d50ba58faca8281a7de277f345dd4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/gdmining-launches-fac-regulated-cloud-mining-contracts-enhancing-investor-security)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gdmining-launches-fac-regulated-cloud-mining-contracts-enhancing-investor-security/20246800)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/uk-financial-authority-regulates-gdmining-ushering-in-secure-cloud-mining-contracts/20246800)
+
+Pickup - [advos.io](https://advos.io/en/uk-financial-authority-regulates-gdmining-introducing-secure-cloud-mining-contracts/20246800)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gdmining-launches-fac-regulated-cloud-mining-contracts)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gdmining-launches-fac-regulated-cloud-mining-contracts)
+ 
 
 
 

@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/bila-solar-to
 [Original/Source Press Release](https://newsdirect.com/news/bila-solar-to-unveil-520-watt-glass-free-solar-panel-with-19-3-efficiency-at-re-506305462)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bila-solar-unveils-520-watt-glass-free-solar-panel-at-re-event/3ac613b9fafa5538403231cbb55a90f2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/bila-solar-introduces-revolutionary-520w-glass-free-solar-panel-at-re-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bila-solar-to-launch-520w-glass-free-solar-panel-with-19-3-efficiency-at-re/20246519)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/bila-solar-introduces-revolutionary-520w-glass-free-solar-panel/20246519)
+
+Pickup - [advos.io](https://advos.io/en/bila-solar-to-introduce-520w-glass-free-solar-panel-with-19-3-efficiency/20246519)
+ 
 
 
 

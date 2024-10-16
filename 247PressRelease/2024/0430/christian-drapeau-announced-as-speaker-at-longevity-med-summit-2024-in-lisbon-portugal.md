@@ -7,7 +7,9 @@ AUSTIN, TX, April 30, 2024 /24-7PressRelease/ -- Christian Drapeau will be shari
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510510/christian-drapeau-announced-as-speaker-at-longevity-med-summit-2024-in-lisbon-portugal)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/top-stem-cell-scientist-to-share-breakthrough-research-at-longevity-med-summit-2024/e4ccba5dc28a9279108bf88be13186ad) 
+
+ 
 
 
 

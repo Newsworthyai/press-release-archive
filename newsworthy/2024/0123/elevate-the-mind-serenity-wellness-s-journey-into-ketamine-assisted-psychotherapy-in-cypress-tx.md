@@ -15,7 +15,9 @@ Individuals struggling with depression should contact Serenity Wellness and Coun
 [Original/Source Press Release](https://newsworthy.ai/news/202401231023/elevate-the-mind-serenity-wellness-s-journey-into-ketamine-assisted-psychotherapy-in-cypress-tx)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-depression-treatments-offered-at-serenity-wellness-and-counseling-center/8e3501dbf494c191aef142d8da739a95) 
+
+ 
 
 
 

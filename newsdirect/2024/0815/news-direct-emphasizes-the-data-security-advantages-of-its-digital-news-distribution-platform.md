@@ -17,7 +17,17 @@ View original content to download multimedia: https://newsdirect.com/news/news-d
 [Original/Source Press Release](https://newsdirect.com/news/news-direct-emphasizes-the-data-security-advantages-of-its-digital-news-distribution-platform-980712249)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/news-direct-corp-highlights-data-security-advantages-of-digital-news-distribution-platform/30968a253ca9828709566a17386f63d4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/news-direct-highlights-enhanced-data-security-features-of-digital-distribution-platform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/news-direct-highlights-data-security-advantages-of-its-digital-news-distribution-platform/20245761)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/news-direct-enhances-data-security-in-digital-news-distribution/20245761)
+
+Pickup - [advos.io](https://advos.io/en/news-direct-highlights-security-benefits-of-its-digital-news-distribution-platform/20245761)
+ 
 
 
 

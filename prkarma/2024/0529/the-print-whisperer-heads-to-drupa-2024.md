@@ -51,7 +51,9 @@ Visit Our Blog
 [Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1470)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/printing-industry-influencer-warren-werbitt-to-attend-drupa-2024/51cd1a59d8fd66dd431331cb8706b88f) 
+
+ 
 
 
 

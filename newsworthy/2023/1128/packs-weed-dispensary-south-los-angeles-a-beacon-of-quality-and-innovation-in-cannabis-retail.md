@@ -15,7 +15,9 @@ As PACKS thrives and expands its presence, its unwavering commitment persists in
 [Original/Source Press Release](https://newsworthy.ai/news/20231128901/packs-weed-dispensary-south-los-angeles-a-beacon-of-quality-and-innovation-in-cannabis-retail)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/packs-weed-dispensary-leading-the-evolution-of-south-los-angeles-cannabis-scene/8fab4f2a40d6a409e44f891447bde730) 
+
+ 
 
 
 

@@ -7,7 +7,21 @@ AUSTIN, TX, July 31, 2024 /24-7PressRelease/ -- At Consensus 2024, a gathering o
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512916/fftv-online-short-series-create-a-new-ecosystem-disrupting-traditional-models)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/industry-leaders-gather-at-consensus-2024-to-unveil-revolutionary-content-creation-ecosystem/16e93fca17737e5ba90b956c506d936e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/31/fftv-unveils-revolutionary-short-series-ecosystem-at-consensus-2024)
+
+Pickup - [fishervista.com](https://fishervista.com/en/fftv-online-short-series-revolutionizes-content-creation-ecosystem/20245384)
+
+Pickup - [advos.io](https://advos.io/en/fftv-unveils-revolutionary-ecosystem-at-consensus-2024/20245384)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/industry-leaders-gather-at-consensus-2024-to-unveil-revolutionary-content-creation-ecosystem)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/industry-leaders-gather-at-consensus-2024-to-unveil-revolutionary-content-creation-ecosystem)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/fftv-unveils-revolutionary-short-series-ecosystem-at-consensus-2024)
+ 
 
 
 

@@ -36,7 +36,13 @@ Alan Pedersen is an award-winning songwriter, recording artist, comedian, and na
 [Original/Source Press Release](https://newsworthy.ai/news/202406271202/when-the-saints-come-laughing-in-a-comedy-show-about-grief-and-loss)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-compassionate-friends-47th-annual-national-conference-coming-to-new-orleans/1afd09437a6519af8751f05e40be5a92) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/comedy-show-brings-laughter-to-grieving-hearts-in-new-orleans/20244637)
+
+Pickup - [advos.io](https://advos.io/en/comedy-show-when-the-saints-come-laughing-in-to-address-grief-at-tcf-conference/20244637)
+ 
 
 
 

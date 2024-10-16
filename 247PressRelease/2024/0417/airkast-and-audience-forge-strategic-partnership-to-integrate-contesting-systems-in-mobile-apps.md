@@ -7,7 +7,11 @@ PLEASANTON, CA, April 17, 2024 /24-7PressRelease/ -- AirKast, a leader in mobile
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510099/airkast-and-audience-forge-strategic-partnership-to-integrate-contesting-systems-in-mobile-apps)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/airkast-and-audience-partner-to-redefine-user-engagement-on-mobile-platforms/b278ac38fb6fb3d4c764ee6484cbe932) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/airkast-and-audience-forge-strategic-partnership-to-integrate-contesting-systems-in-mobile-apps)
+ 
 
 
 

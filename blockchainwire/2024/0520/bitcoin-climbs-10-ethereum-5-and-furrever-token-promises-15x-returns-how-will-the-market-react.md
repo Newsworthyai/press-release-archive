@@ -33,7 +33,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-climbs-10-ethereum-5-and-furrever-token-promises-15x-returns-how-will-the-market-react)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-and-ethereum-surge-furrever-token-sparks-crypto-enthusiasm/529a7583643a84ac386ddb9772e64540) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-and-ethereum-surge-furrever-token-sparks-crypto-enthusiasm)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-and-ethereum-surge-furrever-token-sparks-crypto-enthusiasm)
+ 
 
 
 

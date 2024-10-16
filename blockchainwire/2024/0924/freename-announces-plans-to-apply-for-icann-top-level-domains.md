@@ -19,7 +19,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/freename-announces-plans-to-apply-for-icann-top-level-domains)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/freename-to-participate-in-icann-gtld-registration-round/540b4568622b5b9cdd9e88089c440fb3) 
+
+ 
 
 
 

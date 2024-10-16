@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/aclara-resour
 [Original/Source Press Release](https://newsdirect.com/news/aclara-resources-awards-carina-module-pre-feasibility-study-to-hatch-334133012)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aclara-resources-awards-carina-module-pre-feasibility-study-to-hatch/fe4fbca7bdc564e2b29c81263552d2f2) 
+
+ 
 
 
 

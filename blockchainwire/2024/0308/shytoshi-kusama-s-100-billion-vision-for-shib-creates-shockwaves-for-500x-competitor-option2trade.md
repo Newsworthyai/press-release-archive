@@ -45,7 +45,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/shytoshi-kusamas-100-billion-vision-for-shib-creates-shockwaves-for-500x-competitor-option2trade)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shytoshi-kusama-s-bold-vision-a-100-billion-horizon-for-shib/785b5aa894d1fc8027804b957d568847) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/08/shiba-inu-s-ambitious-vision-sparks-competitive-crypto-landscape)
+ 
 
 
 

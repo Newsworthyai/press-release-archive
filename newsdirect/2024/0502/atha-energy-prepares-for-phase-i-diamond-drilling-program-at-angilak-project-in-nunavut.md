@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/atha-energy-p
 [Original/Source Press Release](https://newsdirect.com/news/atha-energy-prepares-for-phase-i-diamond-drilling-program-at-angilak-project-in-nunavut-858883931)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atha-energy-prepares-for-phase-i-diamond-drilling-program-at-angilak-project-in-nunavut/462490e850105911155b62f20e0386cb) 
+
+ 
 
 
 

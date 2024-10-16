@@ -33,7 +33,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/ai-coins-surge-ahead-of-nvidia-conference-revolutionizing-industries-with-healix)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nvidia-conference-to-showcase-ai-cryptocurrency-convergence-and-healix-s-revolutionary-impact/c4dbcffe1d69e4226b7a2a50434e5036) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/ai-coins-surge-ahead-of-nvidia-conference-healix-leads-healthcare-innovation)
+ 
 
 
 

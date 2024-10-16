@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bidens-chines
 [Original/Source Press Release](https://newsdirect.com/news/bidens-chinese-battery-tariff-hike-could-see-us-manufacturers-like-dragonfly-energy-gain-ground-423080101)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/biden-s-chinese-battery-tariff-hike-could-see-us-manufacturers-like-dragonfly-energy-gain-ground/0eaecb74b1c01b66326f2191f42e859f) 
+
+
+Pickup - [advos.io](https://advos.io/en/biden-s-chinese-battery-tariff-increase-opens-doors-for-us-manufacturers-like-dragonfly-energy/20243886)
+ 
 
 
 

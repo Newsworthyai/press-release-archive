@@ -7,7 +7,15 @@ ATLANTA, GA, July 22, 2024 /24-7PressRelease/ -- SageHome Inc., the largest prov
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512703/sagehome-inc-promotes-joe-gorman-to-ceo-and-celebrates-continued-national-expansion)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sagehome-inc-announces-strategic-leadership-transition/cf91e0eace2f846178335513b1ce6146) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/22/sagehome-inc-announces-leadership-changes-and-expansion-across-24-states)
+
+Pickup - [fishervista.com](https://fishervista.com/en/sagehome-inc-promotes-joe-gorman-to-ceo-amidst-expansive-growth/20245139)
+
+Pickup - [advos.io](https://advos.io/en/sagehome-inc-appoints-joe-gorman-as-ceo-amidst-nationwide-expansion/20245139)
+ 
 
 
 

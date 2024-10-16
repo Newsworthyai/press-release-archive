@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-liquid-re
 [Original/Source Press Release](https://newsdirect.com/news/htx-liquid-restaking-112-816-merl-airdrop-rewards-for-a-single-user-and-more-premium-projects-awaiting-you-749889831)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-liquid-restaking-112816-merl-airdrop-rewards-for-a-single-user-and-more-premium-projects-awaiting-you/df3ddee744dae0c4f06486aea7f28f90) 
+
+ 
 
 
 

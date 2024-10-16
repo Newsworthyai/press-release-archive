@@ -17,7 +17,11 @@ This launching not only depicts the company’s advancement and evolution but al
 [Original/Source Press Release](https://blockchainwire.io/press-release/eledator-expanding-boundaries---opening-a-new-office-in-hong-kong)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/eledator-expands-to-hong-kong-strengthening-commitment-to-clients-and-global-growth/a5b94d14f5071e53772b92e6bea4b8a9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/eledator-expands-global-footprint-with-new-hong-kong-office)
+ 
 
 
 

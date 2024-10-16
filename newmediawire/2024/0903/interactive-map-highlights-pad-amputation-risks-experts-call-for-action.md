@@ -47,7 +47,17 @@
 [Original/Source Press Release](https://www.newmediawire.com/news/interactive-map-highlights-pad-amputation-risks-experts-call-for-action-7075993)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-pad-collaborative-heat-map-reveals-risk-of-non-traumatic-lower-limb-amputations/36b2c1c96a7e98269fe085dad9dc84a0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/new-interactive-map-reveals-alarming-pad-amputation-risks-across-u-s)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-interactive-map-highlights-risks-of-pad-related-amputations-experts-urge-immediate-action/20246492)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/new-interactive-map-reveals-alarming-rates-of-pad-related-amputations-across-u-s/20246492)
+
+Pickup - [advos.io](https://advos.io/en/interactive-map-exposes-high-pad-amputation-risks-calls-for-improved-healthcare-measures/20246492)
+ 
 
 
 

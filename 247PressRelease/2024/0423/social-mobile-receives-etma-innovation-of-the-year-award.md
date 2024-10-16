@@ -7,7 +7,9 @@ MIAMI, FL, April 23, 2024 /24-7PressRelease/ -- The Enterprise Technology Manage
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510180/social-mobile-receives-etma-innovation-of-the-year-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/social-mobile-wins-innovation-of-the-year-award-for-rhino-mobility-platforms/f42cd2f6f78e92504761c90f770dc677) 
+
+ 
 
 
 

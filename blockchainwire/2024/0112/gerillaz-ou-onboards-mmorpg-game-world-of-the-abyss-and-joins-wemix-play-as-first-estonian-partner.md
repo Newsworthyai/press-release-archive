@@ -25,7 +25,11 @@ Part of the first generation of Korean PC online game developers and Korean mobi
 [Original/Source Press Release](https://blockchainwire.io/press-release/gerillaz-o-onboards-mmorpg-game-world-of-the-abyss-and-joins-wemix-play-as-first-estonian-partner)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemade-partners-with-gerillaz-ou-to-release-hardcore-mmorpg-world-of-the-abyss-on-wemix-play/de543e97e609d18db5fe2f95efcf4e22) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/12/estonian-game-studio-gerillaz-ou-brings-massive-mmorpg-world-of-the-abyss-to-wemix-play)
+ 
 
 
 

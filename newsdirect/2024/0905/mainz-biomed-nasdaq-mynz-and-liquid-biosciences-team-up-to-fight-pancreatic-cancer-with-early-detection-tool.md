@@ -43,7 +43,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/mainz-biomed-
 [Original/Source Press Release](https://newsdirect.com/news/mainz-biomed-nasdaq-mynz-and-liquid-biosciences-team-up-to-fight-pancreatic-cancer-with-early-detection-tool-214850127)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mainz-biomed-n-v-and-liquid-biosciences-partner-to-fight-pancreatic-cancer/32a7020ef914cfb6342fb9da5df7a785) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/mainz-biomed-and-liquid-biosciences-collaborate-on-innovative-pancreatic-cancer-detection-tool)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mainz-biomed-and-liquid-biosciences-collaborate-on-early-detection-tool-for-pancreatic-cancer/20246566)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/mainz-biomed-and-liquid-biosciences-collaborate-on-early-pancreatic-cancer-detection-tool/20246566)
+
+Pickup - [advos.io](https://advos.io/en/mainz-biomed-and-liquid-biosciences-partner-to-enhance-early-detection-of-pancreatic-cancer/20246566)
+ 
 
 
 

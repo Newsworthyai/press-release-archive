@@ -39,7 +39,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/ciphered-launches-as-the-ultimate-encrypted-on-chain-telegram-alternative-amid-growing-privacy-concerns-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ciphered-the-secure-and-decentralized-messaging-app-for-privacy-conscious-users/f13729d87275b312801967e0b535ed0b) 
+
+ 
 
 
 

@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/tighter-sprea
 [Original/Source Press Release](https://newsdirect.com/news/tighter-spreads-transparent-fee-structures-more-regulatory-compliance-the-advantages-of-trading-forex-with-future-383789908)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/advantages-of-forex-futures-trading-with-blusky-tighter-spreads-transparent-fee-structures-and-more-regulatory-compliance/5a8e8f1b36c6e5acdd020cd2cad7a0f8) 
+
+ 
 
 
 

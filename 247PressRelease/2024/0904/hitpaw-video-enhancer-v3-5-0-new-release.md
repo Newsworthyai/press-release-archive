@@ -7,7 +7,17 @@ NEW YORK, NY, September 04, 2024 /24-7PressRelease/ -- HitPaw, a leading softwar
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513970/hitpaw-video-enhancer-v350-new-release)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hitpaw-announces-release-of-video-enhancer-v3-5-0-with-advanced-features/30d0c63b88fc0ccb5d7fbab90ff626bc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/hitpaw-unveils-video-enhancer-v3-5-0-with-advanced-ai-features)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hitpaw-unveils-advanced-video-enhancer-v3-5-0-with-cutting-edge-features/20246500)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/hitpaw-launches-video-enhancer-v3-5-0-with-advanced-ai-features/20246500)
+
+Pickup - [advos.io](https://advos.io/en/hitpaw-releases-enhanced-video-enhancer-v3-5-0-with-advanced-features/20246500)
+ 
 
 
 

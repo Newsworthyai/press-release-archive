@@ -7,7 +7,11 @@ NASHVILLE, TN, March 19, 2024 /24-7PressRelease/ -- RISE is pleased to announce 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509296/dr-amy-boutwell-receives-rises-2024-prestigious-quality-award)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amy-boutwell-m-d-mpp-receives-dr-martin-l-block-award-for-innovation-excellence-at-rise-national-2024/bfecb26b3c1670c1c6819ea5adf8193c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/dr-amy-boutwell-honored-with-prestigious-rise-award-for-healthcare-innovation)
+ 
 
 
 

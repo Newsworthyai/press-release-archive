@@ -23,7 +23,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/inblock-announces-metacoin-listing-on-biconomy-enhancing-global-market-access)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metacoin-mtc-to-be-listed-on-biconomy-exchange/79efe7f3bbecfc8e017a7deeb5756d27) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/metacoin-to-launch-on-biconomy-exchange-expanding-global-reach)
+
+Pickup - [fishervista.com](https://fishervista.com/en/metacoin-to-be-listed-on-biconomy-boosting-global-market-reach/20245737)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/metacoin-expands-global-reach-with-upcoming-biconomy-exchange-listing/20245737)
+
+Pickup - [advos.io](https://advos.io/en/inblock-s-metacoin-to-launch-on-biconomy-broadening-global-reach/20245737)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/metacoin-mtc-to-be-listed-on-biconomy-exchange)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/metacoin-mtc-to-be-listed-on-biconomy-exchange)
+ 
 
 
 

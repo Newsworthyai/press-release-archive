@@ -27,7 +27,21 @@ Company name: Co-founder, KulaDAOE-mail: [hello@kuladao.io](mailto:hello@kuladao
 [Original/Source Press Release](https://blockchainwire.io/press-release/kula-partners-with-aegis-for-groundbreaking-underground-asset-tokenization)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kula-and-aegis-prime-collaborate-to-revolutionize-underground-asset-tokenization/288a0f3a7c56a4dfc4ab2bfd3e51089b) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/kula-and-aegis-prime-collaborate-to-revolutionize-underground-asset-tokenization)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/kula-and-aegis-prime-collaborate-to-revolutionize-underground-asset-tokenization)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kula-and-aegis-prime-partner-to-revolutionize-underground-asset-tokenization/20245968)
+
+Pickup - [advos.io](https://advos.io/en/kula-partners-with-aegis-for-revolutionary-underground-asset-tokenization/20245968)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/kula-and-aegis-join-forces-to-transform-mining-industry-through-underground-asset-tokenization)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/kula-and-aegis-partner-to-transform-mining-industry-with-blockchain-based-asset-tokenization/20245968)
+ 
 
 
 

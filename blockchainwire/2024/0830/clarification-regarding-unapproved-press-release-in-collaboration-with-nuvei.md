@@ -13,7 +13,17 @@ We apologize once again and thank Nuvei for their understanding and ongoing part
 [Original/Source Press Release](https://blockchainwire.io/press-release/clarification-regarding-unapproved-press-release-in-collaboration-with-nuvei)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fintech360-issues-press-release-without-final-approval-from-nuvei/b8be521b1a5f2da8730fb38cd1b669d4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/30/fintech360-issues-clarification-on-unapproved-press-release-involving-nuvei-collaboration)
+
+Pickup - [fishervista.com](https://fishervista.com/en/fintech360-issues-clarification-on-unapproved-press-release-involving-nuvei/20246404)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/fintech360-issues-clarification-on-unauthorized-press-release-regarding-nuvei-collaboration/20246404)
+
+Pickup - [advos.io](https://advos.io/en/fintech360-clarifies-unauthorized-press-release-in-collaboration-with-nuvei/20246404)
+ 
 
 
 

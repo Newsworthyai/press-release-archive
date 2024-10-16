@@ -61,7 +61,21 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/from-screen-to-blockchain-mcdull-meme-coin-debuts-with-a-charitable-twist)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcdull-a-meme-coin-like-no-other/9dcea0328221fe1b4f27d001922d3ca6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/mcdull-meme-coin-launches-blending-nostalgia-with-cryptocurrency-innovation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mcdull-meme-coin-launches-with-strong-community-focus-and-charitable-mission/20246390)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/mcdull-meme-coin-launches-blending-nostalgia-with-cryptocurrency-innovation/20246390)
+
+Pickup - [advos.io](https://advos.io/en/mcdull-meme-coin-launches-with-charitable-focus/20246390)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/mcdull-a-meme-coin-like-no-other)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/mcdull-a-meme-coin-like-no-other)
+ 
 
 
 

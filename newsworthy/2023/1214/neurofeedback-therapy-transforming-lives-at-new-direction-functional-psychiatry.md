@@ -19,7 +19,11 @@ New Direction Functional Psychiatry is an adult and child psychiatry clinic loca
 [Original/Source Press Release](https://newsworthy.ai/news/20231214910/neurofeedback-therapy-transforming-lives-at-new-direction-functional-psychiatry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-direction-functional-psychiatry-launches-transformative-neurofeedback-therapy/9b7d2d73093f14b76d0784c0cfd331ab) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/14/neurofeedback-therapy-empowers-patients-at-new-direction-functional-psychiatry)
+ 
 
 
 

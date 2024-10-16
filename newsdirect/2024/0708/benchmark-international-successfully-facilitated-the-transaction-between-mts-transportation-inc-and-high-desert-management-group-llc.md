@@ -37,7 +37,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-mts-transportation-inc-and-high-desert-management-group-llc-777058225)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-facilitates-transaction-between-mts-transportation-inc-and-high-desert-management-group-llc/8610f76007b3257e59f5e50f0316f027) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-acquisition-of-mts-transportation-by-high-desert-management-group/20244762)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/mts-transportation-acquired-by-high-desert-management-group-in-strategic-expansion)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-strategic-acquisition-of-mts-transportation-by-high-desert-management-group/20244762)
+ 
 
 
 

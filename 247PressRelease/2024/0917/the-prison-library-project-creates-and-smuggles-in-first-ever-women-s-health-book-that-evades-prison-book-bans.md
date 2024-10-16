@@ -7,7 +7,17 @@ CLAREMONT, CA, September 17, 2024 /24-7PressRelease/ -- In recognition of Prison
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514371/the-prison-library-project-creates-and-smuggles-in-first-ever-womens-health-book-that-evades-prison-book-bans)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-contrabanned-campaign-addresses-censorship-of-women-s-health-books-in-prisons/8980a95c10cac914a165d5e4de4627df) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/innovative-women-s-health-book-circumvents-prison-bans-empowering-incarcerated-women)
+
+Pickup - [fishervista.com](https://fishervista.com/en/novel-women-s-health-book-bypasses-prison-censorship-sparks-health-literacy-campaign/20246893)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/innovative-women-s-health-book-bypasses-prison-censorship-empowering-incarcerated-women/20246893)
+
+Pickup - [advos.io](https://advos.io/en/innovative-project-bypasses-prison-bans-to-deliver-women-s-health-education/20246893)
+ 
 
 
 

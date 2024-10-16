@@ -7,7 +7,17 @@ SAN FRANCISCO, CA, August 31, 2024 /24-7PressRelease/ -- Jason McDonald Consulti
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513731/jason-mcdonald-consulting-announces-prestigious-listing-in-jurispro)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jason-mcdonald-consulting-listed-in-prestigious-jurispro-r-directory-of-expert-witnesses/dfec7c7ee0c9235988d416e6dc1e473d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/31/digital-marketing-expert-jason-mcdonald-secures-prestigious-jurispro-listing)
+
+Pickup - [fishervista.com](https://fishervista.com/en/jason-mcdonald-consulting-secures-prestigious-listing-in-jurispro-directory/20246409)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/digital-marketing-expert-jason-mcdonald-gains-recognition-in-jurispro-directory/20246409)
+
+Pickup - [advos.io](https://advos.io/en/jason-mcdonald-consulting-listed-in-prestigious-jurispro-directory/20246409)
+ 
 
 
 

@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/90-of-america
 [Original/Source Press Release](https://newsdirect.com/news/90-of-americans-believe-we-are-experiencing-a-mental-health-care-crisis-elevate-health-and-wellness-is-providing-relief-471474646)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elevate-health-and-wellness-revolutionizes-mental-health-care/6bd6e733c9016fa31df069e641e7d9ea) 
+
+ 
 
 
 

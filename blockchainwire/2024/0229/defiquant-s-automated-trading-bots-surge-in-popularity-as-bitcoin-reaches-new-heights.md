@@ -59,7 +59,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquants-automated-trading-bots-surge-in-popularity-as-bitcoin-reaches-new-heights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-s-surge-sparks-high-demand-for-defiquant-s-automated-trading-bots/60a4da6c4e76591109345cdcf1190341) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/29/defiquant-s-automated-trading-bots-surge-amid-bitcoin-s-rally)
+ 
 
 
 

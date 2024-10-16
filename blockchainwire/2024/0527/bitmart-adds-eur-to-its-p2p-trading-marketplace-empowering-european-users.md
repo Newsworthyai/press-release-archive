@@ -19,7 +19,13 @@ BitMart is the premier global digital asset trading platform. With millions of u
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-adds-eur-to-its-p2p-trading-marketplace-empowering-european-users-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmart-adds-euro-to-p2p-trading-marketplace-expanding-opportunities-for-european-users/157b92961d27682078e1e8e1c4886323) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitmart-adds-euro-to-p2p-trading-marketplace-expanding-opportunities-for-european-users)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitmart-adds-euro-to-p2p-trading-marketplace-expanding-opportunities-for-european-users)
+ 
 
 
 

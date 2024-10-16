@@ -35,7 +35,17 @@ CLEARWATER, FL - (NewMediaWire) - September 03, 2024 - REMSleep Holdings, Inc. 
 [Original/Source Press Release](https://www.newmediawire.com/news/remsleep-patent-application-has-been-allowed-by-the-united-states-patent-and-trademark-office-7075990)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/remsleep-holdings-inc-announces-new-patent-allowance-and-product-launch-plans/a08ca8ca87a740f416a49cd20bebc372) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/remsleep-secures-patent-approval-for-innovative-nasal-ventilation-system)
+
+Pickup - [fishervista.com](https://fishervista.com/en/remsleep-holdings-granted-patent-for-nasal-ventilation-system/20246476)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/remsleep-secures-patent-allowance-for-nasal-ventilation-system/20246476)
+
+Pickup - [advos.io](https://advos.io/en/remsleep-holdings-inc-secures-patent-approval-for-nasal-ventilation-system/20246476)
+ 
 
 
 

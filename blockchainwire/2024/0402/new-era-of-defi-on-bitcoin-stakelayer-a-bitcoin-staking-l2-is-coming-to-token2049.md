@@ -35,7 +35,11 @@ While the project is still in its early stages, StakeLayer's unique features hol
 [Original/Source Press Release](https://blockchainwire.io/press-release/new-era-of-defi-on-bitcoin-stakelayer-a-bitcoin-staking-l2-is-coming-to-token2049)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakelayer-showcases-innovative-defi-solution-at-token2049-and-blockchainlife-events/073dca4cfd073ce658c00e51b225c92d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/stakelayer-brings-staking-and-defi-to-bitcoin)
+ 
 
 
 

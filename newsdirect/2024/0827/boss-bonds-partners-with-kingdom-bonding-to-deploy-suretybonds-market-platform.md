@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/boss-bonds-pa
 [Original/Source Press Release](https://newsdirect.com/news/boss-bonds-partners-with-kingdom-bonding-to-deploy-suretybonds-market-platform-589924758)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boss-bonds-partners-with-kingdom-bonding-to-deploy-suretybonds-market-platform/87326f451483c1090ac3156926cbea22) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/boss-bonds-and-kingdom-bonding-join-forces-to-revolutionize-surety-bond-solutions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/boss-bonds-partners-with-kingdom-bonding-to-deploy-suretybonds-market-platform/20246312)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/boss-bonds-and-kingdom-bonding-collaborate-to-enhance-surety-bond-solutions/20246312)
+
+Pickup - [advos.io](https://advos.io/en/boss-bonds-and-kingdom-bonding-collaborate-to-launch-suretybonds-market-platform/20246312)
+ 
 
 
 

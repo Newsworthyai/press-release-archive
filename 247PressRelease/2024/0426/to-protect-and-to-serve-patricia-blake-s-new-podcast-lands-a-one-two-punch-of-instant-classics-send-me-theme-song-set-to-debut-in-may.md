@@ -7,7 +7,9 @@ YERINGTON, NV, April 26, 2024 /24-7PressRelease/ -- "To Protect and to Serve," t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510431/to-protect-and-to-serve-patricia-blakes-new-podcast-lands-a-one-two-punch-of-instant-classics-send-me-theme-song-set-to-debut-in-may)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lapd-veteran-patricia-blake-launches-new-podcast-and-original-music-series/9d540675080f5c41f8ed14422f2c3d29) 
+
+ 
 
 
 

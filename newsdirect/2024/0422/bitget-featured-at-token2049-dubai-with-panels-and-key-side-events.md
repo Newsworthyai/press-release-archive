@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-featur
 [Original/Source Press Release](https://newsdirect.com/news/bitget-featured-at-token2049-dubai-with-panels-and-key-side-events-281265930)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-makes-strong-impact-at-token2049-in-dubai/88d6a883ace53ac9705c48b1769ae5ae) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/22/bitget-featured-at-token2049-dubai-with-panels-and-key-side-events)
+ 
 
 
 

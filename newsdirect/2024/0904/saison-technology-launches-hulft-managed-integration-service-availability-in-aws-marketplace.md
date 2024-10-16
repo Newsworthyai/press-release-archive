@@ -39,7 +39,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/saison-techno
 [Original/Source Press Release](https://newsdirect.com/news/saison-technology-launches-hulft-managed-integration-service-availability-in-aws-marketplace-689307597)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/saison-technology-launches-hulft-managed-integration-service-availability-in-aws-marketplace/c84ff0da3959f9559aac9c3841b236c0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/saison-technology-s-hulft-managed-integration-service-now-available-on-aws-marketplace)
+
+Pickup - [fishervista.com](https://fishervista.com/en/saison-technologys-hulft-managed-integration-service-now-available-in-aws-marketplace/20246520)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/saison-technology-expands-cloud-offerings-with-hulft-managed-integration-service-on-aws-marketplace/20246520)
+
+Pickup - [advos.io](https://advos.io/en/saison-technology-s-hulft-managed-integration-service-now-available-on-aws-marketplace/20246520)
+ 
 
 
 

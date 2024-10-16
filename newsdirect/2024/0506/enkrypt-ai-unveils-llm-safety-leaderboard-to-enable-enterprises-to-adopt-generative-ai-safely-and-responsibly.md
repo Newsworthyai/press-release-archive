@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/enkrypt-ai-un
 [Original/Source Press Release](https://newsdirect.com/news/enkrypt-ai-unveils-llm-safety-leaderboard-to-enable-enterprises-to-adopt-generative-ai-safely-and-responsibly-147863159)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/enkrypt-ai-unveils-llm-safety-leaderboard-for-enterprise-generative-ai/1c663bde0130a19318b8ffafb4e439cd) 
+
+ 
 
 
 

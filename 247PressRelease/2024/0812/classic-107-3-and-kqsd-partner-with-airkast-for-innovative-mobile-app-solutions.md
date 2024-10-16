@@ -7,7 +7,17 @@ PLEASANTON, CA, August 12, 2024 /24-7PressRelease/ -- Classic 107.3, St. Louis' 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513266/classic-1073-and-kqsd-partner-with-airkast-for-innovative-mobile-app-solutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/classic-107-3-and-kqsd-partner-with-airkast-to-enhance-mobile-app-experience/e099633fb54f708e65ed9d1910bce1d2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/classic-107-3-and-kqsd-embrace-digital-innovation-with-airkast-mobile-app-partnership)
+
+Pickup - [fishervista.com](https://fishervista.com/en/classic-107-3-and-kqsd-team-up-with-airkast-for-enhanced-mobile-app-experience/20245639)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/classic-107-3-and-kqsd-enhance-listener-experience-with-airkast-mobile-app-partnership/20245639)
+
+Pickup - [advos.io](https://advos.io/en/classic-107-3-and-kqsd-partner-with-airkast-for-enhanced-mobile-app-experience/20245639)
+ 
 
 
 

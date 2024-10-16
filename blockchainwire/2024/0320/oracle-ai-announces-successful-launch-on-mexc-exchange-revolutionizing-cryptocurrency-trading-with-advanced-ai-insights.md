@@ -7,7 +7,11 @@ Summary[Oracle AI](https://oracleai.app), the pioneering technology project rede
 [Original/Source Press Release](https://blockchainwire.io/press-release/oracle-ai-announces-successful-launch-on-mexc-exchange-revolutionizing-cryptocurrency-trading-with-advanced-ai-insights)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/oracle-ai-launches-on-mexc-exchange-with-oracle-token-showing-133-increase-in-value/320c5c67c97a680a74b1fbf7b42da9e0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/20/oracle-ai-launches-on-mexc-exchange-revolutionizing-crypto-trading-with-ai-insights)
+ 
 
 
 

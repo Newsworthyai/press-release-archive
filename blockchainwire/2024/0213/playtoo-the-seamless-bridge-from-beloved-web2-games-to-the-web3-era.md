@@ -11,7 +11,11 @@ $PLY Token The $PLY token, central to the Playtoo ecosystem, facilitates transa
 [Original/Source Press Release](https://blockchainwire.io/press-release/playtoo-the-seamless-bridge-from-beloved-web2-games-to-the-web3-era)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/playtoo-unveils-cross-platform-web3-p2e-ecosystem-for-gamers-and-developers/fe45d4f26a225007f40e8b8c60a2bb4a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/13/playtoo-bridging-web2-games-to-web3-with-rewards-and-opportunities)
+ 
 
 
 

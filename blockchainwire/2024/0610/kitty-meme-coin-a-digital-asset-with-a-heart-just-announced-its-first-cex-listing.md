@@ -15,7 +15,15 @@ Join the Kitty Meme Coin movement today and be part of something bigger – a di
 [Original/Source Press Release](https://blockchainwire.io/press-release/kitty-meme-coin-a-digital-asset-with-a-heart---just-announced-its-first-cex-listing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kitty-meme-coin-the-next-big-wave-in-crypto/87d8c4fe7d0acc758e62944ecaadb345) 
+
+
+Pickup - [advos.io](https://advos.io/en/kitty-meme-coin-debuts-on-lbank-aims-to-revolutionize-the-crypto-space-with-purpose-and-positivity/20243994)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/kitty-meme-coin-the-next-big-wave-in-crypto)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/kitty-meme-coin-the-next-big-wave-in-crypto)
+ 
 
 
 

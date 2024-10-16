@@ -7,7 +7,15 @@ LOS ANGELES, CA, July 10, 2024 /24-7PressRelease/ -- For over 25 years, the Mult
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512392/join-a-movement-to-accelerate-a-cure-for-multiple-myeloma-the-multiple-myeloma-research-foundation-walkrun)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mmrf-hosts-walk-run-events-to-accelerate-myeloma-research/cd1b3d666cf49a842c930aa8d4eb9c7f) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/multiple-myeloma-research-foundation-launches-walk-run-events-to-accelerate-cure/20244817)
+
+Pickup - [advos.io](https://advos.io/en/mmrf-walk-run-events-aim-to-accelerate-cure-for-multiple-myeloma/20244817)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/multiple-myeloma-research-foundation-launches-nationwide-walk-run-events-to-accelerate-cure)
+ 
 
 
 

@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kingston-reso
 [Original/Source Press Release](https://newsdirect.com/news/kingston-resources-raising-13-5-million-to-accelerate-long-term-critical-minerals-vision-864300641)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kingston-resources-raises-13-5-million-to-accelerate-long-term-critical-minerals-vision/38ffc45e143316496ed70b51f722e2ac) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/kingston-resources-fuels-critical-minerals-ambition-with-13-5-million-capital-raise)
+ 
 
 
 

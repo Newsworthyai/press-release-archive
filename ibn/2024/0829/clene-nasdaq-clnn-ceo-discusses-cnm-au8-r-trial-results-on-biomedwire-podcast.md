@@ -26,7 +26,17 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/clene-nasdaq-clnn-ceo-discusses-cnm-au8r-trial-results-on-biomedwire-podcast/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clene-s-cnm-au8-trials-show-promise-for-als-and-ms-treatment/5fde6c85061a569c772908c0b6dd11eb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/clene-s-cnm-au8-shows-promise-in-als-and-ms-treatment-ceo-discusses-trial-results)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/clene-s-cnm-au8-shows-promise-in-als-and-ms-treatment-ceo-discusses-trial-results/20246386)
+
+Pickup - [advos.io](https://advos.io/en/clene-s-cnm-au8-shows-promising-results-in-als-and-ms-trials/20246386)
+
+Pickup - [fishervista.com](https://fishervista.com/en/clene-ceo-discusses-promising-trial-results-of-cnm-au8-for-als-and-ms-on-biomedwire-podcast/20246386)
+ 
 
 
 

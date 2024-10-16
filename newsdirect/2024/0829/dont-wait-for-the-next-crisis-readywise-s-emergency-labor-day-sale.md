@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/dont-wait-for
 [Original/Source Press Release](https://newsdirect.com/news/dont-wait-for-the-next-crisis-readywises-emergency-labor-day-sale-312815522)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/readywise-labor-day-sale-up-to-45-off-emergency-food-gear/5c98d050d18f1d7c3081860c0bb11e47) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/readywise-launches-labor-day-sale-on-emergency-preparedness-supplies)
+
+Pickup - [fishervista.com](https://fishervista.com/en/readywise-announces-up-to-45-off-emergency-supplies-in-labor-day-sale/20246382)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/readywise-launches-labor-day-sale-on-emergency-preparedness-supplies/20246382)
+
+Pickup - [advos.io](https://advos.io/en/readywise-launches-emergency-labor-day-sale-with-up-to-45-off/20246382)
+ 
 
 
 

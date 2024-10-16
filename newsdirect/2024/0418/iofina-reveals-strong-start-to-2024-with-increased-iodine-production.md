@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/iofina-reveal
 [Original/Source Press Release](https://newsdirect.com/news/iofina-reveals-strong-start-to-2024-with-increased-iodine-production-177655688)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iofina-plc-ceo-discusses-strong-first-quarter-performance-and-expansion-plans/94b612039023c35e2900d908acb11d2f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/iofina-reveals-strong-start-to-2024-with-increased-iodine-production)
+ 
 
 
 

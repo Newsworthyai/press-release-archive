@@ -7,7 +7,9 @@ MIAMI BEACH, FL, May 25, 2024 /24-7PressRelease/ -- When the Kulture Chef (origi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511155/rap-snacks-oowee-southern-kulture-chef-and-food-artist-fefi-thorne-open-new-black-owned-restaurant-inside-the-skatebird-skate-park-in-miami)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/southern-kulture-grille-opens-in-el-portal-s-skatebird-skate-park/8a2ad78957f0f59ad48d124d9c5839ce) 
+
+ 
 
 
 

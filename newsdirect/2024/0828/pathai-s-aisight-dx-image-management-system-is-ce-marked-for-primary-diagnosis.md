@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/pathais-aisig
 [Original/Source Press Release](https://newsdirect.com/news/pathais-aisight-dx-image-management-system-is-ce-marked-for-primary-diagnosis-369331237)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pathai-s-aisight-dx-image-management-system-receives-ivdr-certification-paving-the-way-for-european-market-expansion/ec9038b888a4ffc607762c57aa845441) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/pathai-s-aisight-dx-image-management-system-receives-ce-mark-for-primary-diagnosis-in-europe/20246308)
+
+Pickup - [advos.io](https://advos.io/en/pathai-s-aisight-dx-image-management-system-receives-ce-mark-for-primary-diagnosis/20246308)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/pathai-s-aisight-dx-image-management-system-receives-ce-mark-for-primary-diagnosis-in-europe)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pathai-s-aisight-dx-image-management-system-achieves-ce-mark-for-primary-diagnosis/20246308)
+ 
 
 
 

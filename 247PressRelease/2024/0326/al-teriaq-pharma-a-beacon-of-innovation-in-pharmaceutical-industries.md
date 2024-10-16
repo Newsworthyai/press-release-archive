@@ -7,7 +7,11 @@ JEDDAH, SAUDI ARABIA, March 26, 2024 /24-7PressRelease/ --   Al-Teriaq Pharma: R
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509518/al-teriaq-pharma-a-beacon-of-innovation-in-pharmaceutical-industries)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/al-teriaq-pharma-spearheading-pharmaceutical-innovation-globally/075ebabc0343114c447b0c44955506e6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/al-teriaq-pharma-spearheading-pharmaceutical-innovation-in-saudi-arabia)
+ 
 
 
 

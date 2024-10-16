@@ -27,7 +27,11 @@ Banxa aims to accelerate the world to Web3 with its leading global on-and-off ra
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-partners-with-banxa-to-launch-the-worlds-first-seamless-bmx-purchase-service-jointly-building-the-bmx-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmart-partners-with-banxa-for-fiat-to-bmx-seamless-purchase-service/11bd8cce824ef3c1700cda5e91a7bde1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/bitmart-and-banxa-launch-seamless-bmx-purchase-service-boosting-the-bmx-ecosystem)
+ 
 
 
 

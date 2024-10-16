@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/boeings-chair
 [Original/Source Press Release](https://newsdirect.com/news/boeings-chairman-is-leaving-under-a-cloud-so-why-does-exxon-want-him-on-their-board-173053827)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exxon-mobil-renominates-controversial-boeing-chairman-to-board-despite-calls-for-removal/2164a44926144caa52ae29c4ececcd23) 
+
+ 
 
 
 

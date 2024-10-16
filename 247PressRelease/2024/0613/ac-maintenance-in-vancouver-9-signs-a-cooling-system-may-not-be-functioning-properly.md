@@ -7,7 +7,11 @@ VANCOUVER, BC, June 13, 2024 /24-7PressRelease/ -- The weather app never lies—
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511678/ac-maintenance-in-vancouver-9-signs-a-cooling-system-may-not-be-functioning-properly)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/is-your-cooling-system-in-trouble-signs-you-need-air-conditioning-repair-in-vancouver/834abd15eedef1d0c8626dcb1deba3aa) 
+
+
+Pickup - [advos.io](https://advos.io/en/nine-warning-signs-your-ac-needs-repair-a-guide-for-vancouver-residents/20244104)
+ 
 
 
 

@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/american-drea
 [Original/Source Press Release](https://newsdirect.com/news/american-dream-debuts-paw-patrol-hero-academy-228832891)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-dream-debuts-paw-patrol-hero-academy/953b511df8d15387576edbcb8b80da84) 
+
+ 
 
 
 

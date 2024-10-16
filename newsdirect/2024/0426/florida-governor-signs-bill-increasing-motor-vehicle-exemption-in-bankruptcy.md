@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/florida-gover
 [Original/Source Press Release](https://newsdirect.com/news/florida-governor-signs-bill-increasing-motor-vehicle-exemption-in-bankruptcy-946455914)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/florida-governor-signs-bill-increasing-motor-vehicle-exemption-in-bankruptcy/9fe21ae02a0576961b59527880082edd) 
+
+ 
 
 
 

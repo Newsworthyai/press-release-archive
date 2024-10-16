@@ -17,7 +17,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/diversified-e
 [Original/Source Press Release](https://newsdirect.com/news/diversified-energy-announces-strategic-acquisition-of-high-interest-texas-natural-gas-assets-262512018)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/diversified-energy-ceo-announces-acquisition-of-texas-natural-gas-assets/0bdfce94bcf980661653280652885375) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/diversified-energy-expands-texas-footprint-with-strategic-natural-gas-asset-acquisition)
+
+Pickup - [fishervista.com](https://fishervista.com/en/diversified-energy-announces-acquisition-of-high-interest-texas-natural-gas-assets/20244922)
+
+Pickup - [advos.io](https://advos.io/en/diversified-energy-to-acquire-high-interest-texas-natural-gas-assets-from-crescent-pass-energy/20244922)
+ 
 
 
 

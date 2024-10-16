@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/leaders-in-re
 [Original/Source Press Release](https://newsdirect.com/news/leaders-in-real-estate-weigh-in-on-national-rent-cap-proposals-184378155)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/real-estate-leaders-respond-to-proposed-national-rent-cap/474cb0cc092dedefb58c08dc3dfc169a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/real-estate-leaders-caution-against-proposed-national-rent-cap)
+
+Pickup - [fishervista.com](https://fishervista.com/en/real-estate-leaders-express-concerns-over-proposed-national-rent-cap/20245265)
+
+Pickup - [advos.io](https://advos.io/en/real-estate-leaders-express-concerns-over-national-rent-cap-proposal/20245265)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/real-estate-leaders-express-concerns-over-proposed-national-rent-cap)
+ 
 
 
 

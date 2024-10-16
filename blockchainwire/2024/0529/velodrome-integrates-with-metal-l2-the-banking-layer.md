@@ -33,7 +33,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/velodrome-integrates-with-metal-l2-the-banking-layer)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/velodrome-integrates-with-metal-l2-on-optimism-superchain/289e43ca42dadc1bb02d33700b333b6a) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/velodrome-integrates-with-metal-l2-on-optimism-superchain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/velodrome-integrates-with-metal-l2-on-optimism-superchain)
+ 
 
 
 

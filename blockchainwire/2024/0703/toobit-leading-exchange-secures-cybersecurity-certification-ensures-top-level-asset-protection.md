@@ -33,7 +33,19 @@ About ToobitToobit is a leading global cryptocurrency exchange dedicated to prov
 [Original/Source Press Release](https://blockchainwire.io/press-release/toobit-leading-exchange-secures-cybersecurity-certification-ensures-top-level-asset-protection)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/toobit-obtains-prestigious-cybersecurity-certification/c70030cf2c8f6ee628dab1760600d605) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/toobit-secures-prestigious-cybersecurity-certification-sets-new-benchmark-in-asset-protection/20244701)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/toobit-achieves-cybersecurity-certification-bolstering-asset-protection-for-cryptocurrency-users)
+
+Pickup - [advos.io](https://advos.io/en/toobit-earns-prestigious-cybersecurity-certification-reinforces-commitment-to-asset-protection/20244701)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/toobit-obtains-prestigious-cybersecurity-certification)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/toobit-obtains-prestigious-cybersecurity-certification)
+ 
 
 
 

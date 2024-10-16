@@ -24,7 +24,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-carbcoin-carb-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-carbcoin-carb-on-its-socially-infused-trading-platform/6ae2e9e0cf67236bc0bb0ba2850ce49f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/10/carbcoin-pioneers-sustainable-crypto-trading-with-carb-token-listing-on-xt-com)
+ 
 
 
 

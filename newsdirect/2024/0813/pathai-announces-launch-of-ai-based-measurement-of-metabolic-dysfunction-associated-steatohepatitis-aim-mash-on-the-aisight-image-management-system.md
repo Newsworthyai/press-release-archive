@@ -46,7 +46,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/pathai-announ
 [Original/Source Press Release](https://newsdirect.com/news/pathai-announces-launch-of-ai-based-measurement-of-metabolic-dysfunction-associated-steatohepatitis-aim-mash-on-the-aisight-image-management-system-272093093)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pathai-launches-ai-based-measurement-of-metabolic-dysfunction-associated-steatohepatitis-aim-mash-on-aisight-ims/cc451a6e5ea456fa0b7b106850284b99) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/pathai-introduces-ai-powered-tool-for-mash-assessment-in-clinical-research)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pathai-launches-aim-mash-for-enhanced-mash-assessment/20245695)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/pathai-launches-ai-powered-tool-for-mash-assessment-on-aisight-platform/20245695)
+
+Pickup - [advos.io](https://advos.io/en/pathai-launches-aim-mash-on-aisight-ims-for-enhanced-mash-assessments/20245695)
+ 
 
 
 

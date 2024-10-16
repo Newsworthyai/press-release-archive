@@ -31,7 +31,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-peka-the-craziest-token-on-bsc-wins-hearts-and-captures-imagination)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peka-token-the-wild-ride-that-s-taking-the-crypto-world-by-storm/dc8ec0b85b004697fd938556c9c3dfae) 
+
+ 
 
 
 

@@ -7,7 +7,9 @@ NEW YORK, NY, May 01, 2024 /24-7PressRelease/ -- Sha-La Music announces the rele
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510469/downtown-mystic-revealed)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/downtown-mystic-releases-rock-n-roll-4-the-soul-acoustic-sessions-ep/45b18b968e39d81c1bc1daf925a0d2ea) 
+
+ 
 
 
 

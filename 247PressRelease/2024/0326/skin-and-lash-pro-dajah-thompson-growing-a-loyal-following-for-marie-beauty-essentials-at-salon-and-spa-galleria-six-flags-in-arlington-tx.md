@@ -7,7 +7,11 @@ FORT WORTH, TX, March 26, 2024 /24-7PressRelease/ -- It's not the first time we'
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509549/skin-and-lash-pro-dajah-thompson-growing-a-loyal-following-for-marie-beauty-essentials-at-salon-and-spa-galleria-six-flags-in-arlington-tx)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/passion-for-self-care-turned-into-successful-beauty-business/13b71116858a92d7ad6d02de858c1e12) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/beauty-entrepreneur-dajah-thompson-finds-success-with-marie-beauty-essentials)
+ 
 
 
 

@@ -43,7 +43,9 @@ Lisa Moretti Campaign
 [Original/Source Press Release](https://newsworthy.ai/news/202410041300/water-is-the-new-oil-lisa-moretti-protects-pasco-county-floridas-natural-resources)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lisa-moretti-highlights-the-importance-of-water-conservation-in-pasco-county-commissioner-campaign/3fb384659f30eaee8fc725aeebe5405d) 
+
+ 
 
 
 

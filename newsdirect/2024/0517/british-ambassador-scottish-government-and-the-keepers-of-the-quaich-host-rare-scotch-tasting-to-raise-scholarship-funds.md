@@ -59,7 +59,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/british-ambas
 [Original/Source Press Release](https://newsdirect.com/news/british-ambassador-scottish-government-and-the-keepers-of-the-quaich-host-rare-scotch-tasting-to-raise-scholarship-funds-291624081)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/british-ambassador-and-scottish-government-host-rare-scotch-tasting-gala/598f7fe75354be5ef51756a2e728214b) 
+
+ 
 
 
 

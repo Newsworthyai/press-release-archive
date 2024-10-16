@@ -31,7 +31,11 @@ About LineaLinea is a Layer 2 blockchain developed by ConsenSys, the company beh
 [Original/Source Press Release](https://blockchainwire.io/press-release/linea-going-from-strength-to-strength-with-lynex-on-the-front-lines-2)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lynex-drives-linea-blockchain-growth-with-innovative-community-engagement/21b73ec56c6438748d05d89b7c4257d5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/linea-going-from-strength-to-strength-with-lynex-on-the-front-lines)
+ 
 
 
 

@@ -15,7 +15,15 @@ Linklogis has always placed ESG and the concept of sustainable development in a 
 [Original/Source Press Release](https://blockchainwire.io/press-release/linklogis-selected-for-sp-globals-sustainability-yearbook-2024-china-edition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/s-p-global-releases-sustainability-yearbook-2024-china-edition/866f7a5ba58fbffedfc3ac8259292353) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/19/linklogis-earns-spot-in-s-p-global-s-sustainability-yearbook-2024-china-edition)
+
+Pickup - [fishervista.com](https://fishervista.com/en/linklogis-earns-spot-in-s-p-global-s-2024-sustainability-yearbook-china-edition/20245115)
+
+Pickup - [advos.io](https://advos.io/en/linklogis-recognized-in-s-p-global-s-sustainability-yearbook-2024-china-edition/20245115)
+ 
 
 
 

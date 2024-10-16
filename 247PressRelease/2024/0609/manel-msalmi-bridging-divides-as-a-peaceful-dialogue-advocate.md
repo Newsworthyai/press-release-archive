@@ -7,7 +7,11 @@ BRUSSELS, BELGIUM, June 09, 2024 /24-7PressRelease/ --   Manel Msalmi, Bridging 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511542/manel-msalmi-bridging-divides-as-a-peaceful-dialogue-advocate)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/manel-msalmi-bridging-divides-through-peaceful-dialogue/4f5919363d9c4e52484661435b748b0a) 
+
+
+Pickup - [advos.io](https://advos.io/en/manel-msalmi-a-champion-of-peace-and-dialogue/20243962)
+ 
 
 
 

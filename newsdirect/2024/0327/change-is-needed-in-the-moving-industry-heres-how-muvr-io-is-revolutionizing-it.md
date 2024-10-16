@@ -59,7 +59,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/change-is-nee
 [Original/Source Press Release](https://newsdirect.com/news/change-is-needed-in-the-moving-industry-heres-how-muvr-io-is-revolutionizing-it-284485806)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/muvr-io-revolutionizes-moving-industry-with-transparent-pricing-and-quality-service/f105b3454fb0f5867796ba31093a1064) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/muvr-io-disrupts-moving-industry-with-on-demand-service)
+ 
 
 
 

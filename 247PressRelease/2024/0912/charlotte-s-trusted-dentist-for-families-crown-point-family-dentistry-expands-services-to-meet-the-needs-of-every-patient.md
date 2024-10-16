@@ -7,7 +7,17 @@ CHARLOTTE, NC, September 12, 2024 /24-7PressRelease/ -- Crown Point Family Denti
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514242/charlottes-trusted-dentist-for-families-crown-point-family-dentistry-expands-services-to-meet-the-needs-of-every-patient)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crown-point-family-dentistry-expands-services-to-provide-comprehensive-dental-care-for-all-ages/725e91a1db430d48a4be5eb6ec581ade) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/crown-point-family-dentistry-expands-services-to-offer-comprehensive-care-for-all-ages-in-charlotte)
+
+Pickup - [fishervista.com](https://fishervista.com/en/crown-point-family-dentistry-expands-services-to-provide-comprehensive-care-for-all-ages/20246763)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/charlotte-s-crown-point-family-dentistry-expands-services-offering-comprehensive-care-for-all-ages/20246763)
+
+Pickup - [advos.io](https://advos.io/en/crown-point-family-dentistry-expands-services-to-provide-comprehensive-care-for-all-ages/20246763)
+ 
 
 
 

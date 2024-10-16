@@ -7,7 +7,17 @@ WESTFIELD, NJ, September 10, 2024 /24-7PressRelease/ -- Adlers Jewelers is thril
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514154/exclusive-tacori-takeover-event-at-adlers-jewelers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exclusive-tacori-bridal-event-at-adlers-jewelers-westfield-store/9ce74cd46d417bc9409bfd7ae350efae) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/adlers-jewelers-hosts-exclusive-tacori-bridal-event-in-westfield-nj)
+
+Pickup - [fishervista.com](https://fishervista.com/en/exclusive-tacori-takeover-event-at-adlers-jewelers/20246646)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/adlers-jewelers-hosts-exclusive-tacori-bridal-event-in-westfield/20246646)
+
+Pickup - [advos.io](https://advos.io/en/exclusive-tacori-takeover-event-at-adlers-jewelers/20246646)
+ 
 
 
 

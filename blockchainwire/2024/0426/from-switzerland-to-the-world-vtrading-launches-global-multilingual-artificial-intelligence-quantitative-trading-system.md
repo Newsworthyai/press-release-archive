@@ -37,7 +37,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/from-switzerland-to-the-world-vtrading-launches-global-multilingual-artificial-intelligence-quantitative-trading-system)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vtrading-launches-global-multilingual-ai-quantitative-trading-system/fb667bd52ae61ef040c384fc9badd215) 
+
+ 
 
 
 

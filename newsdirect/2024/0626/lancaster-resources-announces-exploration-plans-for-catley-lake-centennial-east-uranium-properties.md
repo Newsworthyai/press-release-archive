@@ -21,7 +21,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/lancaster-res
 [Original/Source Press Release](https://newsdirect.com/news/lancaster-resources-announces-exploration-plans-for-catley-lake-and-centennial-east-uranium-properties-693897244)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lancaster-resources-unveils-exploration-plans-for-uranium-properties-in-athabasca-basin/91d8b4ec71d5201b4e3b912b17823fca) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/lancaster-resources-unveils-ambitious-uranium-exploration-plans-in-saskatchewan-s-athabasca-basin/20244507)
+
+Pickup - [advos.io](https://advos.io/en/lancaster-resources-outlines-ambitious-uranium-exploration-plans-in-saskatchewan-s-athabasca-basin/20244507)
+ 
 
 
 

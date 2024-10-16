@@ -47,7 +47,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/has-option2trade-o2t-got-a-license)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/option2trade-o2t-navigating-regulatory-compliance-in-the-digital-asset-trading-landscape/a24f6db2f99eed3b07187cfbcfa5ea6c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/has-option2trade-o2t-got-a-license-exploring-the-platform-s-regulatory-compliance)
+ 
 
 
 

@@ -61,7 +61,9 @@ London, United Kingdom
 [Original/Source Press Release](https://blockchainwire.io/press-release/-introducing-home-the-epic-battle-for-the-meme-throne-unfolds)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/epic-meme-battle-unfolds-in-nojeet-join-the-five-houses-with-home/839737720de468e0f995920e0357bd7a) 
+
+ 
 
 
 

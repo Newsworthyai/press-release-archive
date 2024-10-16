@@ -7,7 +7,13 @@ STAUNTON, VA, June 24, 2024 /24-7PressRelease/ -- A.D. Haywood's The Promise of 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511938/the-promise-of-tomorrow-a-journey-through-the-hearts-labyrinth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/a-d-haywood-s-the-promise-of-tomorrow-a-captivating-exploration-of-love-and-sacrifice/395733a232cc0bc856e46e6635272b94) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/a-d-haywood-s-the-promise-of-tomorrow-explores-love-loyalty-and-sacrifice/20244405)
+
+Pickup - [advos.io](https://advos.io/en/a-d-haywood-s-latest-novel-the-promise-of-tomorrow-explores-deep-human-emotions/20244405)
+ 
 
 
 

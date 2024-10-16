@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-t
 [Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-completes-operation-with-multiple-unmanned-vehicles-for-us-government-614790798)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ocean-power-technologies-completes-major-milestone-for-us-government-operations/a284ccee702b76a42554f2e961fc0714) 
+
+ 
 
 
 

@@ -41,7 +41,19 @@ View source version on newsdirect.com: https://newsdirect.com/news/direxion-unve
 [Original/Source Press Release](https://newsdirect.com/news/direxion-unveils-lmbo-and-rekt-bold-trades-for-and-against-the-crypto-industry-357897683)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/direxion-unveils-lmbo-and-rekt-bold-trades-for-and-against-the-crypto-industry/89089064c5ed43560f52c62da850956e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/direxion-launches-new-etfs-for-bullish-and-bearish-crypto-industry-trades)
+
+Pickup - [fishervista.com](https://fishervista.com/en/direxion-launches-lmbo-and-rekt-etfs-targeting-crypto-industry/20245022)
+
+Pickup - [advos.io](https://advos.io/en/direxion-launches-bold-etfs-targeting-crypto-market-volatility/20245022)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/direxion-unveils-lmbo-and-rekt-bold-trades-for-and-against-the-crypto-industry)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/direxion-unveils-lmbo-and-rekt-bold-trades-for-and-against-the-crypto-industry)
+ 
 
  
 

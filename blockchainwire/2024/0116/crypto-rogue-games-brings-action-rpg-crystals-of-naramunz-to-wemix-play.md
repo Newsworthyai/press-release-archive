@@ -29,7 +29,11 @@ Part of the first generation of Korean PC online game developers and Korean mobi
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-rogue-games-brings-action-rpg-crystals-of-naramunz-to-wemix-play)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemade-announces-partnership-with-crypto-rogue-games-for-action-rpg-crystals-of-naramunz/083725b03a91b77cb9a51d999099fb02) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/16/crypto-rogue-games-brings-explosive-action-rpg-crystals-of-naramunz-to-wemix-play)
+ 
 
 
 

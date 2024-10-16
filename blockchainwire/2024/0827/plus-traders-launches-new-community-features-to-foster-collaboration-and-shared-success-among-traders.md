@@ -33,7 +33,17 @@ With the launch of these new features and initiatives, Plus Traders continues to
 [Original/Source Press Release](https://blockchainwire.io/press-release/plus-traders-launches-new-community-features-to-foster-collaboration-and-shared-success-among-traders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/plus-traders-launches-new-community-driven-features-for-collaborative-success/60348ec403a6cf3dd15defb0e5e4d77a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/plus-traders-enhances-platform-with-new-community-driven-features)
+
+Pickup - [fishervista.com](https://fishervista.com/en/plus-traders-enhances-platform-with-new-community-features/20246337)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/plus-traders-enhances-platform-with-new-community-driven-features/20246337)
+
+Pickup - [advos.io](https://advos.io/en/plus-traders-launches-new-community-features-to-enhance-collaboration-among-traders/20246337)
+ 
 
 
 

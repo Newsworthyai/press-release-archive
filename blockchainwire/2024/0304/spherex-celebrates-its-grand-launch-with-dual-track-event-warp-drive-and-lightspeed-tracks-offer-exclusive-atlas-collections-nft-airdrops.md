@@ -28,7 +28,11 @@ SphereX is a decentralized crypto exchange designed to provide users with a mor
 [Original/Source Press Release](https://blockchainwire.io/press-release/spherex-celebrates-its-grand-launch-with-dual-track-event-warp-drive-and-lightspeed-tracks-offer-exclusive-atlas-collections-nft-airdrops----)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/spherex-launches-grand-event-to-reward-blast-and-bmx-users/3d6a4f96a9053d3dccdeb58a1b532d2f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/04/spherex-launches-dual-track-event-with-exclusive-nft-airdrops)
+ 
 
 
 

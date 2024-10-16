@@ -57,7 +57,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/leading-lower
 [Original/Source Press Release](https://newsdirect.com/news/leading-lower-middle-market-specialist-investment-firm-star-mountain-capital-bolsters-its-secondaries-and-investor-solutions-team-adding-bryan-johnson-as-a-managing-director-based-in-los-angeles-588923069)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/star-mountain-capital-adds-bryan-johnson-as-managing-director/e7d4a53b4fdb53d9f27337a7e9283738) 
+
+ 
 
 
 

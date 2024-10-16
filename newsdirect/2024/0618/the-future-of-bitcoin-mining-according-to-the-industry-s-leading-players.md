@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-future-of
 [Original/Source Press Release](https://newsdirect.com/news/the-future-of-bitcoin-mining-according-to-the-industrys-leading-players-137908023)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-mining-roundtable-key-insights-and-strategies-revealed/7889867f4c639dae1834bdd7e4815ee6) 
+
+
+Pickup - [advos.io](https://advos.io/en/insights-into-the-future-of-bitcoin-mining-strategies-and-innovations-from-industry-leaders/20244248)
+
+Pickup - [fishervista.com](https://fishervista.com/en/insights-from-leading-bitcoin-mining-companies-on-post-halving-future/20244248)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitcoin-mining-roundtable-key-insights-and-strategies-revealed)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitcoin-mining-roundtable-key-insights-and-strategies-revealed)
+ 
 
 
 

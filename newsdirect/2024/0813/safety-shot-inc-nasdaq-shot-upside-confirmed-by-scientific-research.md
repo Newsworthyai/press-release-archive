@@ -49,7 +49,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/safety-shot-i
 [Original/Source Press Release](https://newsdirect.com/news/safety-shot-inc-nasdaq-shot-upside-confirmed-by-scientific-research-792653873)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/safety-shot-inc-revolutionizes-responsible-alcohol-consumption-with-flagship-drink/51f5e2bda23e2d77560d8fc85e90101b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/safety-shot-s-alcohol-metabolism-drink-shows-promise-in-clinical-trial)
+
+Pickup - [fishervista.com](https://fishervista.com/en/safety-shot-inc-gains-momentum-with-scientific-validation-and-strategic-partnerships/20245682)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/safety-shot-s-alcohol-reducing-beverage-gains-scientific-validation-and-expands-distribution/20245682)
+
+Pickup - [advos.io](https://advos.io/en/safety-shot-inc-gains-traction-with-scientific-backing-and-strategic-partnerships/20245682)
+ 
 
 
 

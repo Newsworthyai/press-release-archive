@@ -41,7 +41,9 @@ About EIGEN
 [Original/Source Press Release](https://blockchainwire.io/press-release/eigen-a-re-staking-protocol-will-be-listed-on-coinw-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-list-eigenlayer-s-eigen-token-on-defi-zone-celebrates-with-5000-usdt-reward/cb612e2323f0dd763eb5c06f555ac6d3) 
+
+ 
 
 
 

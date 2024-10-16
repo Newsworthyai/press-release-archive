@@ -61,7 +61,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/pilotless-pla
 [Original/Source Press Release](https://newsdirect.com/news/pilotless-planes-are-coming-but-not-just-yet-says-new-horizon-aircraft-ceo-266596091)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/horizon-aircraft-s-ceo-discusses-the-future-of-autonomous-air-travel/4a56fb64eb31698c51f4d373fa6c01e1) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/horizon-aircraft-ceo-discusses-the-future-of-autonomous-aviation/20245757)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/autonomous-aircraft-on-the-horizon-but-human-pilots-still-essential-for-now/20245757)
+
+Pickup - [advos.io](https://advos.io/en/horizon-aircraft-ceo-discusses-future-of-autonomous-aviation/20245757)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/autonomous-aircraft-the-future-of-aviation-takes-shape)
+ 
 
 
 

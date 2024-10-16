@@ -51,7 +51,19 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/ratdog-the-ultimate-party-animal-from-the-boys-clubhouse-hits-solana-on-july-8th)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ratdog-the-legendary-stray-dog-from-the-boys-clubhouse-makes-grand-entrance-into-the-solana-blockchain/99128b31a28252352b41aa9d2f88f12a) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/ratdog-set-to-enter-solana-blockchain-on-july-8th-2024/20244812)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/matt-furie-s-ratdog-set-to-launch-on-solana-blockchain)
+
+Pickup - [advos.io](https://advos.io/en/ratdog-iconic-crypto-meme-set-to-launch-on-solana-blockchain/20244812)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/ratdog-the-legendary-stray-dog-from-the-boys-clubhouse-makes-grand-entrance-into-the-solana-blockchain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/ratdog-the-legendary-stray-dog-from-the-boys-clubhouse-makes-grand-entrance-into-the-solana-blockchain)
+ 
 
 
 

@@ -77,7 +77,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/generation-ur
 [Original/Source Press Release](https://newsdirect.com/news/generation-uranium-bolsters-presence-in-uranium-rich-thelon-basin-170561906)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/generation-uranium-expands-presence-in-uranium-rich-thelon-basin/f1ff853924ee15f94a7da430fcc2f943) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/generation-uranium-expands-foothold-in-thelon-basin-with-strategic-acquisitions/20244326)
+
+Pickup - [advos.io](https://advos.io/en/generation-uranium-expands-footprint-in-thelon-basin-with-strategic-acquisitions/20244326)
+ 
 
 
 

@@ -103,7 +103,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/novus-reports
 [Original/Source Press Release](https://newsdirect.com/news/novus-reports-q1-results-and-key-success-factors-following-dea-rescheduling-714937832)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/novus-cannabis-medplan-reports-q1-results-and-key-success-factors/e814ebdba265dbe6149de135decbbd22) 
+
+ 
 
 
 

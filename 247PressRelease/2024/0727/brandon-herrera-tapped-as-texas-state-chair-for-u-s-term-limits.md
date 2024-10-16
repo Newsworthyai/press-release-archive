@@ -7,7 +7,17 @@ AUSTIN, TX, July 27, 2024 /24-7PressRelease/ -- Today, U.S. Term Limits announce
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512875/brandon-herrera-tapped-as-texas-state-chair-for-us-term-limits)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brandon-herrera-named-texas-state-chair-for-u-s-term-limits/265709ea94bfc644a81315c4d8ee6e25) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/27/brandon-herrera-named-texas-state-chair-for-u-s-term-limits)
+
+Pickup - [fishervista.com](https://fishervista.com/en/brandon-herrera-appointed-texas-state-chair-for-u-s-term-limits/20245307)
+
+Pickup - [advos.io](https://advos.io/en/brandon-herrera-named-texas-state-chair-for-u-s-term-limits/20245307)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/brandon-herrera-named-texas-state-chair-for-u-s-term-limits)
+ 
 
 
 

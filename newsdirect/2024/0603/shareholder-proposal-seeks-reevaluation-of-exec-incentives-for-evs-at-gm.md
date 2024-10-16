@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/shareholder-p
 [Original/Source Press Release](https://newsdirect.com/news/shareholder-proposal-seeks-reevaluation-of-exec-incentives-for-evs-at-gm-366775689)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shareholder-proposal-seeks-reevaluation-of-exec-incentives-for-evs-at-gm/e9a05b37423272441749ebb04f8a0695) 
+
+
+Pickup - [advos.io](https://advos.io/en/shareholder-proposal-calls-for-reevaluation-of-executive-incentives-for-electric-vehicles-at-gm/20243634)
+ 
 
 
 

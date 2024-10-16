@@ -39,7 +39,21 @@ About Solordi: With a mission to revolutionize the gaming and cryptocurrency lan
 [Original/Source Press Release](https://blockchainwire.io/press-release/solordi-unveils-groundbreaking-unreal-engine-5-game-on-solana-blockchain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solordi-launches-first-unreal-engine-5-game-on-solana-blockchain/20f8ed345326136c87ec0897e83274d6) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/solordi-launches-first-unreal-engine-5-game-on-solana-blockchain)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/solordi-launches-first-unreal-engine-5-game-on-solana-blockchain)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/solordi-launches-first-unreal-engine-5-game-on-solana-blockchain)
+
+Pickup - [fishervista.com](https://fishervista.com/en/solordi-launches-pioneering-unreal-engine-5-game-on-solana-blockchain/20245859)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/solordi-launches-first-unreal-engine-5-game-on-solana-blockchain/20245859)
+
+Pickup - [advos.io](https://advos.io/en/solordi-launches-first-unreal-engine-5-game-on-solana-blockchain/20245859)
+ 
 
 
 

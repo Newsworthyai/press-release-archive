@@ -7,7 +7,17 @@ NEW YORK, NY, August 13, 2024 /24-7PressRelease/ -- Inc. revealed today that iuv
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513213/iuvo-ranks-no-4639-on-the-2024-inc-5000)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iuvo-ranks-no-4639-on-the-2024-inc-5000-list-of-fastest-growing-private-companies/99ee69ee7ce04e95c6bbd4264b14adcc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/iuvo-secures-spot-on-inc-5000-list-of-fastest-growing-private-companies-for-sixth-time)
+
+Pickup - [fishervista.com](https://fishervista.com/en/iuvo-secures-spot-on-2024-inc-5000-list-highlighting-rapid-growth-in-it-services/20245673)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/iuvo-secures-position-on-inc-5000-list-for-sixth-time-highlighting-continued-growth-in-it-services/20245673)
+
+Pickup - [advos.io](https://advos.io/en/iuvo-secures-spot-on-2024-inc-5000-list-of-fastest-growing-private-companies/20245673)
+ 
 
 
 

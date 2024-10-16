@@ -31,7 +31,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/castelnau-gro
 [Original/Source Press Release](https://newsdirect.com/news/castelnau-groups-strategic-vision-and-key-investments-unveiled-325080669)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/castelnau-group-s-strategic-vision-and-key-investments-unveiled/4155cd642fb45ba53d73ae09a1f11341) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/castelnau-group-unveils-strategic-vision-and-key-investments)
+ 
 
 
 

@@ -7,7 +7,17 @@ VANCOUVER, BC, August 14, 2024 /24-7PressRelease/ -- MCS offers services and sol
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513416/image-scanning-an-innovation-from-1957)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcs-sets-the-pace-for-high-quality-document-scanning-in-bc/62513f9886372e720840296f3c483e27) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/the-evolution-of-document-scanning-from-crude-beginnings-to-modern-efficiency)
+
+Pickup - [fishervista.com](https://fishervista.com/en/micro-com-systems-revolutionizing-document-scanning-since-1957/20245719)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/the-evolution-of-document-scanning-from-1957-to-modern-high-speed-solutions/20245719)
+
+Pickup - [advos.io](https://advos.io/en/micro-com-systems-pioneering-document-scanning-since-1957/20245719)
+ 
 
 
 

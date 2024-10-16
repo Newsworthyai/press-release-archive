@@ -7,7 +7,11 @@ WILMINGTON, NC, March 17, 2024 /24-7PressRelease/ -- Joseph Ganci, author of thr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509302/redefining-christian-fiction-bestselling-author-joseph-ganci-announces-no-charge-download-of-bestselling-ebook-gideon-the-sound-and-the-glory-the-empire-of-israel-book-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/author-joseph-ganci-announces-free-ebook-release-of-gideon-the-sound-and-the-glory-from-the-empire-of-israel-series/7aa3f3c6a0b0b15b91e10d839d62bf55) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/17/bestselling-author-offers-free-ebook-download-of-biblical-epic)
+ 
 
 
 

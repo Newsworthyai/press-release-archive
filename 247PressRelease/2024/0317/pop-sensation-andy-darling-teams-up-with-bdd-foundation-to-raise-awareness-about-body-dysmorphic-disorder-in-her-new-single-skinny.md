@@ -7,7 +7,11 @@ LOS ANGELES, CA, March 17, 2024 /24-7PressRelease/ -- AnDy Darling, the emerging
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509288/pop-sensation-andy-darling-teams-up-with-bdd-foundation-to-raise-awareness-about-body-dysmorphic-disorder-in-her-new-single-skinny)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pop-edm-artist-andy-darling-partners-with-bdd-foundation-to-raise-awareness-for-body-dysmorphia/733cb9d2e04d37781cf9085c9994e59e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/17/pop-star-andy-darling-tackles-body-dysmorphia-with-new-single-skinny)
+ 
 
 
 

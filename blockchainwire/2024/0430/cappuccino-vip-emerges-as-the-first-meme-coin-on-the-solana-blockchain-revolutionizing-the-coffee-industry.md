@@ -23,7 +23,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cappuccino-vip-emerges-as-the-first-meme-coin-on-the-solana-blockchain-revolutionizing-the-coffee-industry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cappuccino-vip-launches-presale-on-solana-blockchain/cc7169300234ad28a16fbdb95da8fb6e) 
+
+ 
 
 
 

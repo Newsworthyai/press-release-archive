@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/husqvarna-r-v
 [Original/Source Press Release](https://newsdirect.com/news/husqvarna-r-viking-r-introduces-epic-quilt-97-590738036)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/husqvarna-r-viking-r-introduces-epic-quilttm-97-the-ultimate-innovation-for-quilters/8c0f815bf85d5ed9f052b9d1358f8d37) 
+
+ 
 
 
 

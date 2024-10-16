@@ -19,7 +19,9 @@ ABOUT RAIR TECHRAIR Technologies enables enterprises to seamlessly navigate ass
 [Original/Source Press Release](https://blockchainwire.io/press-release/rair-technologies-accepted-to-prestigious-denarii-labs-accelerator)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rair-technologies-accepted-into-denarii-labs-web3-tokenomics-accelerator/f42ce701927397cc96d2d9c9a8d38e27) 
+
+ 
 
 
 

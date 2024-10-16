@@ -7,7 +7,11 @@ FORT MYERS, FL, April 04, 2024 /24-7PressRelease/ -- After combing through appli
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509780/anidjar-levine-announce-the-winner-of-the-2023-community-service-scholarship)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elysa-smith-wins-anidjar-levine-community-service-scholarship/ee2bd637e6d1da2f3663fdb8a233f7e3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/elysa-smith-wins-anidjar-levine-s-2023-community-service-scholarship)
+ 
 
 
 

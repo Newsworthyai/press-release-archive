@@ -345,7 +345,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-researchs
 [Original/Source Press Release](https://newsdirect.com/news/htx-researchs-latest-analysis-on-pectra-the-largest-upgrade-in-ethereum-following-dencun-171754607)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pectra-upgrade-in-q4-key-proposals-and-implications-for-ethereum-ecosystem/711fdb22a3b020cfe11b4a3232f066df) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/ethereum-s-pectra-upgrade-set-to-revolutionize-blockchain-technology)
+
+Pickup - [fishervista.com](https://fishervista.com/en/htx-research-analyzes-pectra-ethereum-s-largest-upgrade-since-dencun/20245724)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ethereum-s-pectra-upgrade-set-to-revolutionize-blockchain-functionality/20245724)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/pectra-upgrade-in-q4-key-proposals-and-implications-for-ethereum-ecosystem)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/pectra-upgrade-in-q4-key-proposals-and-implications-for-ethereum-ecosystem)
+
+Pickup - [advos.io](https://advos.io/en/ethereum-s-pectra-upgrade-a-comprehensive-look-at-key-improvements/20245724)
+ 
 
 
 

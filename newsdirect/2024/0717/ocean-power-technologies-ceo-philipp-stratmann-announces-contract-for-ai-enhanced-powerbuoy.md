@@ -19,7 +19,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-t
 [Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-ceo-philipp-stratmann-announces-contract-for-ai-enhanced-powerbuoy-659383815)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ocean-power-technologies-secures-contract-for-ai-enhanced-powerbuoy/10bfae212249beffaeedfa182aeb9f2e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/ocean-power-technologies-secures-contract-for-ai-enhanced-powerbuoy-in-middle-east)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ocean-power-technologies-secures-contract-for-ai-enhanced-powerbuoy/20245026)
+
+Pickup - [advos.io](https://advos.io/en/ocean-power-technologies-secures-contract-for-ai-enhanced-powerbuoy-deployment-in-middle-east/20245026)
+ 
 
 
 

@@ -37,7 +37,11 @@ Visit Our Website
 [Original/Source Press Release](https://newsroom.prkarma.com/modkitchen/news_release/1433)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mod-kitchen-to-launch-10-state-of-the-art-cloud-kitchens-in-richmond-bc/26606174ceccbd38e4b3aed9e9d21eca) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/mod-kitchen-launches-innovative-cloud-kitchen-facility-in-richmond-bc)
+ 
 
 
 

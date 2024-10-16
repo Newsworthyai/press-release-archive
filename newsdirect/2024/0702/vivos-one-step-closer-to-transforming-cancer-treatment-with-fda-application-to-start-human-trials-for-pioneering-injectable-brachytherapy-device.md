@@ -37,7 +37,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/vivos-one-ste
 [Original/Source Press Release](https://newsdirect.com/news/vivos-one-step-closer-to-transforming-cancer-treatment-with-fda-application-to-start-human-trials-for-pioneering-injectable-brachytherapy-device-653829222)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vivos-seeks-fda-approval-to-start-human-trials-for-breakthrough-cancer-therapy/83a87954de57ae62086bea31218ba548) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/vivos-submits-fda-application-for-human-trials-of-innovative-cancer-treatment/20244628)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/02/vivos-submits-fda-application-for-human-trials-of-revolutionary-cancer-treatment)
+
+Pickup - [advos.io](https://advos.io/en/vivos-advances-cancer-treatment-with-fda-application-for-human-trials-of-radiogel/20244628)
+ 
 
 
 

@@ -7,7 +7,9 @@ BILLINGS, MT, May 02, 2024 /24-7PressRelease/ -- Goldsmith Gallery Jewelers prou
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510601/embrace-luxury-and-elegance-at-goldsmith-gallery-jewelers-john-hardy-trunk-show)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/explore-exquisite-jewelry-at-john-hardy-trunk-show/b4bf11c7deb674c763419de06864a5c2) 
+
+ 
 
 
 

@@ -7,7 +7,11 @@ NEW YORK, NY, March 19, 2024 /24-7PressRelease/ --   Why is the U.S. largely fin
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509373/combatting-financial-illiteracy-the-wannabe-investor-blueprint-revealed-during-financial-literacy-month)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/empower-yourself-with-the-wannabe-investor-a-journey-from-financial-illiteracy-to-substantial-nest-egg/35ef360476f415ae1ba0af79bbff7e62) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/empowering-the-wannabe-investor-with-financial-literacy)
+ 
 
 
 

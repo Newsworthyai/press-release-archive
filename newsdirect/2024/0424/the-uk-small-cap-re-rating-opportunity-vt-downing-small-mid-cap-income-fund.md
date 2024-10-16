@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-uk-small-
 [Original/Source Press Release](https://newsdirect.com/news/the-uk-small-cap-re-rating-opportunity-vt-downing-small-and-mid-cap-income-fund-764593393)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vt-downing-small-mid-cap-income-fund-manager-optimistic-about-uk-market-conditions/96c95dee4e406299ee3ce513036320d5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/the-uk-small-cap-re-rating-opportunity-vt-downing-small-mid-cap-income-fund)
+ 
 
 
 

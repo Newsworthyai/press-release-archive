@@ -7,7 +7,11 @@ AUSTIN, TX, April 02, 2024 /24-7PressRelease/ -- The Paradiddles proudly announc
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509730/with-a-nod-to-broadway-the-paradiddles-release-ambitious-debut-musical-concept-album)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-paradiddles-debut-musical-album-the-absent-minded-pirate/5ae4c080c5500e66c6aa6dd0e530f554) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/the-paradiddles-debut-musical-concept-album-brings-broadway-adventure)
+ 
 
 
 

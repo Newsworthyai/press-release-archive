@@ -47,7 +47,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/official-repo
 [Original/Source Press Release](https://newsdirect.com/news/official-reports-on-multiple-ufo-sightings-suggest-a-new-chapter-in-history-992592746)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/official-reports-on-multiple-ufo-sightings-suggest-a-new-chapter-in-history/7a072acf1387995721a4a654a69be647) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/brazilian-air-force-report-reveals-80-ufo-sightings-in-2023-reigniting-debate-on-extraterrestrial-life)
+
+Pickup - [fishervista.com](https://fishervista.com/en/brazilian-air-force-report-on-ufo-sightings-sparks-renewed-debate-on-extraterrestrial-life/20246569)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/brazilian-air-force-reports-80-ufo-sightings-in-2023-sparking-scientific-debate/20246569)
+
+Pickup - [advos.io](https://advos.io/en/new-ufo-sightings-report-by-brazilian-air-force-sparks-renewed-interest/20246569)
+ 
 
 
 

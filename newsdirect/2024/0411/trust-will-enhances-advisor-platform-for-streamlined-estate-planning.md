@@ -56,7 +56,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/trust-and-wil
 [Original/Source Press Release](https://newsdirect.com/news/trust-and-will-enhances-advisor-platform-for-streamlined-estate-planning-771950259)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trust-will-enhances-advisor-platform-for-streamlined-estate-planning/63ec2f1c4b7145c2b22ac735b017ccac) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/trust-will-enhances-advisor-platform-for-streamlined-estate-planning)
+ 
 
 
 

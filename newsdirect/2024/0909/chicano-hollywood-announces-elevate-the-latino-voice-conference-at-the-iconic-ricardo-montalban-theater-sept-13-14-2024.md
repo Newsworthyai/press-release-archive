@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/chicano-holly
 [Original/Source Press Release](https://newsdirect.com/news/chicano-hollywood-announces-elevate-the-latino-voice-conference-at-the-iconic-ricardo-montalban-theater-sept-13-14-2024-913353633)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elevate-the-latino-voice-conference-set-to-celebrate-and-amplify-latino-voices-in-hollywood/611708ab0125eddaeff319484c4b514e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/elevate-the-latino-voice-conference-to-spotlight-latino-talent-in-hollywood)
+
+Pickup - [fishervista.com](https://fishervista.com/en/chicano-hollywood-announces-elevate-the-latino-voice-conference-at-ricardo-montalban-theater/20246630)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/elevate-the-latino-voice-conference-to-showcase-latino-talent-in-hollywood/20246630)
+
+Pickup - [advos.io](https://advos.io/en/chicano-hollywood-announces-elevate-the-latino-voice-conference-at-ricardo-montalban-theater/20246630)
+ 
 
 
 

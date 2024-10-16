@@ -56,7 +56,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-biggest-memecoin-sale-of-2024-elcato-goes-live-on-pink-sale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/el-cato-launches-elcato-presale-on-pinksale-an-exciting-meme-coin-opportunity/c0148de640f49650e8dc7635820ec3c2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/el-cato-meme-coin-presale-goes-live-on-pinksale)
+ 
 
 
 

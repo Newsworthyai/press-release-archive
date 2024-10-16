@@ -25,7 +25,9 @@ For more information about PACKS Weed Dispensary Orange County and their diverse
 [Original/Source Press Release](https://newsworthy.ai/news/20231128899/packs-weed-dispensary-orange-county-marks-a-new-era-in-cannabis-retail)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/packs-weed-dispensary-in-orange-county-elevating-the-cannabis-experience/10bbe212928e0e2ac1144bea31bdf9ba) 
+
+ 
 
 
 

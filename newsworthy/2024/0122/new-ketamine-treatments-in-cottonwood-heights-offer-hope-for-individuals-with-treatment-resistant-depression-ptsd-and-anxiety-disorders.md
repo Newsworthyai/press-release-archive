@@ -17,7 +17,9 @@ With the introduction of ketamine treatment in Cottonwood Heights, individuals, 
 [Original/Source Press Release](https://newsworthy.ai/news/202401221012/new-ketamine-treatments-in-cottonwood-heights-offer-hope-for-individuals-with-treatment-resistant-depression-ptsd-and-anxiety-disorders)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-ketamine-treatment-integrated-with-9-line-capabilities-now-available-in-cottonwood-heights/88d1e3bf5b9cacee706eb654c351ba7b) 
+
+ 
 
 
 

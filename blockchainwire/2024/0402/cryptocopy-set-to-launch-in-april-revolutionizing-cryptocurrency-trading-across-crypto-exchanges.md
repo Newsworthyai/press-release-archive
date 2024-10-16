@@ -39,7 +39,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptocopy-set-to-launch-in-april-revolutionizing-cryptocurrency-trading-across-crypto-exchanges)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocopy-introduces-groundbreaking-cryptocurrency-trading-service/51eb721b60ff76979c4ef8c0b034eebd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/cryptocopy-revolutionizes-cryptocurrency-trading-with-cross-exchange-trade-copying)
+ 
 
 
 

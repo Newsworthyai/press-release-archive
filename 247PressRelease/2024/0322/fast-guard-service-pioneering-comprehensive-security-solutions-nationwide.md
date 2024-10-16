@@ -7,7 +7,11 @@ MIAMI, FL, March 22, 2024 /24-7PressRelease/ -- Fast Guard Service, the nation's
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509451/fast-guard-service-pioneering-comprehensive-security-solutions-nationwide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fast-guard-service-announces-enhanced-suite-of-security-services/5c13ce3301550727d997c6075ff94213) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/fast-guard-service-pioneers-comprehensive-security-solutions-nationwide)
+ 
 
 
 

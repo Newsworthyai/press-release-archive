@@ -47,7 +47,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/redhills-opag
 [Original/Source Press Release](https://newsdirect.com/news/redhills-opaganib-shows-diabetes-and-obesity-potential-with-positive-in-vivo-results-700790890)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/redhill-s-opaganib-shows-potential-in-fighting-diabetes-and-obesity/c4f70eb527ead032d231b4ca5ab76ee2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/23/redhill-biopharma-s-opaganib-shows-promise-in-diabetes-and-obesity-treatment)
+
+Pickup - [fishervista.com](https://fishervista.com/en/redhill-biopharma-s-opaganib-shows-promise-for-diabetes-and-obesity-treatment/20245922)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/redhill-biopharma-s-opaganib-shows-promise-in-diabetes-and-obesity-treatment/20245922)
+
+Pickup - [advos.io](https://advos.io/en/redhill-biopharma-s-opaganib-shows-promise-for-diabetes-and-obesity-treatment/20245922)
+ 
 
 
 

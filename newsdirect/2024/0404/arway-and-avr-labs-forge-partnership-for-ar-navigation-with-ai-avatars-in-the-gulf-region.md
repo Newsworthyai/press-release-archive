@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/arway-and-avr
 [Original/Source Press Release](https://newsdirect.com/news/arway-and-avr-labs-forge-partnership-for-ar-navigation-with-ai-avatars-in-the-gulf-region-902773523)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arway-ai-and-avr-labs-forge-partnership-for-ar-navigation-with-ai-avatars-in-the-gulf-region/f9787bcc6afe293d35e4221c1be2d302) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/arway-and-avr-labs-partner-for-ai-powered-ar-navigation-in-the-gulf-region)
+ 
 
 
 

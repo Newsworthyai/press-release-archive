@@ -37,7 +37,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cyberconnect-rebrands-to-cyber-and-releases-the-first-l2-for-social-on-mainnet)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cyber-previously-known-as-cyberconnect-unveils-the-first-l2-for-social/820125cc6b19bbb8af2ba04b7c10a82a) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cyber-previously-known-as-cyberconnect-unveils-the-first-l2-for-social)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cyber-previously-known-as-cyberconnect-unveils-the-first-l2-for-social)
+ 
 
 
 

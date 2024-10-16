@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/btc-halving-c
 [Original/Source Press Release](https://newsdirect.com/news/btc-halving-could-see-wild-volatility-swings-icos-offer-steady-gains-175494425)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-halving-sparks-volatility-galaxy-fox-ico-offers-stability-and-growth-in-2024/e86d1ff7083ae18b1d19a6016d322fc3) 
+
+ 
 
 
 

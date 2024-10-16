@@ -31,7 +31,9 @@ Exotix Weed Dispensary invites everyone to experience the best in cannabis retai
 [Original/Source Press Release](https://newsworthy.ai/news/202401271044/exotix-weed-dispensary-san-jose-elevating-cannabis-retail-with-unmatched-quality-and-convenience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exotix-weed-dispensary-redefines-cannabis-retail-experience-in-san-jose-with-high-quality-products-and-convenient-services/2f67724b5ac1ab74e94ebd13e9759da6) 
+
+ 
 
 
 

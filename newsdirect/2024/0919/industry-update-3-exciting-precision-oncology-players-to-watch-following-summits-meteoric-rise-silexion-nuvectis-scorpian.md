@@ -53,7 +53,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/industry-upda
 [Original/Source Press Release](https://newsdirect.com/news/industry-update-3-exciting-precision-oncology-players-to-watch-following-summits-meteoric-rise-silexion-nuvectis-scorpian-673585564)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/summit-therapeutics-phase-3-data-and-emerging-precision-oncology-players/b7eaf0784ef47d956875c802aa371470) 
+
+ 
 
 
 

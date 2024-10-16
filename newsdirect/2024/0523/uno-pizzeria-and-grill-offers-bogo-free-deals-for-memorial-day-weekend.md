@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/uno-pizzeria-
 [Original/Source Press Release](https://newsdirect.com/news/uno-pizzeria-and-grill-offers-bogo-free-deals-for-memorial-day-weekend-769038730)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uno-pizzeria-and-grill-offers-bogo-free-deals-for-memorial-day-weekend/e27da8e600ff835e3de61db595c435e8) 
+
+ 
 
 
 

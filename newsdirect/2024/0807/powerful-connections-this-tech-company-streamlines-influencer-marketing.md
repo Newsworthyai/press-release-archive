@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/powerful-conn
 [Original/Source Press Release](https://newsdirect.com/news/powerful-connections-this-tech-company-streamlines-influencer-marketing-387320308)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/izea-worldwide-ceo-ted-murphy-talks-influencer-marketing-on-benzinga-s-all-access/21d697ffed3f7fbf5db59c47a1a933cb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/izea-worldwide-ceo-highlights-power-of-influencer-marketing-in-benzinga-interview)
+
+Pickup - [fishervista.com](https://fishervista.com/en/izea-worldwide-enhances-influencer-marketing-with-bespoke-connections/20245551)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/izea-worldwide-ceo-highlights-value-of-influencer-marketing-in-benzinga-interview)
+
+Pickup - [advos.io](https://advos.io/en/izea-worldwide-enhances-influencer-marketing-capabilities/20245551)
+ 
 
 
 

@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/mariner-acqui
 [Original/Source Press Release](https://newsdirect.com/news/mariner-acquires-woodbridge-international-enhances-manda-advisory-capabilities-187763189)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mariner-acquires-woodbridge-international-enhances-m-a-advisory-capabilities/11218d22883922d049d4fa73aae20377) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/mariner-expands-m-a-advisory-services-with-acquisition-of-woodbridge-international)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mariner-acquires-woodbridge-international-enhances-m-a-advisory-capabilities/20246484)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/mariner-expands-m-a-advisory-services-with-acquisition-of-woodbridge-international/20246484)
+
+Pickup - [advos.io](https://advos.io/en/mariner-acquires-woodbridge-international-enhancing-m-a-advisory-services/20246484)
+ 
 
 
 

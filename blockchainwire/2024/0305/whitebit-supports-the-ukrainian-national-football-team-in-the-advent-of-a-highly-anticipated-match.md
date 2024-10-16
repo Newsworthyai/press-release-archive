@@ -13,7 +13,11 @@ WhiteBIT is one of the largest European centralized crypto exchanges founded in
 [Original/Source Press Release](https://blockchainwire.io/press-release/whitebit-supports-the-ukrainian-national-football-team-in-the-advent-of-a-highly-anticipated-match)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ukrainian-national-football-team-s-official-partner-whitebit-launches-support-campaign-and-trading-competition/3fc425c817b5b02fbdcc841f872b5833) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/05/whitebit-rallies-support-for-ukrainian-national-football-team-amid-conflict)
+ 
 
 
 

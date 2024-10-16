@@ -33,7 +33,11 @@ About ArhasiArhasi is a boutique AI startup that is focused on the rapid develop
 [Original/Source Press Release](https://blockchainwire.io/press-release/arhasi-launches-a-freely-accessible-prompt-fabricator-to-accelerate-prompt-engineering-tasks)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arhasi-unveils-ai-chatbot-service-for-genai-engineers/2514d168a715228c96768ec22191278a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/arhasi-unveils-prompt-fabricator-to-streamline-genai-development)
+ 
 
 
 

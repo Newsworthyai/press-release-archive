@@ -59,7 +59,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquants-platform-readies-to-seize-opportunities-in-the-expected-altcoin-surge)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-offers-advanced-automated-trading-bots-for-anticipated-altcoin-season/b90d7bd641ba93d3ed4af2c12ca7a256) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/05/defiquant-unleashes-automated-trading-bots-for-upcoming-altcoin-season)
+ 
 
 
 

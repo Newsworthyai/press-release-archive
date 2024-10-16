@@ -35,7 +35,17 @@ supercloud@virgo-pr.com
 [Original/Source Press Release](https://www.newmediawire.com/news/supercloud-inks-deal-to-add-hundreds-of-free-live-tv-channels-to-consumer-5g-tv-platform-umaxx-7076007)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/supercloud-international-inc-expands-umaxx-platform-with-fast-channels/d201c6babc93127de7b2250d607fe71e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/supercloud-expands-umaxx-5g-tv-platform-with-hundreds-of-free-live-channels)
+
+Pickup - [fishervista.com](https://fishervista.com/en/supercloud-expands-umaxx-with-hundreds-of-free-live-tv-channels/20246554)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/supercloud-expands-umaxx-platform-with-hundreds-of-free-live-tv-channels/20246554)
+
+Pickup - [advos.io](https://advos.io/en/supercloud-adds-hundreds-of-free-live-tv-channels-to-umaxx-5g-tv-platform/20246554)
+ 
 
 
 

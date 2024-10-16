@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/investments-a
 [Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-institute-and-ceg-worldwide-announce-research-partnership-to-accelerate-success-for-financial-advisors-and-elevate-hnw-client-experiences-416212397)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investments-wealth-institute-partners-with-ceg-worldwide-to-elevate-hnw-client-experiences/e0b684d75f59b534241a68b7a920126d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/financial-advisors-get-a-boost-with-new-research-partnership)
+ 
 
 
 

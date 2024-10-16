@@ -7,7 +7,15 @@ INDIANAPOLIS, IN, July 03, 2024 /24-7PressRelease/ -- Before Craig, Kelley & Fau
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512240/twenty-five-years-of-making-a-difference-craig-kelley-faultless-celebrates-its-25th-anniversary)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/craig-kelley-faultless-llc-celebrates-25-years-of-success/4d1ac699c7125c3fc1436e134b4e5ed1) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/craig-kelley-faultless-celebrates-25-years-of-legal-excellence-and-community-impact/20244682)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/03/craig-kelley-faultless-marks-25-years-of-legal-excellence-and-community-impact)
+
+Pickup - [advos.io](https://advos.io/en/craig-kelley-faultless-celebrates-25-years-of-service-and-success/20244682)
+ 
 
 
 

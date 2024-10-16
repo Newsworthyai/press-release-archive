@@ -21,7 +21,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/tonix-pharmac
 [Original/Source Press Release](https://newsdirect.com/news/tonix-pharmaceuticals-receives-positive-feedback-from-fda-on-tonmya-for-fibromyalgia-management-785463650)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tonix-pharmaceuticals-receives-positive-fda-feedback-on-tonmya-for-fibromyalgia-management/7a8218ba056db48a8de843e63a568ecf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/tonix-pharmaceuticals-advances-fibromyalgia-treatment-with-positive-fda-feedback)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tonix-pharmaceuticals-advances-fibromyalgia-treatment-with-positive-fda-feedback/20245087)
+
+Pickup - [advos.io](https://advos.io/en/tonix-pharmaceuticals-receives-positive-fda-feedback-for-fibromyalgia-drug-tonmyatm/20245087)
+ 
 
 
 

@@ -65,7 +65,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/institutional
 [Original/Source Press Release](https://newsdirect.com/news/institutional-investors-embrace-next-wave-of-etfs-390716658)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/institutional-investors-embrace-next-wave-of-etfs/0a2de49f4780973b9f818cd551d651e5) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/institutional-investors-drive-etf-adoption-with-bitcoin-and-ethereum-funds/20245587)
+
+Pickup - [advos.io](https://advos.io/en/institutional-investors-drive-next-wave-of-etfs-with-bitcoin-and-ethereum/20245587)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/institutional-investors-embrace-next-wave-of-etfs)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/institutional-investors-embrace-next-wave-of-etfs)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/institutional-investors-drive-adoption-of-new-etf-products/20245587)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/institutional-investors-drive-adoption-of-cryptocurrency-etfs)
+ 
 
 
 

@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/dentalplans-c
 [Original/Source Press Release](https://newsdirect.com/news/dentalplans-com-making-braces-affordable-less-stressful-for-american-parents-828954116)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dentalplans-com-offers-affordable-braces-for-american-parents/8d2030dbcfb17414c406af1a6cd27db3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/dental-savings-plans-offer-affordable-braces-for-american-families)
+ 
 
 
 

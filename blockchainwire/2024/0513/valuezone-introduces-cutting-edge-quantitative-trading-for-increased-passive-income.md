@@ -61,7 +61,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/valuezone-introduces-cutting-edge-quantitative-trading-for-increased-passive-income)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/valuezone-launches-new-quantitative-trading-platform-for-cryptocurrency-investors/4c6e02bd64eed2a61d78073dc3ab8cac) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/valuezone-launches-new-quantitative-trading-platform-for-cryptocurrency-investors)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/valuezone-launches-new-quantitative-trading-platform-for-cryptocurrency-investors)
+ 
 
 
 

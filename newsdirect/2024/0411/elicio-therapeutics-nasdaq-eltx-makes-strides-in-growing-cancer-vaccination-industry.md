@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/elicio-therap
 [Original/Source Press Release](https://newsdirect.com/news/elicio-therapeutics-nasdaq-eltx-makes-strides-in-growing-cancer-vaccination-industry-827161781)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elicio-therapeutics-makes-strides-in-cancer-vaccination-industry/bc44375c050af7ff0a1f0b0432e5c404) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/elicio-therapeutics-nasdaq-eltx-making-groundbreaking-strides-in-cancer-vaccination-industry)
+ 
 
 
 

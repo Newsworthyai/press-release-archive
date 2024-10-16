@@ -28,7 +28,11 @@ Telegram: https://t.me/BabyBonkEntryTwitter: https://x.com/babybonkcoinWebsite: 
 [Original/Source Press Release](https://blockchainwire.io/press-release/announcement-baby-bonk-redefines-crypto-gaming-with-bonk-royale-integration)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/baby-bonk-integrates-into-bonk-royale-setting-new-benchmarks-in-crypto-gaming/977c01a94a2ea5e93b182572c7f6a330) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/29/baby-bonk-redefines-crypto-gaming-with-bonk-royale-integration)
+ 
 
 
 

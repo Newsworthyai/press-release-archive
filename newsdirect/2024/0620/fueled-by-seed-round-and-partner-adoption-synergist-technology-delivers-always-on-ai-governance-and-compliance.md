@@ -27,7 +27,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/fueled-by-see
 [Original/Source Press Release](https://newsdirect.com/news/fueled-by-seed-round-and-partner-adoption-synergist-technology-delivers-always-on-ai-governance-and-compliance-193163235)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/synergist-technology-poised-for-growth-in-ai-governance-and-compliance/399c0cec6e190d918a3f9ac980faeadc) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/synergist-technology-expands-ai-governance-with-5-million-seed-funding/20244323)
+
+Pickup - [advos.io](https://advos.io/en/synergist-technology-advances-ai-governance-with-5-million-seed-funding-and-strategic-partnerships/20244323)
+ 
 
 
 

@@ -7,7 +7,13 @@ NEW YORK, NY, May 23, 2024 /24-7PressRelease/ -- Blockchain sports platform Winn
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511059/winnerz-manny-pacquiao-foundation-co-sponsored-children-centers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/winnerz-and-manny-pacquiao-foundation-host-joint-sponsorship-event-for-children-centers/7ad9ad9872bbb4f31c1417ab06208b8c) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/winnerz-and-manny-pacquiao-foundation-host-joint-sponsorship-event-for-children-centers)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/winnerz-and-manny-pacquiao-foundation-host-joint-sponsorship-event-for-children-centers)
+ 
 
 
 

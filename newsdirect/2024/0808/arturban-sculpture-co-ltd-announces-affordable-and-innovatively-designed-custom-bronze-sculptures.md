@@ -65,7 +65,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/arturban-scul
 [Original/Source Press Release](https://newsdirect.com/news/arturban-sculpture-co-ltd-announces-affordable-and-innovatively-designed-custom-bronze-sculptures-338261005)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arturban-innovatively-designed-custom-bronze-sculptures/9aac3cc66234c0a8d80daf99e64c171d) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/arturban-sculpture-co-ltd-introduces-affordable-custom-bronze-sculptures-with-innovative-designs/20245578)
+
+Pickup - [advos.io](https://advos.io/en/arturban-sculpture-co-ltd-unveils-affordable-custom-bronze-sculptures/20245578)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/arturban-sculpture-co-ltd-unveils-affordable-custom-bronze-sculptures-with-innovative-design-techniques/20245578)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/arturban-unveils-affordable-custom-bronze-sculptures-with-innovative-design-techniques)
+ 
 
 
 

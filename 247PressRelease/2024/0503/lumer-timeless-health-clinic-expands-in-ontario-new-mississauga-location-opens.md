@@ -7,7 +7,9 @@ MISSISSAUGA, ON, May 03, 2024 /24-7PressRelease/ -- Lumèr - Timeless Health Cli
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510632/lum%C3%A8r-timeless-health-clinic-expands-in-ontario-new-mississauga-location-opens)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lumer-timeless-health-clinic-opens-new-mississauga-location-due-to-overwhelming-demand/d341ff365cbb6e210d77b00f3f2b8781) 
+
+ 
 
 
 

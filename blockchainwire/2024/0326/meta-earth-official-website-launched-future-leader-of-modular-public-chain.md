@@ -73,7 +73,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/meta-earth-official-website-launched-future-leader-of-modular-public-chain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meta-earth-officially-launches-website-and-social-supporter-campaign/0a25ace9659fcdd5c011fd41c77c9dc2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/meta-earth-launches-official-website-unveiling-vision-for-modular-public-chain)
+ 
 
 
 

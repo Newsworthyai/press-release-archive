@@ -21,7 +21,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/kootenay-silv
 [Original/Source Press Release](https://newsdirect.com/news/kootenay-silver-expands-drilling-programme-with-second-rig-981465831)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kootenay-silver-expands-drilling-program-with-second-rig-in-mexico/f098b84f7201d83d68ea55999a04d545) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/kootenay-silver-enhances-exploration-with-second-drill-at-columba-project/20244589)
+
+Pickup - [advos.io](https://advos.io/en/kootenay-silver-expands-drilling-programme-with-second-rig/20244589)
+ 
 
 
 

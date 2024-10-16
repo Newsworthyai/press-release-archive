@@ -23,7 +23,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/gold-basin-re
 [Original/Source Press Release](https://newsdirect.com/news/gold-basin-resources-ceo-shares-view-of-project-as-company-drills-its-stealth-deposit-630414044)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-basin-resources-ceo-shares-insights-on-ongoing-drilling-at-stealth-project-in-arizona-desert/0b6d13f88762186cbb783802ebe8b1f7) 
+
+
+Pickup - [advos.io](https://advos.io/en/gold-basin-resources-accelerates-exploration-at-stealth-deposit/20244217)
+
+Pickup - [fishervista.com](https://fishervista.com/en/gold-basin-resources-advances-drilling-at-stealth-deposit-with-promising-potential/20244217)
+ 
 
 
 

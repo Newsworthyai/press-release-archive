@@ -21,7 +21,11 @@ Toobit is a leading innovator in the cryptocurrency investment space, providing 
 [Original/Source Press Release](https://blockchainwire.io/press-release/is-the-perfect-time-to-invest-in-cryptocurrency-post-bitcoin-halving)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/is-it-too-late-to-buy-crypto-and-bitcoin-toobit-experts-answer/193c01e9727ce8da4706e30f37777d80) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/is-the-perfect-time-to-invest-in-cryptocurrency-post-bitcoin-halving)
+ 
 
 
 

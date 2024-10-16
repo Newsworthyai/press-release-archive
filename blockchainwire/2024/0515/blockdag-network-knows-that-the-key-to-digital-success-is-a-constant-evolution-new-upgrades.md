@@ -37,7 +37,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-network-knows-that-the-key-to-digital-success-is-a-constant-evolution-new-upgrades-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-unveils-groundbreaking-upgrades-to-platform/c1e92c15ffbc3cf62ad27c1884ee63f6) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blockdag-network-unveils-groundbreaking-upgrades-to-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blockdag-network-unveils-groundbreaking-upgrades-to-platform)
+ 
 
 
 

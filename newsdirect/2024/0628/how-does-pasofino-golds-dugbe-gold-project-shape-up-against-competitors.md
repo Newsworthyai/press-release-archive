@@ -47,7 +47,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-does-paso
 [Original/Source Press Release](https://newsdirect.com/news/how-does-pasofino-golds-dugbe-gold-project-shape-up-against-competitors-371335305)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/west-africa-s-gold-frontier-opportunities-for-investors-in-the-gold-market/2dad2322d2362d99ccb3e3ef027a8a96) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/pasofino-gold-s-dugbe-project-a-rising-star-in-west-africa-s-gold-frontier/20244577)
+
+Pickup - [advos.io](https://advos.io/en/pasofino-golds-dugbe-project-a-new-frontier-in-west-african-gold-mining/20244577)
+ 
 
 
 

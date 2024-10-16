@@ -47,7 +47,21 @@ X:[https://x.com/i3D_Angels](https://x.com/i3D_Angels)
 [Original/Source Press Release](https://blockchainwire.io/press-release/invluencer---bullish-on-i3d-protocol-as-bitmart-listing-approaches-16-september-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/i3d-protocol-set-to-revolutionize-early-stage-investing-with-ai-and-crowd-intelligence/3406392c12d8d8c4c613d18ec07edbe4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/i3d-protocol-set-to-transform-early-stage-investing-with-bitmart-listing)
+
+Pickup - [fishervista.com](https://fishervista.com/en/i3d-protocol-nears-bitmart-listing-poised-to-transform-early-stage-investing/20245939)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/i3d-protocol-poised-for-major-growth-with-upcoming-bitmart-listing/20245939)
+
+Pickup - [advos.io](https://advos.io/en/i3d-protocol-set-for-bitmart-listing-promises-revolution-in-early-stage-investing/20245939)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/i3d-protocol-set-to-revolutionize-early-stage-investing-with-ai-and-crowd-intelligence)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/i3d-protocol-set-to-revolutionize-early-stage-investing-with-ai-and-crowd-intelligence)
+ 
 
 
 

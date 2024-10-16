@@ -45,7 +45,9 @@ About Toss It DumpstersToss It Dumpsters, LLC is a family-owned business based i
 [Original/Source Press Release](https://newsworthy.ai/news/202410011298/locoal-partners-with-das-greenhaus-and-toss-it-dumpsters-to-establish-a-new-headquarters-in-the-texas-hill-country)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/venture-fest-2024-showcases-innovation-in-decarbonization-technology/4638bfc9d91b447b846a0776ea3d026b) 
+
+ 
 
 
 

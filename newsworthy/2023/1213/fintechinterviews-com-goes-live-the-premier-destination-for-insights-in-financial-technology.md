@@ -23,7 +23,11 @@ Navigate the nuances of financial technology at www.FintechInterviews.com.
 [Original/Source Press Release](https://newsworthy.ai/news/20231213820/fintechinterviews-com-goes-live-the-premier-destination-for-insights-in-financial-technology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fintechinterviews-com-decoding-financial-technology-innovations/add4722e7817ee3398efd64e11b3657b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/13/fintechinterviews-com-emerges-as-premier-fintech-knowledge-hub)
+ 
 
 
 

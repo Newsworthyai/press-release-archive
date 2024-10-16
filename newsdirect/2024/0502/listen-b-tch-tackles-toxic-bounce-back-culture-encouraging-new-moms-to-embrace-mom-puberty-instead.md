@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/listen-b-tch-
 [Original/Source Press Release](https://newsdirect.com/news/listen-b-tch-tackles-toxic-bounce-back-culture-encouraging-new-moms-to-embrace-mom-puberty-instead-724387635)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/listen-b-tch-challenges-toxic-bounce-back-culture-for-new-moms/b7b3fe02977d6f6e808c2b8bb1baa2bd) 
+
+ 
 
 
 

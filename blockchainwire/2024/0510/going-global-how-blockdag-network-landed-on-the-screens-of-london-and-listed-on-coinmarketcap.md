@@ -49,7 +49,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/going-global-how-blockdag-network-landed-on-the-screens-of-london-and-listed-on-coinmarketcap-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-taking-over-the-world-of-cryptocurrency-with-innovative-marketing/09f2eea7cf39c6b021948cd908ca25bb) 
+
+ 
 
 
 

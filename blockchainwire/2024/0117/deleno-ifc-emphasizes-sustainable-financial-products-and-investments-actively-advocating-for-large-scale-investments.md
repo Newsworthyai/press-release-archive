@@ -31,7 +31,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/deleno-ifc-emphasizes-sustainable-financial-products-and-investments-actively-advocating-for-large-scale-investments--1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/combat-inflation-and-preserve-wealth-through-stock-market-investment/60241f602e74b6f65ec120b4f9cba970) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/17/deleno-ifc-champions-sustainable-finance-for-a-better-future)
+ 
 
 
 

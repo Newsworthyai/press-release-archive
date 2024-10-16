@@ -7,7 +7,17 @@ PARLIN, NJ, September 17, 2024 /24-7PressRelease/ -- For the sixth consecutive y
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514364/ifpg-celebrates-six-years-as-entrepreneurs-top-franchise-broker-organization)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ifpg-named-no-1-franchise-broker-organization-for-sixth-consecutive-year/a200da08b0f35167259da7582dd1b630) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/ifpg-named-top-franchise-broker-organization-for-sixth-consecutive-year)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ifpg-named-top-franchise-broker-organization-for-sixth-consecutive-year/20246887)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ifpg-maintains-top-spot-in-entrepreneur-s-franchise-broker-rankings-for-sixth-year/20246887)
+
+Pickup - [advos.io](https://advos.io/en/ifpg-named-top-franchise-broker-organization-for-sixth-consecutive-year/20246887)
+ 
 
 
 

@@ -43,7 +43,11 @@ Adam Reiser, CEO / FounderVerity One Ltd.2 56 Street,Dubai InvestmentsPark, Duba
 [Original/Source Press Release](https://blockchainwire.io/press-release/verity-one-leads-with-first-blockchain-nutrient-credits-for-chesapeake-oysters)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/verity-one-launches-first-blockchain-based-nutrient-credits-from-chesapeake-bay-oysters/67f89585278fd6e3a3e14d89f0a7a6e2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/verity-one-pioneers-blockchain-based-nutrient-credits-for-chesapeake-bay-oysters)
+ 
 
 
 

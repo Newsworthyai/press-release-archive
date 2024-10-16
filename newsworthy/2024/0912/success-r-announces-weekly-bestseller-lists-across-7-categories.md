@@ -116,7 +116,17 @@ Founded in 1897, SUCCESS® is a leading multimedia company dedicated to personal
 [Original/Source Press Release](https://newsworthy.ai/news/202409121259/success-r-announces-weekly-bestseller-lists-across-7-categories)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/success-r-releases-weekly-bestseller-lists-across-seven-categories/01ab366f9c281358b630396d61b682c4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/success-r-launches-weekly-bestseller-lists-across-7-categories)
+
+Pickup - [fishervista.com](https://fishervista.com/en/success-r-launches-weekly-bestseller-lists-across-7-categories/20246783)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/success-r-launches-weekly-bestseller-lists-across-7-categories/20246783)
+
+Pickup - [advos.io](https://advos.io/en/success-r-launches-weekly-bestseller-lists-across-seven-categories/20246783)
+ 
 
 
 

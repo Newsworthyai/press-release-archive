@@ -19,7 +19,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/unimantic-protocol-made-3-million-dollars-thanks-to-mev-bots-and-multiple-whale-transactions-on-the-new-book-of-meme-token)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unimantic-protocol-sparks-262-surge-in-book-of-meme-token-bome/b9116e17524a158a51f4ac985b3db941) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/unimantic-protocol-sparks-262-surge-in-book-of-meme-token-bome)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/unimantic-protocol-sparks-262-surge-in-book-of-meme-token-bome)
+ 
 
 
 

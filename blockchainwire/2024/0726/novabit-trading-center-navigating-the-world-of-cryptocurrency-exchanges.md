@@ -17,7 +17,21 @@ Quantum Prosperity Consortium Investment Education Foundation is a private organ
 [Original/Source Press Release](https://blockchainwire.io/press-release/novabit-trading-center-navigating-the-world-of-cryptocurrency-exchanges)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/understanding-cryptocurrency-exchanges-and-quantum-prosperity-consortium-investment-education-foundation/1502d88f0cddcd7562e66664044dd2de) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/26/novabit-trading-center-demystifies-cryptocurrency-exchange-operations)
+
+Pickup - [fishervista.com](https://fishervista.com/en/novabit-trading-center-navigating-the-complex-world-of-cryptocurrency-exchanges/20245293)
+
+Pickup - [advos.io](https://advos.io/en/understanding-cryptocurrency-exchanges-insights-from-novabit-trading-center/20245293)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/understanding-cryptocurrency-exchanges-and-quantum-prosperity-consortium-investment-education-foundation)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/understanding-cryptocurrency-exchanges-and-quantum-prosperity-consortium-investment-education-foundation)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/novabit-trading-center-unveils-comprehensive-guide-to-cryptocurrency-exchanges)
+ 
 
 
 

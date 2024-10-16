@@ -55,7 +55,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/over-1b-worth
 [Original/Source Press Release](https://newsdirect.com/news/over-1b-worth-of-u-s-treasury-notes-tokenized-apt-ltc-and-kang-top-altcoin-picks-821901197)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-treasury-notes-tokenized-apt-ltc-and-kang-top-altcoin-picks/7810859039cb36cba5aea7a7aa11df2c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/07/kangamoon-kang-emerges-as-top-crypto-investment-opportunity)
+ 
 
 
 

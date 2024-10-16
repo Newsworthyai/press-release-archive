@@ -33,7 +33,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/aqualabs-announces-transition-to-aquarius-a-strategic-rebranding-initiative)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aquarius-fund-rebrands-to-aquarius-commits-to-empowering-entrepreneurs/44523bbf8f69d182306953e53793cf2a) 
+
+ 
 
 
 

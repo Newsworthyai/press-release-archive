@@ -51,7 +51,9 @@ This news release contains forward-looking statements which are not statements o
 [Original/Source Press Release](https://www.newmediawire.com/news/ladybug-reveals-major-milestones-in-ai-driven-nutrabuddy-platform-during-alpha-testing-7076166)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ladybug-nutratech-announces-development-of-proprietary-ai-platform-nutrabuddy/905a9709f641c4cc7b91bab16b35fc75) 
+
+ 
 
 
 

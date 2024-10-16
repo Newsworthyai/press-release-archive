@@ -7,7 +7,9 @@ Austin, TX (Newsworthy.ai) Tuesday Oct 1, 2024 @ 11:00 AM Central — BoosterHub
 [Original/Source Press Release](https://newsworthy.ai/news/202410011292/boosterhub-welcomes-aidan-gildea-as-sales-account-manager)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boosterhub-appoints-aidan-gildea-as-sales-account-manager-expects-doubling-in-size-by-2025/58807fd360558f474c26cd263215814a) 
+
+ 
 
 
 

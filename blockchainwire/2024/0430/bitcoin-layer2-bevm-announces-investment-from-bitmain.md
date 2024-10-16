@@ -19,7 +19,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-layer2-bevm-announces-investment-from-bitmain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmain-invests-in-btc-layer2-project-bevm/93cb798ced3a08010e117c7364498f6d) 
+
+ 
 
 
 

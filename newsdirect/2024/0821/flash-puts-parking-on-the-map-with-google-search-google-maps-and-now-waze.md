@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/flash-puts-pa
 [Original/Source Press Release](https://newsdirect.com/news/flash-puts-parking-on-the-map-with-google-search-google-maps-and-now-waze-760207756)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/flash-and-waze-collaborate-to-offer-reservable-parking-transactions-in-waze/86a98b0d4db1b47344542cf17c13e89d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/flash-expands-digital-parking-solutions-to-waze-revolutionizing-driver-experience)
+
+Pickup - [fishervista.com](https://fishervista.com/en/flash-expands-parking-solutions-with-integration-into-waze-google-search-and-google-maps/20245877)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/flash-expands-digital-parking-solutions-to-waze-enhancing-driver-experience/20245877)
+
+Pickup - [advos.io](https://advos.io/en/flash-enhances-parking-convenience-with-integration-into-waze/20245877)
+ 
 
 
 

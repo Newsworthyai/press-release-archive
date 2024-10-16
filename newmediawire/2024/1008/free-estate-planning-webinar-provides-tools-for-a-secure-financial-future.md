@@ -35,7 +35,9 @@
 [Original/Source Press Release](https://www.newmediawire.com/news/free-estate-planning-webinar-provides-tools-for-a-secure-financial-future-7076167)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-heart-association-offers-free-webinar-for-national-estate-planning-awareness-week/b3a05ad309cc94f24007b6a24985fbff) 
+
+ 
 
 
 

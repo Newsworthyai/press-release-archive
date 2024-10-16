@@ -7,7 +7,11 @@ ATLANTA, GA, March 21, 2024 /24-7PressRelease/ -- Starting with no temples to be
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509441/international-church-celebrates-40-years-of-faith-and-global-outreach)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-church-of-jesus-celebrates-40th-anniversary-with-global-impact/ca95d7e9d1d8e7eff8ae370745614534) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/global-church-marks-40-years-of-spreading-faith-and-teachings)
+ 
 
 
 

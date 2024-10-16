@@ -23,7 +23,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-welcomes-
 [Original/Source Press Release](https://newsdirect.com/news/htx-welcomes-win-in-landmark-defamation-case-by-justin-sun-in-the-peoples-court-of-china-936049305)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-wins-landmark-defamation-case-in-china/d36d05c54a8643ba0d277c8139684960) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/htx-celebrates-victory-in-landmark-defamation-case-for-justin-sun/20244472)
+
+Pickup - [advos.io](https://advos.io/en/htx-celebrates-victory-in-justin-sun-s-landmark-defamation-case-in-china/20244472)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-wins-landmark-defamation-case-in-china)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-wins-landmark-defamation-case-in-china)
+ 
 
 
 

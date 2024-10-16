@@ -23,7 +23,11 @@ SatoshiDEX, operating on the Stacks Layer 2 chain, is a groundbreaking DeFi prot
 [Original/Source Press Release](https://blockchainwire.io/press-release/satoshidex-opens-sdex-pre-sale-the-native-token-of-worlds-first-bitcoin-dex)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/satoshidex-ai-announces-2nd-round-of-sdex-pre-sale/869814d401123c6d86f1a9269a50003a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/01/satoshidex-launches-sdex-pre-sale-for-world-s-first-bitcoin-dex)
+ 
 
 
 

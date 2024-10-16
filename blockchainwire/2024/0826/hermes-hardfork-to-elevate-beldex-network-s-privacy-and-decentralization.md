@@ -25,7 +25,21 @@ For more information, visit[Beldex.io](https://beldex.io).Join us on: [Telegram]
 [Original/Source Press Release](https://blockchainwire.io/press-release/hermes-hardfork-to-elevate-beldex-networks-privacy-and-decentralization)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beldex-to-launch-hermes-hardfork-advancing-privacy-interoperability-and-decentralization/e79d83c0736bdb36fc28961fd0826f59) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/beldex-network-to-launch-hermes-hardfork-enhancing-privacy-and-decentralization)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hermes-hardfork-to-elevate-beldex-network-s-privacy-and-decentralization/20245933)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/beldex-network-to-launch-hermes-hardfork-enhancing-privacy-and-decentralization/20245933)
+
+Pickup - [advos.io](https://advos.io/en/hermes-hardfork-to-revolutionize-beldex-network-s-privacy-and-decentralization/20245933)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/beldex-to-launch-hermes-hardfork-advancing-privacy-interoperability-and-decentralization)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/beldex-to-launch-hermes-hardfork-advancing-privacy-interoperability-and-decentralization)
+ 
 
 
 

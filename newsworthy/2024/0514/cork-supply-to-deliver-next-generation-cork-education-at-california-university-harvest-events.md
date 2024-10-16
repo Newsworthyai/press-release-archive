@@ -45,7 +45,9 @@ With continuous learning and R&D key priorities, together with social responsibi
 [Original/Source Press Release](https://newsworthy.ai/news/202405141165/cork-supply-to-deliver-next-generation-cork-education-at-california-university-harvest-events)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cork-supply-brings-cork-harvest-to-california-universities-demonstrates-sustainable-benefits/116dfe3d44bba846082b0f95b8a5626f) 
+
+ 
 
 
 

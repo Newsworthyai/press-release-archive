@@ -41,7 +41,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/edgex-unveils-groundbreaking-modular-platform-to-revolutionize-decentralized-finance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/edgex-launches-high-performance-modular-financial-system/3a318d9b7bf345aa18936ff04293252c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/edgex-launches-innovative-modular-platform-for-decentralized-finance)
+
+Pickup - [fishervista.com](https://fishervista.com/en/edgex-introduces-innovative-modular-platform-for-decentralized-finance/20246897)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/edgex-launches-innovative-modular-platform-to-transform-decentralized-finance/20246897)
+
+Pickup - [advos.io](https://advos.io/en/edgex-launches-innovative-modular-platform-for-decentralized-finance/20246897)
+ 
 
 
 

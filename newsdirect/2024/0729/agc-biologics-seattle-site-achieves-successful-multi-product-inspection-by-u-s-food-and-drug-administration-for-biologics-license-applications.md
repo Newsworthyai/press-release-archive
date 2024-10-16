@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/agc-biologics
 [Original/Source Press Release](https://newsdirect.com/news/agc-biologics-seattle-site-achieves-successful-multi-product-inspection-by-u-s-food-and-drug-administration-for-biologics-license-applications-255280798)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/agc-biologics-seattle-achieves-major-milestone-for-regulatory-compliance-in-2024/46824e5f333bb9f3f0d5019204d9d3a1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/agc-biologics-seattle-facility-receives-fda-approval-for-two-new-commercial-products)
+
+Pickup - [fishervista.com](https://fishervista.com/en/agc-biologics-seattle-site-passes-fda-inspection-receives-approval-for-two-new-biologics/20245318)
+
+Pickup - [advos.io](https://advos.io/en/agc-biologics-seattle-site-completes-successful-fda-inspection-for-biologics-license-applications/20245318)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/agc-biologics-seattle-facility-passes-fda-inspection-for-multiple-biologics-license-applications)
+ 
 
 
 

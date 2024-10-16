@@ -57,7 +57,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-
 [Original/Source Press Release](https://newsdirect.com/news/htx-ventures-invests-in-monad-labs-to-support-parallelized-evms-ecosystem-504889867)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-ventures-invests-in-monad-labs-to-support-parallelized-evms-ecosystem/b261ec2a1db8cd51ca0773845fa03645) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/htx-ventures-invests-in-monad-labs-to-support-parallelized-evms-ecosystem)
+ 
 
 
 

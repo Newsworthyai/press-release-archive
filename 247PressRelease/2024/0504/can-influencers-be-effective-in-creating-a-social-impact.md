@@ -7,7 +7,9 @@ KOLKATA, INDIA, May 04, 2024 /24-7PressRelease/ -- In today's world, the influen
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510640/can-influencers-be-effective-in-creating-a-social-impact)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/giftstoindia24x7-collaborates-with-influencers-to-bring-joy-to-mothers-in-old-age-homes-for-mother-s-day/684e7b8743780bcd252b2bc804e4d046) 
+
+ 
 
 
 

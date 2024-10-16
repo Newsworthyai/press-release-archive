@@ -45,7 +45,13 @@ info@cassiopeia-ltd.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/reinforced-governance-for-daos-q-development-partners-with-kleros)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/q-development-ag-collaborates-with-kleros-to-offer-resilience-governance-solutions-for-daos/3c1093cc487cc037cfe3f5ca3a48e313) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/q-development-ag-collaborates-with-kleros-to-offer-resilience-governance-solutions-for-daos)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/q-development-ag-collaborates-with-kleros-to-offer-resilience-governance-solutions-for-daos)
+ 
 
 
 

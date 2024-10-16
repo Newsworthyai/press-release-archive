@@ -23,7 +23,11 @@ Dive into the future of media expertise at www.MediaRelations.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231124847/introducing-mediarelations-io-bridging-media-and-experts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mediarelations-io-launches-as-a-dynamic-new-platform-in-the-media-landscape/7ac287d5163c9efec825a4add306169d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/24/mediarelations-io-revolutionizing-media-knowledge-sharing)
+ 
 
 
 

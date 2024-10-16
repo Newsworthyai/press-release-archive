@@ -55,7 +55,17 @@ With a dedicated team and advanced technology, Innovatech Investment Education F
 [Original/Source Press Release](https://blockchainwire.io/press-release/innovatech-investment-education-foundation-new-initiatives-led-by-bertram-charlton)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovatech-investment-education-foundation-launches-new-initiatives-to-bolster-investor-education-and-support/552804d575afa4f4ab081962b4b350a6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/innovatech-investment-education-foundation-launches-new-initiatives-to-enhance-investor-education)
+
+Pickup - [fishervista.com](https://fishervista.com/en/innovatech-introduces-new-investor-education-initiatives/20245593)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/innovatech-investment-education-foundation-launches-new-initiatives-to-enhance-investor-education/20245593)
+
+Pickup - [advos.io](https://advos.io/en/innovatech-investment-education-foundation-announces-new-initiatives-to-enhance-investor-education/20245593)
+ 
 
 
 

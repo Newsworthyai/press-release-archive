@@ -7,7 +7,17 @@ MIAMI, FL, August 23, 2024 /24-7PressRelease/ -- The Oldest Kitchen in the World
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513700/new-cookbook-resurfaces-ancient-assyrian-recipes-handed-down-through-generations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ancient-middle-eastern-cookbook-set-to-debut-in-english-markets/71cc02bb91c395f402bd1a409802a4b3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/23/ancient-assyrian-cuisine-revived-in-new-cookbook-the-oldest-kitchen-in-the-world)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-cookbook-revives-4000-year-old-assyrian-recipes/20245908)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ancient-assyrian-cuisine-revived-in-groundbreaking-cookbook/20245908)
+
+Pickup - [advos.io](https://advos.io/en/ancient-assyrian-recipes-revived-in-new-cookbook/20245908)
+ 
 
 
 

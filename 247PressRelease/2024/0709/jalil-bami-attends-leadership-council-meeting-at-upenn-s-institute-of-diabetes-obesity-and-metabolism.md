@@ -7,7 +7,15 @@ PHILADELPHIA, PA, July 09, 2024 /24-7PressRelease/ -- Jalil Bami attended the Le
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512344/jalil-bami-attends-leadership-council-meeting-at-upenns-institute-of-diabetes-obesity-and-metabolism)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jalil-bami-s-generous-donation-supports-diabetes-research-at-upenn-medicine/871e970f12eb64af3b9e78a2c35ba248) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/jalil-bami-contributes-100000-to-upenns-diabetes-research-fund/20244788)
+
+Pickup - [advos.io](https://advos.io/en/jalil-bami-donates-100000-to-upenn-s-diabetes-research-at-leadership-council-meeting/20244788)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/jalil-bami-donates-100000-to-upenn-s-diabetes-research-fund-at-leadership-council-meeting)
+ 
 
 
 

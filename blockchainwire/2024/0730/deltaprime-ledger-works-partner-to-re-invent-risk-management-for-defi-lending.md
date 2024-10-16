@@ -62,7 +62,21 @@ Media Contact:Daniel@deltaprime.io
 [Original/Source Press Release](https://blockchainwire.io/press-release/deltaprime--ledger-works-partner-to-re-invent-risk-management-for-defi-lending)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/deltaprime-and-ledger-works-partner-to-reinvent-defi-risk-management/e59102d58584a651491e872ec512683f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/deltaprime-and-ledger-works-join-forces-to-revolutionize-defi-lending-risk-management)
+
+Pickup - [fishervista.com](https://fishervista.com/en/deltaprime-and-ledger-works-partner-to-revolutionize-defi-risk-management/20245350)
+
+Pickup - [advos.io](https://advos.io/en/deltaprime-ledger-works-collaborate-to-enhance-defi-lending-risk-management/20245350)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/deltaprime-and-ledger-works-partner-to-reinvent-defi-risk-management)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/deltaprime-and-ledger-works-partner-to-reinvent-defi-risk-management)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/deltaprime-and-ledger-works-join-forces-to-enhance-defi-lending-risk-management)
+ 
 
 
 

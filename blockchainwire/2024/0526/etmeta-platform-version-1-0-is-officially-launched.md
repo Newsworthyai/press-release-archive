@@ -25,7 +25,9 @@ Disclaimer: This press release may contain forward-looking statements. Forward-l
 [Original/Source Press Release](https://blockchainwire.io/press-release/etmeta-platform-version-10-is-officially-launched)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/etmeta-platform-1-0-launched-revolutionizing-sports-participation-and-economic-benefits/de95be67eff6e508f6e2ac4b4e96433b) 
+
+ 
 
 
 

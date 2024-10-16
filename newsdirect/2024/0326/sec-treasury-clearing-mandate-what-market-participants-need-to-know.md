@@ -67,7 +67,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/sec-treasury-
 [Original/Source Press Release](https://newsdirect.com/news/sec-treasury-clearing-mandate-what-market-participants-need-to-know-181558436)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sec-adopts-new-rules-for-u-s-treasury-market-clearing/7999381448fa0fbb534001b4c525525b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/sec-treasury-clearing-mandate-raises-concerns-over-trading-costs-and-liquidity)
+ 
 
 
 

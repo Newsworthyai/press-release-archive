@@ -38,7 +38,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/okaycoin-capitalizes-on-european-market-surge-as-crypto-sector-grows-by-94)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/okaycoin-expands-services-to-meet-growing-demand-in-european-crypto-market/35a7fe1f5767ca0ec685ad840d01cd04) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/okaycoin-expands-services-to-meet-growing-demand-in-european-crypto-market)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/okaycoin-expands-services-to-meet-growing-demand-in-european-crypto-market)
+ 
 
 
 

@@ -7,7 +7,9 @@ MURRAY, UT, October 15, 2024 /24-7PressRelease/ -- Morgan Jewelers is thrilled t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515253/new-flagship-morgan-jewelers-showroom-in-murray)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/morgan-jewelers-celebrates-110-years-with-grand-opening-of-flagship-showroom/06ac34e7050e17bc53229aba6c0dbc7a) 
+
+ 
 
 
 

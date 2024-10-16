@@ -7,7 +7,15 @@ FORT WORTH, TX, July 16, 2024 /24-7PressRelease/ -- Kursten Garcia is thrilled t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512466/hair-by-kursten-opens-at-oakmont-salon-spa-galleria-in-fort-worth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-upscale-salon-hair-by-kursten-now-open-in-fort-worth/de4b77e071e9119b00006da16528482b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/new-salon-hair-by-kursten-opens-in-fort-worth-s-upscale-salon-spa-galleria)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hair-by-kursten-opens-new-salon-at-oakmont-salon-spa-galleria-in-fort-worth/20244968)
+
+Pickup - [advos.io](https://advos.io/en/hair-by-kursten-opens-at-oakmont-salon-spa-galleria-in-fort-worth/20244968)
+ 
 
 
 

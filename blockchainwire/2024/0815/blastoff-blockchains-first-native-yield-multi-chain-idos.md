@@ -63,7 +63,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blastoff-blockchains-first-native-yield-multi-chain-idos)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blastoff-launches-multi-chain-idos-for-enhanced-user-experience/30ed30d879acacbe7f29972003a9242b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/blastoff-introduces-multi-chain-idos-expanding-opportunities-for-blockchain-investors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/blastoff-pioneers-multi-chain-idos-with-native-yield-capability/20245771)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/blastoff-introduces-multi-chain-idos-expanding-opportunities-in-blockchain-space/20245771)
+
+Pickup - [advos.io](https://advos.io/en/blastoff-introduces-first-native-yield-multi-chain-idos/20245771)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/blastoff-launches-multi-chain-idos-for-enhanced-user-experience)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/blastoff-launches-multi-chain-idos-for-enhanced-user-experience)
+ 
 
 
 

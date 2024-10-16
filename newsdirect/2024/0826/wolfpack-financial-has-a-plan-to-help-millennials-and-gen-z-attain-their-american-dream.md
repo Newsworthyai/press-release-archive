@@ -63,7 +63,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/wolfpack-fina
 [Original/Source Press Release](https://newsdirect.com/news/wolfpack-financial-has-a-plan-to-help-millennials-and-gen-z-attain-their-american-dream-607307686)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wolfpack-financial-innovates-to-empower-millennials-and-gen-zers-in-investing/cc0722c59abeb5a53c2e1b3ee5ee9c56) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/wolfpack-financial-aims-to-empower-millennials-and-gen-z-with-innovative-investment-app)
+
+Pickup - [fishervista.com](https://fishervista.com/en/wolfpack-financial-launches-innovative-investment-solutions-for-millennials-and-gen-z/20245935)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/wolfpack-financial-aims-to-empower-millennials-and-gen-z-with-innovative-investment-app/20245935)
+
+Pickup - [advos.io](https://advos.io/en/wolfpack-financial-introduces-innovative-investment-solutions-for-millennials-and-gen-z/20245935)
+ 
 
 
 

@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/financial-gra
 [Original/Source Press Release](https://newsdirect.com/news/financial-gravity-announces-appointment-of-financial-services-industry-veteran-michael-french-as-executive-vice-president-evp-153297311)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/financial-gravity-appoints-michael-french-as-evp/50a10a9c0759332fb13e9d74067911b5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/financial-gravity-appoints-michael-french-as-executive-vice-president)
+ 
 
 
 

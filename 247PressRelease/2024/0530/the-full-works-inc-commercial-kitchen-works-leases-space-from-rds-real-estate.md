@@ -7,7 +7,9 @@ FORT WORTH, TX, May 30, 2024 /24-7PressRelease/ -- RDS Real Estate is proud to w
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511184/the-full-works-inc-commercial-kitchen-works-leases-space-from-rds-real-estate)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rds-real-estate-welcomes-the-full-works-inc-to-golden-triangle-business-park/019007d706c1fbbd39f12221afbb8c15) 
+
+ 
 
 
 

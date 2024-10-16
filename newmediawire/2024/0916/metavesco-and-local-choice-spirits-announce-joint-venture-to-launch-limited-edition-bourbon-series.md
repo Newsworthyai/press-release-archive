@@ -35,7 +35,17 @@ CUMMING, GA - (NewMediaWire) - September 16, 2024 - Metavesco, Inc. (OTC PINK:M
 [Original/Source Press Release](https://www.newmediawire.com/news/metavesco-and-local-choice-spirits-announce-joint-venture-to-launch-limited-edition-bourbon-series-7076055)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metavesco-partners-with-local-choice-spirits-to-launch-new-bourbon-series-at-striped-pig-distillery/aac6ec14aded7ef753b43f45f19d2022) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/metavesco-and-local-choice-spirits-form-joint-venture-for-limited-edition-bourbon-series)
+
+Pickup - [fishervista.com](https://fishervista.com/en/metavesco-and-local-choice-spirits-form-joint-venture-for-premium-bourbon-series/20246870)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/metavesco-and-local-choice-spirits-form-joint-venture-to-launch-premium-bourbon-series/20246870)
+
+Pickup - [advos.io](https://advos.io/en/metavesco-and-local-choice-spirits-form-joint-venture-for-premium-bourbon-line/20246870)
+ 
 
 
 

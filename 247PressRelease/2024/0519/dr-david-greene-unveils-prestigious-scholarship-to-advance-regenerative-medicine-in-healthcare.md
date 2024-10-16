@@ -7,7 +7,9 @@ PHOENIX, AZ, May 19, 2024 /24-7PressRelease/ -- Dr. David Greene, a luminary in 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511005/dr-david-greene-unveils-prestigious-scholarship-to-advance-regenerative-medicine-in-healthcare)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-david-greene-announces-scholarship-for-medical-students/031b87f13d2ee67785c2c0b0325c61d5) 
+
+ 
 
 
 

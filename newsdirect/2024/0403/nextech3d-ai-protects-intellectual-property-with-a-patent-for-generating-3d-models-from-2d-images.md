@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-
 [Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-protects-intellectual-property-with-a-patent-for-generating-3d-models-from-2d-images-810828976)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nextech3d-ai-secures-patent-for-3d-model-generation-technology/d49b9f2f7b07e76704bd63cfc9a12f63) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/nextech3d-ai-secures-pivotal-patent-for-ai-driven-3d-model-generation)
+ 
 
 
 

@@ -7,7 +7,17 @@ MIAMI, FL, September 06, 2024 /24-7PressRelease/ -- CIO Women Magazine, a renown
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514052/cio-women-magazine-features-patricia-delinois-as-one-of-the-most-influential-women-leaders-in-real-estate)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cio-women-magazine-features-patricia-delinois-as-one-of-the-most-influential-women-leaders-in-real-estate/b22106b3e7c9cdb71bec4f7e4251d81f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/patricia-delinois-named-among-most-influential-women-leaders-in-real-estate-by-cio-women-magazine)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cio-women-magazine-honors-patricia-delinois-as-a-leading-real-estate-influencer/20246583)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/patricia-delinois-named-among-most-influential-women-leaders-in-real-estate-by-cio-women-magazine/20246583)
+
+Pickup - [advos.io](https://advos.io/en/patricia-delinois-recognized-as-one-of-the-most-influential-women-leaders-in-real-estate-by-cio-women-magazine/20246583)
+ 
 
 
 

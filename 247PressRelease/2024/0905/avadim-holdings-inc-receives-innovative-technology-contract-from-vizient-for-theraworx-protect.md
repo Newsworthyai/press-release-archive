@@ -7,7 +7,17 @@ SWANNANOA, NC, September 05, 2024 /24-7PressRelease/ -- Avadim Holdings, Inc ann
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514023/avadim-holdings-inc-receives-innovative-technology-contract-from-vizient-for-theraworx-protect)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avadim-holdings-inc-s-theraworx-protect-receives-innovative-technology-contract-from-vizient-inc/57f88dfa049b36f1e2b2fdab5b426710) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/avadim-holdings-theraworx-protect-secures-innovative-technology-contract-from-vizient)
+
+Pickup - [fishervista.com](https://fishervista.com/en/avadim-holdings-inc-secures-innovative-technology-contract-from-vizient-for-theraworx-protect/20246539)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/avadim-holdings-theraworx-protect-secures-innovative-technology-contract-from-vizient/20246539)
+
+Pickup - [advos.io](https://advos.io/en/avadim-holdings-inc-secures-innovative-technology-contract-from-vizient-for-theraworx-protect/20246539)
+ 
 
 
 

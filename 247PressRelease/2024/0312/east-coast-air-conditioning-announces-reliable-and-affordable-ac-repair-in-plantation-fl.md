@@ -7,7 +7,11 @@ PLANTATION, FL, March 12, 2024 /24-7PressRelease/ -- As the Florida sun blazes d
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509177/east-coast-air-conditioning-announces-reliable-and-affordable-ac-repair-in-plantation-fl)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stay-cool-year-round-with-reliable-air-conditioning-repair-in-plantation-fl/87ac34de685e98ecab8f44c54f3ce84d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/stay-cool-and-comfortable-with-east-coast-air-conditioning-s-reliable-ac-repair-in-plantation-fl)
+ 
 
 
 

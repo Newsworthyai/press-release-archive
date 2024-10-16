@@ -23,7 +23,9 @@ As BNB Chain continues to drive the development of GameFi, Seraph, with its soli
 [Original/Source Press Release](https://blockchainwire.io/press-release/seraph-leading-the-web3-gaming-community-on-bnb-chain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/seraph-emerges-as-leading-project-in-bnb-chain-4th-anniversary-celebration/f1f0f62fa0c729751a3b73f6c8acc3a7) 
+
+ 
 
 
 

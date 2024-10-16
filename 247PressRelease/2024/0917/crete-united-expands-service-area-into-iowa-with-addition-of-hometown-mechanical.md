@@ -7,7 +7,17 @@ CHARLOTTE, NC, September 17, 2024 /24-7PressRelease/ -- Crete United ("Crete"), 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514357/crete-united-expands-service-area-into-iowa-with-addition-of-hometown-mechanical)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crete-united-announces-strategic-alliance-with-hometown-mechanical/138d3665fe07b4e25ac42f8509aef887) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/crete-united-expands-into-iowa-with-hometown-mechanical-partnership)
+
+Pickup - [fishervista.com](https://fishervista.com/en/crete-united-expands-into-iowa-partners-with-hometown-mechanical/20246876)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/crete-united-expands-into-iowa-with-hometown-mechanical-acquisition/20246876)
+
+Pickup - [advos.io](https://advos.io/en/crete-united-expands-into-iowa-through-strategic-alliance-with-hometown-mechanical/20246876)
+ 
 
 
 

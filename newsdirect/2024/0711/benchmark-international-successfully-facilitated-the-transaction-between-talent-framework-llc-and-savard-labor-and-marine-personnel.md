@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-talent-framework-llc-and-savard-labor-and-marine-personnel-861120191)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/talent-framework-llc-and-savard-labor-and-marine-personnel-transaction-facilitated-by-benchmark-international/b06f3e8af8a1a2ec8203c7bcedb2c3ce) 
+
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-acquisition-of-talent-framework-by-savard-labor-and-marine-personnel/20244868)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-acquisition-between-talent-framework-and-savard-labor-and-marine/20244868)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/talent-framework-acquired-by-savard-labor-and-marine-personnel-in-strategic-staffing-industry-move/20244868)
+
+Pickup - [citybuzz.co](https://citybuzz.co/talent-framework-acquired-by-savard-labor-and-marine-personnel-in-strategic-staffing-industry-move)
+ 
 
 
 

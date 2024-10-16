@@ -7,7 +7,17 @@ CAMAS, WA, September 10, 2024 /24-7PressRelease/ -- A transformative new chapter
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514124/david-w-brown-plant-based-author-unveils-groundbreaking-new-book-taste-versus-cancer-and-launches-online-plant-based-certification-course-through-p53-university)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-author-david-w-brown-leads-plant-based-nutrition-revolution/c7acadc21399d8de2c53328e53aa7ec0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/plant-based-nutrition-expert-david-w-brown-releases-new-book-and-certification-course)
+
+Pickup - [fishervista.com](https://fishervista.com/en/david-w-brown-launches-taste-versus-cancer-book-and-p53-university-certification-course-pioneering-plant-based-nutrition/20246631)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/plant-based-nutrition-expert-david-w-brown-releases-new-book-and-online-certification-course/20246631)
+
+Pickup - [advos.io](https://advos.io/en/david-w-brown-introduces-taste-versus-cancer-and-p53-university-certification-course/20246631)
+ 
 
 
 

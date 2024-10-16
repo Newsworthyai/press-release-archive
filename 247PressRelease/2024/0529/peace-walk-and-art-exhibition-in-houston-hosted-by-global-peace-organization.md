@@ -7,7 +7,9 @@ HOUSTON, TX, May 29, 2024 /24-7PressRelease/ -- On Saturday, May 25th, the Houst
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511223/peace-walk-and-art-exhibition-in-houston-hosted-by-global-peace-organization)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/houston-peace-organization-hwpl-promotes-global-peace-at-hermann-park/fc93fb49996129728e256f47b75dbff8) 
+
+ 
 
 
 

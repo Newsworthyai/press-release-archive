@@ -7,7 +7,13 @@ WEST CHESTER, PA, June 28, 2024 /24-7PressRelease/ -- Carosella & Associates, a 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512052/west-chester-divorce-attorneys-represent-clients-in-alimony-cases)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/carosella-associates-leading-law-firm-in-west-chester-specializes-in-divorce-and-alimony-cases/23c9479be7a10a607f69cd7c2dd1ac03) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/west-chester-s-carosella-associates-excel-in-alimony-cases/20244569)
+
+Pickup - [advos.io](https://advos.io/en/west-chester-law-firm-carosella-associates-specializes-in-alimony-cases/20244569)
+ 
 
 
 

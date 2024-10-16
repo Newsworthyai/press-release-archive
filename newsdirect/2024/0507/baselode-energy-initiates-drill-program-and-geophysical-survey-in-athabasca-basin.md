@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/baselode-ener
 [Original/Source Press Release](https://newsdirect.com/news/baselode-energy-initiates-drill-program-and-geophysical-survey-in-athabasca-basin-178894344)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/baselode-energy-initiates-drill-program-and-geophysical-survey-in-athabasca-basin/510beaf1c48774ae1fdfd509858c1fb8) 
+
+ 
 
 
 

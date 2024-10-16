@@ -29,7 +29,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/hickcoin-exchange-releases-latest-security-report-demonstrating-robust-protection-capabilities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hickcoin-exchange-releases-comprehensive-security-report/938c06d608ed84cff1caf987af626a0c) 
+
+
+Pickup - [advos.io](https://advos.io/en/hickcoin-exchange-unveils-comprehensive-security-report-highlighting-advanced-protection-measures/20244084)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/hickcoin-exchange-releases-comprehensive-security-report)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/hickcoin-exchange-releases-comprehensive-security-report)
+ 
 
 
 

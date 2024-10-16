@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-feat
 [Original/Source Press Release](https://newsdirect.com/news/tron-dao-featured-as-title-sponsor-at-kbw-showcases-growing-meme-coin-ecosystem-843819846)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tron-dao-takes-center-stage-at-korea-blockchain-week/61781461c905dc4e1ceb3b97d9578a08) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/tron-dao-highlights-meme-coin-ecosystem-at-korea-blockchain-week)
+
+Pickup - [fishervista.com](https://fishervista.com/en/tron-dao-highlights-meme-coin-ecosystem-growth-at-korea-blockchain-week/20246847)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/tron-dao-highlights-meme-coin-ecosystem-growth-at-korea-blockchain-week/20246847)
+
+Pickup - [advos.io](https://advos.io/en/tron-dao-highlights-growing-meme-coin-ecosystem-at-korea-blockchain-week/20246847)
+ 
 
 
 

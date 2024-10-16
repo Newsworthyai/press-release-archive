@@ -43,7 +43,11 @@ The upcoming seed sale for $BETX tokens provides a limited golden opportunity fo
 [Original/Source Press Release](https://blockchainwire.io/press-release/announcing-the-strongest-narrative-going-into-the-bull-market)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-rising-tide-of-gamblefi/724e286c4321ac8980f95d9653f57f1f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/15/betix-pioneering-the-next-wave-of-gamblefi)
+ 
 
 
 

@@ -7,7 +7,11 @@ NEW YORK, NY, March 29, 2024 /24-7PressRelease/ -- EMAM, Inc., a pioneer in medi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509632/emam-inc-partners-with-deepgram-to-elevate-video-and-audio-management-with-advanced-speech-to-text-and-audio-intelligence-integration)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/emam-inc-and-deepgram-partner-to-revolutionize-media-asset-management/5a890cf1c440ef5b048b0ef428f1aaa2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/29/emam-and-deepgram-revolutionize-media-management-with-ai-powered-speech-recognition)
+ 
 
 
 

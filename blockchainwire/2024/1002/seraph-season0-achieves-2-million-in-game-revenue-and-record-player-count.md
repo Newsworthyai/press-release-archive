@@ -21,7 +21,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/seraph-season0-achieves-2-million-in-game-revenue-and-record-player-count)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/seraph-s-successful-season0-shows-exponential-growth-in-web3-gaming/9fb3b6043db83202395d1b27cc7d5be9) 
+
+ 
 
 
 

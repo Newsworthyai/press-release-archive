@@ -31,7 +31,17 @@ Website: [https://www.officialsybarite.com](https://www.officialsybarite.com)Whi
 [Original/Source Press Release](https://blockchainwire.io/press-release/sybarite-revolutionizing-the-gaming-industry-with-innovative-token-launching-on-biconomy-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/sybarite-gaming-token-to-launch-on-biconomy-exchange-promising-to-revolutionize-digital-gaming)
+
+Pickup - [fishervista.com](https://fishervista.com/en/sybarite-gaming-token-set-to-launch-on-biconomy-exchange-ushering-in-new-era-for-digital-gaming/20245705)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/sybarite-gaming-token-set-to-launch-on-biconomy-exchange-promising-to-transform-digital-gaming/20245705)
+
+Pickup - [advos.io](https://advos.io/en/sybarite-to-launch-revolutionary-gaming-token-on-biconomy-exchange/20245705)
+ 
 
  
 

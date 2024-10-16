@@ -31,7 +31,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/after-crossing-100000-active-users-hypelootcom-announces-the-launch-of-its-utility-token-hplt-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hypeloot-hits-50-million-bets-milestone-and-introduces-profit-sharing-for-hplt-holders/542a9d02a45187c257aa3996d8f620b3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/18/hypeloot-launches-utility-token-amid-rapid-growth)
+ 
 
 
 

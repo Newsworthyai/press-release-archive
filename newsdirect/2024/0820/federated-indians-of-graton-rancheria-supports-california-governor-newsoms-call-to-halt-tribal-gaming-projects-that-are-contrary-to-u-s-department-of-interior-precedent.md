@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/federated-ind
 [Original/Source Press Release](https://newsdirect.com/news/federated-indians-of-graton-rancheria-supports-california-governor-newsoms-call-to-halt-tribal-gaming-projects-that-are-contrary-to-u-s-department-of-interior-precedent-651985705)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/governor-newsom-urges-interior-department-to-halt-tribal-gaming-projects/00c65cd07e73a40d1e9506377560af70) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/california-governor-urges-halt-on-controversial-tribal-casino-projects)
+
+Pickup - [fishervista.com](https://fishervista.com/en/graton-rancheria-backs-governor-newsom-s-opposition-to-controversial-tribal-gaming-projects/20245857)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/california-governor-calls-for-halt-on-controversial-tribal-casino-projects/20245857)
+
+Pickup - [advos.io](https://advos.io/en/federated-indians-of-graton-rancheria-back-governor-newsom-s-opposition-to-controversial-tribal-gaming-projects/20245857)
+ 
 
 
 

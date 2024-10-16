@@ -41,7 +41,11 @@ PR Contact:James Smithducker.wtfsupport@ducker.wtf
 [Original/Source Press Release](https://blockchainwire.io/press-release/ducker-presale-launch-a-quacky-adventure-begins-on-solana)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-ducker-the-quackiest-coin-on-solana/2039fc71a1e421d6e4373319204e18a6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/quack-into-the-world-of-ducker-the-meme-coin-making-waves-on-solana)
+ 
 
 
 

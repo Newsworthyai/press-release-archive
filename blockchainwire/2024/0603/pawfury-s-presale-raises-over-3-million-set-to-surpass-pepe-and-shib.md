@@ -39,7 +39,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/pawfurys-presale-raises-over-3-million-set-to-surpass-pepe-and-shib)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pawfury-achieves-over-3-million-in-presale-predicted-rise-to-0-0200/bad93e09b7327b6297df6ce68a4c8846) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/pawfury-achieves-over-3-million-in-presale-predicted-rise-to-0-0200)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/pawfury-achieves-over-3-million-in-presale-predicted-rise-to-0-0200)
+ 
 
 
 

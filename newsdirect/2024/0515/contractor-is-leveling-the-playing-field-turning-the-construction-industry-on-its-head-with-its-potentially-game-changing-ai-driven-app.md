@@ -47,7 +47,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/contractor-is
 [Original/Source Press Release](https://newsdirect.com/news/contractor-is-leveling-the-playing-field-turning-the-construction-industry-on-its-head-with-its-potentially-game-changing-ai-driven-app-754747807)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/contractor-revolutionizing-construction-industry-with-ai-driven-platform/64f24bd992c8a840a4d5cca9e8f063b3) 
+
+ 
 
 
 

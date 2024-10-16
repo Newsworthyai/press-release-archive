@@ -33,7 +33,11 @@ Crypto and/or digital currencies involve substantial risk, are speculative in na
 [Original/Source Press Release](https://blockchainwire.io/press-release/alpha-transform-holdings-releases-new-research-on-k9-finance-dao-knine)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alpha-transform-holdings-releases-new-research-on-k9-finance/c2621ba02c2bbd3fd16c8d4d215e85a6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/alpha-transform-holdings-releases-new-research-on-k9-finance-dao-knine)
+ 
 
 
 

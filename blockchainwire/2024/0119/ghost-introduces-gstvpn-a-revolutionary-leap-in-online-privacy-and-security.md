@@ -7,7 +7,11 @@ In an exciting development today, Ghost, renowned for its leadership in blockcha
 [Original/Source Press Release](https://blockchainwire.io/press-release/ghost-introduces-gstvpn-a-revolutionary-leap-in-online-privacy-and-security)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ghost-and-specter-systems-unveil-gstvpn-a-game-changer-in-online-privacy/0eeea71efde122d15516ea03e6287fe6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/19/ghost-unveils-gstvpn-a-revolutionary-vpn-service-prioritizing-online-privacy-and-security)
+ 
 
 
 

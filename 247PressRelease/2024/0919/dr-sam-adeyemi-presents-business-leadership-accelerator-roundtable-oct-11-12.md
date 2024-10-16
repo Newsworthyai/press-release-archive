@@ -7,7 +7,9 @@ ATLANTA, GA, September 19, 2024 /24-7PressRelease/ -- Dr. Sam Adeyemi, author an
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514456/dr-sam-adeyemi-presents-business-leadership-accelerator-roundtable-oct-11-12)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-leadership-coach-dr-sam-adeyemi-to-host-exclusive-business-leadership-accelerator-roundtable/ce2d7953fff67d24767f53b47eed1882) 
+
+ 
 
 
 

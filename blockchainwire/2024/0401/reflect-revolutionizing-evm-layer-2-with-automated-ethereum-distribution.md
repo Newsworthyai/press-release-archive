@@ -13,7 +13,11 @@ How Does Reflect Work?Reflect operates on the Base EVM Layer 2 framework, which 
 [Original/Source Press Release](https://blockchainwire.io/press-release/reflect-revolutionizing-evm-layer-2-with-automated-ethereum-distribution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/reflect-introduces-groundbreaking-evm-layer-2-protocol-with-automated-eth-payouts/4b938743d0455e7f7a80e5c5a3565fe7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/reflect-pioneering-automated-ethereum-payouts-on-evm-layer-2)
+ 
 
 
 

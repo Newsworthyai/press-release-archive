@@ -61,7 +61,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/unique-canadi
 [Original/Source Press Release](https://newsdirect.com/news/unique-canadian-mortgage-market-presents-2-2-trillion-opportunity-for-pineapple-financial-703321048)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pineapple-financial-inc-eyes-2-2-trillion-opportunity-in-canadian-mortgage-market/0234dd1c5dead50633bdc3d7fad040d1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/07/pineapple-financial-poised-to-capitalize-on-2-2-trillion-canadian-mortgage-market)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pineapple-financial-targets-2-2-trillion-canadian-mortgage-market/20245549)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/pineapple-financial-poised-to-capitalize-on-2-2-trillion-canadian-mortgage-market)
+
+Pickup - [advos.io](https://advos.io/en/pineapple-financial-eyes-2-2-trillion-opportunity-in-canadian-mortgage-market/20245549)
+ 
 
 
 

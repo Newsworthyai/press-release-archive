@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/feganscott-an
 [Original/Source Press Release](https://newsdirect.com/news/feganscott-announces-lawsuit-against-hyundai-and-kia-over-alleged-defect-in-certain-hybrid-electric-vehicles-that-poses-serious-safety-risks-308787573)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/feganscott-files-lawsuit-against-hyundai-and-kia-over-safety-risks/2a93af9d4eeb82a3ef4b40aba1e0c03e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/feganscott-files-class-action-lawsuit-against-hyundai-and-kia-over-alleged-defect-in-hybrid-vehicles)
+ 
 
 
 

@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-future-of-decentralized-trading-with-vulpefi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vulpefi-launches-innovative-platform-to-revolutionize-cryptocurrency-trading/3b83fd2ba006baab5fecebbe944ab194) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/13/vulpefi-unveils-revolutionary-decentralized-trading-platform)
+ 
 
 
 

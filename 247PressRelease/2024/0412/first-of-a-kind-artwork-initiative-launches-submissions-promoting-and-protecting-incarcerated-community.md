@@ -7,7 +7,9 @@ SACRAMENTO, CA, April 12, 2024 /24-7PressRelease/ -- The best of recidivism redu
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510000/first-of-a-kind-artwork-initiative-launches-submissions-promoting-and-protecting-incarcerated-community)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/artwork-initiative-launch-showcases-incarcerated-artists-talents/1c321f17b3c636ed82401f2da22a2e79) 
+
+ 
 
 
 

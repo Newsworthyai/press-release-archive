@@ -31,7 +31,15 @@ Media Contact: Molly ElmoreEmail: melmore(at)ValhilAdvisors.io
 [Original/Source Press Release](https://blockchainwire.io/press-release/storagechain-llc-and-honeycombq-llc-forge-strategic-partnership-to-transform-ediscovery-data-storage)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/storagechain-llc-partners-with-honeycombq-llc-to-revolutionize-data-storage/ddea7b6f5c10b16c1371f154884128ac) 
+
+
+Pickup - [advos.io](https://advos.io/en/storagechain-and-honeycombq-partner-to-revolutionize-ediscovery-data-storage-with-blockchain-technology/20244123)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/storagechain-llc-partners-with-honeycombq-llc-to-revolutionize-data-storage)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/storagechain-llc-partners-with-honeycombq-llc-to-revolutionize-data-storage)
+ 
 
 
 

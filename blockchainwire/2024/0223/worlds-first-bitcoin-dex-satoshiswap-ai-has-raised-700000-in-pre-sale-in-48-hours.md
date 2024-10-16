@@ -25,7 +25,11 @@ SatoshiSwap, operating on the Stacks Layer 2 chain, is a groundbreaking DeFi pro
 [Original/Source Press Release](https://blockchainwire.io/press-release/worlds-first-bitcoin-dex--satoshiswapai-has-raised-700000-in-pre-sale-in-48-hours)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/satoshiswap-ai-raises-700k-in-pre-sale-round-for-bitcoin-dex-development/df303b09bd7df3821ceb546d05b3a3d7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/23/satoshiswap-ai-raises-700k-to-build-bitcoin-s-first-decentralized-exchange)
+ 
 
 
 

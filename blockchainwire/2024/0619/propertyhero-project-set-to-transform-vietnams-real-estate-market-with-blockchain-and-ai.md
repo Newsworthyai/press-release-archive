@@ -9,7 +9,17 @@ Harnessing Blockchain for Transparency and SecurityAt the core of PropertyHeroâ€
 [Original/Source Press Release](https://blockchainwire.io/press-release/propertyhero-project-set-to-transform-vietnams-real-estate-market-with-blockchain-and-ai)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/propertyhero-project-revolutionizing-real-estate-in-vietnam-with-blockchain-and-ai/8fc2bc552959e5d36385ca47f9dfc9d0) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/propertyhero-project-to-revolutionize-vietnam-s-real-estate-market-with-blockchain-and-ai/20244280)
+
+Pickup - [advos.io](https://advos.io/en/propertyhero-project-set-to-transform-vietnams-real-estate-market-with-blockchain-and-ai/20244280)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/propertyhero-project-revolutionizing-real-estate-in-vietnam-with-blockchain-and-ai)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/propertyhero-project-revolutionizing-real-estate-in-vietnam-with-blockchain-and-ai)
+ 
 
 
 

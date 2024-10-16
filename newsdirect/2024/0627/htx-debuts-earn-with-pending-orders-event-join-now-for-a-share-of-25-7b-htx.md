@@ -43,7 +43,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-debuts-ea
 [Original/Source Press Release](https://newsdirect.com/news/htx-debuts-earn-with-pending-orders-event-join-now-for-a-share-of-25-7b-htx-705026693)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-introduces-earn-with-pending-orders-event-join-now-for-a-share-of-25-7b-htx/1ba87a062fe9ca90426ef697aec59487) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/htx-launches-earn-with-pending-orders-event-with-25-7-billion-htx-prize-pool/20244517)
+
+Pickup - [advos.io](https://advos.io/en/htx-launches-earn-with-pending-orders-event-with-25-7-billion-htx-prize-pool/20244517)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-introduces-earn-with-pending-orders-event-join-now-for-a-share-of-25-7b-htx)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-introduces-earn-with-pending-orders-event-join-now-for-a-share-of-25-7b-htx)
+ 
 
 
 

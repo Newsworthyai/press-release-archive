@@ -41,7 +41,17 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/ledgerai-partners-secures-first-of-numerous-letters-of-intent-with-financial-recovery-strategies-frs-to-revolutionize-business-intelligence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ledgerai-secures-transformative-loi-with-financial-recovery-strategies/52a5338d73f873f3a3a1de2183fcf5ac) 
+
+
+Pickup - [advos.io](https://advos.io/en/ledgerai-and-financial-recovery-strategies-partner-to-transform-business-intelligence-with-ai/20246701)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ledgerai-s-aura-vision-set-to-transform-business-intelligence-for-financial-recovery-strategies/20246701)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/07/ledgerai-partners-with-financial-recovery-strategies-to-transform-business-intelligence-through-ai)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ledgerai-and-financial-recovery-strategies-partner-to-transform-business-intelligence-with-ai/20246701)
+ 
 
 
 

@@ -47,7 +47,13 @@ About SceptreSceptre’s liquid staking enables users to stake assets and receiv
 [Original/Source Press Release](https://blockchainwire.io/press-release/sceptre--ledger-works-partner-to-re-invent-risk-management-for-liquid-staking)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sceptre-ledger-works-partner-to-revolutionize-liquid-staking-risk-management/ddd41ecb51fa4172aa71e97c571d2ca5) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/sceptre-ledger-works-partner-to-revolutionize-liquid-staking-risk-management)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/sceptre-ledger-works-partner-to-revolutionize-liquid-staking-risk-management)
+ 
 
 
 

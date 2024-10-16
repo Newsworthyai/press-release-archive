@@ -21,7 +21,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/fathom-nickel
 [Original/Source Press Release](https://newsdirect.com/news/fathom-nickel-expands-portfolio-with-acquisition-of-friesen-lake-property-261922367)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fathom-nickel-expands-portfolio-with-acquisition-of-friesen-lake-property/5c096520132314f57e7b4c20341af262) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/fathom-nickel-bolsters-exploration-potential-with-friesen-lake-property-acquisition/20244549)
+
+Pickup - [advos.io](https://advos.io/en/fathom-nickel-expands-portfolio-with-strategic-acquisition-of-friesen-lake-property/20244549)
+ 
 
 
 

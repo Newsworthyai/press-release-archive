@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cadiz-inc-ceo
 [Original/Source Press Release](https://newsdirect.com/news/cadiz-inc-ceo-susan-kennedy-shares-evolution-and-vision-for-water-management-strategies-905303472)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cadiz-inc-ceo-susan-kennedy-shares-vision-for-water-management-strategies/36efdb0784d20bee22a884dbd9f4ac07) 
+
+ 
 
 
 

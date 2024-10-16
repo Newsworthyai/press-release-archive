@@ -7,7 +7,17 @@ MCHENRY, IL, August 02, 2024 /24-7PressRelease/ -- Diamond Legal, PC has been se
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513031/illinois-divorce-family-law-estate-planning-attorneys-with-decades-of-legal-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/diamond-legal-pc-trusted-legal-team-in-mchenry-lake-and-kane-counties/84acf7a99a9f1180663aebaa548ef8f9) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/diamond-legal-pc-decades-of-expertise-in-divorce-family-law-and-estate-planning/20245456)
+
+Pickup - [advos.io](https://advos.io/en/diamond-legal-pc-celebrates-over-40-years-of-legal-service-in-illinois/20245456)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/diamond-legal-pc-40-years-of-expertise-in-family-law-divorce-and-estate-planning)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/diamond-legal-pc-40-years-of-expertise-in-family-law-divorce-and-estate-planning)
+ 
 
 
 

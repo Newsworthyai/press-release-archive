@@ -7,7 +7,11 @@ VANCOUVER, BC, June 13, 2024 /24-7PressRelease/ -- When logistics are part of bu
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511680/optimizing-international-shipments-a-guide-for-merchants-using-cardboard-boxes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/racer-boxes-provides-expert-insights-for-successful-international-shipping/0bf69f5d48c058b4c43c10320e4194e9) 
+
+
+Pickup - [advos.io](https://advos.io/en/optimizing-international-shipments-racer-boxes-expert-guide-for-merchants/20244106)
+ 
 
 
 

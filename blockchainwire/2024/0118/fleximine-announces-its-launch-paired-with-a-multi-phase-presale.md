@@ -45,7 +45,11 @@ X (Twitter) | Instagram
 [Original/Source Press Release](https://blockchainwire.io/press-release/fleximine-announces-its-launch-paired-with-a-multi-phase-presale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fleximine-unveils-exciting-presale-opportunities-for-cryptocurrency-investors/cd64b61545643aa6a2a43276f70a7c5c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/18/fleximine-launches-innovative-crypto-mining-platform-with-lucrative-presale)
+ 
 
 
 

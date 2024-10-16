@@ -7,7 +7,11 @@ CASSELBERRY, FL, April 09, 2024 /24-7PressRelease/ -- Dermatology practices face
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509837/inga-ellzey-billing-companies-supports-dermatology-practices-requiring-nextech-based-billing)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dermatology-billing-expert-inga-ellzey-showcases-specialized-solutions-at-nextech-conference/414926e7107775c757b5a482d792b92c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/inga-ellzey-billing-companies-specialized-billing-solutions-for-dermatology-practices)
+ 
 
 
 

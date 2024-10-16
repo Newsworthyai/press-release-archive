@@ -7,7 +7,19 @@ NEW YORK, NY, July 19, 2024 /24-7PressRelease/ -- Blockchain sports platform Win
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512616/winnerz-clears-its-name-and-leads-blockchain-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/winnerz-clears-name-from-scam-allegations-focuses-on-business-achievements-and-innovation/0f36433d1e14e4a97876d1b68cd47be0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/19/winnerz-overcomes-legal-challenges-advances-blockchain-innovation-in-sports-industry)
+
+Pickup - [fishervista.com](https://fishervista.com/en/winnerz-vindicated-pioneers-blockchain-innovation-in-sports-industry/20245106)
+
+Pickup - [advos.io](https://advos.io/en/winnerz-cleared-of-scam-allegations-pioneers-blockchain-innovation-in-sports-industry/20245106)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/winnerz-clears-name-from-scam-allegations-focuses-on-business-achievements-and-innovation)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/winnerz-clears-name-from-scam-allegations-focuses-on-business-achievements-and-innovation)
+ 
 
 
 

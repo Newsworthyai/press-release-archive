@@ -7,7 +7,11 @@ ALVARADO, TX, June 11, 2024 /24-7PressRelease/ -- The 917 Industrial Park has re
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510257/newly-finished-office-warehouse-space-near-alvarado-tx)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/917-industrial-park-completes-300000-square-foot-expansion/1bd647e82211f6582cab848666c6f2bb) 
+
+
+Pickup - [advos.io](https://advos.io/en/newly-expanded-917-industrial-park-offers-flexible-office-warehouse-space-near-alvarado-tx/20244007)
+ 
 
 
 

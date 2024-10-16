@@ -7,7 +7,17 @@ KNOXVILLE, TN, August 23, 2024 /24-7PressRelease/ -- A cutting-edge study is tra
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513641/transboundary-streamflow-forecasting-enhanced-by-transfer-learning-a-watershed-moment-in-hydrology)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/transformative-study-enhances-precision-of-streamflow-prediction/01b3beed3f322ebdf14b1979d6d757ce) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/23/transfer-learning-revolutionizes-streamflow-forecasting-in-data-scarce-regions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/transfer-learning-revolutionizes-transboundary-streamflow-forecasting/20245911)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/transfer-learning-revolutionizes-streamflow-forecasting-in-data-scarce-regions/20245911)
+
+Pickup - [advos.io](https://advos.io/en/transfer-learning-revolutionizes-streamflow-forecasting-in-transboundary-basins/20245911)
+ 
 
 
 

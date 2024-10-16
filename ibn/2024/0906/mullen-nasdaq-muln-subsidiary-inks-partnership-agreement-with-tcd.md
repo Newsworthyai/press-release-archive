@@ -25,7 +25,17 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, h
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-subsidiary-inks-partnership-agreement-with-tcd/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-partners-with-tcd-to-provide-bollinger-b4-class-4-trucks-for-new-service-offering/cf7a60db8567fc3779564f2f6a38cfb4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/mullen-automotive-subsidiary-bolsters-ev-fleet-electrification-with-tcd-partnership)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mullen-automotive-subsidiary-partners-with-tcd-to-accelerate-clean-energy-solutions/20246591)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mullen-automotive-subsidiary-partners-with-tcd-to-expand-electric-vehicle-fleet-solutions/20246591)
+
+Pickup - [advos.io](https://advos.io/en/mullen-subsidiary-bollinger-motors-partners-with-tcd-to-electrify-vehicle-fleets/20246591)
+ 
 
 
 

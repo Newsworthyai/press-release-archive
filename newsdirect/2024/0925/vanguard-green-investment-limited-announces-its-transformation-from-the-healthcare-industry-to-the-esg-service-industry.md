@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/vanguard-gree
 [Original/Source Press Release](https://newsdirect.com/news/vanguard-green-investment-limited-announces-its-transformation-from-the-healthcare-industry-to-the-esg-service-industry-935929456)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mu-global-holding-limited-rebrands-as-vanguard-green-investment-limited-focuses-on-esg-advisor-services/9a50ff780dc716f59807da486e66ee76) 
+
+ 
 
 
 

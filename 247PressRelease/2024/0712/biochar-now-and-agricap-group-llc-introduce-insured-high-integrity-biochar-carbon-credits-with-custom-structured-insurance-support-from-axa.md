@@ -7,7 +7,19 @@ LOVELAND, CO, July 12, 2024 /24-7PressRelease/ -- Biochar Now, in collaboration 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512454/biochar-now-and-agricap-group-llc-introduce-insured-high-integrity-biochar-carbon-credits-with-custom-structured-insurance-support-from-axa)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/biochar-now-and-agricap-group-llc-launch-insured-high-integrity-biochar-carbon-credits/b31da09e30362fdc0d37909fba8ebca5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/12/biochar-now-and-agricap-group-launch-insured-high-integrity-carbon-credits-program)
+
+Pickup - [fishervista.com](https://fishervista.com/en/biochar-now-and-agricap-group-launch-insured-high-integrity-biochar-carbon-credits/20244900)
+
+Pickup - [advos.io](https://advos.io/en/biochar-now-and-agricap-group-launch-insured-high-integrity-biochar-carbon-credits/20244900)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/biochar-now-and-agricap-group-llc-launch-insured-high-integrity-biochar-carbon-credits)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/biochar-now-and-agricap-group-llc-launch-insured-high-integrity-biochar-carbon-credits)
+ 
 
 
 

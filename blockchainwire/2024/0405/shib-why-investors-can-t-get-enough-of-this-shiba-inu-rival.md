@@ -59,7 +59,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/shib-why-investors-cant-get-enough-of-this-shiba-inu-rival)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiba-budz-budz-a-new-challenger-in-the-meme-coin-market/26e9f2f7e902c47f009b37820a9b1ce9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/shiba-budz-the-meme-coin-rival-captivating-crypto-investors)
+ 
 
 
 

@@ -37,7 +37,9 @@ This press release may contain forward-looking statements regarding expected fut
 [Original/Source Press Release](https://blockchainwire.io/press-release/treasure-experience-welcomes-douglas-borthwick-as-chief-investment-officer)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/treasure-experience-appoints-douglas-borthwick-as-chief-investment-officer/0a0467ed62cf462f60b4f2b80873cf53) 
+
+ 
 
 
 

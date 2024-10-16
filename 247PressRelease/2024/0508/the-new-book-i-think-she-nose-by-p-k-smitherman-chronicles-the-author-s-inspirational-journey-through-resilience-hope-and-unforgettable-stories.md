@@ -7,7 +7,9 @@ SPRINGFIELD, MO, May 08, 2024 /24-7PressRelease/ -- P.K. Smitherman's latest rel
 [Original/Source Press Release](https://newlive.24-7pressrelease.com/press-release/510721/the-new-book-i-think-she-nose-by-pk-smitherman-chronicles-the-authors-inspirational-journey-through-resilience-hope-and-unforgettable-stories)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/p-k-smitherman-s-i-think-she-nose-a-captivating-journey-of-resilience-and-hope/28e5a74fff76f1a6cb9b95da9b312ee3) 
+
+ 
 
 
 

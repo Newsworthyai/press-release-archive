@@ -7,7 +7,15 @@ WILSONVILLE, OR, July 18, 2024 /24-7PressRelease/ -- Rose Elder Law is pleased t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512640/rose-elder-law-announces-estate-planning-seminar-in-wilsonville-on-july-29th)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/upcoming-estate-planning-seminar-in-wilsonville-oregon/0f2f44584d4087ad2cd121d3cf70af96) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/rose-elder-law-to-host-estate-planning-seminar-in-wilsonville)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rose-elder-law-to-host-estate-planning-seminar-in-wilsonville-on-july-29th/20245042)
+
+Pickup - [advos.io](https://advos.io/en/rose-elder-law-to-host-estate-planning-seminar-in-wilsonville-on-july-29th/20245042)
+ 
 
 
 

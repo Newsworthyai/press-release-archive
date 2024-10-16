@@ -7,7 +7,15 @@ RALEIGH, NC, July 23, 2024 /24-7PressRelease/ -- Furthering its mission of stren
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512741/expanding-affordable-housing-throughout-the-southeast)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cahec-announces-closing-of-six-affordable-housing-properties-in-nc-and-sc/ac78c3e291f8f6217ff85edc7a875e3c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/cahec-closes-six-affordable-housing-properties-in-the-carolinas-adding-602-units)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cahec-advances-affordable-housing-in-the-southeast-with-six-new-communities/20245169)
+
+Pickup - [advos.io](https://advos.io/en/cahec-expands-affordable-housing-in-southeast-with-six-new-developments/20245169)
+ 
 
 
 

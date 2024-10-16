@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/silver-north-
 [Original/Source Press Release](https://newsdirect.com/news/silver-north-resources-secures-option-agreement-for-gdr-project-in-southern-yukon-977100315)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/silver-north-resources-ceo-announces-completion-of-option-agreement-for-gdr-project-in-yukon/3de0186353707424398b6c385b06765d) 
+
+ 
 
 
 

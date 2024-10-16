@@ -79,7 +79,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcx-and-megalink-form-strategic-partnership-to-enhance-blockchain-and-web3-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/upcx-and-megalink-announce-strategic-partnership-for-blockchain-and-gaming-integration/e0e46136685baba5d386ad358cc0c831) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/upcx-and-megalink-partner-to-revolutionize-blockchain-and-web3-gaming)
+
+Pickup - [fishervista.com](https://fishervista.com/en/upcx-and-megalink-announce-strategic-partnership-to-revolutionize-blockchain-and-web3-gaming/20245732)
+
+Pickup - [advos.io](https://advos.io/en/upcx-and-megalink-forge-partnership-to-revolutionize-blockchain-and-web3-gaming/20245732)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/upcx-and-megalink-announce-strategic-partnership-for-blockchain-and-gaming-integration)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/upcx-and-megalink-announce-strategic-partnership-for-blockchain-and-gaming-integration)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/upcx-and-megalink-partner-to-revolutionize-blockchain-gaming-integration/20245732)
+ 
 
 
 

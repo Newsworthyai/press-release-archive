@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/semiconductor
 [Original/Source Press Release](https://newsdirect.com/news/semiconductors-rockets-and-mris-all-need-helium-this-company-is-bringing-it-to-the-world-649239798)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renergen-ceo-talks-expansion-and-first-mover-advantage-in-helium-and-natural-gas-production/db00f98977efc0421c86b007cb4ce9c8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/16/renergen-emerges-as-key-player-in-global-helium-production)
+
+Pickup - [fishervista.com](https://fishervista.com/en/renergen-elevates-global-helium-production-with-new-plant-in-south-africa/20245784)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/renergen-launches-liquid-helium-production-in-south-africa-joining-elite-global-producers/20245784)
+
+Pickup - [advos.io](https://advos.io/en/renergen-bolsters-global-helium-supply-with-new-south-african-plant/20245784)
+ 
 
 
 

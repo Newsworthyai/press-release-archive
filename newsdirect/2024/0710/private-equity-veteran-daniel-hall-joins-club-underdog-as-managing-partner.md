@@ -37,7 +37,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/private-equit
 [Original/Source Press Release](https://newsdirect.com/news/private-equity-veteran-daniel-hall-joins-club-underdog-as-managing-partner-226762783)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/private-equity-veteran-daniel-hall-joins-club-underdog-as-managing-partner/a8a655232e948e5d372832bd9844f835) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/daniel-hall-joins-club-underdog-as-managing-partner/20244830)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/private-equity-expert-daniel-hall-joins-club-underdog-as-managing-partner)
+
+Pickup - [advos.io](https://advos.io/en/private-equity-veteran-daniel-hall-joins-club-underdog-as-managing-partner/20244830)
+ 
 
 
 

@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/emotions-even
 [Original/Source Press Release](https://newsdirect.com/news/emotions-events-unveils-latest-marriage-proposal-trends-for-dubais-elite-786833798)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/emotions-events-unveils-latest-marriage-proposal-trends-in-dubai/9e8376424f81e55fe5c22d2b593e7b77) 
+
+ 
 
 
 

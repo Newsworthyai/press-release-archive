@@ -7,7 +7,9 @@ PLANO, TX, October 09, 2024 /24-7PressRelease/ -- Inc 5000 revealed that PROLIM 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515095/prolim-government-technologies-ranks-153-on-the-2024-inc-5000)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prolim-ranks-153-on-the-2024-inc-5000-list-of-fastest-growing-private-companies-in-america/e6a21eb6eee6a29284e34ef533b77ee2) 
+
+ 
 
 
 

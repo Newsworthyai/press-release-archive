@@ -31,7 +31,17 @@ Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/
 [Original/Source Press Release](https://newsworthy.ai/news/202407081206/the-illusion-of-effective-deib-initiatives-may-be-hiding-some-surprising-gaps-new-study-by-hr-coms-hr-research-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-research-study-reveals-gaps-in-diversity-equity-inclusion-and-belonging-initiatives/d3ae812ead3405471b489cc2a255663c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/study-reveals-gaps-in-deib-initiatives-despite-growing-emphasis/20244757)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/new-study-reveals-significant-gaps-in-deib-initiatives-across-organizations/20244757)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/new-study-reveals-significant-gaps-in-organizational-deib-initiatives)
+
+Pickup - [advos.io](https://advos.io/en/new-study-unveils-gaps-in-deib-initiatives-across-organizations/20244757)
+ 
 
 
 

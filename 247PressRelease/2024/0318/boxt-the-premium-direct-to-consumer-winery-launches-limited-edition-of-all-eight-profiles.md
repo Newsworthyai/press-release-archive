@@ -7,7 +7,11 @@ AUSTIN, TX, March 18, 2024 /24-7PressRelease/ -- BOXT, the female-founded, direc
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509263/boxt-the-premium-direct-to-consumer-winery-launches-limited-edition-of-all-eight-profiles)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boxt-launches-limited-edition-small-vineyard-press-wines/ce101d5d1e0067b16ead630b41bb25f8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/boxt-launches-limited-edition-wine-collection-showcasing-sustainable-winemaking)
+ 
 
 
 

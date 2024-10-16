@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/oncotelic-the
 [Original/Source Press Release](https://newsdirect.com/news/oncotelic-therapeutics-otc-otlc-inks-deal-with-mosaic-immunoengineering-to-sell-clinical-stage-necroptosis-cancer-therapy-assets-350987041)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-retinoblastoma-treatment-market-to-reach-4-20-billion-by-2034-iovance-biotherapeutics-receives-fda-approval-for-lifileucel/8e465685e6237b6368f9042410f3d78a) 
+
+ 
 
 
 

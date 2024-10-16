@@ -43,7 +43,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/hefe-on-avax--the-crypto-community-with-real-world-impact)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hefeavax-achieves-1-million-dollar-market-cap-and-adopts-18-walruses/1c41f3a6d037b129af7a3aff02fb7aff) 
+
+ 
 
 
 

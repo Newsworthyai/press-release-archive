@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/silver-range-
 [Original/Source Press Release](https://newsdirect.com/news/silver-range-resources-announces-encouraging-results-from-cambridge-and-sniper-properties-in-nevada-210425703)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/silver-range-resources-announces-encouraging-results-from-nevada-properties/a23f93ceea7006060b545f8ba64c8d4b) 
+
+
+Pickup - [advos.io](https://advos.io/en/silver-range-resources-reports-promising-mineralization-at-nevada-properties/20244127)
+ 
 
 
 

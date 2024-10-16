@@ -7,7 +7,11 @@ PARIS, KY, March 16, 2024 /24-7PressRelease/ -- In a riveting exploration of hum
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509313/los-asesinos-silenciosos-a-captivating-tale-explores-mental-health-and-mystery)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/riveting-novel-los-asesinos-silenciosos-explores-mental-health-and-family-dynamics/6aa8bd3eba732360489dd65d65464b9e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/16/unveiling-the-silent-killers-a-poignant-exploration-of-mental-health)
+ 
 
 
 

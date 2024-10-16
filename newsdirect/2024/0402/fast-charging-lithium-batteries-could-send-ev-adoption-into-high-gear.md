@@ -77,7 +77,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/fast-charging
 [Original/Source Press Release](https://newsdirect.com/news/fast-charging-lithium-batteries-could-send-ev-adoption-into-high-gear-487521769)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-innovation-in-lithium-ion-batteries-and-e3-lithium-s-advancements-propel-ev-adoption/a57f949657cc0b6720ac419950a6c6a6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/breakthrough-in-fast-charging-lithium-batteries-fuels-ev-revolution)
+ 
 
 
 

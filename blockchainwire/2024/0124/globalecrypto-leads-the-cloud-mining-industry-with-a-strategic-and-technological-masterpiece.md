@@ -55,7 +55,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/globalecrypto-leads-the-cloud-mining-industry-with-a-strategic-and-technological-masterpiece)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/globalecrypto-revolutionizes-cloud-mining-with-the-symphony-of-efficiency/ebac3df559e06a5b19633382d5531fc7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/24/globalecrypto-harmonizes-efficiency-and-strategy-in-cloud-mining)
+ 
 
 
 

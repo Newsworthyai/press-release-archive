@@ -33,7 +33,9 @@ CNS Pharmaceuticals (NASDAQ: CNSP), a biopharmaceutical company specializing in 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/cns-pharmaceuticals-nasdaq-cnsp-inks-exclusive-license-in-transformational-step-to-treating-gbm/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cns-pharmaceuticals-enters-exclusive-license-agreement-for-potential-gbm-treatment/4731462adca1b8109a6a977e32241a7e) 
+
+ 
 
 
 

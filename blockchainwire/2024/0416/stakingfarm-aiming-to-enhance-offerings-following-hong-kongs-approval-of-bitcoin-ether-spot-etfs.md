@@ -64,7 +64,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-aiming-to-enhance-offerings-following-hong-kongs-approval-of-bitcoin-ether-spot-etfs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stakingfarm-expands-platform-in-response-to-bitcoin-and-ether-etf-approval/3a79e5e6963566de488a0b10e0daedc6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/stakingfarm-aiming-to-enhance-offerings-following-hong-kong-s-approval-of-bitcoin-ether-spot-etfs)
+ 
 
 
 

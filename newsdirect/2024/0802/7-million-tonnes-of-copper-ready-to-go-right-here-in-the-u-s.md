@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/7-million-ton
 [Original/Source Press Release](https://newsdirect.com/news/7-million-tonnes-of-copper-ready-to-go-right-here-in-the-u-s-977449188)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/world-copper-ceo-talks-copper-exploration-and-production-on-benzinga-s-all-access/f56c7b5986bfeeb76ce7d8d64dcc4fd9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/world-copper-ltd-unveils-massive-copper-resource-in-arizona)
+
+Pickup - [fishervista.com](https://fishervista.com/en/world-copper-ltd-announces-major-copper-resource-in-arizona/20245464)
+
+Pickup - [advos.io](https://advos.io/en/world-copper-ltd-identifies-major-copper-resource-in-arizona/20245464)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/world-copper-ltd-poised-to-tap-into-significant-u-s-copper-resources)
+ 
 
 
 

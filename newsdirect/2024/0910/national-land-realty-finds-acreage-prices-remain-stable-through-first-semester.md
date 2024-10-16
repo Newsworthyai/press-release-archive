@@ -275,7 +275,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/national-land
 [Original/Source Press Release](https://newsdirect.com/news/national-land-realty-finds-acreage-prices-remain-stable-through-first-semester-845255983)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/national-land-realty-releases-2024-land-sales-data/8022ea2de2dd04bdbff79ce3ccdd2ff0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/national-land-realty-reports-stable-acreage-prices-amid-regional-fluctuations)
+
+Pickup - [fishervista.com](https://fishervista.com/en/national-land-realty-reports-stable-acreage-prices-in-first-half-of-2024/20246672)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/u-s-farmland-prices-hold-steady-amidst-regional-fluctuations/20246672)
+
+Pickup - [advos.io](https://advos.io/en/national-land-realty-reports-stable-acreage-prices-in-first-half-of-2024/20246672)
+ 
 
 
 

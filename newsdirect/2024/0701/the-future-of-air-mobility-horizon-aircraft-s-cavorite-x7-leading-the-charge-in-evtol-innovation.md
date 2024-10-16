@@ -45,7 +45,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-future-of
 [Original/Source Press Release](https://newsdirect.com/news/the-future-of-air-mobility-horizon-aircrafts-cavorite-x7-leading-the-charge-in-evtol-innovation-864029968)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-future-of-air-mobility-horizon-aircraft-s-cavorite-x7-leading-the-charge-in-evtol-innovation/08eaf11d74234406ff87291129bde38b) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/horizon-aircraft-s-cavorite-x7-pioneers-hybrid-evtol-innovation/20244604)
+
+Pickup - [advos.io](https://advos.io/en/horizon-aircraft-s-cavorite-x7-pioneers-future-of-evtol-air-mobility/20244604)
+ 
 
 
 

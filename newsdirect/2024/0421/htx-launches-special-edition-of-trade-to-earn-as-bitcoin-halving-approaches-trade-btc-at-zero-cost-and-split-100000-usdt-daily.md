@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-launches-
 [Original/Source Press Release](https://newsdirect.com/news/htx-launches-special-edition-of-trade-to-earn-as-bitcoin-halving-approaches-trade-btc-at-zero-cost-and-split-100-000-usdt-daily-316117700)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-launches-special-edition-of-trade-to-earn-as-bitcoin-halving-approaches-trade-btc-at-zero-cost-and-split-100000-usdt-daily/2f82f204109a26df2d4c792ff8e00169) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/21/htx-launches-special-edition-of-trade-to-earn-as-bitcoin-halving-approaches-trade-btc-at-zero-cost-and-split-100000-usdt-daily)
+ 
 
 
 

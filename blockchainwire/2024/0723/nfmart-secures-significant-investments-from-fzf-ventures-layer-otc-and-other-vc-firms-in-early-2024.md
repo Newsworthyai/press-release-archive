@@ -57,7 +57,21 @@ FZF: [https://t.me/FZFCommunity](https://t.me/FZFCommunity)Disclaimer: The infor
 [Original/Source Press Release](https://blockchainwire.io/press-release/nfmart-secures-significant-investments-from-fzf-ventures-layer-otc--and-other-vc-firms-in-early-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nfmart-secures-substantial-investments-to-democratize-nft-access/e8718d7406eb9e978433ce1b0a075a70) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/23/nfmart-secures-major-investments-to-revolutionize-nft-marketplace-creation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/nfmart-secures-significant-investments-to-democratize-nft-marketplaces/20245197)
+
+Pickup - [advos.io](https://advos.io/en/nfmart-attracts-major-investments-from-leading-venture-capital-firms-in-2024/20245197)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/nfmart-secures-substantial-investments-to-democratize-nft-access)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/nfmart-secures-substantial-investments-to-democratize-nft-access)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/nfmart-secures-major-investments-to-revolutionize-nft-marketplace-creation)
+ 
 
 
 

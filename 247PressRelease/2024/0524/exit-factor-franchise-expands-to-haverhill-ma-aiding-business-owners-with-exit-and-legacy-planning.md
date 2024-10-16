@@ -7,7 +7,9 @@ HAVERHILL, MA, May 24, 2024 /24-7PressRelease/ -- Exit Factor™, a leading busi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511145/exit-factor-franchise-expands-to-haverhill-ma-aiding-business-owners-with-exit-and-legacy-planning)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exit-factortm-opens-new-location-in-haverhill-ma-welcomes-scott-proposki-as-owner-and-operator/0c507cbe3ed9f0046e893df2f80c2628) 
+
+ 
 
 
 

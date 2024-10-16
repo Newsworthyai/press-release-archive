@@ -27,7 +27,9 @@ Now is the time to consider adding Zano to your portfolio before the world fully
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-future-of-private-and-secure-transactions--the-ultimate-deflationary-digital-asset)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zano-redefining-privacy-and-security-in-cryptocurrency/6adea97724fc9d5550720b00f4592449) 
+
+ 
 
 
 

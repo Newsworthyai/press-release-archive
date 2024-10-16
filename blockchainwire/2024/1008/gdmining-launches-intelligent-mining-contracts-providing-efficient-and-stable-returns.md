@@ -38,7 +38,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-launches-intelligent-mining-contracts-providing-efficient-and-stable-returns)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gdmining-launches-intelligent-mining-contracts-for-hassle-free-cryptocurrency-mining/d21326693dc03853ffb0a5b6fc8218fa) 
+
+ 
 
 
 

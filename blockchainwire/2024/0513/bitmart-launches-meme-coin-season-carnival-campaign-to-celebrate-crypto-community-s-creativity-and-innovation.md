@@ -33,7 +33,13 @@ BitMart is the premier global digital asset trading platform. With millions of u
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-launches-meme-coin-season-carnival-campaign-to-celebrate-crypto-communitys-creativity-and-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmart-launches-meme-coin-season-carnival-campaign/0daf9291e049eee2ade55f90d4b33de3) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitmart-launches-meme-coin-season-carnival-campaign)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitmart-launches-meme-coin-season-carnival-campaign)
+ 
 
 
 

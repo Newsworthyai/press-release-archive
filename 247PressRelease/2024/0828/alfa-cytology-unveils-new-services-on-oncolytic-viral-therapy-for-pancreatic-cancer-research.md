@@ -7,7 +7,17 @@ NEW YORK, NY, August 28, 2024 /24-7PressRelease/ -- Alfa Cytology, a New York-ba
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513856/alfa-cytology-unveils-new-services-on-oncolytic-viral-therapy-for-pancreatic-cancer-research)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alfa-cytology-unveils-new-services-for-pancreatic-cancer-therapy-development/28bb2a3f7788944d0046c89398a91e5d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/alfa-cytology-introduces-innovative-oncolytic-viral-therapy-services-for-pancreatic-cancer-research)
+
+Pickup - [fishervista.com](https://fishervista.com/en/alfa-cytology-introduces-advanced-oncolytic-viral-therapy-services-for-pancreatic-cancer/20246328)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/alfa-cytology-launches-oncolytic-viral-therapy-services-for-pancreatic-cancer-research/20246328)
+
+Pickup - [advos.io](https://advos.io/en/alfa-cytology-launches-oncolytic-viral-therapy-services-for-pancreatic-cancer-research/20246328)
+ 
 
 
 

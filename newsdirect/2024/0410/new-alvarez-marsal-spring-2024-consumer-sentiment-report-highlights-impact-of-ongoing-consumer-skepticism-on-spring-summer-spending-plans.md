@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-alvarez-a
 [Original/Source Press Release](https://newsdirect.com/news/new-alvarez-and-marsal-spring-2024-consumer-sentiment-report-highlights-impact-of-ongoing-consumer-skepticism-on-spring-and-summer-spending-plans-765606271)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alvarez-marsals-consumer-report-reveals-consumer-spending-trends-for-spring-2024/35998bbb822f14ec3f2e9acee4e2a88b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/alvarez-marsal-s-spring-2024-consumer-sentiment-report-shows-impact-of-ongoing-consumer-skepticism-on-spending)
+ 
 
 
 

@@ -41,7 +41,9 @@ For more information about Lisa Moretti’s campaign and her vision for Pasco Co
 [Original/Source Press Release](https://newsworthy.ai/news/202409251280/development-is-a-privilege-not-a-right-lisa-moretti-pushes-for-stronger-rules-in-pasco-county-florida)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lisa-moretti-calls-for-responsible-and-community-focused-development-planning-in-pasco-county/af0dd1f9f0d1ad6a7d3bcaf70465a62f) 
+
+ 
 
 
 

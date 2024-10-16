@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-cboes-hyb
 [Original/Source Press Release](https://newsdirect.com/news/how-cboes-hybrid-trading-model-bridges-past-and-future-104129113)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cboe-s-commitment-to-hybrid-trading-bridging-the-past-and-future/505036ded178fc6fcc85f4d6447dc289) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/cboe-s-hybrid-trading-model-bridging-tradition-and-innovation)
+ 
 
 
 

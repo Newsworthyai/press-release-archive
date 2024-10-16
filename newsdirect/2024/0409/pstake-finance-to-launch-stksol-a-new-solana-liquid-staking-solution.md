@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/pstake-financ
 [Original/Source Press Release](https://newsdirect.com/news/pstake-finance-to-launch-stksol-a-new-solana-liquid-staking-solution-726560222)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pstake-finance-to-launch-stksol-a-new-solana-liquid-staking-solution/9438fb3cee700c14bbe8afbbe5817700) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/pstake-finance-unveils-stksol-solana-s-new-liquid-staking-solution)
+ 
 
 
 

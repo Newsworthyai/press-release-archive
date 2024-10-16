@@ -7,7 +7,11 @@ NEW YORK, NY, March 19, 2024 /24-7PressRelease/ -- In recent years, HBO and Warn
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509332/hbos-executive-casey-bloys-confesses-innovative-strategies-trolling-the-competition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/entertainment-industry-leaders-hbo-and-warner-bros-thrive-under-visionary-leadership/3ff6a8a620edc4ef259efd4a50cabfa3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/19/hbo-and-warner-bros-embrace-innovation-under-visionary-leadership)
+ 
 
 
 

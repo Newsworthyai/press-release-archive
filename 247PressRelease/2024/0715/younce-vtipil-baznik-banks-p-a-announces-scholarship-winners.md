@@ -7,7 +7,15 @@ RALEIGH, NC, July 15, 2024 /24-7PressRelease/ -- Younce, Vtipil, Baznik & Banks,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512463/younce-vtipil-baznik-banks-pa-announces-scholarship-winners)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/raleigh-law-firm-awards-3000-in-scholarships-to-north-carolina-students/0d5baa941d118accd4913d897a3731b1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/younce-vtipil-baznik-banks-p-a-awards-3000-in-scholarships-to-north-carolina-students)
+
+Pickup - [fishervista.com](https://fishervista.com/en/younce-vtipil-baznik-banks-p-a-awards-3000-in-scholarships-to-north-carolina-students/20244950)
+
+Pickup - [advos.io](https://advos.io/en/younce-vtipil-baznik-banks-p-a-awards-scholarships-to-north-carolina-students/20244950)
+ 
 
 
 

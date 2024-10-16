@@ -7,7 +7,11 @@ ATLANTA, GA, March 27, 2024 /24-7PressRelease/ -- The Law Office of Ahmad R. Cre
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509536/atlanta-georgia-criminal-defense-attorney-with-years-of-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ahmad-r-crews-dedicated-criminal-defense-attorney-in-atlanta-ga/832afb6df171dfd1c17f2d4225eeb4df) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/atlanta-criminal-defense-attorney-provides-dedicated-representation)
+ 
 
 
 

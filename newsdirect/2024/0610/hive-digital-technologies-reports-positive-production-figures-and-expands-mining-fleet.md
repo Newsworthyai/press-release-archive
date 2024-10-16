@@ -25,7 +25,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/hive-digital-
 [Original/Source Press Release](https://newsdirect.com/news/hive-digital-technologies-reports-positive-production-figures-and-expands-mining-fleet-520846797)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hive-digital-technologies-reports-positive-production-figures-and-expands-mining-fleet/90995b0708bd274fa9a74175d527e2df) 
+
+
+Pickup - [advos.io](https://advos.io/en/hive-digital-technologies-achieves-positive-production-and-expands-mining-fleet/20243998)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/hive-digital-technologies-reports-positive-production-figures-and-expands-mining-fleet)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/hive-digital-technologies-reports-positive-production-figures-and-expands-mining-fleet)
+ 
 
 
 

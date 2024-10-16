@@ -7,7 +7,15 @@ ANAHEIM, CA, July 21, 2024 /24-7PressRelease/ -- On July 19, in Pasto, Nariño, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512725/first-ever-colombian-governmentguerilla-group-territorial-commitment-for-peace-to-result-in-demining-land-and-the-restoring-of-hundreds-of-displaced-families)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/colombian-government-signs-historic-peace-commitment-with-local-insurgency-group/ad830a8eacabc0b94c86500058474b23) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/21/historic-peace-agreement-in-colombia-government-and-guerilla-group-commit-to-territorial-peace-process)
+
+Pickup - [fishervista.com](https://fishervista.com/en/colombian-government-and-comuneros-del-sur-sign-historic-peace-agreement/20245131)
+
+Pickup - [advos.io](https://advos.io/en/colombian-government-and-guerrilla-group-sign-historic-peace-commitment/20245131)
+ 
 
 
 

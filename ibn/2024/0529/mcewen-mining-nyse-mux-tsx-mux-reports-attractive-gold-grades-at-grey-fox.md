@@ -27,7 +27,9 @@ McEwen Mining (NYSE: MUX) (TSX: MUX) yesterday announced promising new assay re
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-reports-attractive-gold-grades-at-grey-fox/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-mining-announces-promising-gold-assay-results-at-grey-fox-deposit/1041529cd61af7caf2f4c6020678a043) 
+
+ 
 
 
 

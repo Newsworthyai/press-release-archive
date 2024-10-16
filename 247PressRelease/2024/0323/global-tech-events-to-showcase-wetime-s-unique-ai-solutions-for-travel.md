@@ -7,7 +7,11 @@ REDWOOD CITY, CA, March 23, 2024 /24-7PressRelease/ -- Wetime, a Belgian startup
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509492/global-tech-events-to-showcase-wetimes-unique-ai-solutions-for-travel)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/belgian-startup-wetime-poised-to-transform-travel-industry-with-ai-platform/1e981d5df21a23c66db9ce00af455915) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/23/belgian-startup-wetime-revolutionizes-travel-planning-with-cutting-edge-ai)
+ 
 
 
 

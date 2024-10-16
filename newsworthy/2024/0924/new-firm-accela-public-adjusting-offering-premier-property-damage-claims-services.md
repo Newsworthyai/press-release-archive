@@ -33,7 +33,9 @@ Vincent B. DonadioChief Marketing Officervincent@accelaclaims.com+1-866-272-4376
 [Original/Source Press Release](https://newsworthy.ai/news/202409241273/new-firm-accela-public-adjusting-offering-premier-property-damage-claims-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/accela-public-adjusting-inc-opens-new-home-office-in-valley-stream-ny/61bd1466c1d2488755795ce64520624a) 
+
+ 
 
 
 

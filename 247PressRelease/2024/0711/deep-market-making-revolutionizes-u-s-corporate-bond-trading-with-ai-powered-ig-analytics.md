@@ -7,7 +7,15 @@ NEW YORK, NY, July 11, 2024 /24-7PressRelease/ -- Deep Market Making, Inc (Deep 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512439/deep-market-making-revolutionizes-us-corporate-bond-trading-with-ai-powered-ig-analytics)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/deep-market-making-inc-deep-mm-unveils-ai-powered-analytics-for-corporate-bonds/ba66ee459dc897177e642c5b3d7c9c6d) 
+
+
+Pickup - [advos.io](https://advos.io/en/deep-market-making-introduces-ai-powered-ig-analytics-to-transform-u-s-corporate-bond-trading/20244854)
+
+Pickup - [fishervista.com](https://fishervista.com/en/deep-market-making-introduces-ai-powered-analytics-for-u-s-corporate-bond-trading/20244854)
+
+Pickup - [citybuzz.co](https://citybuzz.co/ai-powered-analytics-revolutionize-us-corporate-bond-trading)
+ 
 
 
 

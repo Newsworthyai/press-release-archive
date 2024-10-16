@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/deepsales-2-5
 [Original/Source Press Release](https://newsdirect.com/news/deepsales-2-5-released-discover-and-ai-driven-prospecting-features-revolutionize-sales-intelligence-615828946)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/deepsales-2-5-revolutionizes-sales-intelligence-with-new-features/b8b01131274968c8722e4bef609044ed) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/deepsales-2-5-launches-with-advanced-ai-driven-features-for-enhanced-sales-intelligence)
+
+Pickup - [fishervista.com](https://fishervista.com/en/deepsales-2-5-released-new-features-transform-sales-intelligence/20246628)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/deepsales-2-5-introduces-ai-driven-features-to-enhance-sales-intelligence/20246628)
+
+Pickup - [advos.io](https://advos.io/en/deepsales-2-5-unveils-discover-and-ai-driven-prospecting-features-revolutionizing-sales-intelligence/20246628)
+ 
 
 
 

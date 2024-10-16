@@ -7,7 +7,9 @@ DALLAS, TX, May 23, 2024 /24-7PressRelease/ -- Local news sources report that Da
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511106/the-wilhite-law-firm-provides-new-interactive-car-crash-map-for-dallas-drivers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dallas-traffic-fatality-data-reveals-interactive-map-of-danger-zones/d94141324758b80ef5f848079d7c24a0) 
+
+ 
 
 
 

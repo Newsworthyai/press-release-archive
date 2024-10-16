@@ -51,7 +51,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-discover-the-trade-polytrade-listing-on-xt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-lists-token-polytrade-and-trade-usdt-trading-pair/1c7bf76a529f1528168bd6258a2e7958) 
+
+
+Pickup - [advos.io](https://advos.io/en/xt-exchange-welcomes-polytrade-token-trade-listing/20243976)
+ 
 
 
 

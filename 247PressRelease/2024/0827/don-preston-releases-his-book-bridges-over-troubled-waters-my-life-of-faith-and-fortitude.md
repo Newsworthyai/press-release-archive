@@ -7,7 +7,17 @@ TAMPA, FL, August 27, 2024 /24-7PressRelease/ -- Don Preston released his book "
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513800/don-preston-releases-his-book-bridges-over-troubled-waters-my-life-of-faith-and-fortitude)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/don-preston-releases-inspirational-memoir-bridges-over-troubled-waters/4072cb8ffc6fd727a7dadf62dedf8025) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/don-preston-releases-memoir-bridges-over-troubled-waters-my-life-of-faith-and-fortitude/20245977)
+
+Pickup - [advos.io](https://advos.io/en/don-preston-releases-memoir-bridges-over-troubled-waters/20245977)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/retired-banker-don-preston-releases-memoir-on-faith-and-resilience)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/retired-banker-don-preston-releases-memoir-on-faith-and-resilience/20245977)
+ 
 
 
 

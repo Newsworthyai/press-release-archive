@@ -31,7 +31,9 @@ Scinai Immunotherapeutics (NASDAQ: SCNI), a biotechnology company focused on de
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/scinai-immunotherapeutics-nasdaq-scni-receives-pei-feedback-regarding-anti-il-17-nanoab/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scinai-immunotherapeutics-receives-positive-regulatory-feedback-for-plaque-psoriasis-clinical-trial/b156d1d1cbf7ced6d0420831b5133066) 
+
+ 
 
 
 

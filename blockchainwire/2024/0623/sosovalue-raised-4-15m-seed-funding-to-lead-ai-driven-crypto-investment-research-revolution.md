@@ -15,7 +15,17 @@ Headquartered in Singapore, SoSoValue is an AI-driven investment research platfo
 [Original/Source Press Release](https://blockchainwire.io/press-release/sosovalue-raised-415m-seed-funding-to-lead-ai-driven-crypto-investment-research-revolution)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sosovalue-closes-4-15m-seed-funding-round-attracts-1-2m-users-in-5-months/8ac2ee7da467195c7e04e2b2e84e7be1) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/sosovalue-secures-4-15m-seed-funding-to-advance-ai-driven-crypto-investment-research/20244398)
+
+Pickup - [advos.io](https://advos.io/en/sosovalue-secures-4-15m-seed-funding-to-transform-ai-driven-crypto-investment-research/20244398)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/sosovalue-closes-4-15m-seed-funding-round-attracts-1-2m-users-in-5-months)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/sosovalue-closes-4-15m-seed-funding-round-attracts-1-2m-users-in-5-months)
+ 
 
 
 

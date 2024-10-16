@@ -57,7 +57,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/blue-trust-se
 [Original/Source Press Release](https://newsdirect.com/news/blue-trust-selects-vident-brightlight-and-mammoth-technology-to-launch-revolutionary-faith-based-private-investing-platform-864716703)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blue-trust-partners-with-vident-brightlight-and-mammoth-for-new-faith-based-investing-platform/6bc21f98c056ffbc3d35b9c22eb26136) 
+
+ 
 
 
 

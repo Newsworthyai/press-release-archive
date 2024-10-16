@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ionic-rare-ea
 [Original/Source Press Release](https://newsdirect.com/news/ionic-rare-earths-fields-strong-magnet-recycling-interest-moves-closer-to-partnership-agreements-989706268)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ionic-rare-earths-fields-strong-magnet-recycling-interest-moves-closer-to-partnership-agreements/9840e3082d6105cf8e22f157116aa351) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/ionic-rare-earths-gains-momentum-in-magnet-recycling-with-potential-partnerships)
+ 
 
 
 

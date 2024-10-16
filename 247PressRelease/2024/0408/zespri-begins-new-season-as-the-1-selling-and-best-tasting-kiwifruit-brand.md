@@ -7,7 +7,11 @@ NEWPORT BEACH, CA, April 08, 2024 /24-7PressRelease/ -- Retailers can expect shi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509866/zespri-begins-new-season-as-the-1-selling-and-best-tasting-kiwifruit-brand)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zespri-kiwifruit-shipping-soon-1-selling-brand-prepares-for-new-season/4dca5e4b5f7d873c8fbe591ce125e05e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/zespri-kicks-off-new-season-as-top-kiwifruit-brand)
+ 
 
 
 

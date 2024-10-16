@@ -45,7 +45,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ai-frontiers-
 [Original/Source Press Release](https://newsdirect.com/news/ai-frontiers-in-healthcare-revolutionizing-medicine-at-the-2024-1artificialintelligence-global-conference-675492780)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-ai-conference-to-explore-ai-s-impact-on-healthcare/a40024edb5d1c45a8b4585dc148f1d4b) 
+
+ 
 
 
 

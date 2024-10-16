@@ -37,7 +37,9 @@ anna@picklejar.com
 [Original/Source Press Release](https://www.newmediawire.com/news/picklejar-unveils-latest-venue-managed-services-innovations-in-upcoming-webinar-7075961)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/picklejar-unveils-new-digital-signage-and-ticketing-platform-for-live-music-venues/d9a1118700d467bdad0aa8a54976e17d) 
+
+ 
 
 
 

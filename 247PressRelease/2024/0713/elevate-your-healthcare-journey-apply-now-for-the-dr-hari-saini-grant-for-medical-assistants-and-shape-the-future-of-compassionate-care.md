@@ -7,7 +7,15 @@ FAYETTEVILLE, NC, July 13, 2024 /24-7PressRelease/ -- The Dr. Hari Saini Grant f
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512461/elevate-your-healthcare-journey-apply-now-for-the-dr-hari-saini-grant-for-medical-assistants-and-shape-the-future-of-compassionate-care)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-hari-saini-grant-empowering-future-healthcare-professionals/e6ff4763a263a799782a079d68e0c663) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/13/dr-hari-saini-grant-offers-1000-scholarship-to-aspiring-medical-assistants)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dr-hari-saini-grant-for-medical-assistants-a-promising-opportunity-for-aspiring-healthcare-professionals/20244934)
+
+Pickup - [advos.io](https://advos.io/en/dr-hari-saini-grant-for-medical-assistants-a-1000-scholarship-opportunity-for-aspiring-healthcare-professionals/20244934)
+ 
 
 
 

@@ -7,7 +7,11 @@ Introduction:BABA is a meme coin on the Solana blockchain, having emerged just s
 [Original/Source Press Release](https://blockchainwire.io/press-release/baba-the-most-exclusive-meme-on-solana-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/baba-the-ultimate-meme-coin-on-solana-blockchain/c4487492002e792cabfdae0ff2f8ea3c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/06/baba-the-exclusive-meme-coin-aiming-for-billion-dollar-success-on-solana)
+ 
 
 
 

@@ -43,7 +43,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/snapchat-rele
 [Original/Source Press Release](https://newsdirect.com/news/snapchat-releases-new-teen-safety-measures-503097429)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/snapchat-expands-safety-features-for-teen-users/e8abe0197b7d7e91253708a8e7abca37) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/snapchat-introduces-enhanced-safety-measures-for-teen-users/20244611)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/01/snapchat-enhances-teen-safety-with-new-protective-features)
+
+Pickup - [advos.io](https://advos.io/en/snapchat-introduces-new-safety-measures-for-teens/20244611)
+ 
 
 
 

@@ -25,7 +25,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/standard-uran
 [Original/Source Press Release](https://newsdirect.com/news/standard-uranium-announces-promising-new-drilling-campaign-at-sun-dog-uranium-project-254486672)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/standard-uranium-unveils-new-prospecting-results-and-drilling-campaign-at-sun-dog-uranium-project/497d877c5f57057f173fe84cb2dbe701) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/standard-uranium-launches-strategic-drilling-campaign-at-sun-dog-project-in-saskatchewan)
+
+Pickup - [fishervista.com](https://fishervista.com/en/standard-uranium-launches-new-drilling-campaign-at-sun-dog-uranium-project/20245083)
+
+Pickup - [advos.io](https://advos.io/en/standard-uranium-to-launch-new-drilling-campaign-at-sun-dog-project/20245083)
+ 
 
 
 

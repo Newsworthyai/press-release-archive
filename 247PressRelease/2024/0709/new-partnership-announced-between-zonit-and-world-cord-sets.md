@@ -7,7 +7,15 @@ BOULDER, CO, July 09, 2024 /24-7PressRelease/ -- Zonit, a leader in data center 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512320/new-partnership-announced-between-zonit-and-world-cord-sets)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zonit-announces-stocking-partnership-with-world-cord-sets/687d8bbe85c841453458006b492c90b1) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/zonit-partners-with-world-cord-sets-to-enhance-it-product-accessibility/20244779)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/zonit-and-world-cord-sets-forge-strategic-partnership-to-enhance-data-center-power-solutions)
+
+Pickup - [advos.io](https://advos.io/en/zonit-and-world-cord-sets-announce-strategic-partnership-to-enhance-it-product-accessibility/20244779)
+ 
 
 
 

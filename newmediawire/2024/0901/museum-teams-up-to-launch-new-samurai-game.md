@@ -21,7 +21,17 @@
 [Original/Source Press Release](https://www.newmediawire.com/news/museum-teams-up-to-launch-new-samurai-game-7075987)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/martial-arts-history-museum-partners-with-moon-rock-games-for-samurai-brothers-kickstarter-launch/f12e3138343be28001fe8c5fc6c6a7e1) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/martial-arts-history-museum-partners-with-moon-rock-games-for-new-samurai-tabletop-game/20246442)
+
+Pickup - [advos.io](https://advos.io/en/martial-arts-history-museum-partners-with-moon-rock-games-for-new-samurai-tabletop-game/20246442)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/01/martial-arts-history-museum-partners-with-moon-rock-games-for-new-samurai-themed-tabletop-game)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/martial-arts-history-museum-partners-with-moon-rock-games-for-new-samurai-themed-tabletop-game/20246442)
+ 
 
 
 

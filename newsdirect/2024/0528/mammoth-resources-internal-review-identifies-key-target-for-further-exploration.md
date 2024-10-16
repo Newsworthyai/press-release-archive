@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/mammoth-resou
 [Original/Source Press Release](https://newsdirect.com/news/mammoth-resources-internal-review-identifies-key-target-for-further-exploration-206642274)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mammoth-resources-corp-identifies-key-target-for-further-exploration/c1f9e94dd8c47728e1c48f87be835add) 
+
+ 
 
 
 

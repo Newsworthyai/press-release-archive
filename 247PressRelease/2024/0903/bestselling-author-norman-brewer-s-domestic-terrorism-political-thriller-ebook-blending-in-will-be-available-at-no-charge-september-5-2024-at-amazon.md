@@ -7,7 +7,17 @@ WILMINGTON, NC, September 03, 2024 /24-7PressRelease/ -- Bestselling author Norm
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513961/bestselling-author-norman-brewers-domestic-terrorism-political-thriller-ebook-blending-in-will-be-available-at-no-charge-september-5-2024-at-amazon)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-norman-brewer-to-release-political-thriller-blending-in-as-free-ebook-on-september-5-2024/8b66108ad6aeff4ca7ccb6a0746b7a66) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/norman-brewer-s-political-thriller-blending-in-available-for-free-on-amazon/20246472)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/bestselling-author-norman-brewer-offers-free-ebook-on-domestic-terrorism/20246472)
+
+Pickup - [advos.io](https://advos.io/en/norman-brewer-s-political-thriller-blending-in-available-for-free-on-amazon/20246472)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/bestselling-author-norman-brewer-offers-free-ebook-on-domestic-terrorism)
+ 
 
 
 

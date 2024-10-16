@@ -7,7 +7,11 @@ MONTREAL, QC, June 17, 2024 /24-7PressRelease/ -- Future Electronics, a leading 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511657/future-electronics-will-host-team-building-workshop-on-improv-comedy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/future-electronics-hosts-improv-comedy-team-building-workshop/4d9f1f6a5ab9b0301c775befc4cd304d) 
+
+
+Pickup - [advos.io](https://advos.io/en/future-electronics-to-host-team-building-workshop-on-improv-comedy/20244189)
+ 
 
 
 

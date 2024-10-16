@@ -41,7 +41,9 @@ FanSeePR@gmail.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/fansees-strategic-expansion-welcoming-new-cco-li-pu-huang-to-drive-global-growth-and-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fansee-appoints-li-pu-huang-as-cco-attracts-global-investors/2ef9b449e442c13f2174fe6ec8f81da6) 
+
+ 
 
 
 

@@ -21,7 +21,9 @@ Trace Labs will lead the data working group to develop and validate technologies
 [Original/Source Press Release](https://blockchainwire.io/press-release/origintrail-decentralized-knowledge-graph-for-trusted-cross-organization-real-time-data-integration-in-eu-funded-dmaast)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trace-labs-joins-eu-initiative-for-manufacturing-resilience/0d16b80333ec08fa324f4d66a667fb8f) 
+
+ 
 
 
 

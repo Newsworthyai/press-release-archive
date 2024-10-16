@@ -21,7 +21,9 @@ Core is the most Bitcoin-aligned EVM blockchain with ~55% of Bitcoin mining hash
 [Original/Source Press Release](https://blockchainwire.io/press-release/core-foundation-launches-core-commit-program-offering-blockchain-developers-funding-and-access-to-100-vcs)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/core-foundation-launches-core-commit-program-to-incentivize-developers/785ac603f58e8e076b44eea223c5e2ee) 
+
+ 
 
 
 

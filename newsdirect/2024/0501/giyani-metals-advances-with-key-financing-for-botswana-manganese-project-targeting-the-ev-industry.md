@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/giyani-metals
 [Original/Source Press Release](https://newsdirect.com/news/giyani-metals-advances-with-key-financing-for-botswana-manganese-project-targeting-the-ev-industry-573399336)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/giyani-metals-advances-with-key-financing-for-botswana-manganese-project-targeting-the-ev-industry/36d6d3d62b0e7c28a2182e5ba5279471) 
+
+ 
 
 
 

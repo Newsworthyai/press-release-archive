@@ -13,7 +13,11 @@ The Remedy's commitment to ensuring the best mental healthcare quality culminate
 [Original/Source Press Release](https://newsworthy.ai/news/20240118994/the-remedy-introduces-deep-tms-therapy-for-effective-treatment-of-depression-and-ocd)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-remedy-introduces-advanced-deep-tms-therapy-for-depression-and-ocd-treatment/926910890cff7feb507eec7e57a1fc1e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/18/the-remedy-expands-treatment-options-with-deep-tms-therapy)
+ 
 
 
 

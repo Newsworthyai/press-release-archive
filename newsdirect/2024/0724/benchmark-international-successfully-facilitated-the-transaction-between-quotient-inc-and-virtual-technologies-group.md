@@ -41,7 +41,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-quotient-inc-and-virtual-technologies-group-683887384)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-facilitates-transaction-between-quotient-inc-and-virtual-technologies-group-vtg/65f0c544d89869049bc27d7f7f5c9cc7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/benchmark-international-facilitates-acquisition-of-quotient-inc-by-virtual-technologies-group)
+
+Pickup - [fishervista.com](https://fishervista.com/en/benchmark-international-facilitates-strategic-acquisition-between-quotient-inc-and-virtual-technologies-group/20245215)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-facilitates-strategic-acquisition-between-quotient-inc-and-virtual-technologies-group/20245215)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/quotient-inc-acquired-by-virtual-technologies-group-in-strategic-federal-it-merger)
+ 
 
 
 

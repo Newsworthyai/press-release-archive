@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/kevin-triumph
 [Original/Source Press Release](https://newsdirect.com/news/kevin-triumphs-with-first-account-to-account-nfc-iphone-transaction-471876851)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kevin-breaks-ground-with-first-ever-iphone-nfc-transaction/cc2ccab2e3edef01c9520844777b713a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/kevin-makes-history-with-first-account-to-account-nfc-iphone-transaction)
+ 
 
 
 

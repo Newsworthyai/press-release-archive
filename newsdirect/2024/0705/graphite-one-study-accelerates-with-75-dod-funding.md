@@ -101,7 +101,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/graphite-one-
 [Original/Source Press Release](https://newsdirect.com/news/graphite-one-study-accelerates-with-75-dod-funding-789588278)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/graphite-one-announces-revised-contract-with-the-us-department-of-defense-to-increase-share-of-expenditures-from-50-to-75/e9bfea27b8bcd5cec31b9e410d6a6faa) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/graphite-one-secures-increased-dod-funding-for-accelerated-feasibility-study/20244737)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/graphite-one-secures-increased-dod-funding-for-accelerated-feasibility-study)
+
+Pickup - [advos.io](https://advos.io/en/graphite-one-secures-increased-dod-funding-to-accelerate-feasibility-study/20244737)
+ 
 
 
 

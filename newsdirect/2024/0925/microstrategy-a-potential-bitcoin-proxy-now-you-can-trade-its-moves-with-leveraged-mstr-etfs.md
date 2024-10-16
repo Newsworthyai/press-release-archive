@@ -55,7 +55,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/microstrategy
 [Original/Source Press Release](https://newsdirect.com/news/microstrategy-a-potential-bitcoin-proxy-now-you-can-trade-its-moves-with-leveraged-mstr-etfs-181330780)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rex-shares-releases-t-rex-2x-long-and-short-mstr-daily-target-etfs/a681a707305c4227ca4e8ea985507e1a) 
+
+ 
 
 
 

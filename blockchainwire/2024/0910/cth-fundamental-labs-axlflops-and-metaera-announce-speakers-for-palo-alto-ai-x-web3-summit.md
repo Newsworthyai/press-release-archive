@@ -59,7 +59,21 @@ AI2030 is a member-based initiative aiming to harness the transformative power o
 [Original/Source Press Release](https://blockchainwire.io/press-release/cthfundamental-labs-axlflops-and-metaera-announce-speakers-for-palo-alto-ai-x-web3-summit)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/palo-alto-ai-x-web3-summit-unveils-key-speakers-and-topics/8a8bd131bc9eeba78a1334458d9e9037) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/palo-alto-ai-x-web3-summit-unveils-key-speakers-and-topics)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/palo-alto-ai-x-web3-summit-unveils-key-speakers-and-topics)
+
+Pickup - [fishervista.com](https://fishervista.com/en/palo-alto-ai-x-web3-summit-announces-influential-speakers/20246692)
+
+Pickup - [advos.io](https://advos.io/en/speakers-announced-for-palo-alto-ai-x-web3-summit/20246692)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/palo-alto-ai-x-web3-summit-announces-influential-speaker-lineup/20246692)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/palo-alto-ai-x-web3-summit-announces-impressive-speaker-lineup)
+ 
 
 
 

@@ -15,7 +15,9 @@ At the Evexia Wellness Centers, highly trained professional staff work with your
 [Original/Source Press Release](https://newsworthy.ai/news/20231230960/evexia-wellness-center-fresno-introduces-ketamine-infusion-therapy-as-an-alternative-treatment-option-for-ptsd-in-clovis-ca)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-treatment-for-ptsd-evexia-wellness-center-offers-ketamine-infusion-therapy/f428910224a620f17959b0f3e8cdeaaa) 
+
+ 
 
 
 

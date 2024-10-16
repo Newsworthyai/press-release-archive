@@ -61,7 +61,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/halving-2024-how-bitcoin-btc-ethereum-eth-and-furrever-token-furrs-are-poised-to-transform-in-the-new-etf-driven-market-landscape)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-btc-halving-a-new-chapter-in-crypto-with-the-rise-of-etfs/43fb4c033387ff6065f2f1a0bfe25169) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/15/halving-2024-how-bitcoin-btc-ethereum-eth-and-furrever-token-furr-s-are-poised-to-transform-in-the-new-etf-driven-market-landscape)
+ 
 
 
 

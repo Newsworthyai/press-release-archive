@@ -23,7 +23,9 @@ Clene (NASDAQ: CLNN) (along with its subsidiaries, “Clene”) and its wholly 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/clene-nasdaq-clnn-presents-extended-survival-data-at-2024-encals-meeting/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/clene-inc-presents-new-long-term-cnm-au8-treatment-results-at-european-als-meeting/841e34529ec86a90255859d3b3270761) 
+
+ 
 
 
 

@@ -13,7 +13,11 @@ Following Coinfest Asia 2024, the CoinW team will head to Korea for Korea Blockc
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-unveils-nexus-program-at-coinfest-asia-to-expand-global-reach)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-introduces-nexus-program-and-propw-in-bali-brunch-event/d3f5c8a4fb6c0c6d9e9b9e74a091ac71) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/coinw-launches-nexus-program-and-propw-platform-at-coinfest-asia/20246725)
+ 
 
 
 

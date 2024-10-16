@@ -7,7 +7,11 @@ MODESTO, CA, March 13, 2024 /24-7PressRelease/ -- Modesto air conditioning repai
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509188/modesto-ac-repair-installation-replacement-contractors-at-star-mechanical-announce-achieving-500-5-star-reviews-to-celebrate-they-are-offering-a-59-air-conditioning-tune-up)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/licensed-hvac-contractor-offers-59-tune-up-and-special-financing-for-new-hvac-systems/c112d031db65c4f777bb958ab7f4a32c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/13/star-mechanical-celebrates-500-5-star-reviews-with-59-ac-tune-up-offer)
+ 
 
 
 

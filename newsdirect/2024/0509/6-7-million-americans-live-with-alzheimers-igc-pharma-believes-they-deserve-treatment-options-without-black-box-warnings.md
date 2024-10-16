@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/6-7-million-a
 [Original/Source Press Release](https://newsdirect.com/news/6-7-million-americans-live-with-alzheimers-igc-pharma-believes-they-deserve-treatment-options-without-black-box-warnings-494950963)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/millions-of-americans-living-with-alzheimer-s-new-treatment-options-on-the-horizon/1352c2750d26055eb79dfd05f94c8811) 
+
+ 
 
 
 

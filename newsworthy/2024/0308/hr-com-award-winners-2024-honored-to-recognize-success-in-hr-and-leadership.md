@@ -45,7 +45,13 @@ HR.com, the largest network of HR professionals, is committed to helping HR prof
 [Original/Source Press Release](https://newsworthy.ai/news/202403081111/hr-com-award-winners-2024-honored-to-recognize-success-in-hr-and-leadership)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-awards-2024-recognize-excellence-in-hr-and-leadership-programs/e40d4714693c8142a6d1b6670b738290) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-com-announces-2024-award-winners-for-excellence-in-hr-and-leadership/2024666)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/08/hr-com-honors-excellence-in-hr-and-leadership-with-2024-awards)
+ 
 
 
 

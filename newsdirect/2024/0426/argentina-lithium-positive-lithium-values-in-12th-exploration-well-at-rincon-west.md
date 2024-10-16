@@ -21,7 +21,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/argentina-lit
 [Original/Source Press Release](https://newsdirect.com/news/argentina-lithium-positive-lithium-values-in-12th-exploration-well-at-rincon-west-618023196)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/argentina-lithium-reports-positive-results-in-rincon-west-project-exploration/a42ff599cbdb02f13fc23c547a1c5398) 
+
+ 
 
 
 

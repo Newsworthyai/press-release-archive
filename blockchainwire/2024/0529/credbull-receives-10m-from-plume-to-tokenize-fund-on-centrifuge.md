@@ -57,7 +57,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/credbull-receives-10m-from-plume-to-tokenize-fund-on-centrifuge-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/credbull-s-on-chain-private-credit-fund-tokenized-on-centrifuge-and-distributed-via-plume-ecosystem/62d22103f0c3fbe589a02e9003f24b7f) 
+
+ 
 
 
 

@@ -43,7 +43,9 @@ Telegram Community: [https://t.me/deviscto](https://t.me/deviscto)Twitter X: [ht
 [Original/Source Press Release](https://blockchainwire.io/press-release/dev-is-fish-makes-waves-in-the-sui-ocean-and-announces-onlyfins)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/devo-the-goldfish-developer-making-waves-in-the-blockchain-world/5199be60a7b94a3d3ae84ed579c97b0b) 
+
+ 
 
 
 

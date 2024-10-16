@@ -13,7 +13,9 @@ To enhance accessibility, The New Brain Institute accepts most major insurance c
 [Original/Source Press Release](https://newsworthy.ai/news/202402221081/the-new-brain-institute-introduces-breakthrough-tms-treatment-for-depression)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cutting-edge-tms-treatment-now-offered-at-the-new-brain-institute/339ed7c1400047b4f4ad29faba7b2e7c) 
+
+ 
 
 
 

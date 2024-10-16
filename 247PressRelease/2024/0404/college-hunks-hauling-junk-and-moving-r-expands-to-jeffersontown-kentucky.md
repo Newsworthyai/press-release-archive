@@ -7,7 +7,11 @@ JEFFERSONTOWN, KY, April 04, 2024 /24-7PressRelease/ -- College HUNKS Hauling Ju
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509817/college-hunks-hauling-junk-and-moving-expands-to-jeffersontown-kentucky)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/college-hunks-hauling-junk-and-moving-expands-to-jeffersontown-ky/8c1ebf8209215205b2733f8a683a55ab) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/college-hunks-hauling-junk-and-moving-expands-to-jeffersontown-kentucky)
+ 
 
 
 

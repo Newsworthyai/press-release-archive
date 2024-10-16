@@ -29,7 +29,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-quantum-nyse-qbts-adds-new-chief-human-resources-officer-to-management-team/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-nyse-qbts-appoints-new-chief-human-resources-officer-to-executive-team/24b8330a74693fe2179165a4bcd15e29) 
+
+ 
 
 
 

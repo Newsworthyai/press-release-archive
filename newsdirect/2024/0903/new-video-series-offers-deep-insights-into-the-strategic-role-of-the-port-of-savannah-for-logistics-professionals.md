@@ -61,7 +61,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-video-ser
 [Original/Source Press Release](https://newsdirect.com/news/new-video-series-offers-deep-insights-into-the-strategic-role-of-the-port-of-savannah-for-logistics-professionals-773186894)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/db-schenker-launches-video-series-on-port-of-savannah/55e619f8102d487f789a4943b5f5cf27) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/db-schenker-launches-video-series-highlighting-port-of-savannah-s-strategic-importance/20246493)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/03/db-schenker-launches-video-series-highlighting-strategic-importance-of-port-of-savannah)
+
+Pickup - [fishervista.com](https://fishervista.com/en/db-schenker-unveils-video-series-highlighting-the-strategic-role-of-the-port-of-savannah/20246493)
+
+Pickup - [advos.io](https://advos.io/en/db-schenker-launches-video-series-highlighting-the-strategic-role-of-the-port-of-savannah/20246493)
+ 
 
 
 

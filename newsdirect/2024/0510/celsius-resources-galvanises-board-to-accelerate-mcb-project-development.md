@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/celsius-resou
 [Original/Source Press Release](https://newsdirect.com/news/celsius-resources-galvanises-board-to-accelerate-mcb-project-development-217698333)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/celsius-resources-accelerates-mcb-project-development-with-board-restructure/deefd0be475212a03dde3540fde3669b) 
+
+ 
 
 
 

@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/goodway-group
 [Original/Source Press Release](https://newsdirect.com/news/goodway-group-earns-fourth-nod-on-adexchangers-programmatic-power-player-list-483701182)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/goodway-group-recognized-as-adexchanger-s-2024-programmatic-power-player/5fd4da479eaf4af757c6a4bbcb6c8d4e) 
+
+ 
 
 
 

@@ -23,7 +23,21 @@ Soulbound is an avant-garde social gaming platform delivering revolutionary game
 [Original/Source Press Release](https://blockchainwire.io/press-release/animoca-brands-backed-soulbound-raises-4-million-for-web3-social-gaming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/soulbound-raises-4m-to-empower-new-creator-economy/077ff9b30cba9987674cf2844d5e67bd) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/soulbound-raises-4m-to-empower-new-creator-economy)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/soulbound-raises-4m-to-empower-new-creator-economy)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/soulbound-secures-4-million-in-funding-to-revolutionize-web3-social-gaming)
+
+Pickup - [fishervista.com](https://fishervista.com/en/soulbound-raises-4-million-to-revolutionize-web3-social-gaming/20245907)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/soulbound-secures-4-million-to-revolutionize-web3-social-gaming/20245907)
+
+Pickup - [advos.io](https://advos.io/en/soulbound-secures-4-million-to-revolutionize-web3-social-gaming/20245907)
+ 
 
 
 

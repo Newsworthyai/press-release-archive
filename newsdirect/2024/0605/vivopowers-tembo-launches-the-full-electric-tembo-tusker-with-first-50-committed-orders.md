@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/vivopowers-te
 [Original/Source Press Release](https://newsdirect.com/news/vivopowers-tembo-launches-the-full-electric-tembo-tusker-with-first-50-committed-orders-278424411)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vivopower-s-tembo-launches-the-full-electric-tembo-tusker-with-first-50-committed-orders/419652c5ac9b076d6a811e6eefbbfd05) 
+
+ 
 
 
 

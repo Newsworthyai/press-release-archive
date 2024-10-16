@@ -7,7 +7,11 @@ ATLANTA, GA, March 21, 2024 /24-7PressRelease/ -- Round up your little bunnies a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509445/hop-over-to-huddle-house-this-easter-kids-eat-free)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kids-eat-free-at-huddle-house-this-easter-weekend/839a3e2f0182800d96bcae6aa31ca9d5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/21/hop-over-to-huddle-house-for-a-delightful-easter-treat)
+ 
 
 
 

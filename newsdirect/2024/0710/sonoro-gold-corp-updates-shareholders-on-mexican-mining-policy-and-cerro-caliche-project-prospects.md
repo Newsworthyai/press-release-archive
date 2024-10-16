@@ -21,7 +21,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/sonoro-gold-c
 [Original/Source Press Release](https://newsdirect.com/news/sonoro-gold-corp-updates-shareholders-on-mexican-mining-policy-and-cerro-caliche-project-prospects-461903947)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sonoro-gold-corp-chairman-discusses-new-mining-regime-in-mexico-and-updates-shareholders/dae70adb8c882fff7f26729d7c60b290) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/sonoro-gold-corp-provides-key-updates-on-mexican-mining-policy-and-cerro-caliche-project/20244839)
+
+Pickup - [advos.io](https://advos.io/en/sonoro-gold-corp-provides-key-updates-on-mexican-mining-policy-and-cerro-caliche-project/20244839)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/sonoro-gold-corp-anticipates-favorable-shift-in-mexican-mining-policy-highlights-improved-cerro-caliche-project-economics)
+ 
 
 
 

@@ -25,7 +25,13 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/earn-passive-gold-with-shadowgold-the-defi-rwa-token-backed-by-physical-gold)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shadowfi-launches-shadowgold-the-first-defi-token-backed-by-real-gold/a5fdd91fb323c2b5fabc8ee199bf90c9) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/shadowfi-launches-shadowgold-the-first-defi-token-backed-by-real-gold)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/shadowfi-launches-shadowgold-the-first-defi-token-backed-by-real-gold)
+ 
 
 
 

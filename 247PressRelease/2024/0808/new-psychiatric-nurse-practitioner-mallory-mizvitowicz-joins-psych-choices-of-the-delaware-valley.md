@@ -7,7 +7,17 @@ BROOMALL, PA, August 08, 2024 /24-7PressRelease/ -- Psych Choices of the Delawar
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513241/new-psychiatric-nurse-practitioner-mallory-mizvitowicz-joins-psych-choices-of-the-delaware-valley)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/psych-choices-welcomes-distinguished-nurse-practitioner-to-their-team/4364c5614e2c60401ce7893f8191eca3) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/psych-choices-of-the-delaware-valley-welcomes-new-psychiatric-nurse-practitioner-mallory-mizvitowicz/20245571)
+
+Pickup - [advos.io](https://advos.io/en/mallory-mizvitowicz-joins-psych-choices-of-the-delaware-valley-as-new-psychiatric-nurse-practitioner/20245571)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/psych-choices-of-the-delaware-valley-expands-mental-health-services-with-new-psychiatric-nurse-practitioner/20245571)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/psych-choices-of-the-delaware-valley-expands-mental-health-services-with-new-psychiatric-nurse-practitioner)
+ 
 
 
 

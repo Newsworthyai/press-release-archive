@@ -37,7 +37,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/claravine-nam
 [Original/Source Press Release](https://newsdirect.com/news/claravine-named-metadata-management-solution-of-the-year-at-2024-data-breakthrough-awards-312148299)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/claravine-named-metadata-management-solution-of-the-year-at-2024-data-breakthrough-awards/941de8e6adcf332c73ca118b1869bd52) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/claravine-named-metadata-management-solution-of-the-year-at-2024-data-breakthrough-awards)
+ 
 
 
 

@@ -61,7 +61,9 @@ Twitter | Discord | Facebook | Instagram | Youtube | Telegram Discussi
 [Original/Source Press Release](https://blockchainwire.io/press-release/pngvn-the-value-of-130-companies-in-one-token)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gngim-contracted-to-manage-pngvn-token-investments-in-nft-cryptocurrency-and-ai/ad1133b7f41897fb330f5c32448046d9) 
+
+ 
 
 
 

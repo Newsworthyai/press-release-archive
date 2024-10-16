@@ -43,7 +43,9 @@ SOURCE: United Payment
 [Original/Source Press Release](https://blockchainwire.io/press-release/united-payment-expands-global-and-regional-operations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/united-payment-achieves-milestone-with-1-million-active-customers-and-regional-leadership/97fa7c076c8cad9d52113f78960547fe) 
+
+ 
 
 
 

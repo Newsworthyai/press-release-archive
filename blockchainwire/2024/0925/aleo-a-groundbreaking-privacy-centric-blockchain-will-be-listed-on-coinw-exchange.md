@@ -33,7 +33,9 @@ About ALEO
 [Original/Source Press Release](https://blockchainwire.io/press-release/aleo-a-groundbreaking-privacy-centric-blockchain-will-be-listed-on-coinw-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-list-aleo-privacy-centric-blockchain-for-developers/80eec0c978f4cf2a3ae62810096a659c) 
+
+ 
 
 
 

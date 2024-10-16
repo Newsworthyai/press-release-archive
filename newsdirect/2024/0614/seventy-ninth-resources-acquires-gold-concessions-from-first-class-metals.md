@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/seventy-ninth
 [Original/Source Press Release](https://newsdirect.com/news/seventy-ninth-resources-acquires-gold-concessions-from-first-class-metals-540193145)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/seventy-ninth-resources-acquires-gold-concessions-from-first-class-metals/ea200cd42554b5b1310bcdc675acd126) 
+
+
+Pickup - [advos.io](https://advos.io/en/seventy-ninth-resources-expands-gold-exploration-with-canadian-concession-acquisitions/20244161)
+ 
 
 
 

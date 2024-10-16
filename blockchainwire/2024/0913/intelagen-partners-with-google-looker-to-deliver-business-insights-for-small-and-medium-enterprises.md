@@ -19,7 +19,17 @@ About MarketMindMarketMind is a pioneering, generative AI-driven investor relati
 [Original/Source Press Release](https://blockchainwire.io/press-release/intelagen-partners-with-google-looker-to-deliver-business-insights-for-small-and-medium-enterprises)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/intelagen-announces-enhanced-partnership-with-google-cloud-looker-to-provide-intelligent-bi-solutions/7c5f5d91533f86e12cd2d98d73eb0b11) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/intelagen-enhances-partnership-with-google-looker-to-offer-advanced-bi-solutions-for-smes)
+
+Pickup - [fishervista.com](https://fishervista.com/en/intelagen-and-google-looker-partner-to-enhance-business-intelligence-for-smes/20246817)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/intelagen-and-google-looker-partner-to-enhance-business-intelligence-for-smes/20246817)
+
+Pickup - [advos.io](https://advos.io/en/intelagen-and-google-looker-partner-to-enhance-business-intelligence-for-smes/20246817)
+ 
 
 
 

@@ -37,7 +37,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/callan-family
 [Original/Source Press Release](https://newsdirect.com/news/callan-family-office-launches-business-advisory-practice-to-serve-business-owners-through-all-phases-of-their-companys-lifecycle-475819558)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/callan-family-office-launches-business-advisory-practice/c659a102c2a2f92000adaccf0bcb28b9) 
+
+ 
 
 
 

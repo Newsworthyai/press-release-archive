@@ -35,7 +35,19 @@ press@tangem.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/tangem-to-unveil-its-first-crypto-visa-payment-card-combined-with-a-hardware-wallet)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tangem-ag-partners-with-visa-to-introduce-self-custodial-payment-solution/a034e08978a1935ab298a761dfbf8da3) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/tangem-partners-with-visa-to-launch-crypto-visa-payment-card-with-hardware-wallet/20244729)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/tangem-partners-with-visa-to-launch-innovative-crypto-payment-card)
+
+Pickup - [advos.io](https://advos.io/en/tangem-partners-with-visa-to-launch-crypto-visa-payment-card-with-embedded-hardware-wallet/20244729)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/tangem-ag-partners-with-visa-to-introduce-self-custodial-payment-solution)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/tangem-ag-partners-with-visa-to-introduce-self-custodial-payment-solution)
+ 
 
 
 

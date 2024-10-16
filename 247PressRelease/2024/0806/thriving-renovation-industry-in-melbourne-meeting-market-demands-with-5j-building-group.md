@@ -7,7 +7,17 @@ MELBOURNE, AUSTRALIA, August 06, 2024 /24-7PressRelease/ -- The renovation indus
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513126/thriving-renovation-industry-in-melbourne-meeting-market-demands-with-5j-building-group)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/melbourne-renovation-industry-surges-as-homeowners-seek-modernization/27836f6fa7eba94255ca2fb1643c7334) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/melbourne-s-renovation-boom-5j-building-group-leads-the-way-in-home-transformations)
+
+Pickup - [fishervista.com](https://fishervista.com/en/melbourne-s-renovation-boom-5j-building-group-leading-the-charge/20245504)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/melbourne-s-renovation-industry-booms-as-homeowners-embrace-modern-living)
+
+Pickup - [advos.io](https://advos.io/en/rising-demand-for-home-renovations-in-melbourne-boosts-market-growth/20245504)
+ 
 
 
 

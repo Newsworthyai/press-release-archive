@@ -63,7 +63,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-capitalizes-on-bitcoins-market-dynamics-with-advanced-automated-trading-solutions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/defiquant-announces-cutting-edge-automated-trading-solutions-for-crypto-investors/d6fce8c29f148bcbe81007cbe5b73ba0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/10/defiquant-unveils-advanced-automated-trading-solutions-for-bitcoin-s-volatile-market)
+ 
 
 
 

@@ -44,7 +44,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/top-analyst-explains-shiba-inu-rival-potential--why-shib-holders-should-watch-closely)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiba-budz-budz-emerges-as-a-contender-to-shiba-inu-shib/22ca7866c2adf43ff1dca8c01275aa14) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/shiba-budz-the-meme-coin-rival-turning-heads)
+ 
 
 
 

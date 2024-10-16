@@ -52,7 +52,9 @@ Michael Egorov
 [Original/Source Press Release](https://blockchainwire.io/press-release/top-vcs-join-eywas-seed-round-led-by-curves-founder)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/eywa-raises-7-million-to-reshape-defi-landscape-with-cross-chain-bridge/653008ce7550d27a8acad2ae93fbfc10) 
+
+ 
 
 
 

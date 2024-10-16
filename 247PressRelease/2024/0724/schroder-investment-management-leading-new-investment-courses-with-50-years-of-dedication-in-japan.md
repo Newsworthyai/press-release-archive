@@ -7,7 +7,17 @@ TOKYO, JAPAN, July 24, 2024 /24-7PressRelease/ -- A Glorious Fifty-Year History 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512768/schroder-investment-management-leading-new-investment-courses-with-50-years-of-dedication-in-japan)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/schroder-investment-management-japan-ltd-fifty-years-of-success-in-investment-market/8e60d88ec50a1bef383bc3cb84c97d24) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/schroder-investment-management-celebrates-50-years-in-japan-pioneering-sustainable-investment-strategies)
+
+Pickup - [fishervista.com](https://fishervista.com/en/schroder-investment-management-celebrates-50-years-in-japan-with-new-investment-courses/20245204)
+
+Pickup - [advos.io](https://advos.io/en/schroder-investment-management-celebrates-50-years-in-japan-with-new-initiatives/20245204)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/schroder-investment-management-celebrates-50-years-in-japan-emphasizing-esg-and-global-perspective)
+ 
 
 
 

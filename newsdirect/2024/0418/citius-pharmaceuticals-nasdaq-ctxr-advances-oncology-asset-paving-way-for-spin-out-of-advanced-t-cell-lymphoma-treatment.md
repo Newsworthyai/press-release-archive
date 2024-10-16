@@ -53,7 +53,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/citius-pharma
 [Original/Source Press Release](https://newsdirect.com/news/citius-pharmaceuticals-nasdaq-ctxr-advances-oncology-asset-paving-way-for-spin-out-of-advanced-t-cell-lymphoma-treatment-399624844)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/citius-pharmaceuticals-advancing-oncology-asset-paving-way-for-spin-out-of-advanced-t-cell-lymphoma-treatment/c9ed16944b3ea7bd3aa3663ee00a4dd1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/citius-pharmaceuticals-nasdaq-ctxr-advances-oncology-asset-paving-way-for-spin-out-of-advanced-t-cell-lymphoma-treatment)
+ 
 
 
 

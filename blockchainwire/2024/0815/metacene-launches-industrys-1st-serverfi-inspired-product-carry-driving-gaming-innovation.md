@@ -27,7 +27,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/metacene-launches-industrys-1st-serverfi-inspired-product-carry-driving-gaming-innovation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metacene-launches-carry-redefining-gaming-server-network-with-realms-nft-and-serverpass/0284dfa9aad9cb4b8ac237fa64365446) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/metacene-unveils-carry-first-serverfi-inspired-gaming-product)
+
+Pickup - [fishervista.com](https://fishervista.com/en/metacene-introduces-carry-pioneering-serverfi-in-blockchain-gaming/20245773)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/metacene-launches-carry-pioneering-serverfi-in-blockchain-gaming/20245773)
+
+Pickup - [advos.io](https://advos.io/en/metacene-introduces-carry-a-new-era-in-blockchain-gaming/20245773)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/metacene-launches-carry-redefining-gaming-server-network-with-realms-nft-and-serverpass)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/metacene-launches-carry-redefining-gaming-server-network-with-realms-nft-and-serverpass)
+ 
 
 
 

@@ -59,7 +59,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/smc-announces
 [Original/Source Press Release](https://newsdirect.com/news/smc-announces-marketing-agreement-with-plato-technologies-inc-945138186)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/smc-announces-marketing-agreement-with-plato-technologies-inc/da625871866698d3eced8a5e853057ee) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/smc-announces-marketing-agreement-with-plato-technologies-inc)
+ 
 
 
 

@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/mou-between-t
 [Original/Source Press Release](https://newsdirect.com/news/mou-between-the-u-s-and-peru-provides-a-stepping-stone-for-mining-companies-at-minexpo-2024-649043175)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mou-between-the-u-s-and-peru-provides-a-stepping-stone-for-mining-companies-at-minexpo-2024/a765ef26a9d2285cb2f3b22e1be67f57) 
+
+ 
 
 
 

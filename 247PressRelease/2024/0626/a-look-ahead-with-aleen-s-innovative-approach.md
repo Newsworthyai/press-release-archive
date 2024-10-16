@@ -7,7 +7,13 @@ OTTAWA, ON, June 26, 2024 /24-7PressRelease/ -- Aleen Inc. ("Aleen" or the "Comp
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512012/a-look-ahead-with-aleens-innovative-approach)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aleen-inc-revolutionizes-healthcare-with-ai-driven-symptom-assessment/f30d340a3282ee80dbe315ace4c06b03) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/aleen-inc-pioneers-ai-driven-early-detection-in-healthcare/20244483)
+
+Pickup - [advos.io](https://advos.io/en/aleen-inc-pioneers-ai-driven-symptom-assessment-to-transform-healthcare-accessibility/20244483)
+ 
 
 
 

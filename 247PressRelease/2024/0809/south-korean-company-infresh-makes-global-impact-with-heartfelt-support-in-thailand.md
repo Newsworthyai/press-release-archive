@@ -7,7 +7,17 @@ NEW YORK, NY, August 09, 2024 /24-7PressRelease/ -- Infresh, a prominent South K
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513245/south-korean-company-infresh-makes-global-impact-with-heartfelt-support-in-thailand)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/south-korean-company-infresh-makes-heartwarming-gesture-of-support-for-korean-war-veteran-in-thailand/21c1a2462503ad421e6de07c886508b5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/09/infresh-extends-support-to-korean-war-veteran-in-thailand-highlighting-ongoing-commitment-to-veterans)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/infresh-extends-support-to-korean-war-veteran-in-thailand-exemplifying-global-humanitarian-efforts/20245604)
+
+Pickup - [advos.io](https://advos.io/en/infresh-supports-korean-war-veteran-in-thailand-demonstrating-global-commitment/20245604)
+
+Pickup - [fishervista.com](https://fishervista.com/en/infresh-extends-compassionate-support-to-korean-war-veteran-in-thailand/20245604)
+ 
 
 
 

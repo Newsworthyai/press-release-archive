@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ypb-group-pio
 [Original/Source Press Release](https://newsdirect.com/news/ypb-group-pioneering-market-brand-protection-with-connectqr-493198972)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ypb-group-ceo-details-breakout-revenue-opportunity-with-connectqr/24f919e69479df8b5ae08b6daf37d29e) 
+
+ 
 
 
 

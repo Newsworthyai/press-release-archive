@@ -49,7 +49,17 @@ jodi@sprigconsulting.com
 [Original/Source Press Release](https://www.newmediawire.com/news/aclarion-launches-surgeon-partnership-to-apply-nociscan-s-ai-technology-to-personal-injury-and-workers-compensation-market-7076001)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aclarion-inc-announces-statewide-network-for-nociscan-in-new-jersey/e9b0fd412bf5da5d8a903462c3b4a85a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/aclarion-launches-initiative-to-apply-ai-technology-in-personal-injury-and-workers-compensation-cases)
+
+Pickup - [fishervista.com](https://fishervista.com/en/aclarion-launches-initiative-to-enhance-workers-compensation-and-personal-injury-claims-with-ai-technology/20246555)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/aclarion-launches-initiative-to-integrate-ai-powered-nociscan-in-personal-injury-and-workers-compensation-cases/20246555)
+
+Pickup - [advos.io](https://advos.io/en/aclarion-partners-with-new-jersey-surgeon-to-enhance-personal-injury-and-workers-compensation-market/20246555)
+ 
 
 
 

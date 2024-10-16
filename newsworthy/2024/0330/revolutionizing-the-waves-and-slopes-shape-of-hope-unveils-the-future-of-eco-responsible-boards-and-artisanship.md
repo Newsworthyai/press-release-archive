@@ -15,7 +15,11 @@ Master artisan Martijn Stiphout, co-founder of Ventana Surfboards & Supplies, af
 [Original/Source Press Release](https://newsworthy.ai/news/202403301136/the-outside-collective-and-ventana-surfboards-present-shape-of-hope-a-short-journey-into-sustainable-craftsmanship)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/groundbreaking-documentary-shape-of-hope-unveils-sustainable-craftsmanship-in-board-sports-and-instrument-making/e1dd5944564e760106bba50072903909) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/30/crafting-sustainable-waves-shape-of-hope-celebrates-eco-artisanship)
+ 
 
 
 

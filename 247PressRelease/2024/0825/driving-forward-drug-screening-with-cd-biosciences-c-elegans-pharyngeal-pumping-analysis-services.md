@@ -7,7 +7,17 @@ NEW YORK, NY, August 25, 2024 /24-7PressRelease/ -- CD BioSciences recently anno
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513750/driving-forward-drug-screening-with-cd-biosciences-c-elegans-pharyngeal-pumping-analysis-services)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cd-biosciences-launches-innovative-c-elegans-pharyngeal-pumping-analysis-services-for-drug-screening/5bee3abb8b3272fa3e134b6d2f5efe0c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/25/cd-biosciences-unveils-c-elegans-pharyngeal-pumping-analysis-for-enhanced-drug-screening)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cd-biosciences-unveils-cost-effective-pharyngeal-pumping-analysis-for-drug-screening/20245953)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cd-biosciences-unveils-c-elegans-pharyngeal-pumping-analysis-for-enhanced-drug-screening/20245953)
+
+Pickup - [advos.io](https://advos.io/en/cd-biosciences-launches-cost-effective-c-elegans-pharyngeal-pumping-analysis-services-for-enhanced-drug-screening/20245953)
+ 
 
 
 

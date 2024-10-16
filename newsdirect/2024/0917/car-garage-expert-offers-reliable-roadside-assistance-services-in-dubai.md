@@ -27,7 +27,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/car-garage-ex
 [Original/Source Press Release](https://newsdirect.com/news/car-garage-expert-offers-reliable-roadside-assistance-services-in-dubai-678436444)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/car-garage-expert-offers-reliable-roadside-assistance-services-in-dubai/07cb7cfd6e4879e47fa2eca5764e3396) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/17/car-garage-expert-launches-24-7-roadside-assistance-service-in-dubai)
+
+Pickup - [fishervista.com](https://fishervista.com/en/car-garage-expert-launches-24-7-roadside-assistance-in-dubai/20246904)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/car-garage-expert-launches-24-7-roadside-assistance-in-dubai/20246904)
+
+Pickup - [advos.io](https://advos.io/en/car-garage-expert-launches-24-7-roadside-assistance-in-dubai/20246904)
+ 
 
 
 

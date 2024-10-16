@@ -7,7 +7,11 @@ ATLANTA, GA, March 24, 2024 /24-7PressRelease/ -- From eleven-time nominated and
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509487/a-night-in-theatre-saturday-april-20th-ferst-center-for-the-arts-on-the-campus-of-georgia-tech-tickets-are-now-on-sale)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/award-winning-writer-and-producer-kinnik-sky-presents-peace-be-still/6537fa3819d2368763063a1abc515289) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/24/kinnik-sky-s-gripping-new-dramedy-peace-be-still-hits-the-stage)
+ 
 
 
 

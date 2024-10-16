@@ -7,7 +7,11 @@ LOS ANGELES, CA, April 11, 2024 /24-7PressRelease/ -- Casey Bloys has emerged as
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509304/no-apologies-owed-by-hbos-exec-casey-bloys)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/casey-bloys-navigating-the-future-of-streaming-with-hbo-max/29c716a6f41e450bb811e60739dd4d07) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/11/hbo-exec-casey-bloys-navigating-the-streaming-landscape)
+ 
 
 
 

@@ -7,7 +7,17 @@ WEST PALM BEACH, FL, August 08, 2024 /24-7PressRelease/ -- Graze Craze®, a fast
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513208/graze-craze-sees-double-digit-increase-in-year-over-year-comp-sales-within-first-six-months-of-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/graze-craze-r-achieves-49-increase-in-same-store-sales-and-celebrates-growth-at-2024-world-expo/9967926ecee92f12fb20f2f93214a655) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/graze-craze-reports-49-increase-in-same-store-sales-in-first-half-of-2024/20245573)
+
+Pickup - [advos.io](https://advos.io/en/graze-craze-achieves-49-increase-in-same-store-sales-in-first-half-of-2024/20245573)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/graze-craze-reports-impressive-49-increase-in-same-store-sales-for-first-half-of-2024/20245573)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/08/graze-craze-reports-impressive-49-increase-in-same-store-sales-for-first-half-of-2024)
+ 
 
 
 

@@ -39,7 +39,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/political-mem
 [Original/Source Press Release](https://newsdirect.com/news/political-meme-coins-have-taken-the-blockchain-by-storm-343392062)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/political-meme-coins-add-excitement-to-cryptocurrency-market/09929e7d06a5d9bcf602fb409e944fb0) 
+
+ 
 
 
 

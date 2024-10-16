@@ -23,7 +23,11 @@ Connect, learn, and lead with www.DoctorsMagazine.co
 [Original/Source Press Release](https://newsworthy.ai/news/20231222809/doctors-magazine-debuts-the-definitive-resource-for-medical-professionals-worldwide)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-doctors-magazine-a-comprehensive-hub-for-medical-knowledge-and-networking/ff0f6ee30e94041dba2a1a2f74895591) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/22/doctors-magazine-emerges-as-premier-resource-for-medical-professionals-worldwide)
+ 
 
 
 

@@ -19,7 +19,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/millennial-po
 [Original/Source Press Release](https://newsdirect.com/news/millennial-potash-achieves-key-milestone-with-70-banio-project-interest-209822420)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/millennial-potash-achieves-key-milestone-with-70-banio-project-interest/75b90916bd87b9df0b80645b2995863f) 
+
+
+Pickup - [advos.io](https://advos.io/en/millennial-potash-secures-70-stake-in-banio-project-projects-strong-economic-potential/20244883)
+
+Pickup - [fishervista.com](https://fishervista.com/en/millennial-potash-secures-70-stake-in-banio-project-unveils-promising-economic-assessment/20244883)
+
+Pickup - [citybuzz.co](https://citybuzz.co/millennial-potash-secures-70-stake-in-promising-banio-potash-project)
+ 
 
 
 

@@ -37,7 +37,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/blastoise-the-official-mascot-meme-coin-of-blast---unveiling-the-future-of-l2-finance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blastoise-the-official-mascot-meme-coin-of-blast-a-game-changer-in-the-crypto-space/0ce57b3e78959a7b9d2e35514a5cd818) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/04/blastoise-the-trailblazing-meme-coin-mascot-of-blast-layer-2-blockchain)
+ 
 
 
 

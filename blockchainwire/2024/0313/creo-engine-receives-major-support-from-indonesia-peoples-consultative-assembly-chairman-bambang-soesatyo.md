@@ -25,7 +25,11 @@ About Creo EngineCreo Engine is a Web3 gaming platform dedicated to gamers & dev
 [Original/Source Press Release](https://blockchainwire.io/press-release/creo-engine-receives-major-support-from-indonesia-peoples-consultative-assembly-chairman-bambang-soesatyo)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/indonesian-political-leader-endorses-web3-game-project-creo-engine/bb30d00ac13f023563fb84b95cc33abe) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/13/creo-engine-s-web3-gaming-vision-gains-influential-support-in-indonesia)
+ 
 
 
 

@@ -7,7 +7,15 @@ NEW YORK, NY, July 08, 2024 /24-7PressRelease/ -- L&C Future Lab, a subsidiary o
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511966/worlds-first-ai-skin-diagnosis-beauty-platform-im-type-experience-store-opens-at-ddp-in-seoul-korea)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/l-c-future-lab-launches-offline-store-for-im-type-beauty-platform-in-seoul/16877107ccd6bd3a55fd87955e6c2c34) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/world-s-first-ai-driven-skin-diagnosis-beauty-platform-im-type-opens-experience-store-in-seoul/20244749)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/ai-powered-beauty-platform-im-type-opens-first-experience-store-in-seoul)
+
+Pickup - [advos.io](https://advos.io/en/l-c-future-lab-launches-ai-based-skin-diagnosis-beauty-platform-im-type-at-seoul-s-ddp/20244749)
+ 
 
 
 

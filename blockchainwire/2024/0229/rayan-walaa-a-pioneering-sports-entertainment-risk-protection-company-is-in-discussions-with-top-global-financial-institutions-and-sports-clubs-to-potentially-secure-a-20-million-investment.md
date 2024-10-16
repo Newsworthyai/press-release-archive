@@ -23,7 +23,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/rayan-walaa-a-pioneering-sports-entertainment-risk-protection-company-is-in-discussions-with-top-global-financial-institutions-and-sports-clubs-to-potentially-secure-a-20-million-investment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rayan-walaa-in-talks-for-20-million-investment-in-global-sports-event-risk-management/7c0faf79c671dfb39679cd60d0153b97) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/29/rayan-walaa-seeks-20-million-investment-for-sports-event-risk-protection)
+ 
 
 
 

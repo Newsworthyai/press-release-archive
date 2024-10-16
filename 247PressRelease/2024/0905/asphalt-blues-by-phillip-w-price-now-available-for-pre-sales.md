@@ -7,7 +7,17 @@ ATLANTA, GA, September 05, 2024 /24-7PressRelease/ -- Asphalt Blues (ISBN 13: 97
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514016/asphalt-blues-by-phillip-w-price-now-available-for-pre-sales)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-novel-asphalt-blues-by-phillip-w-price-available-for-pre-sales-on-amazon/4d0373de9ba0cb7545d90ebcd73591d6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/former-gbi-agent-phillip-w-price-releases-fourth-daniel-byrd-thriller)
+
+Pickup - [fishervista.com](https://fishervista.com/en/phillip-w-price-s-asphalt-blues-now-available-for-pre-sales/20246544)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/former-gbi-agent-phillip-w-price-releases-fourth-daniel-byrd-thriller/20246544)
+
+Pickup - [advos.io](https://advos.io/en/phillip-w-price-s-asphalt-blues-now-available-for-pre-sales/20246544)
+ 
 
 
 

@@ -97,7 +97,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/your-shortcut
 [Original/Source Press Release](https://newsdirect.com/news/your-shortcut-to-restaking-htx-liquid-restaking-offers-enhanced-rewards-and-facilitates-team-participation-123203010)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-liquid-restaking-enhanced-rewards-and-facilitated-team-participation/bbfdfa8887346ed24d4dd2296aa555dd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/htx-liquid-restaking-unlocking-crypto-rewards-through-teamwork-and-innovation)
+ 
 
 
 

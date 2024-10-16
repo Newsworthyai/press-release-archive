@@ -45,7 +45,11 @@ X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/avaxtech-passes-solidproof-smart-contract-audit-enhancing-safety-for-avax-investors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avaxtech-project-passes-smart-contract-audit-by-solidproof/8cd45be214fb7346962a332964faface) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/avaxtech-bolsters-security-for-avax-investors-with-smart-contract-audit)
+ 
 
 
 

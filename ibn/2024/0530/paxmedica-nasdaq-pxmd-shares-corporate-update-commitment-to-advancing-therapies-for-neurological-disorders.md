@@ -25,7 +25,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/paxmedica-nasdaq-pxmd-shares-corporate-update-commitment-to-advancing-therapies-for-neurological-disorders/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/paxmedica-prepares-nda-submission-for-suramin-to-treat-human-african-trypanosomiasis/a8490a3f58111f7a5009b729002fc952) 
+
+ 
 
 
 

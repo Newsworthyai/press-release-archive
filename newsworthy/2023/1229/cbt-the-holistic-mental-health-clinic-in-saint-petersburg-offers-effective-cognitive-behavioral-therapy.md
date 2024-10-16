@@ -19,7 +19,11 @@ The Holistic Mental Health Clinic offers a unique patient-centered experience un
 [Original/Source Press Release](https://newsworthy.ai/news/20231229949/cbt-the-holistic-mental-health-clinic-in-saint-petersburg-offers-effective-cognitive-behavioral-therapy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-holistic-mental-health-clinic-empowers-patients-through-collaborative-therapy/f560d6498763bc7c0a58b2d14916dff6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/29/cbt-therapy-empowers-patients-at-the-holistic-mental-health-clinic)
+ 
 
 
 

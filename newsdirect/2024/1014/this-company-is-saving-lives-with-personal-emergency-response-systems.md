@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/this-company-
 [Original/Source Press Release](https://newsdirect.com/news/this-company-is-saving-lives-with-personal-emergency-response-systems-377451642)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/logicmark-ceo-discusses-growth-strategies-and-shift-to-saas-model-in-recent-interview/1fffe1dfea9ff74252ffd5e17332171f) 
+
+ 
 
 
 

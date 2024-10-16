@@ -21,7 +21,9 @@ CoinW is a pioneering crypto trading platform that prioritizes security, transpa
 [Original/Source Press Release](https://blockchainwire.io/press-release/1-million-prize-andrea-pirlo-welcomes-fans-to-board-the-crypto-express-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/andrea-pirlo-becomes-global-brand-ambassador-for-coinw-crypto-platform/5410fd4a264e526a93ebbba2b7f69f5c) 
+
+ 
 
 
 

@@ -7,7 +7,17 @@ WEST CHESTER, PA, July 24, 2024 /24-7PressRelease/ -- The report provides an in-
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512784/the-advocate-supporting-the-patient-voice-releases-2024-us-focused-patient-advocacy-report)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pharmaceutical-industry-s-relationship-with-patient-advocacy-organizations/6e02cb558f0e704477ae8ded5175d8c0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/2024-us-patient-advocacy-report-reveals-top-pharmaceutical-companies-in-patient-support)
+
+Pickup - [fishervista.com](https://fishervista.com/en/the-advocate-releases-2024-patient-advocacy-report-highlighting-pharmaceutical-industry-collaborations/20245206)
+
+Pickup - [advos.io](https://advos.io/en/the-advocate-releases-2024-us-focused-patient-advocacy-report-highlighting-pharmaceutical-engagement/20245206)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/2024-patient-advocacy-report-reveals-top-pharmaceutical-companies-in-patient-support)
+ 
 
 
 

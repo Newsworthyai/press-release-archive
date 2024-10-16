@@ -25,7 +25,13 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/as-bitcoin-aims-for-250k-ethereum-etf-anticipation-grows--whats-next-for-furrever-token)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-market-buzz-bitcoin-ethereum-and-furrever-token-updates/280d99fc343665721e1fc7912e5d186f) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cryptocurrency-market-buzz-bitcoin-ethereum-and-furrever-token-updates)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cryptocurrency-market-buzz-bitcoin-ethereum-and-furrever-token-updates)
+ 
 
 
 

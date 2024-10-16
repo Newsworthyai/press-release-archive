@@ -19,7 +19,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/american-eagl
 [Original/Source Press Release](https://newsdirect.com/news/american-eagle-gold-announces-significant-copper-discovery-at-nak-project-in-british-columbia-768832005)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-eagle-gold-ceo-announces-significant-copper-discovery-in-british-columbia/285246e26ecb82bcd402df05e5e41b32) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/american-eagle-gold-discovers-significant-copper-mineralization-at-nak-project/20244715)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/04/american-eagle-gold-uncovers-promising-copper-deposits-at-nak-project)
+
+Pickup - [advos.io](https://advos.io/en/american-eagle-gold-discovers-significant-copper-mineralization-at-nak-project/20244715)
+ 
 
 
 

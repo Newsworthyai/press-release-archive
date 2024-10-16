@@ -7,7 +7,11 @@ YERINGTON, NV, March 08, 2024 /24-7PressRelease/ -- At the heart of Warriors and
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509130/to-protect-and-to-serve-patricia-blake-launches-warriors-and-heroes-website-honoring-women-in-policing-for-international-womens-history-month-celebrates-towering-legends-of-the-movement)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/warriors-and-heroes-celebrating-women-in-law-enforcement/4c475a0b30f123a51d782ee157c1d726) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/08/honoring-women-in-policing-patricia-blake-s-warriors-and-heroes-celebrates-trailblazers)
+ 
 
 
 

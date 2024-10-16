@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/one-health-gr
 [Original/Source Press Release](https://newsdirect.com/news/one-health-group-sets-another-record-for-new-patients-choosing-one-health-through-patient-choice-727776556)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/one-health-group-plc-achieves-record-revenue-and-expands-services-in-the-uk/d2c5803565a6636a883c2c3e49a3e67b) 
+
+ 
 
 
 

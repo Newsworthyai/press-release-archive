@@ -7,7 +7,9 @@ LOS ANGELES, CA, September 19, 2024 /24-7PressRelease/ -- Globalmanagergroup.com
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514432/globalmanagergroupcom-has-launched-the-isoiec-17029-documents-kit-with-editable-files)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-manager-group-launches-iso-17029-documents-kit-for-validation-verification-body-s-accreditation/e1dbeeebb1cc233d45886b891e0ba54e) 
+
+ 
 
 
 

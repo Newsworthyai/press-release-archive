@@ -29,7 +29,9 @@ NOWPayments is the leading cryptocurrency payment gateway offering support for o
 [Original/Source Press Release](https://blockchainwire.io/press-release/nowpayments-enables-cryptocurrency-purchases-of-tangem-wallets-expanding-payment-options-with-btc-eth-usdc-and-more)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nowpayments-and-tangem-revolutionize-crypto-wallet-purchases/71c47ab94f51f96597fc5c0fa86d45bd) 
+
+ 
 
 
 

@@ -7,7 +7,9 @@ DUBAI, UAE, October 03, 2024 /24-7PressRelease/ -- The whole team of Efficient T
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514895/efficient-tourism-unveils-exclusive-new-years-tour-packages-for-2025)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exclusive-new-year-tour-packages-for-2025-in-dubai-by-efficient-tourism/047d9f04e88dfef74641c2cd84d39f24) 
+
+ 
 
 
 

@@ -47,7 +47,13 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cedefiai-announces-partnership-with-leading-crypto-projects)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cedefiai-announces-strategic-partnership-with-leading-crypto-projects/1f20656eedf8e9e0d8a34ab32e67739f) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cedefiai-announces-strategic-partnership-with-leading-crypto-projects)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cedefiai-announces-strategic-partnership-with-leading-crypto-projects)
+ 
 
 
 

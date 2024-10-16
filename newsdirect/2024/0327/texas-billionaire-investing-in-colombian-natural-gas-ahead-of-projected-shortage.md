@@ -85,7 +85,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/texas-billion
 [Original/Source Press Release](https://newsdirect.com/news/texas-billionaire-investing-in-colombian-natural-gas-ahead-of-projected-shortage-437476572)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/colombia-s-energy-sector-faces-natural-gas-shortage-state-owned-oil-company-plans-6-7-billion-investment/d1a516cb21fe427f835d40353a1ce593) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/texas-billionaire-bets-big-on-colombia-s-natural-gas-market)
+ 
 
 
 

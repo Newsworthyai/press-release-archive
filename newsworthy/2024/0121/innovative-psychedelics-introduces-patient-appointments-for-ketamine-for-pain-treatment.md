@@ -15,7 +15,9 @@ In addition to its Chicago clinic, Innovative Psychedelics has a location in Do
 [Original/Source Press Release](https://newsworthy.ai/news/202401211010/innovative-psychedelics-introduces-patient-appointments-for-ketamine-for-pain-treatment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leading-mental-health-clinic-offers-iv-ketamine-therapy-for-depression-and-chronic-pain/62cebbf4c895107e3f9378d5105a4697) 
+
+ 
 
 
 

@@ -38,7 +38,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/catalyst-mark
 [Original/Source Press Release](https://newsdirect.com/news/catalyst-marketing-agency-wins-prestigious-awards-for-creative-brand-campaign-535909800)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/catalyst-wins-prestigious-awards-for-creative-brand-campaign/cd1a22e99d1646084bc6342489fe7959) 
+
+ 
 
 
 

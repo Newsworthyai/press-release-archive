@@ -7,7 +7,9 @@ BUSAN, KOREA, September 30, 2024 /24-7PressRelease/ -- A participating pastor sh
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514798/over-70000-gather-for-busan-crusade-igniting-passion-for-the-revealed-word)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-word-crusade-unites-churches-in-busan/0c1534cfb5fb8fefc0c8e8c0f7e462d1) 
+
+ 
 
 
 

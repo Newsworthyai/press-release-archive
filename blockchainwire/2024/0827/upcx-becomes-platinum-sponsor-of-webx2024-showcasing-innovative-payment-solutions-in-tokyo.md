@@ -53,7 +53,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcx-becomes-platinum-sponsor-of-webx2024-showcasing-innovative-payment-solutions-in-tokyo)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/upcx-to-sponsor-webx2024-conference-in-tokyo/83f75fa2d4887109f4898f454c715985) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/upcx-to-sponsor-webx2024-conference-in-tokyo)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/upcx-to-sponsor-webx2024-conference-in-tokyo)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/27/upcx-takes-center-stage-as-platinum-sponsor-at-webx2024-in-tokyo)
+
+Pickup - [fishervista.com](https://fishervista.com/en/upcx-announced-as-platinum-sponsor-for-webx2024-in-tokyo/20246194)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/upcx-takes-center-stage-as-platinum-sponsor-at-webx2024-in-tokyo/20246194)
+
+Pickup - [advos.io](https://advos.io/en/upcx-becomes-platinum-sponsor-of-webx2024-showcasing-cutting-edge-payment-solutions/20246194)
+ 
 
 
 

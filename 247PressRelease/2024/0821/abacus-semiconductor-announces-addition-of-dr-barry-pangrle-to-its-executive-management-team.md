@@ -7,7 +7,17 @@ SAN JOSE, CA, August 21, 2024 /24-7PressRelease/ -- Dr. Barry Pangrle is a Co-Fo
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513506/abacus-semiconductor-announces-addition-of-dr-barry-pangrle-to-its-executive-management-team)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-barry-pangrle-joins-abacus-semiconductor-corporation-as-executive-team-member/ef262dde75609613940ac8bec881d04b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/21/dr-barry-pangrle-joins-abacus-semiconductor-s-executive-team-signaling-shift-in-computing-paradigm)
+
+Pickup - [fishervista.com](https://fishervista.com/en/abacus-semiconductor-welcomes-dr-barry-pangrle-to-executive-team/20245861)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/abacus-semiconductor-strengthens-leadership-with-addition-of-industry-veteran-dr-barry-pangrle/20245861)
+
+Pickup - [advos.io](https://advos.io/en/abacus-semiconductor-welcomes-dr-barry-pangrle-to-executive-team/20245861)
+ 
 
 
 

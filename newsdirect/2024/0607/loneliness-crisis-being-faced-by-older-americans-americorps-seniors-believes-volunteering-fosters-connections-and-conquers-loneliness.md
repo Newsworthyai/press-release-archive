@@ -35,7 +35,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/loneliness-cr
 [Original/Source Press Release](https://newsdirect.com/news/loneliness-crisis-being-faced-by-older-americans-americorps-seniors-believes-volunteering-fosters-connections-and-conquers-loneliness-106621280)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/americorps-seniors-combatting-loneliness-in-older-adults-through-volunteering/1d884d990b62ac45445863b638521779) 
+
+ 
 
 
 

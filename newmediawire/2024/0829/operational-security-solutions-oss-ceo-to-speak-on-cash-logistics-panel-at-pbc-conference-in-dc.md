@@ -29,7 +29,9 @@ oss@virgo-pr.com
 [Original/Source Press Release](https://www.newmediawire.com/news/operational-security-solutions-oss-ceo-to-speak-on-cash-logistics-panel-at-pbc-conference-in-dc-7075982)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/oss-ceo-to-speak-and-exhibit-at-2024-pbc-conference/ed419850813c00a9e7ee3d967d09d294) 
+
+ 
 
 
 

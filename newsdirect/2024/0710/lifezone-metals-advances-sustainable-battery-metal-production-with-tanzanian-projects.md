@@ -19,7 +19,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/lifezone-meta
 [Original/Source Press Release](https://newsdirect.com/news/lifezone-metals-advances-sustainable-battery-metal-production-with-tanzanian-projects-255832332)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lifezone-metals-advances-sustainable-battery-metal-production-in-tanzania/f482699c7b5cc1b2e1b378d7396aa858) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/lifezone-metals-pioneers-sustainable-battery-metal-production-in-tanzania/20244838)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/10/lifezone-metals-pioneers-sustainable-battery-metal-production-in-tanzania)
+
+Pickup - [advos.io](https://advos.io/en/lifezone-metals-advances-sustainable-battery-metal-production-with-tanzanian-projects/20244838)
+ 
 
 
 

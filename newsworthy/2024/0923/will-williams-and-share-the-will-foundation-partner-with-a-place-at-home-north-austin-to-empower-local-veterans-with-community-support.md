@@ -17,7 +17,9 @@ About A Place At Home - North AustinA Place At Home - North Austin, based in Rou
 [Original/Source Press Release](https://newsworthy.ai/news/202409231278/will-williams-and-share-the-will-foundation-partner-with-a-place-at-home-north-austin-to-empower-local-veterans-with-community-support)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/local-organizations-come-together-to-provide-life-changing-gift-to-deserving-veteran/0312a4a74d1544c09f19ae4177c9fe60) 
+
+ 
 
 
 

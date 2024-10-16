@@ -46,7 +46,11 @@ Broker Complaint Alert is committed to supporting individuals who have fallen pr
 [Original/Source Press Release](https://blockchainwire.io/press-release/empowering-victims-broker-complaint-alerts-proven-fund-recovery-process)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/broker-complaint-alert-partnering-in-financial-recovery/0b63241e787ddc5121e86f48df735e82) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/04/empowering-victims-broker-complaint-alert-s-proven-fund-recovery-process)
+ 
 
 
 

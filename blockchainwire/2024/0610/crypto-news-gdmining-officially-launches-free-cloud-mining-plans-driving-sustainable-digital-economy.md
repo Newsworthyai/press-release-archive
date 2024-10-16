@@ -43,7 +43,15 @@ GDMining 是领先的云挖矿服务提供商，为全球用户提供参与加�
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-news-gdmining-officially-launches-free-cloud-mining-plans-driving-sustainable-digital-economy-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gdmining-launches-new-bitcoin-cloud-mining-plans-to-promote-sustainable-and-inclusive-economy/f667717a80624d2d04529f957e3ee689) 
+
+
+Pickup - [advos.io](https://advos.io/en/gdmining-launches-free-cloud-mining-plans-to-foster-sustainable-digital-economy/20243987)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gdmining-launches-new-bitcoin-cloud-mining-plans-to-promote-sustainable-and-inclusive-economy)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gdmining-launches-new-bitcoin-cloud-mining-plans-to-promote-sustainable-and-inclusive-economy)
+ 
 
 
 

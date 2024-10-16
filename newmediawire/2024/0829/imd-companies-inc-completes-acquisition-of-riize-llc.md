@@ -51,7 +51,9 @@ info@imdcompaniesinc.com
 [Original/Source Press Release](https://www.newmediawire.com/news/imd-companies-inc-completes-acquisition-of-riize-llc-7075978)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/imd-companies-inc-completes-acquisition-of-riize-llc/10a5f7e30f4af3767cd50e19a29dcf26) 
+
+ 
 
 
 

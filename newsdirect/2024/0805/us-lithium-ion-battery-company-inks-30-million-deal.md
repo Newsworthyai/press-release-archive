@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/us-lithium-io
 [Original/Source Press Release](https://newsdirect.com/news/us-lithium-ion-battery-company-inks-30-million-deal-599709012)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dragonfly-energy-ceo-reveals-global-distribution-deal-with-stryton-energy/4c80590a73d19da2f0001a8709ff73f4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/05/dragonfly-energy-secures-30-million-deal-with-stryten-energy-for-global-battery-distribution)
+
+Pickup - [fishervista.com](https://fishervista.com/en/dragonfly-energy-secures-30-million-licensing-deal-with-stryten-energy/20245490)
+
+Pickup - [advos.io](https://advos.io/en/dragonfly-energy-secures-30-million-licensing-deal-with-stryten-energy/20245490)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/dragonfly-energy-secures-30-million-deal-with-stryten-energy-for-global-battery-distribution)
+ 
 
 
 

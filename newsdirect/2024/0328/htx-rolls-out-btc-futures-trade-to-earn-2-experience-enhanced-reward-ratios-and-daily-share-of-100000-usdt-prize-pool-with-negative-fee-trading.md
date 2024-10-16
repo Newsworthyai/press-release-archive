@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-rolls-out
 [Original/Source Press Release](https://newsdirect.com/news/htx-rolls-out-btc-futures-trade-to-earn-2-experience-enhanced-reward-ratios-and-daily-share-of-100-000-usdt-prize-pool-with-negative-fee-trading-210010844)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-launches-future-trade-to-earn-event-with-enhanced-rewards/5e1344f7ff74db8ab1d1c26b41ec6695) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/htx-launches-enhanced-trade-to-earn-event-for-btc-futures-trading)
+ 
 
 
 

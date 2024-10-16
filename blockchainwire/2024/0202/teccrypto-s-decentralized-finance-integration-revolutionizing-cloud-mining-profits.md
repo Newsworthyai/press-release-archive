@@ -53,7 +53,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/teccryptos-decentralized-finance-integration-revolutionizing-cloud-mining-profits)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teccrypto-revolutionizes-cloud-mining-with-defi-integration/df03010941afe1350c10789bfd5b8a21) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/02/teccrypto-unveils-decentralized-finance-integration-for-cloud-mining)
+ 
 
 
 

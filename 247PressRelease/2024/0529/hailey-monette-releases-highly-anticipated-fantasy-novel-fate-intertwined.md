@@ -7,7 +7,9 @@ BOSTON, MA, May 29, 2024 /24-7PressRelease/ -- The literary world is excited to 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511198/hailey-monette-releases-highly-anticipated-fantasy-novel-fate-intertwined)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hailey-monette-s-fate-intertwined-takes-readers-on-an-epic-fantasy-journey/24a13eef99180560a29c21b557769b5a) 
+
+ 
 
 
 

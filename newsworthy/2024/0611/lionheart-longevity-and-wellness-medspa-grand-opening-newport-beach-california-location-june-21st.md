@@ -49,7 +49,11 @@ email: howard@leonhardtventures.com
 [Original/Source Press Release](https://newsworthy.ai/news/202406111192/lionheart-longevity-and-wellness-medspa-grand-opening-newport-beach-california-location-june-21st)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lionheart-health-announces-grand-opening-of-flagship-medspa-in-newport-beach/dcb3e2e9b592734705494389847bb433) 
+
+
+Pickup - [advos.io](https://advos.io/en/lionheart-longevity-and-wellness-medspa-grand-opening-in-newport-beach/20244047)
+ 
 
 
 

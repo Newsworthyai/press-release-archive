@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/government-wa
 [Original/Source Press Release](https://newsdirect.com/news/government-warns-families-to-stock-up-on-at-least-three-days-of-food-647189272)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/readywise-offers-up-to-60-off-emergency-food-supplies-during-memorial-day-sale/7b9dccc67420b1971842652f11537a61) 
+
+ 
 
 
 

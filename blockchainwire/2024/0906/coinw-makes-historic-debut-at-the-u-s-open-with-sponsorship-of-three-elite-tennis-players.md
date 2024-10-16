@@ -21,7 +21,17 @@ Since its founding, CoinW has been at the forefront of integrating cryptocurrenc
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-makes-historic-debut-at-the-us-open-with-sponsorship-of-three-elite-tennis-players)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-sponsors-tennis-athletes-at-2024-u-s-open/1d846cf0277842b69bdf08d6f5c7177b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/coinw-sponsors-elite-tennis-players-at-2024-u-s-open-bridging-crypto-and-sports)
+
+Pickup - [advos.io](https://advos.io/en/coinw-sponsors-three-elite-tennis-players-at-2024-u-s-open/20246707)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/coinw-sponsors-elite-tennis-players-at-2024-u-s-open-bridging-crypto-and-sports/20246707)
+
+Pickup - [fishervista.com](https://fishervista.com/en/coinw-sponsors-three-elite-tennis-players-at-2024-u-s-open-bridging-crypto-and-sports/20246707)
+ 
 
 
 

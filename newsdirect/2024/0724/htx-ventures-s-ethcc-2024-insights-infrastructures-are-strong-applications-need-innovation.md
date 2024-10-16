@@ -69,7 +69,21 @@ View source version on newsdirect.com: https://newsdirect.com/news/htx-venturess
 [Original/Source Press Release](https://newsdirect.com/news/htx-venturess-ethcc-2024-insights-infrastructures-are-strong-applications-need-innovation-828499729)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/htx-ventures-key-observations-and-engagement-at-ethcc-2024/c3f9918c8e4114edd2a7b6244a7f612e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/htx-ventures-highlights-key-insights-from-ethcc-2024-ethereum-s-strength-and-application-innovation-needs)
+
+Pickup - [fishervista.com](https://fishervista.com/en/htx-ventures-highlights-key-insights-from-ethcc-2024-emphasis-on-ethereum-infrastructure-and-innovation/20245224)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/htx-ventures-key-observations-and-engagement-at-ethcc-2024)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/htx-ventures-key-observations-and-engagement-at-ethcc-2024)
+
+Pickup - [advos.io](https://advos.io/en/htx-ventures-presents-key-insights-from-ethcc-2024-strong-infrastructures-need-for-application-innovation/20245224)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/htx-ventures-shares-insights-from-ethcc-2024-ethereum-infrastructure-strong-application-innovation-needed)
+ 
 
 
 

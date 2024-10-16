@@ -7,7 +7,9 @@ LOUISVILLE, KY, May 30, 2024 /24-7PressRelease/ -- Attorney Sheila Hiestand is f
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511263/attorney-sheila-hiestand-takes-action-in-major-pain-medication-theft-case-at-the-restorative-pain-institute)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/medical-malpractice-lawsuit-filed-against-restorative-pain-institute-in-louisville/78512e32b792d35d38b6ed73aa0a7aa2) 
+
+ 
 
 
 

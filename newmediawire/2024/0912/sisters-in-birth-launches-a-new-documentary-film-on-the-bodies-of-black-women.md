@@ -19,7 +19,17 @@ For media inquiries contact: israel@sibirth.onmicrosoft.com
 [Original/Source Press Release](https://www.newmediawire.com/news/sisters-in-birth-launches-a-new-documentary-film-on-the-bodies-of-black-women-7076048)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-documentary-on-the-bodies-of-black-women-exposes-healthcare-crisis/d123c5b11df77aeba9fee8c7823dcbaa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/new-documentary-exposes-unnecessary-c-sections-among-black-women-in-mississippi)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-documentary-exposes-high-rates-of-unnecessary-c-sections-among-black-women/20246805)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-documentary-exposes-high-rates-of-unnecessary-c-sections-among-black-women/20246805)
+
+Pickup - [advos.io](https://advos.io/en/new-documentary-exposes-high-rates-of-unnecessary-c-sections-among-black-women/20246805)
+ 
 
 
 

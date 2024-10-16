@@ -7,7 +7,17 @@ LOS ANGELES, CA, August 26, 2024 /24-7PressRelease/ -- In recent months, numerou
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513078/hbo-bosses-doing-right-by-fans-and-critics)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hbo-s-the-last-of-us-season-2-cast-confirmations-and-fan-excitement/8101785e3965455b4296a7177c2dfab0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/26/hbo-s-the-last-of-us-season-2-takes-shape-with-exciting-cast-additions)
+
+Pickup - [fishervista.com](https://fishervista.com/en/hbo-s-the-last-of-us-season-2-casting-announcements-and-fan-excitement/20245943)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hbo-s-the-last-of-us-season-2-takes-shape-with-key-casting-announcements/20245943)
+
+Pickup - [advos.io](https://advos.io/en/hbo-confirms-exciting-new-cast-members-for-the-last-of-us-season-2/20245943)
+ 
 
 
 

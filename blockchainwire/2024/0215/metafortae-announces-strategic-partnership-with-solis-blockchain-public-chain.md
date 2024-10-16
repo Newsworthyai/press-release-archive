@@ -37,7 +37,11 @@ Email: cs@metafortae.com
 [Original/Source Press Release](https://blockchainwire.io/press-release/metafortae-announces-strategic-partnership-with-solis-blockchain-public-chain)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/metafortae-announces-strategic-collaboration-with-solis-to-revolutionize-blockchain-gaming/6f7ae49fda47ef4e199d6178c3cd485b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/15/metafortae-and-solis-forge-strategic-partnership-for-blockchain-gaming-innovation)
+ 
 
 
 

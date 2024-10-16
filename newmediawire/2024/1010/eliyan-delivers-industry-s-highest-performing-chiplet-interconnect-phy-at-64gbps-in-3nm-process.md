@@ -37,7 +37,9 @@ SANTA CLARA, Calif. - (NewMediaWire) - October 10, 2024 - Eliyan Corporation, cr
 [Original/Source Press Release](https://www.newmediawire.com/news/eliyan-delivers-industry-s-highest-performing-chiplet-interconnect-phy-at-64gbps-in-3nm-process-7076180)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/eliyan-corporation-delivers-industry-s-highest-performing-chiplet-interconnect-phy-at-64gbps-in-3nm-process/ea4994087a36279a28f685e7b35992d6) 
+
+ 
 
 
 

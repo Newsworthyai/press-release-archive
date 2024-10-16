@@ -39,7 +39,15 @@ Telegram: [https://t.me/RoshiOfficialChat](https://t.me/RoshiOfficialChat)Discla
 [Original/Source Press Release](https://blockchainwire.io/press-release/roshi-coin-announces-its-fairlaunch-on-pinksale---with-big-marketing-plans-coming)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/roshi-coin-officially-launches-ushering-in-a-new-era-in-meme-coin-industry/f98788d1eb65fcc46d695c9e1040c3d7) 
+
+
+Pickup - [advos.io](https://advos.io/en/roshi-coin-launches-on-pinksale-with-big-marketing-plans-ahead/20243970)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/roshi-coin-officially-launches-ushering-in-a-new-era-in-meme-coin-industry)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/roshi-coin-officially-launches-ushering-in-a-new-era-in-meme-coin-industry)
+ 
 
 
 

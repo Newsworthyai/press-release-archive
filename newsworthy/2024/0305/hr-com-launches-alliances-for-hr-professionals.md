@@ -35,7 +35,13 @@ HR.com, the largest network of HR professionals, is committed to helping HR prof
 [Original/Source Press Release](https://newsworthy.ai/news/202403051107/hr-com-launches-alliances-for-hr-professionals)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hr-com-launches-hr-alliances-for-professionals-and-leaders/ebf54196ad3fb01e51264b4fa470e468) 
+
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/hr-com-introduces-alliances-to-foster-collaboration-among-hr-professionals/2024639)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/05/hr-com-launches-collaborative-alliances-for-hr-professionals)
+ 
 
 
 

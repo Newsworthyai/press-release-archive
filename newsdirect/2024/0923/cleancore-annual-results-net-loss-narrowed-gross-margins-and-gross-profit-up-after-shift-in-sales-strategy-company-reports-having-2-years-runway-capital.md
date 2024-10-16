@@ -57,7 +57,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cleancore-ann
 [Original/Source Press Release](https://newsdirect.com/news/cleancore-annual-results-net-loss-narrowed-gross-margins-and-gross-profit-up-after-shift-in-sales-strategy-company-reports-having-2-years-runway-capital-182664233)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cleancore-solutions-inc-reports-positive-financial-results-and-shift-in-sales-strategy/0e7eb8d62b527cae2579e8779d987702) 
+
+ 
 
 
 

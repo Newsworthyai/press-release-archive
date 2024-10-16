@@ -59,7 +59,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/mphasis-and-c
 [Original/Source Press Release](https://newsdirect.com/news/mphasis-and-classiq-partner-to-drive-quantum-innovation-559552434)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mphasis-and-classiq-partner-to-drive-quantum-innovation/ca8f077c37e708a53b131524a3cd42cf) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/mphasis-and-classiq-partner-to-drive-quantum-innovation)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/mphasis-and-classiq-partner-to-drive-quantum-innovation)
+ 
 
 
 

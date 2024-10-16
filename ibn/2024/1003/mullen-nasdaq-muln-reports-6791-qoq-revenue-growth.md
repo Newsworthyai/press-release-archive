@@ -27,7 +27,9 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-reports-6791-qoq-revenue-growth/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-expects-6791-revenue-increase-decreasing-cash-burn/7b44168359d20648201b98ec497808fa) 
+
+ 
 
 
 

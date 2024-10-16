@@ -13,7 +13,11 @@ Accessibility is a key component of Prime Psychiatry's service model. Through te
 [Original/Source Press Release](https://newsworthy.ai/news/202401201004/new-treatment-offers-hope-for-patients-battling-depression-introducing-tms-therapy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/breakthrough-tms-therapy-now-available-for-depression-treatment/49de98d991450050baa6fb8253f1699d) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/20/new-hope-for-depression-patients-tms-therapy-offers-non-invasive-treatment)
+ 
 
 
 

@@ -29,7 +29,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/pineapple-fin
 [Original/Source Press Release](https://newsdirect.com/news/pineapple-financial-reports-significant-growth-amid-economic-challenges-503749355)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pineapple-financial-launches-groundbreaking-deal-management-system/178268f1c45f8b7275f2c8f048d772a3) 
+
+ 
 
 
 

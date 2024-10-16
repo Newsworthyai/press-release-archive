@@ -17,7 +17,9 @@ BEDMINSTER, NJ - (NewMediaWire) - September 25, 2024 - Peapack-Gladstone Finan
 [Original/Source Press Release](http://www.newmediawire.com/news/peapack-private-hires-vanessa-tortorice-as-senior-managing-director-7076087)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vanessa-tortorice-joins-peapack-privates-new-york-city-location-as-senior-managing-director/1033f495df834eee349d5c85c894a151) 
+
+ 
 
 
 

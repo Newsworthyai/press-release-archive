@@ -45,7 +45,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-tigerv-11-community-has-entered-the-finals-of-the-second-quarter-ten-billion-fund-global-investment-competition-hosted-by-kpi-capital)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kpi-capital-hosts-global-investment-competition-with-10-billion-fund-management-prize/9b3fea010299605b94359a6a281e166f) 
+
+ 
 
 
 

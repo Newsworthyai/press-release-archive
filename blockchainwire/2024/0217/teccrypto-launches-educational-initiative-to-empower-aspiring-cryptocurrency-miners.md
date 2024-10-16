@@ -43,7 +43,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/teccrypto-launches-educational-initiative-to-empower-aspiring-cryptocurrency-miners)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teccrypto-com-unveils-educational-initiative-for-cryptocurrency-mining/9229613a7d05842f638ac141b76b1386) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/17/teccrypto-empowers-aspiring-cryptocurrency-miners-with-comprehensive-educational-initiative)
+ 
 
 
 

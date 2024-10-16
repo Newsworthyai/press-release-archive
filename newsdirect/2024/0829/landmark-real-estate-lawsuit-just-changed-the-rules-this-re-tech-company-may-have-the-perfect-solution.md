@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/landmark-real
 [Original/Source Press Release](https://newsdirect.com/news/landmark-real-estate-lawsuit-just-changed-the-rules-this-re-tech-company-may-have-the-perfect-solution-215911129)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/realpha-tech-corp-leaders-discuss-disruptive-homebuying-platform-on-benzingas-all-access/ca872880042da6c7ea340324f63fe621) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/realpha-tech-corp-aims-to-revolutionize-homebuying-with-ai-powered-commission-free-platform)
+
+Pickup - [fishervista.com](https://fishervista.com/en/landmark-real-estate-lawsuit-spurs-innovation-realpha-tech-corp-unveils-commission-free-homebuying-platform/20246375)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/realpha-tech-corp-aims-to-disrupt-real-estate-industry-with-ai-powered-commission-free-homebuying-platform/20246375)
+
+Pickup - [advos.io](https://advos.io/en/realpha-tech-corp-aims-to-disrupt-real-estate-with-ai-powered-commission-free-platform/20246375)
+ 
 
 
 

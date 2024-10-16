@@ -49,7 +49,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/plotline-rais
 [Original/Source Press Release](https://newsdirect.com/news/plotline-raises-2-6m-as-it-harnesses-ai-to-boost-adoption-in-the-super-app-era-646069925)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/plotline-raises-2-6m-to-boost-adoption-in-the-super-app-era/b78a90fbcce811fb8fbdadd9450129b9) 
+
+ 
 
 
 

@@ -41,7 +41,9 @@ Disclaimer: This article combines insights from both human expertise and AI tech
 [Original/Source Press Release](https://blockchainwire.io/press-release/horys-technologies-unveils-groundbreaking-sustainability-initiatives-in-the-tech-industry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/horys-technologies-unveils-revolutionary-sustainability-initiatives/f835376ba17922a0a70c82ea5e895334) 
+
+ 
 
 
 

@@ -35,7 +35,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/more-than-2500-projects-are-using-blockchain-wire-reaching-over-30000000-people-around-the-world)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockchain-wire-announces-over-2500-blockchain-and-crypto-projects-as-clients/73e527371ac35dd183ce2a300dbf8267) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/16/blockchain-wire-reaches-milestone-of-over-2500-crypto-projects-served)
+ 
 
 
 

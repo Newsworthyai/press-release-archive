@@ -67,7 +67,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/how-mutual-fu
 [Original/Source Press Release](https://newsdirect.com/news/how-mutual-funds-and-self-directed-investing-go-hand-in-hand-367436841)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-rise-of-mutual-funds-a-guide-to-self-directed-investing-with-axos-invest/bccb3e2498938b84652a57f41ae2b58a) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/mutual-funds-and-self-directed-investing-a-synergistic-approach-to-wealth-building/20245521)
+
+Pickup - [advos.io](https://advos.io/en/mutual-funds-and-self-directed-investing-a-symbiotic-relationship/20245521)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/the-synergy-of-mutual-funds-and-self-directed-investing-a-new-era-in-personal-finance)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/the-rise-of-mutual-funds-and-self-directed-investing-a-powerful-combination-for-financial-growth)
+ 
 
 
 

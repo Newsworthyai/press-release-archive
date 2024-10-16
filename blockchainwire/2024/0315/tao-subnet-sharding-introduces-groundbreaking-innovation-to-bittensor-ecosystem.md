@@ -35,7 +35,11 @@ The information provided in this release is not investment advice, financial adv
 [Original/Source Press Release](https://blockchainwire.io/press-release/tao-subnet-sharding-introduces-groundbreaking-innovation-to-bittensor-ecosystem)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tao-subnet-sharding-revolutionizing-decentralized-intelligence/c427b851e597ef15196ee45697fcbb46) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/15/tao-subnet-sharding-revolutionizes-decentralized-intelligence-with-sharding-technology)
+ 
 
 
 

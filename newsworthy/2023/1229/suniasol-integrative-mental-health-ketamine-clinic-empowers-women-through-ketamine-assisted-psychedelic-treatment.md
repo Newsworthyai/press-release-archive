@@ -13,7 +13,9 @@ Prospective patients can learn more about the Women's Empowerment Ketamine Serie
 [Original/Source Press Release](https://newsworthy.ai/news/20231229956/suniasol-integrative-mental-health-ketamine-clinic-empowers-women-through-ketamine-assisted-psychedelic-treatment)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/suniasol-clinic-offers-women-s-empowerment-ketamine-series-for-healing-and-transformation/b0b330a09b4a278f8966d1fbe4f0118d) 
+
+ 
 
 
 

@@ -31,7 +31,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/avenix-fzco-l
 [Original/Source Press Release](https://newsdirect.com/news/avenix-fzco-launches-fexobot-an-advanced-ea-for-gold-trading-884170698)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avenix-fzco-launches-fexobot-mt4-for-gold-trading-on-metatrader-4/38c0628e8bb2a6824db9ad71e07b7f87) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/avenix-fzco-unveils-fexobot-mt4-a-safer-advanced-ea-for-gold-trading/20244284)
+
+Pickup - [advos.io](https://advos.io/en/avenix-fzco-unveils-fexobot-mt4-revolutionizing-gold-trading-with-advanced-ea-technology/20244284)
+ 
 
 
 

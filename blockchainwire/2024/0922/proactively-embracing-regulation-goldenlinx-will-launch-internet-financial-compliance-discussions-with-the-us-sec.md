@@ -35,7 +35,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/proactively-embracing-regulation---goldenlinx-will-launch-internet-financial-compliance-discussions-with-the-us-sec)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/goldenlinx-initiates-discussions-with-sec-for-internet-financial-compliance/82848615fa9c7ad9a4162d20f395123f) 
+
+ 
 
 
 

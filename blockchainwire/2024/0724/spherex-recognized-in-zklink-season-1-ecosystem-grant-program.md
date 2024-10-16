@@ -31,7 +31,21 @@ SphereX is a cutting-edge decentralized exchange (DEX) designed to make crypto t
 [Original/Source Press Release](https://blockchainwire.io/press-release/spherex-recognized-in-zklink-season-1-ecosystem-grant-program)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/spherex-receives-zklink-season-1-ecosystem-grant-for-cross-chain-trading-innovation/21a9cc1f4a4260bc9b9bc2ee9db96587) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/spherex-receives-zklink-season-1-ecosystem-grant-for-cross-chain-trading-innovation)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/spherex-receives-zklink-season-1-ecosystem-grant-for-cross-chain-trading-innovation)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/spherex-secures-zklink-ecosystem-grant-for-cross-chain-trading-innovation)
+
+Pickup - [fishervista.com](https://fishervista.com/en/spherex-receives-zklink-season-1-ecosystem-grant-for-cross-chain-innovation/20245226)
+
+Pickup - [advos.io](https://advos.io/en/spherex-recognized-in-zklink-season-1-ecosystem-grant-program/20245226)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/spherex-receives-zklink-ecosystem-grant-to-enhance-cross-chain-trading)
+ 
 
 
 

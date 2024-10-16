@@ -29,7 +29,11 @@ Disclaimer:This press release may contain forward-looking statements. Forward-lo
 [Original/Source Press Release](https://blockchainwire.io/press-release/chirpley-takes-flight-to-ethereum-chain-expanding-chrp-horizons-in-the-crypto-cosmos)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chirpley-expands-to-ethereum-chain-raises-100k-in-private-sale/9296f55640b595077128f9d53de0fce4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/15/chirpley-spreads-its-wings-chrp-token-takes-flight-on-ethereum-chain)
+ 
 
 
 

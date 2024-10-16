@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/joe-miller-jo
 [Original/Source Press Release](https://newsdirect.com/news/joe-miller-joins-ballast-rock-private-wealth-as-a-wealth-advisor-903042069)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wealth-advisor-joe-miller-joins-ballast-rock-private-wealth-s-team-expansion/1a127982fdb30df44837ee94013521db) 
+
+ 
 
 
 

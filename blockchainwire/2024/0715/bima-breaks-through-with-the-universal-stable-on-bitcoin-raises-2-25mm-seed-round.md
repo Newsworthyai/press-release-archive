@@ -23,7 +23,15 @@ Bima Labs is committed to creating a stable and secure financial ecosystem that 
 [Original/Source Press Release](https://blockchainwire.io/press-release/bima-breaks-through-with-the-universal-stable-on-bitcoin-raises-225mm-seed-round)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bima-labs-raises-2-25m-in-seed-funding-for-bitcoin-backed-stablecoin-innovation/cd5e4fc34aed661991008e4daf38f81e) 
+
+
+Pickup - [advos.io](https://advos.io/en/bima-labs-raises-2-25-million-to-revolutionize-bitcoin-backed-stablecoins/20245070)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/bima-labs-secures-2-25-million-in-seed-funding-for-universal-bitcoin-backed-stablecoin)
+
+Pickup - [fishervista.com](https://fishervista.com/en/bima-labs-raises-2-25mm-to-revolutionize-bitcoin-backed-stablecoins/20245070)
+ 
 
 
 

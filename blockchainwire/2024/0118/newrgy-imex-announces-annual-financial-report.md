@@ -29,7 +29,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/newrgy-imex-announces-annual-financial-report)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newrgy-imex-achieves-significant-performance-in-2023/bddd197017edf0e285277f6814a28541) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/18/newrgy-imex-achieves-remarkable-financial-success-in-2023)
+ 
 
 
 

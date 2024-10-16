@@ -7,7 +7,9 @@ DALLAS, TX, September 24, 2024 /24-7PressRelease/ -- U.S. Dermatology Partners, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514542/us-dermatology-partners-named-a-castle-connolly-practice-center-of-excellence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-dermatology-partners-named-castle-connolly-s-newest-practice-center-of-excellence/029f539ac73cae9218bd4d57f2dc062f) 
+
+ 
 
 
 

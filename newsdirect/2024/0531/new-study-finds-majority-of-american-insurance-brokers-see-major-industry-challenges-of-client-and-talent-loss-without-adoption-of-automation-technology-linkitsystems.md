@@ -30,7 +30,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-study-fin
 [Original/Source Press Release](https://newsdirect.com/news/new-study-finds-majority-of-american-insurance-brokers-see-major-industry-challenges-of-client-and-talent-loss-without-adoption-of-automation-technology-linkitsystems-441277794)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-study-reveals-challenges-faced-by-american-insurance-brokers/429727960de353b3578c658eafc3d479) 
+
+ 
 
 
 

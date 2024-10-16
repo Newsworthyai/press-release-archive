@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/team-internet
 [Original/Source Press Release](https://newsdirect.com/news/team-internet-group-begin-trading-on-the-otqx-with-ticker-tigxf-875493856)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/team-internet-group-debuts-on-otcqx-as-tigxf/a01806782d06b6f0cee56423bfa4047f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/team-internet-group-debuts-on-otcqx-as-tigxf)
+ 
 
 
 

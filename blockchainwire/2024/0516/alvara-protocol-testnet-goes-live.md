@@ -19,7 +19,13 @@ The Alvara Protocol is a decentralized platform that utilizes the ERC-7621 (Bask
 [Original/Source Press Release](https://blockchainwire.io/press-release/alvara-protocol-testnet-goes-live)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alvara-protocol-launches-testnet-for-decentralized-fund-management-platform/ebca5ed4294191792495d498f2499f18) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/alvara-protocol-launches-testnet-for-decentralized-fund-management-platform)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/alvara-protocol-launches-testnet-for-decentralized-fund-management-platform)
+ 
 
 
 

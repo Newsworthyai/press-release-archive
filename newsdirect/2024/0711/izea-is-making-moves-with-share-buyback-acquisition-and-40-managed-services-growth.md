@@ -53,7 +53,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/izea-is-makin
 [Original/Source Press Release](https://newsdirect.com/news/izea-is-making-moves-with-share-buyback-acquisition-and-40-managed-services-growth-846969299)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/izea-makes-moves-with-share-buyback-acquisition-and-40-managed-services-growth/4353271c98ed8d349488e847230631eb) 
+
+
+Pickup - [advos.io](https://advos.io/en/izea-unveils-strategic-initiatives-with-share-buyback-acquisition-and-40-growth-in-managed-services/20244875)
+
+Pickup - [fishervista.com](https://fishervista.com/en/izea-announces-strategic-moves-with-share-buyback-acquisition-and-strong-growth-in-managed-services/20244875)
+
+Pickup - [citybuzz.co](https://citybuzz.co/izea-worldwide-announces-strategic-moves-share-buyback-acquisition-and-significant-growth-in-managed-services)
+ 
 
 
 

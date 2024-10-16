@@ -36,7 +36,13 @@ Rachita ChettriMediaX Agencycontact@mediax.agency
 [Original/Source Press Release](https://blockchainwire.io/press-release/social-infrastructure-uxlink-launches-limited-community-sale-for-airdrop-voucher-nfts)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uxlink-initiates-season-1-airdrop-campaign-with-limited-community-sale-of-airdrop-voucher-nfts/1611f97316dace6b8d24b72174fcb548) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/uxlink-initiates-season-1-airdrop-campaign-with-limited-community-sale-of-airdrop-voucher-nfts)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/uxlink-initiates-season-1-airdrop-campaign-with-limited-community-sale-of-airdrop-voucher-nfts)
+ 
 
 
 

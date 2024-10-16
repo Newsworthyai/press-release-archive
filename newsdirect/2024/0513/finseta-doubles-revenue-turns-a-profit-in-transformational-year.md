@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/finseta-doubl
 [Original/Source Press Release](https://newsdirect.com/news/finseta-doubles-revenue-turns-a-profit-in-transformational-year-402121369)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/finseta-doubles-revenue-turns-a-profit-in-transformational-year/cf94fd1321ecb1224f7e2d0d3d0e7a77) 
+
+ 
 
 
 

@@ -39,7 +39,11 @@ Charles Song, the founder, chairman and CEO of Linklogis, said, “Looking ahead
 [Original/Source Press Release](https://blockchainwire.io/press-release/linklogis-announces-2023-annual-results-maintaining-the-largest-market-share-in-china-for-4-consecutive-years)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/linklogis-inc-reports-15-2-increase-in-2023-revenue-and-unveils-new-growth-strategy/62cfabc753e955773f4479b9a53dc486) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/linklogis-maintains-market-leadership-embraces-ai-and-promotes-sustainable-growth)
+ 
 
 
 

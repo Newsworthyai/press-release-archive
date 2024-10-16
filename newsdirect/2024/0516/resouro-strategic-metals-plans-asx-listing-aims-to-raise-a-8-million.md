@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/resouro-strat
 [Original/Source Press Release](https://newsdirect.com/news/resouro-strategic-metals-plans-asx-listing-aims-to-raise-a-8-million-499592861)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/resouro-strategic-metals-plans-asx-listing-aims-to-raise-a-8-million/4f008b052bf56c957c037eb1f7be1d5b) 
+
+ 
 
 
 

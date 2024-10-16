@@ -43,7 +43,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/smc-enters-in
 [Original/Source Press Release](https://newsdirect.com/news/smc-enters-into-acquisition-agreement-to-purchase-100-of-the-assets-of-chaintrade-ltd-launches-ai-powered-research-platform-605137089)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/smc-announces-acquisition-of-chaintrade-ltd-and-launch-of-ai-research-platform/a07b5c89573f06f0a50ebed3f558be86) 
+
+ 
 
 
 

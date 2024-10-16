@@ -7,7 +7,13 @@ ORLANDO, FL, June 18, 2024 /24-7PressRelease/ -- Rob Garay, an esteemed executiv
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511765/rob-garay-honored-as-2024-40-under-40-by-orlando-business-journal)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rob-garay-honored-as-2024-40-under-40-award-recipient-by-orlando-business-journal/68ad699e561c30c72484c5cf98174c69) 
+
+
+Pickup - [advos.io](https://advos.io/en/rob-garay-recognized-as-a-rising-star-in-central-florida-s-business-community/20244234)
+
+Pickup - [fishervista.com](https://fishervista.com/en/rob-garay-receives-2024-40-under-40-honor-from-orlando-business-journal/20244234)
+ 
 
 
 

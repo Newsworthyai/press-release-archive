@@ -7,7 +7,17 @@ GLENDALE, CA, July 29, 2024 /24-7PressRelease/ -- Cayenne Wellness Center proudl
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512853/cayenne-wellness-center-hosts-16th-annual-sickle-cell-disease-educational-summit-unpacking-sickle-cell-one-warrior-at-a-time)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/16th-annual-sickle-cell-disease-educational-summit-empowering-through-education/88308fa018aafdb222f249f45a0a7005) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cayenne-wellness-center-hosts-16th-annual-sickle-cell-disease-educational-summit/20245309)
+
+Pickup - [advos.io](https://advos.io/en/cayenne-wellness-center-to-host-16th-annual-sickle-cell-disease-educational-summit/20245309)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/29/cayenne-wellness-center-s-16th-annual-sickle-cell-disease-summit-to-offer-comprehensive-education-and-support)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/cayenne-wellness-center-announces-16th-annual-sickle-cell-disease-educational-summit)
+ 
 
 
 

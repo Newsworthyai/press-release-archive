@@ -55,7 +55,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-hidden-co
 [Original/Source Press Release](https://newsdirect.com/news/the-hidden-costs-of-wisdom-teeth-extraction-and-how-one-innovative-company-aims-to-eliminate-them-412205960)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-technology-aims-to-eliminate-the-hidden-costs-of-wisdom-teeth-extraction/fc70ef18d34d5482ed44ace47bd7fa6f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/revolutionary-technology-aims-to-eliminate-wisdom-teeth-extraction-costs-and-pain)
+
+Pickup - [fishervista.com](https://fishervista.com/en/innovative-technology-aims-to-revolutionize-wisdom-teeth-management/20246780)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-technology-aims-to-eliminate-need-for-wisdom-teeth-extraction/20246780)
+
+Pickup - [advos.io](https://advos.io/en/new-technology-aims-to-eliminate-need-for-wisdom-teeth-extraction/20246780)
+ 
 
 
 

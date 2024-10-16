@@ -41,7 +41,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/navex-unveils
 [Original/Source Press Release](https://newsdirect.com/news/navex-unveils-curated-ai-content-library-to-simplify-compliance-and-risk-mitigation-437196569)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/navex-unveils-curated-ai-content-library-to-simplify-compliance-and-risk-mitigation/0f9a8c255784e57920d7808b4b6a5a2c) 
+
+ 
 
 
 

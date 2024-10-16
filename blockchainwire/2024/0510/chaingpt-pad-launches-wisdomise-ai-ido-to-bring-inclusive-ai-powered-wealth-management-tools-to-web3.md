@@ -43,7 +43,9 @@ Wisdomise AI is an all-in-one, AI-powered platform offering users curated intell
 [Original/Source Press Release](https://blockchainwire.io/press-release/chaingpt-pad-launches-wisdomise-ai-ido-to-bring-inclusive-ai-powered-wealth-management-tools-to-web3)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chaingpt-announces-exclusive-ido-launch-of-wisdomise-ai/0b95b88f0b44b7f63386a9444b8dcf7b) 
+
+ 
 
 
 

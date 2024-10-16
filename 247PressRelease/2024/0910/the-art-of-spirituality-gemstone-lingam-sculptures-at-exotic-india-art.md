@@ -7,7 +7,17 @@ ROSEVILLE, MN, September 10, 2024 /24-7PressRelease/ -- Lord Shiva is not only t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514125/the-art-of-spirituality-gemstone-lingam-sculptures-at-exotic-india-art)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/exotic-india-art-launches-divine-gemstone-shiva-lingam-collection/1f69c5e5ec37814f6fcc4cbcb5268919) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/exotic-india-art-unveils-exquisite-gemstone-lingam-collection-for-spiritual-enthusiasts)
+
+Pickup - [fishervista.com](https://fishervista.com/en/exotic-india-art-unveils-spiritual-gemstone-lingam-sculptures/20246652)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/exotic-india-art-unveils-gemstone-lingam-sculptures-collection/20246652)
+
+Pickup - [advos.io](https://advos.io/en/exotic-india-art-unveils-gemstone-shiva-lingam-sculptures/20246652)
+ 
 
 
 

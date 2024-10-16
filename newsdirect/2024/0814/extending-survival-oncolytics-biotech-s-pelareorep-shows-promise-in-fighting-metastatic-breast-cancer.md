@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/extending-sur
 [Original/Source Press Release](https://newsdirect.com/news/extending-survival-oncolytics-biotechs-pelareorep-shows-promise-in-fighting-metastatic-breast-cancer-975078195)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/oncolytics-biotech-s-pelareorep-shows-promise-in-fighting-metastatic-breast-cancer/23ebd0b8104b4f9e1492b6186bb6f1be) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/14/oncolytics-biotech-s-pelareorep-shows-promise-in-metastatic-breast-cancer-treatment)
+
+Pickup - [fishervista.com](https://fishervista.com/en/oncolytics-biotech-s-pelareorep-shows-significant-progress-in-combating-metastatic-breast-cancer/20245730)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/oncolytics-biotech-s-pelareorep-shows-promising-results-in-metastatic-breast-cancer-treatment/20245730)
+
+Pickup - [advos.io](https://advos.io/en/oncolytics-biotech-s-pelareorep-shows-potential-in-extending-survival-for-metastatic-breast-cancer-patients/20245730)
+ 
 
 
 

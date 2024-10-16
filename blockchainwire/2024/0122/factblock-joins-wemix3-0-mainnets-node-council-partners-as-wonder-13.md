@@ -23,7 +23,11 @@ The WEMIX blockchain mega-ecosystem features innovative services including WEMIX
 [Original/Source Press Release](https://blockchainwire.io/press-release/factblock-joins-wemix30-mainnets-node-council-partners-as-wonder-13)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/factblock-joins-wemix3-0-mainnet-as-wonder-13-in-collaboration-with-wemade/d8756ced1e71769b8bf3be60ca7cec8c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/22/factblock-joins-wemix3-0-mainnet-as-node-council-partner)
+ 
 
 
 

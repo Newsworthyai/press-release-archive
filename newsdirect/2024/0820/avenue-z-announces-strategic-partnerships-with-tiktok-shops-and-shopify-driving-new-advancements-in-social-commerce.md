@@ -51,7 +51,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/avenue-z-anno
 [Original/Source Press Release](https://newsdirect.com/news/avenue-z-announces-strategic-partnerships-with-tiktok-shops-and-shopify-driving-new-advancements-in-social-commerce-730871123)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avenue-z-partners-with-tiktok-shops-and-shopify-to-drive-new-advancements-in-social-commerce/56ddb16ae849e6a1859c11570466c69c) 
+
+
+Pickup - [advos.io](https://advos.io/en/avenue-z-forms-key-partnerships-with-tiktok-shops-and-shopify/20245836)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/20/avenue-z-partners-with-tiktok-shops-and-shopify-to-revolutionize-social-commerce)
+
+Pickup - [fishervista.com](https://fishervista.com/en/avenue-z-forms-key-partnerships-with-tiktok-shops-and-shopify-to-revolutionize-social-commerce/20245836)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/avenue-z-partners-with-tiktok-shops-and-shopify-to-revolutionize-social-commerce/20245836)
+ 
 
 
 

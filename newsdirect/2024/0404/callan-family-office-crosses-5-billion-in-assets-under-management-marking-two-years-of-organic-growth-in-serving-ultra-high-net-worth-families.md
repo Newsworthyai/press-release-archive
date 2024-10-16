@@ -39,7 +39,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/callan-family
 [Original/Source Press Release](https://newsdirect.com/news/callan-family-office-crosses-5-billion-in-assets-under-management-marking-two-years-of-organic-growth-in-serving-ultra-high-net-worth-families-486177204)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/callan-family-office-surpasses-5-billion-in-assets-under-management/9039e21e574e63516da81629655dab83) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/callan-family-office-achieves-rapid-growth-in-serving-ultra-wealthy-clients)
+ 
 
 
 

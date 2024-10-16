@@ -37,7 +37,11 @@ In the 2023 annual results released on March 26th, Linklogis announced a shareho
 [Original/Source Press Release](https://blockchainwire.io/press-release/linklogis-starts-first-quarter-with-strong-performance-with-the-transaction-volume-reaching-rmb962-billion-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/linklogis-inc-achieves-strong-first-quarter-results-for-2024/3438ae6d826921907cb26fc7ac4699bf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/23/linklogis-starts-first-quarter-with-strong-performance-with-the-transaction-volume-reaching-rmb96-2-billion)
+ 
 
 
 

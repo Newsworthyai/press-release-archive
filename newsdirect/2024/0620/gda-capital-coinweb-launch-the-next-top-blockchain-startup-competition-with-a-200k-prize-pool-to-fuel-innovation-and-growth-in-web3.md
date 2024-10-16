@@ -46,7 +46,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/gda-capital-a
 [Original/Source Press Release](https://newsdirect.com/news/gda-capital-and-coinweb-launch-the-next-top-blockchain-startup-competition-with-a-200k-prize-pool-to-fuel-innovation-and-growth-in-web3-910580133)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gda-capital-and-coinweb-launch-200k-blockchain-startup-competition/6974593409d68b6e1960aadc78520183) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/gda-capital-and-coinweb-announce-200k-prize-for-next-top-blockchain-startup-competition/20244313)
+
+Pickup - [advos.io](https://advos.io/en/gda-capital-and-coinweb-announce-200k-prize-pool-for-blockchain-startup-competition/20244313)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/gda-capital-and-coinweb-launch-200k-blockchain-startup-competition)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/gda-capital-and-coinweb-launch-200k-blockchain-startup-competition)
+ 
 
 
 

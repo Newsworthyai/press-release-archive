@@ -9,7 +9,9 @@ Pumma's upcoming Presale is designed to be inclusive, welcoming companies, insti
 [Original/Source Press Release](https://blockchainwire.io/press-release/pumma-token-revolutionizing-memecoins-with-ai-gaming-and-decentralized-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pumma-the-next-big-thing-in-meme-tokens/6478b86b2603555397840e55fbae6f13) 
+
+ 
 
 
 

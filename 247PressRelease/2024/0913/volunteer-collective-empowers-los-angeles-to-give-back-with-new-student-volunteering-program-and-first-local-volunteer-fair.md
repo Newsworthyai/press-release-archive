@@ -7,7 +7,17 @@ SANTA MONICA, CA, September 13, 2024 /24-7PressRelease/ -- Volunteer Collective 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514293/volunteer-collective-empowers-los-angeles-to-give-back-with-new-student-volunteering-program-and-first-local-volunteer-fair)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/volunteer-collective-launches-student-volunteering-program-and-hosts-volunteer-fair-in-santa-monica/8089ea5f9fd7eb5153c3b18f9b982620) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/volunteer-collective-launches-student-program-and-hosts-first-local-volunteer-fair-in-los-angeles)
+
+Pickup - [fishervista.com](https://fishervista.com/en/volunteer-collective-launches-student-program-and-hosts-first-volunteer-fair-in-los-angeles/20246808)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/volunteer-collective-launches-student-program-and-hosts-first-local-volunteer-fair-in-los-angeles/20246808)
+
+Pickup - [advos.io](https://advos.io/en/volunteer-collective-launches-student-program-and-hosts-first-local-volunteer-fair-in-los-angeles/20246808)
+ 
 
 
 

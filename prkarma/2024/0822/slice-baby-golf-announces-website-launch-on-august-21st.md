@@ -37,7 +37,11 @@ NA
 [Original/Source Press Release](https://newsroom.prkarma.com/slicebabygolf_newsroom/news_release/1536)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/slice-baby-golf-launches-bold-new-era-in-golf-apparel-and-accessories/c03fea23b6145ddbe10c5cbc9300d19a) 
+
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/slice-baby-golf-launches-website-revolutionizing-golf-apparel-with-bold-style/20246426)
+ 
 
 
 

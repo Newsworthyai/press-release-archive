@@ -7,7 +7,11 @@ CALIFORNIA, UNITED STATES, March 31, 2024 /24-7PressRelease/ -- UniFab, a global
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509692/unifab-upgrades-its-ai-engine-and-introduces-a-new-hdr-conversion-model)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unifab-unveils-next-gen-ai-video-processing-upgrades/d17231f70e9d33e161c3136f63c479cc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/31/unifab-unveils-groundbreaking-ai-video-processing-upgrades)
+ 
 
 
 

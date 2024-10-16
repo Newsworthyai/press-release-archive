@@ -59,7 +59,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-tesla-of-
 [Original/Source Press Release](https://newsdirect.com/news/the-tesla-of-the-skies-how-one-company-could-be-about-to-change-the-aviation-industry-forever-720052706)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tesla-s-market-dominance-and-new-horizon-aircraft-s-game-changing-innovations/0a3e0958292d989e9ab3448cbaeea34b) 
+
+
+Pickup - [advos.io](https://advos.io/en/new-horizon-aircraft-aims-to-revolutionize-aviation-with-hybrid-evtol-technology/20244876)
+
+Pickup - [fishervista.com](https://fishervista.com/en/new-horizon-aircraft-aims-to-revolutionize-aviation-with-hybrid-evtol-technology/20244876)
+
+Pickup - [citybuzz.co](https://citybuzz.co/new-horizon-aircraft-aims-to-revolutionize-aviation-with-hybrid-evtol-technology)
+ 
 
 
 

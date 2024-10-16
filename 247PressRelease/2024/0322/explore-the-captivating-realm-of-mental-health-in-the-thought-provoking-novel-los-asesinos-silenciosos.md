@@ -7,7 +7,11 @@ MIAMI, FL, March 22, 2024 /24-7PressRelease/ -- Los Asesinos Silenciosos is a co
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509467/explore-the-captivating-realm-of-mental-health-in-the-thought-provoking-novel-los-asesinos-silenciosos)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/compelling-narrative-explores-mental-health-struggles/16eba9c6a91313cf74ac8f3580a7dcc2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/22/unveiling-the-silent-assassins-a-poignant-exploration-of-mental-health)
+ 
 
 
 

@@ -82,7 +82,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/the-energy-se
 [Original/Source Press Release](https://newsdirect.com/news/the-energy-sector-xle-fund-simplifying-the-energy-sector-landscape-150126011)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/energy-select-sector-spdr-fund-engaging-with-the-energy-sector/e8b3e1a01224eacb6c6bef45f97eb522) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/energy-select-sector-spdr-fund-xle-offers-streamlined-access-to-u-s-energy-sector)
+
+Pickup - [fishervista.com](https://fishervista.com/en/energy-select-sector-spdr-fund-offers-streamlined-access-to-u-s-energy-market/20246766)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/energy-select-sector-spdr-fund-xle-offers-streamlined-access-to-u-s-energy-sector/20246766)
+
+Pickup - [advos.io](https://advos.io/en/xle-fund-offers-streamlined-access-to-u-s-energy-sector/20246766)
+ 
 
 
 

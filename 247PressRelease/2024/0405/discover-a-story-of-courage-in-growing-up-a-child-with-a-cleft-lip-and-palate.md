@@ -7,7 +7,11 @@ HARBOR CITY, CA, April 05, 2024 /24-7PressRelease/ -- "Growing Up a Child with a
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509849/discover-a-story-of-courage-in-growing-up-a-child-with-a-cleft-lip-and-palate)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/inspirational-memoir-sheds-light-on-living-with-a-cleft-lip-and-palate/6fe047c6009effe64c2b5feee94418fa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/inspiring-memoir-sheds-light-on-life-with-a-cleft-lip-and-palate)
+ 
 
 
 

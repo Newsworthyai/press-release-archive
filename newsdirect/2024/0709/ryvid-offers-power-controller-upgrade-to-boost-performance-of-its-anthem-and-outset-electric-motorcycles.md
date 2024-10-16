@@ -51,7 +51,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/ryvid-offers-
 [Original/Source Press Release](https://newsdirect.com/news/ryvid-offers-power-controller-upgrade-to-boost-performance-of-its-anthem-and-outset-electric-motorcycles-242381419)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ryvid-offers-power-controller-upgrade-to-boost-performance-of-its-anthem-and-outset-electric-motorcycles/9c362147987e9c2ff38564dac1dbfffd) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/ryvid-introduces-power-controller-upgrade-for-anthem-and-outset-electric-motorcycles/20244802)
+
+Pickup - [advos.io](https://advos.io/en/ryvid-introduces-power-controller-upgrade-for-enhanced-electric-motorcycle-performance/20244802)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/09/ryvid-unveils-power-controller-upgrade-for-enhanced-electric-motorcycle-performance)
+ 
 
 
 

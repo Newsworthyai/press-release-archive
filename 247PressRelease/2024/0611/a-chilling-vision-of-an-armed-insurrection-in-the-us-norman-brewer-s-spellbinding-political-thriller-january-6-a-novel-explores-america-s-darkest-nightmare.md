@@ -7,7 +7,11 @@ WILMINGTON, NC, June 11, 2024 /24-7PressRelease/ -- It goes without saying that 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511556/a-chilling-vision-of-an-armed-insurrection-in-the-us-norman-brewers-spellbinding-political-thriller-january-6-a-novel-explores-americas-darkest-nightmare)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-journalist-releases-gripping-political-thriller-january-6-a-novel/6788df025664353bbd35bee6394ca934) 
+
+
+Pickup - [advos.io](https://advos.io/en/norman-brewer-s-january-6-a-novel-explores-the-chilling-possibility-of-a-successful-insurrection-in-the-u-s/20244020)
+ 
 
 
 

@@ -23,7 +23,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/david-lavalle
 [Original/Source Press Release](https://newsdirect.com/news/david-lavalle-discusses-grayscales-future-of-finance-etf-and-bitcoins-evolving-role-407008807)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/grayscale-s-david-lavalle-discusses-future-of-finance-etf-and-bitcoin-s-evolving-role/d4297a73613a624f2f55609bfb1f4dfd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/david-lavalle-discusses-grayscale-s-future-of-finance-etf-and-bitcoin-s-evolving-role)
+ 
 
 
 

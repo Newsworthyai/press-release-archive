@@ -7,7 +7,13 @@ GEORGETOWN, TX, June 20, 2024 /24-7PressRelease/ -- New business owner Kaylnn Mo
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511816/rooted-radiance-luxe-jewelry-opens-doors-in-georgetown)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-business-owner-joins-hill-country-salon-suites-for-unique-hair-coloring-experience/b3cca1855591e3fb52f33241cff8af72) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/rooted-radiance-luxe-jewelry-opens-in-georgetown-offering-unique-hair-coloring-and-custom-jewelry/20244294)
+
+Pickup - [advos.io](https://advos.io/en/rooted-radiance-luxe-jewelry-opens-in-georgetown-tx/20244294)
+ 
 
 
 

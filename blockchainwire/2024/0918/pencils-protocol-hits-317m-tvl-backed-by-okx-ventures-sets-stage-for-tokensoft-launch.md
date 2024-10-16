@@ -44,7 +44,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/pencils-protocol-hits-317m-tvl-backed-by-okx-ventures-sets-stage-for-tokensoft-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pencils-protocol-to-conduct-dapp-token-sale-on-tokensoft/3300ca745b66e03cc64877da7a887976) 
+
+ 
 
 
 

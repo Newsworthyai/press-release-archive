@@ -47,7 +47,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/earn-passive-income-from-home-secure-and-free-cloud-mining-service-arkmining)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arkmining-trusted-cloud-mining-platform-with-high-profitability-and-reliable-solutions/14a9f0b16f65fabb9085300c2bc4ec45) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/arkmining-unlocking-passive-income-through-secure-cloud-mining)
+ 
 
 
 

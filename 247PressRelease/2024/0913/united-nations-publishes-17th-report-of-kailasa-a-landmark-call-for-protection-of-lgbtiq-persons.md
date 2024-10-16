@@ -7,7 +7,17 @@ LOS ANGELES, CA, September 13, 2024 /24-7PressRelease/ -- This report calls for 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514256/united-nations-publishes-17th-report-of-kailasa-a-landmark-call-for-protection-of-lgbtiq-persons)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-report-calls-for-action-against-lgbtiq-persecution/0ca93b0a77abce565d1a274d08ce64fe) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/kailasa-s-17th-un-report-calls-for-global-protection-of-lgbtiq-rights)
+
+Pickup - [fishervista.com](https://fishervista.com/en/kailasa-s-un-report-calls-for-global-action-on-lgbtiq-rights/20246806)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/un-report-highlights-kailasa-s-advocacy-for-lgbtiq-rights-and-hindu-inclusivity/20246806)
+
+Pickup - [advos.io](https://advos.io/en/kailasa-submits-17th-un-report-advocating-for-lgbtiq-rights/20246806)
+ 
 
 
 

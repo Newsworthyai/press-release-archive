@@ -7,7 +7,15 @@ RALEIGH, NC, July 05, 2024 /24-7PressRelease/ -- TEW Design Studio, a leading in
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512284/raleigh-interior-designer-wins-multiple-awards-for-remodeling-excellence)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tew-design-studio-receives-multiple-awards-for-exceptional-residential-interior-design/0e7d351e98a884fa32e7f905ac5dbf1c) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/tew-design-studio-earns-multiple-prestigious-awards-for-remodeling-excellence/20244725)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/05/tew-design-studio-clinches-multiple-awards-for-residential-interior-design-excellence)
+
+Pickup - [advos.io](https://advos.io/en/tew-design-studio-receives-multiple-awards-for-excellence-in-residential-interior-design/20244725)
+ 
 
 
 

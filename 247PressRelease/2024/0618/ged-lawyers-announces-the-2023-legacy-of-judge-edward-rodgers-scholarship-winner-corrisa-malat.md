@@ -7,7 +7,13 @@ BOCA RATON, FL, June 18, 2024 /24-7PressRelease/ -- Ged Lawyers is proud to anno
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511762/ged-lawyers-announces-the-2023-legacy-of-judge-edward-rodgers-scholarship-winner-corrisa-malat)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ged-lawyers-honors-corrisa-malat-with-the-legacy-of-judge-edward-rodgers-scholarship/fe33885a6191c40d6b470d57fff648c3) 
+
+
+Pickup - [advos.io](https://advos.io/en/corrisa-malat-awarded-2023-legacy-of-judge-edward-rodgers-scholarship-by-ged-lawyers/20244228)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ged-lawyers-announces-2023-legacy-of-judge-edward-rodgers-scholarship-winner/20244228)
+ 
 
 
 

@@ -57,7 +57,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/americans-fin
 [Original/Source Press Release](https://newsdirect.com/news/americans-financial-regrets-revealed-debt-com-survey-highlights-credit-card-overspending-as-top-concern-698455557)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/survey-reveals-startling-financial-regrets-among-americans/945895b26f78c7f9e6adfe83aeea8cde) 
+
+ 
 
 
 

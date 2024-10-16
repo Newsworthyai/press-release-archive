@@ -15,7 +15,11 @@ TMS therapy offers a safe, non-invasive alternative to traditional depression tr
 [Original/Source Press Release](https://newsworthy.ai/news/20240117985/tms-solutions-offers-fda-cleared-tms-therapy-as-a-safe-and-effective-treatment-for-depression)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tms-solutions-revolutionizes-depression-treatment-with-non-invasive-therapy/aa5ff6e5d5bfc72f6ca9ed6c447ce479) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/17/tms-solutions-offers-groundbreaking-depression-treatment)
+ 
 
 
 

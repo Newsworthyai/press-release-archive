@@ -9,7 +9,11 @@ Mutual Support Between ProjectsAs Mr. Lightspeed, a pseudonymous listings manage
 [Original/Source Press Release](https://blockchainwire.io/press-release/bad-idea-ai-and-k9-finance-announce-strategic-partnership-to-enhance-community-engagement-and-technological-synergy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bad-idea-ai-and-k9-finance-announce-revolutionary-partnership-in-blockchain-and-ai-industries/a19c353a2beaca243ed32e7da7a7bb30) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/30/bad-idea-ai-and-k9-finance-forge-strategic-partnership-for-community-engagement-and-technological-synergy)
+ 
 
 
 

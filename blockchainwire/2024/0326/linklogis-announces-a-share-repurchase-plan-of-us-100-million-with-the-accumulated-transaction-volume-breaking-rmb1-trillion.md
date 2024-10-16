@@ -15,7 +15,11 @@ Charles Song, the founder, chairman and CEO of Linklogis, said, “Looking ahead
 [Original/Source Press Release](https://blockchainwire.io/press-release/linklogis-announces-a-share-repurchase-plan-of-us100-million-with-the-accumulated-transaction-volume-breaking-rmb1-trillion)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/linklogis-inc-reports-15-2-increase-in-revenue-for-2023-announces-new-shareholder-return-plan/1c52e785a54d3ed176cba009509f66c7) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/linklogis-surpasses-rmb-1-trillion-transaction-volume-announces-100-million-share-buyback)
+ 
 
 
 

@@ -21,7 +21,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/condor-resour
 [Original/Source Press Release](https://newsdirect.com/news/condor-resources-ceo-provides-updates-on-key-projects-and-community-engagement-792918876)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/condor-resources-ceo-provides-key-project-updates/97129ca352adb6d0fe3070ffc6de9ea9) 
+
+
+Pickup - [advos.io](https://advos.io/en/condor-resources-ceo-updates-on-key-projects-and-community-engagement/20244885)
+
+Pickup - [fishervista.com](https://fishervista.com/en/condor-resources-ceo-updates-on-strategic-projects-and-community-engagement/20244885)
+
+Pickup - [citybuzz.co](https://citybuzz.co/condor-resources-advances-exploration-projects-in-peru-strengthens-community-relations)
+ 
 
 
 

@@ -7,7 +7,13 @@ PORTSMOUTH, NH, June 27, 2024 /24-7PressRelease/ -- Veris Wealth Partners, a fin
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512062/veris-wins-three-wealthbriefing-wealth-for-good-awards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/veris-wealth-partners-receives-three-awards-in-2024-wealthbriefing-wealth-for-good-awards/276e08ca12779b1c7899c573984b26bb) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/veris-wealth-partners-wins-three-wealthbriefing-wealth-for-good-awards/20244528)
+
+Pickup - [advos.io](https://advos.io/en/veris-wealth-partners-secures-three-awards-in-wealth-management-for-good-practices/20244528)
+ 
 
 
 

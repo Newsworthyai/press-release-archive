@@ -37,7 +37,11 @@ X (Twitter) | Telegram
 [Original/Source Press Release](https://blockchainwire.io/press-release/virtuworld-presents-exciting-new-features-in-the-metaverse)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/virtuworld-to-unveil-exciting-new-features-in-the-metaverse/349b7b1ac1cfd7b6124bf5c7968c4303) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/11/virtuworld-unveils-groundbreaking-features-in-the-metaverse)
+ 
 
 
 

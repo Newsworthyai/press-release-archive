@@ -35,7 +35,15 @@ View source version on newsdirect.com: https://newsdirect.com/news/leaders-in-re
 [Original/Source Press Release](https://newsdirect.com/news/leaders-in-real-estate-advocate-for-cooperative-approaches-to-address-housing-crisis-431008826)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/real-estate-firm-advocates-for-collaborative-housing-policies/bed5e23167f47b158599612b1570ef01) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/17/real-estate-leaders-call-for-collaborative-solutions-to-housing-crisis)
+
+Pickup - [fishervista.com](https://fishervista.com/en/k3-holdings-advocates-for-collaborative-housing-policies-to-combat-homelessness/20245025)
+
+Pickup - [advos.io](https://advos.io/en/real-estate-leaders-advocate-for-cooperative-housing-policies-to-combat-crisis/20245025)
+ 
 
 
 

@@ -41,7 +41,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/pr-and-marketing-strategies-in-cryptocurrency-projects-blockdag-networks-approach-to-global-adoption)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-s-innovative-pr-and-marketing-strategies-drive-success/89c835810dab2b97c8bc401656bd7aff) 
+
+ 
 
 
 

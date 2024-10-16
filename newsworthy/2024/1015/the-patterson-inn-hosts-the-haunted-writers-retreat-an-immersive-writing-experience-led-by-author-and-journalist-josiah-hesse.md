@@ -29,7 +29,9 @@ Tickets to the Haunted Writer’s Retreat will cost $500 per person for the week
 [Original/Source Press Release](https://newsworthy.ai/news/202410151323/the-patterson-inn-hosts-the-haunted-writers-retreat-an-immersive-writing-experience-led-by-author-and-journalist-josiah-hesse)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/denver-author-josiah-hesse-to-host-cannabis-fueled-haunted-writers-retreat-at-the-patterson-inn/ba51fdf72d7ba1ae6a454f1119d9f91b) 
+
+ 
 
 
 

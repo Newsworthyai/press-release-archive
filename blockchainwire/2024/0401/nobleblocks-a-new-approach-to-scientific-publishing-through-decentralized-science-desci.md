@@ -42,7 +42,11 @@ For more information about NobleBlocks and to join our network, please visit [ht
 [Original/Source Press Release](https://blockchainwire.io/press-release/nobleblocks-a-new-approach-to-scientific-publishing-through-decentralized-science-desci)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nobleblocks-revolutionizes-scientific-publishing-with-blockchain-based-platform/7db3aded989f1d6d8d513411a214c156) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/01/nobleblocks-revolutionizing-scientific-publishing-with-decentralized-science)
+ 
 
 
 

@@ -29,7 +29,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/silexion-ther
 [Original/Source Press Release](https://newsdirect.com/news/silexion-therapeutics-to-present-at-2024-maxim-healthcare-virtual-summit-798280148)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/silexion-therapeutics-to-present-at-2024-maxim-healthcare-virtual-summit/37ca94364cfaec0e81f7fb49edf96e03) 
+
+ 
 
 
 

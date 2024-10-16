@@ -47,7 +47,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/on-the-horizo
 [Original/Source Press Release](https://newsdirect.com/news/on-the-horizon-how-one-company-plans-to-use-its-innovative-aircraft-design-to-revolutionize-regional-air-travel-928444024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rising-investment-and-innovation-in-regional-air-mobility/6ef39d9636fda51ad2635dc39bcabf4f) 
+
+
+Pickup - [advos.io](https://advos.io/en/new-horizon-aircraft-aims-to-revolutionize-regional-air-mobility-with-innovative-evtol-design/20243891)
+ 
 
 
 

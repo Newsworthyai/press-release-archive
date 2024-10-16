@@ -33,7 +33,15 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDis
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-market-on-fire-bitcoins-breakout-ethereums-growth-and-furrever-tokens-promising-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptocurrency-market-surges-with-bitcoin-ethereum-and-furrever-token/b51c41b10c5233dc11bb670b515f7eb6) 
+
+
+Pickup - [advos.io](https://advos.io/en/crypto-market-surges-with-bitcoin-ethereum-and-furrever-token-leading-the-charge/20243982)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cryptocurrency-market-surges-with-bitcoin-ethereum-and-furrever-token)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cryptocurrency-market-surges-with-bitcoin-ethereum-and-furrever-token)
+ 
 
 
 

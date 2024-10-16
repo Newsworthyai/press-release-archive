@@ -7,7 +7,11 @@ SINGAPORE, April 02, 2024 /24-7PressRelease/ -- Powata, a Singapore-based SaaS d
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509704/launch-of-a-new-version-of-optim-merchandising-the-perfect-merchandising-app)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/singapore-based-saas-developer-launches-new-version-of-merchandising-app/049170332bb4d3ab9ab41003046fafa4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/powata-launches-new-version-of-optim-merchandising-app)
+ 
 
 
 

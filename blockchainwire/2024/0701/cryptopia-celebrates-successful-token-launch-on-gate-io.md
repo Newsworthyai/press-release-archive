@@ -59,7 +59,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptopia-celebrates-successful-token-launch-on-gateio)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cryptopia-launches-token-on-gate-io-celebrates-airdrop-success/9514d484f53b690c38fae79ee0120918) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/cryptopia-marks-milestone-with-successful-token-launch-on-gate-io/20244615)
+
+Pickup - [advos.io](https://advos.io/en/cryptopia-celebrates-successful-token-launch-on-gate-io/20244615)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/cryptopia-launches-token-on-gate-io-celebrates-airdrop-success)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/cryptopia-launches-token-on-gate-io-celebrates-airdrop-success)
+ 
 
 
 

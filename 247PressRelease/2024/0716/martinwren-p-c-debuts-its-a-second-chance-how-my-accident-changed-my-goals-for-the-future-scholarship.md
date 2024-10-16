@@ -7,7 +7,15 @@ CHARLOTTESVILLE, VA, July 16, 2024 /24-7PressRelease/ -- This year's undergradua
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512556/martinwren-pc-debuts-its-a-second-chance-how-my-accident-changed-my-goals-for-the-future-scholarship)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/martinwren-p-c-offers-2500-scholarship-for-students-accident-stories/638e1ffd0c893fbd4c7d30b3558227bf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/16/martinwren-p-c-launches-2500-scholarship-for-students-affected-by-car-accidents)
+
+Pickup - [fishervista.com](https://fishervista.com/en/martinwren-p-c-launches-2500-scholarship-for-students-impacted-by-car-accidents/20244978)
+
+Pickup - [advos.io](https://advos.io/en/martinwren-p-c-launches-2500-scholarship-encouraging-resilience-after-traumatic-car-accidents/20244978)
+ 
 
 
 

@@ -25,7 +25,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/sintana-energ
 [Original/Source Press Release](https://newsdirect.com/news/sintana-energy-announces-major-oil-discoveries-and-strategic-partnerships-103874704)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sintana-energy-announces-major-oil-discoveries-and-strategic-partnerships-in-namibia/5caae5a1095594d13ef79de014738723) 
+
+ 
 
 
 

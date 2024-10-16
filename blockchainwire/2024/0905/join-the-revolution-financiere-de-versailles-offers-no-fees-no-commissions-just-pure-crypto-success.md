@@ -39,7 +39,15 @@ To join the revolution and take advantage of Financiere de Versailles’ new pla
 [Original/Source Press Release](https://blockchainwire.io/press-release/join-the-revolution-financiere-de-versailles-offers-no-fees-no-commissions-just-pure-crypto-success)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/financiere-de-versailles-launches-zero-fee-zero-commission-crypto-trading-platform/6f4e744f60d833ef07a40fd60620c25e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/financiere-de-versailles-launches-zero-fee-crypto-trading-platform-with-ai-driven-strategies)
+
+Pickup - [advos.io](https://advos.io/en/financiere-de-versailles-launches-zero-fee-crypto-trading-platform-with-ai-driven-strategies/20246712)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/financiere-de-versailles-launches-zero-fee-crypto-trading-platform-with-ai-driven-strategies/20246712)
+ 
 
 
 

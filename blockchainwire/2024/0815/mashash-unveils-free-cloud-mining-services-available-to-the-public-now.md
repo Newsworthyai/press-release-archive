@@ -45,7 +45,21 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/mashash-unveils-free-cloud-mining-services-available-to-the-public-now)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mashash-announces-free-cloud-mining-services-for-all-individuals/bfaa9705eb120b66814d99beb780818a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/15/mashash-launches-free-cloud-mining-services-democratizing-cryptocurrency-mining)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mashash-launches-free-cloud-mining-services-promises-accessibility-and-security/20245774)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mashash-launches-free-cloud-mining-services-expanding-cryptocurrency-access/20245774)
+
+Pickup - [advos.io](https://advos.io/en/mashash-introduces-free-cloud-mining-services-to-broaden-access-to-cryptocurrency-investments/20245774)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/mashash-announces-free-cloud-mining-services-for-all-individuals)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/mashash-announces-free-cloud-mining-services-for-all-individuals)
+ 
 
 
 

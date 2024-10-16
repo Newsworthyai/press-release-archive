@@ -7,7 +7,15 @@ CHESTER COUNTY, PA, July 18, 2024 /24-7PressRelease/ -- Perna & Abracht, LLC, a 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512572/perna-abracht-llc-welcomes-deborah-lewis-esquire-expanding-legal-services-into-new-practice-areas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/perna-abracht-llc-welcomes-deborah-lewis-esq-to-their-team/fc1586fd3b4d9c2b303ade412bc9fffb) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/18/perna-abracht-llc-expands-legal-services-with-addition-of-experienced-attorney-deborah-lewis)
+
+Pickup - [fishervista.com](https://fishervista.com/en/perna-abracht-llc-welcomes-deborah-lewis-expanding-legal-services/20245047)
+
+Pickup - [advos.io](https://advos.io/en/perna-abracht-llc-welcomes-deborah-lewis-expands-legal-services/20245047)
+ 
 
 
 

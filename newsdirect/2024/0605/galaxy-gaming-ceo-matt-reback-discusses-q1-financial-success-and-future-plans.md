@@ -15,7 +15,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/galaxy-gaming
 [Original/Source Press Release](https://newsdirect.com/news/galaxy-gaming-ceo-matt-reback-discusses-q1-financial-success-and-future-plans-341289346)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/galaxy-gaming-ceo-matt-reback-discusses-q1-financial-success-and-future-plans/c35bdd09560e791323af889f4bebde82) 
+
+ 
 
 
 

@@ -36,7 +36,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bastet-goddess-will-launch-a-bastet-token-for-trading-on-raydium-may-6th-at-1400-utc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bastet-goddess-announces-bastet-token-launch-on-raydium-revolutionizing-crypto-love-on-solana/cd69e8a43ed4e963ac8cc13323622e36) 
+
+ 
 
 
 

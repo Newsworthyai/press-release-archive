@@ -27,7 +27,21 @@ CoinW is a pioneering crypto trading platform that prioritizes security, transpa
 [Original/Source Press Release](https://blockchainwire.io/press-release/sage-universe-a-meme-coin-will-be-initially-listed-on-coinw-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-list-sage-meme-coin-on-solana-ecosystem/bed4135f68e5f92122bfd99466bc8d1d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/coinw-to-list-sage-meme-coin-on-solana-ecosystem)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/coinw-to-list-sage-meme-coin-on-solana-ecosystem)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/coinw-exchange-to-list-sage-universe-meme-coin-marking-new-era-for-solana-ecosystem)
+
+Pickup - [fishervista.com](https://fishervista.com/en/sage-universe-meme-coin-to-debut-on-coinw-exchange/20245261)
+
+Pickup - [advos.io](https://advos.io/en/sage-meme-coin-to-debut-on-coinw-exchange/20245261)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/sage-universe-meme-coin-set-for-coinw-exchange-debut)
+ 
 
 
 

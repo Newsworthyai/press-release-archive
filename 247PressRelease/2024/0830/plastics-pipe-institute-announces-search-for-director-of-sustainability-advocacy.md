@@ -7,7 +7,17 @@ IRVING, TX, August 30, 2024 /24-7PressRelease/ -- The Plastics Pipe Institute (P
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513925/plastics-pipe-institute-announces-search-for-director-of-sustainability-advocacy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/plastics-pipe-institute-seeks-director-of-sustainability-advocacy/900c3a897a9febb217e11951f46962bf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/30/plastics-pipe-institute-seeks-director-of-sustainability-advocacy-to-enhance-industry-mission)
+
+Pickup - [fishervista.com](https://fishervista.com/en/plastics-pipe-institute-seeks-director-of-sustainability-advocacy/20246398)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/plastics-pipe-institute-seeks-director-of-sustainability-advocacy-to-advance-industry-goals/20246398)
+
+Pickup - [advos.io](https://advos.io/en/plastics-pipe-institute-seeks-director-of-sustainability-advocacy/20246398)
+ 
 
 
 

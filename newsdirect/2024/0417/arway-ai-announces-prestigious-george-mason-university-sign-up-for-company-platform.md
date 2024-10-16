@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/arway-ai-anno
 [Original/Source Press Release](https://newsdirect.com/news/arway-ai-announces-prestigious-george-mason-university-sign-up-for-company-platform-795185556)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arway-ai-partners-with-george-mason-university-to-revolutionize-campus-navigation-and-student-experience/53c9d50cc23007f24aee78e64919bac4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/17/arway-ai-announces-prestigious-george-mason-university-sign-up-for-company-platform)
+ 
 
 
 

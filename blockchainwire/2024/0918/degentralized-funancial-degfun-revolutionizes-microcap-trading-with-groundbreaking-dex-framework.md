@@ -41,7 +41,9 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/degentralized-funancial---degfun-revolutionizes-microcap-trading-with-groundbreaking-dex-framework)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/degfun-revolutionizing-defi-microcap-trading/e5bee9772a5a2e59da8d684f71967aeb) 
+
+ 
 
 
 

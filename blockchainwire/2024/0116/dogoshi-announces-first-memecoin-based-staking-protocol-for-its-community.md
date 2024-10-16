@@ -42,7 +42,11 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/dogoshi-announces-first-memecoin-based-staking-protocol-for-its-community)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dogoshi-launches-new-meme-token-and-staking-protocol-with-unique-features/d29445bca2815a0cd84946625cd22c11) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/16/dogoshi-unveils-innovative-memecoin-staking-protocol)
+ 
 
 
 

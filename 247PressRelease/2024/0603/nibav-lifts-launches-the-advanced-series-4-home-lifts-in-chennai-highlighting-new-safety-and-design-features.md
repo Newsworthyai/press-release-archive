@@ -7,7 +7,11 @@ CHENNAI, INDIA, June 03, 2024 /24-7PressRelease/ -- Nibav Lifts has launched its
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511364/nibav-lifts-launches-the-advanced-series-4-home-lifts-in-chennai-highlighting-new-safety-and-design-features)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nibav-lifts-launches-series-4-and-series-4-max-home-lifts-with-innovative-features/556c8a433dd158186270a8932bc41169) 
+
+
+Pickup - [advos.io](https://advos.io/en/nibav-lifts-launches-series-4-home-lifts-in-chennai-setting-new-standards-in-safety-and-design/20243611)
+ 
 
 
 

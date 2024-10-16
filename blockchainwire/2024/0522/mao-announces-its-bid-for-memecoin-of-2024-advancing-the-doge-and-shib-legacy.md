@@ -33,7 +33,13 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/mao-announces-its-bid-for-memecoin-of-2024-advancing-the-doge-and-shib-legacy)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/maocat-aims-to-become-the-standout-meme-token-of-2024/a94b4def55de71b81c9b0c6fb4019729) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/maocat-aims-to-become-the-standout-meme-token-of-2024)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/maocat-aims-to-become-the-standout-meme-token-of-2024)
+ 
 
 
 

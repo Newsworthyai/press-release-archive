@@ -31,7 +31,19 @@ X (Twitter) | BitMart Research | Facebook | Telegram | YouTube | Instagram | Dis
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-launches-futures-v20-system-offering-enhanced-performance-and-superior-matching-capabilities)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitmart-launches-futures-v2-0-system-with-enhanced-performance-and-features/3638a566d114684b522999622e53e6f2) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bitmart-introduces-futures-v2-0-system-enhancing-trading-efficiency-and-stability/20244760)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/08/bitmart-unveils-futures-v2-0-system-a-leap-forward-in-cryptocurrency-trading)
+
+Pickup - [advos.io](https://advos.io/en/bitmart-unveils-futures-v2-0-system-with-major-performance-upgrades/20244760)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/bitmart-launches-futures-v2-0-system-with-enhanced-performance-and-features)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/bitmart-launches-futures-v2-0-system-with-enhanced-performance-and-features)
+ 
 
 
 

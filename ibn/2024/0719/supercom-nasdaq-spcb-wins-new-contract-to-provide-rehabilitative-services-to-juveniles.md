@@ -29,7 +29,9 @@ SuperCom Ltd. (NASDAQ: SPCB), an identification and digital monitoring solutions
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/supercom-nasdaq-spcb-wins-new-contract-to-provide-rehabilitative-services-to-juveniles-2/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/supercom-ltd-secures-new-contract-for-juvenile-monitoring-in-california/6e911651d6c37e4a8015faefd0597ac3) 
+
+ 
 
 
 

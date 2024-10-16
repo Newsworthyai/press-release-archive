@@ -58,7 +58,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-slk-sealink-network-listing-on-xtcom)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xt-com-lists-slk-on-its-socially-infused-trading-platform/26d3ab7b6c0ab4ad53084795f9964b2a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/19/xt-com-lists-slk-the-native-token-of-sealink-network)
+ 
 
 
 

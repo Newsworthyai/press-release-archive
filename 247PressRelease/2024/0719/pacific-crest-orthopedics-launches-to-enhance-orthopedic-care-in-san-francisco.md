@@ -7,7 +7,15 @@ SAN FRANCISCO, CA, July 19, 2024 /24-7PressRelease/ -- Pacific Crest Orthopedics
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512632/pacific-crest-orthopedics-launches-to-enhance-orthopedic-care-in-san-francisco)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-orthopedic-practice-launches-in-san-francisco-after-merger-of-two-respected-groups/5e7c7e38bf592a420234616128f9cf0a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/19/pacific-crest-orthopedics-emerges-as-comprehensive-care-provider-in-san-francisco)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pacific-crest-orthopedics-launches-to-elevate-orthopedic-care-in-san-francisco/20245107)
+
+Pickup - [advos.io](https://advos.io/en/pacific-crest-orthopedics-enhances-orthopedic-care-in-san-francisco/20245107)
+ 
 
 
 

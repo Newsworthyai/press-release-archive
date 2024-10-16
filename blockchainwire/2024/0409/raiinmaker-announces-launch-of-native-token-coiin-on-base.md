@@ -29,7 +29,11 @@ The Raiinmaker AI Super App is powered by the Raiinmaker Network, providing seam
 [Original/Source Press Release](https://blockchainwire.io/press-release/raiinmaker-announces-launch-of-native-token-coiin-on-base)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/raiinmaker-sells-out-coiin-token-ido-on-tenset-and-poolz-plans-more-for-april/9918bd2468c580817679223c3be964e6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/raiinmaker-launches-coiin-token-on-base-network-empowering-decentralized-ai)
+ 
 
 
 

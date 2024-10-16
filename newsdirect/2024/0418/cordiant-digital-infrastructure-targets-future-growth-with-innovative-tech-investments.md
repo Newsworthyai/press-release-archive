@@ -29,7 +29,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/cordiant-digi
 [Original/Source Press Release](https://newsdirect.com/news/cordiant-digital-infrastructure-targets-future-growth-with-innovative-tech-investments-578856673)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cordiant-digital-infrastructure-targets-future-growth-with-innovative-tech-investments/987832003174f7b5caaaf43c1c506506) 
+
+ 
 
 
 

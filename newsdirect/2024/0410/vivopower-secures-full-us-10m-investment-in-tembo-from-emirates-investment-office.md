@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/vivopower-sec
 [Original/Source Press Release](https://newsdirect.com/news/vivopower-secures-full-us-10m-investment-in-tembo-from-emirates-investment-office-794478409)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vivopower-secures-full-us-10m-investment-in-tembo-from-emirates-investment-office/949f70a7cf196dd16d425bb3a6bfe796) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/vivopower-secures-full-us-10m-investment-in-tembo-from-emirates-investment-office)
+ 
 
 
 

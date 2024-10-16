@@ -7,7 +7,11 @@ WELLINGTON, FL, March 25, 2024 /24-7PressRelease/ -- Step into a world where the
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509468/exploring-the-depths-of-mental-health-los-asesinos-silenciosos-offers-a-riveting-tale-of-resilience-and-reflection)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/powerful-novel-explores-mental-health-struggles-and-the-human-experience/59ccb690c4fe344f9f0e5ead4c10a726) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/unveiling-the-silent-assassins-a-poignant-exploration-of-mental-health-resilience)
+ 
 
 
 

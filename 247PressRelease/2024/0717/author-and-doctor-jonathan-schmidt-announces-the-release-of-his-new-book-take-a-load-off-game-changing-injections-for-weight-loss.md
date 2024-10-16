@@ -7,7 +7,9 @@ MAGNOLIA, TX, July 17, 2024 /24-7PressRelease/ -- Author Jonathan Schmidt grew u
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512566/author-and-doctor-jonathan-schmidt-announces-the-release-of-his-new-book-take-a-load-off-game-changing-injections-for-weight-loss)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-reveals-game-changing-injections-for-weight-loss/74c38c1ba8c186f8e6b4f0311bd5c677) 
+
+ 
 
 
 

@@ -75,7 +75,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/indian-spirit
 [Original/Source Press Release](https://newsdirect.com/news/indian-spiritual-leader-morari-bapu-dedicates-ram-katha-at-the-united-nations-to-the-organisation-for-world-peace-932357936)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/morari-bapu-dedicates-spiritual-event-at-un-for-world-peace/0bceeb72381a7967cd0e310b8a140ab8) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/indian-spiritual-leader-morari-bapu-dedicates-ram-katha-at-the-united-nations-to-world-peace/20245529)
+
+Pickup - [advos.io](https://advos.io/en/morari-bapu-dedicates-ram-katha-at-united-nations-to-world-peace/20245529)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/morari-bapu-concludes-historic-ram-katha-at-un-headquarters-promotes-world-peace)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/hindu-spiritual-leader-morari-bapu-concludes-historic-ram-katha-at-un-headquarters)
+ 
 
 
 

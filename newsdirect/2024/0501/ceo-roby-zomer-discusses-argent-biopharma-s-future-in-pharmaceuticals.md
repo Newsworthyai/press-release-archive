@@ -27,7 +27,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/ceo-roby-zome
 [Original/Source Press Release](https://newsdirect.com/news/ceo-roby-zomer-discusses-argent-biopharmas-future-in-pharmaceuticals-360556921)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/argent-biopharma-shifts-focus-to-pharmaceutical-sector-with-rebranding-and-restructuring/bfde6c0162f918e38ecc896799c1441c) 
+
+ 
 
 
 

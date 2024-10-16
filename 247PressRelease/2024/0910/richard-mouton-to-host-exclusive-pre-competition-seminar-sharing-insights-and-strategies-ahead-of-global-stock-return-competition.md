@@ -7,7 +7,17 @@ JOHANNESBURG, SOUTH AFRICA, September 10, 2024 /24-7PressRelease/ -- The Financi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514147/richard-mouton-to-host-exclusive-pre-competition-seminar-sharing-insights-and-strategies-ahead-of-global-stock-return-competition)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fsb-launches-world-stock-yield-competition-with-100-million-prize-pool/3f999fe4672ae4713ffd67d0f84e7f05) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/10/global-stock-yield-competition-launches-with-100-million-prize-pool)
+
+Pickup - [fishervista.com](https://fishervista.com/en/richard-mouton-to-host-seminar-ahead-of-world-stock-yield-competition/20246644)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/financial-stability-board-launches-100-million-world-stock-yield-competition/20246644)
+
+Pickup - [advos.io](https://advos.io/en/richard-mouton-to-host-exclusive-seminar-ahead-of-world-stock-yield-competition/20246644)
+ 
 
 
 

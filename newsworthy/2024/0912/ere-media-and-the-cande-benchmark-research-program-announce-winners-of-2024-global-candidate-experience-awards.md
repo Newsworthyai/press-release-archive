@@ -184,7 +184,19 @@ The Candidate Experience (CandE) Benchmark Research and Awards Program is the fi
 [Original/Source Press Release](https://newsworthy.ai/news/202409121261/ere-media-and-the-cande-benchmark-research-program-announce-winners-of-2024-global-candidate-experience-awards)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ere-media-and-cande-benchmark-program-announce-2024-global-candidate-experience-awards-winners/995eba3c4a70ba5c606257630631fe12) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/ere-media-announces-62-global-winners-of-2024-candidate-experience-awards)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/ere-media-announces-62-global-winners-of-2024-candidate-experience-awards/20246794)
+
+Pickup - [fishervista.com](https://fishervista.com/en/ere-media-announces-62-global-winners-of-2024-candidate-experience-awards/20246794)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/62-companies-honored-for-excellence-in-candidate-experience-in-2024-global-awards/20246794)
+
+Pickup - [advos.io](https://advos.io/en/ere-media-announces-62-global-winners-of-2024-candidate-experience-awards/20246794)
+ 
 
 
 

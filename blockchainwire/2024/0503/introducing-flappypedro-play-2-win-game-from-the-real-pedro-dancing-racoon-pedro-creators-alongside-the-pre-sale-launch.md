@@ -38,7 +38,9 @@ Disclaimer: Participation in the $PEDRO pre-sale and FlappyPedro game is subject
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-flappypedro-play-2-win-game-from-the-real-pedro-dancing-racoon-pedro-creators-alongside-the-pre-sale-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-real-pedro-dancing-racoon-pedro-unveils-flappypedro-and-pre-sale-launch/44377353971775f60bbd519c62632980) 
+
+ 
 
 
 

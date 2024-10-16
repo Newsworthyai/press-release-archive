@@ -7,7 +7,17 @@ SUNNYVALE, CA, September 16, 2024 /24-7PressRelease/ -- Cooey Health is thrilled
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514296/cooey-healths-ai-driven-hipaa-compliant-care-management-platform-enables-patient-monitoring-and-enhances-physician-efficiency)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cooey-health-s-ai-driven-care-management-platform-achieves-milestone-success/05f48daf079ae23af768a5db9c04f175) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/16/cooey-health-s-ai-platform-revolutionizes-patient-care-management)
+
+Pickup - [fishervista.com](https://fishervista.com/en/cooey-health-s-ai-platform-revolutionizes-patient-care-and-physician-efficiency/20246840)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ai-driven-care-management-platform-revolutionizes-patient-monitoring-and-physician-efficiency/20246840)
+
+Pickup - [advos.io](https://advos.io/en/cooey-health-s-ai-platform-revolutionizes-patient-care-management/20246840)
+ 
 
 
 

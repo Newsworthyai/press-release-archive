@@ -39,7 +39,19 @@ Media contact via Cassiopeia [info@cassiopeia-ltd.com](mailto:info@cassiopeia-lt
 [Original/Source Press Release](https://blockchainwire.io/press-release/stanford-professor-jeff-strnad-joins-advisory-panel-of-q-international-foundation-to-address-daos-governance-challenges-1)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stanford-university-professor-joins-q-international-foundation-to-address-dao-governance-challenges/ec3907634347756f50d19820edce6c58) 
+
+
+Pickup - [advos.io](https://advos.io/en/stanford-s-jeff-strnad-joins-q-international-foundation-to-tackle-dao-governance-issues/20244887)
+
+Pickup - [fishervista.com](https://fishervista.com/en/stanford-professor-jeff-strnad-joins-q-international-foundation-to-tackle-dao-governance-issues/20244887)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/11/stanford-law-professor-joins-q-international-foundation-to-revolutionize-dao-governance)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/stanford-university-professor-joins-q-international-foundation-to-address-dao-governance-challenges)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/stanford-university-professor-joins-q-international-foundation-to-address-dao-governance-challenges)
+ 
 
 
 

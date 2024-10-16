@@ -31,7 +31,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/pel-82-chevro
 [Original/Source Press Release](https://newsdirect.com/news/pel-82-chevron-farm-in-134234377)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chevron-enters-petroleum-exploration-license-82-with-custos-energy-in-namibia/19c3231ef5d254a1817fe9d63476ff1e) 
+
+ 
 
 
 

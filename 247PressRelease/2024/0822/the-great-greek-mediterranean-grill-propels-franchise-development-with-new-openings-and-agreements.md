@@ -7,7 +7,17 @@ WEST PALM BEACH, FL, August 22, 2024 /24-7PressRelease/ -- The Great Greek Medit
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513664/the-great-greek-mediterranean-grill-propels-franchise-development-with-new-openings-and-agreements)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-great-greek-mediterranean-grill-r-achieves-remarkable-growth-in-2024/10e7ceefc0452117a9133935329d586e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/the-great-greek-mediterranean-grill-experiences-significant-growth-and-recognition-in-2024)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/the-great-greek-mediterranean-grill-expands-rapidly-with-new-locations-and-strong-sales-growth/20245887)
+
+Pickup - [advos.io](https://advos.io/en/the-great-greek-mediterranean-grill-expands-with-new-openings-and-franchise-agreements/20245887)
+
+Pickup - [fishervista.com](https://fishervista.com/en/the-great-greek-mediterranean-grill-expands-aggressively-sets-sights-on-international-markets/20245887)
+ 
 
 
 

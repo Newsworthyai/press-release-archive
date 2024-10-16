@@ -36,7 +36,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/benchmark-int
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-publishes-comprehensive-information-services-industry-report-914086293)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benchmark-international-releases-global-information-services-industry-report/502bc9aacc5248b2425bc32b4c3eda32) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/13/benchmark-international-releases-in-depth-report-on-global-information-services-industry)
+
+Pickup - [fishervista.com](https://fishervista.com/en/global-information-services-market-set-for-steady-growth-new-industry-report-reveals/20246818)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/global-information-services-market-set-for-steady-growth-new-report-reveals/20246818)
+
+Pickup - [advos.io](https://advos.io/en/benchmark-international-releases-comprehensive-report-on-global-information-services-industry/20246818)
+ 
 
 
 

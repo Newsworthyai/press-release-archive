@@ -59,7 +59,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/syntekabio-to
 [Original/Source Press Release](https://newsdirect.com/news/syntekabio-to-highlight-its-cutting-edge-ai-driven-discovery-solutions-at-biotechx-159411527)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/syntekabio-to-showcase-ai-driven-discovery-solutions-at-biotechx-usa/2283e5a06d65f2a356ec23bfb03c0bc5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/06/syntekabio-showcases-ai-driven-drug-discovery-solutions-at-biotechx-usa)
+
+Pickup - [fishervista.com](https://fishervista.com/en/syntekabio-showcases-ai-driven-drug-discovery-solutions-at-biotechx-usa-2024/20246590)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/syntekabio-showcases-ai-driven-drug-discovery-solutions-at-biotechx-usa/20246590)
+
+Pickup - [advos.io](https://advos.io/en/syntekabio-to-showcase-ai-driven-drug-discovery-solutions-at-biotechx-usa/20246590)
+ 
 
 
 

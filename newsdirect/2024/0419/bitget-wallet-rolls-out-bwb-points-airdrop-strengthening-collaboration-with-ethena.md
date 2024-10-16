@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-wallet
 [Original/Source Press Release](https://newsdirect.com/news/bitget-wallet-rolls-out-bwb-points-airdrop-strengthening-collaboration-with-ethena-361595353)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-wallet-announces-partnership-with-ethena-for-bwb-points-airdrop/54c2a9ddb58046bce123c8f2a14a5153) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/bitget-wallet-rolls-out-bwb-points-airdrop-strengthening-collaboration-with-ethena)
+ 
 
 
 

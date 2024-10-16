@@ -27,7 +27,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/-catchcoin-airdrop-join-the-revolution-in-loyalty-management-and-foot-traffic-generation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/catchcointm-inc-revolutionizes-business-traffic-generation-with-blockchain-technology/f3a9606ab450a823769075b2b28a04d4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/18/catchcoin-revolutionizes-loyalty-management-and-foot-traffic-generation)
+ 
 
 
 

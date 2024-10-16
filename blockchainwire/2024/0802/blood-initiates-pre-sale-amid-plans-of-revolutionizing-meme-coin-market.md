@@ -39,7 +39,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/blood-initiates-pre-sale-amid-plans-of-revolutionizing-meme-coin-market)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/community-driven-blood-raises-300000-in-4-hours-prioritizing-transparency-and-engagement/eba3c478b32f177989a21731248cf269) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/02/blood-cryptocurrency-raises-300000-in-4-hours-aims-to-transform-meme-coin-market)
+
+Pickup - [fishervista.com](https://fishervista.com/en/blood-revolutionizes-meme-coin-market-with-community-driven-pre-sale-success/20245471)
+
+Pickup - [advos.io](https://advos.io/en/blood-raises-300000-in-4-hours-sets-new-standards-for-meme-coins/20245471)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/blood-cryptocurrency-raises-300000-in-4-hours-aims-to-revolutionize-meme-coin-market)
+ 
 
 
 

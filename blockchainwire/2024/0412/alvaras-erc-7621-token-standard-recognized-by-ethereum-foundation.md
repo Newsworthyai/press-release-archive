@@ -33,7 +33,11 @@ The Alvara Protocol is a transformative platform in the DeFi space designed to d
 [Original/Source Press Release](https://blockchainwire.io/press-release/alvaras-erc-7621-token-standard-recognized-by-ethereum-foundation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alvara-protocol-democratizes-fund-management-with-erc-7621-recognition/0e6f041c91615e3c16183144c49515a4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/alvara-s-erc-7621-token-standard-recognized-by-ethereum-foundation)
+ 
 
 
 

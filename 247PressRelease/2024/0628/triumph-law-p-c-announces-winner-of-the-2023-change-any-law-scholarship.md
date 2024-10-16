@@ -7,7 +7,13 @@ FOLSOM, CA, June 28, 2024 /24-7PressRelease/ -- The team at Triumph Law, P.C. is
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512087/triumph-law-pc-announces-winner-of-the-2023-change-any-law-scholarship)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/graphic-design-major-wins-change-any-law-scholarship/d165dfd0f1e1dfddd4859142577cd5d0) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/thu-tran-wins-2023-change-any-law-scholarship-from-triumph-law-p-c/20244563)
+
+Pickup - [advos.io](https://advos.io/en/triumph-law-p-c-awards-2023-change-any-law-scholarship-to-arizona-state-university-student-thu-tran/20244563)
+ 
 
 
 

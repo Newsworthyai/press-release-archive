@@ -13,7 +13,11 @@
 [Original/Source Press Release](https://blockchainwire.io/press-release/traders-fair-philippines-2024-the-ultimate-destination-for-traders-and-investors)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/traders-fair-philippines-2024-a-must-attend-event-for-traders-and-investors/2ffb7eb6fc7bdcac501ca46d1a5e2cbe) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/11/traders-fair-philippines-2024-unlocking-opportunities-in-the-financial-markets)
+ 
 
 
 

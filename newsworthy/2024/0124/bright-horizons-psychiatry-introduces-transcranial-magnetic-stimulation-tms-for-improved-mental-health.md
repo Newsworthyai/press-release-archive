@@ -13,7 +13,11 @@ The standard TMS treatment plan at Bright Horizons Psychiatry typically involves
 [Original/Source Press Release](https://newsworthy.ai/news/202401241028/bright-horizons-psychiatry-introduces-transcranial-magnetic-stimulation-tms-for-improved-mental-health)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bright-horizons-psychiatry-introduces-noninvasive-tms-treatment-for-mental-health-disorders/4031a8b9d55d294288dda81f4044e721) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/24/bright-horizons-psychiatry-pioneers-new-frontier-in-mental-health-treatment)
+ 
 
 
 

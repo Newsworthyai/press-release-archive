@@ -51,7 +51,13 @@ Media contact: info@superintelligence.io
 [Original/Source Press Release](https://blockchainwire.io/press-release/artificial-superintelligence-alliance-super-launch-summit--ushers-in-new-era-of-decentralized-asi)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/artificial-superintelligence-alliance-hosts-business-summit-and-super-launch-party/48d4c0326b6e32f7ba667862ded451b9) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/artificial-superintelligence-alliance-super-launch-summit-a-new-era-for-decentralized-ai/20244275)
+
+Pickup - [advos.io](https://advos.io/en/artificial-superintelligence-alliance-s-launch-event-marks-new-era-in-decentralized-ai/20244275)
+ 
 
 
 

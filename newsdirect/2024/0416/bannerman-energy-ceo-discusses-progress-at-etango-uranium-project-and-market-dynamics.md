@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bannerman-ene
 [Original/Source Press Release](https://newsdirect.com/news/bannerman-energy-ceo-discusses-progress-at-etango-uranium-project-and-market-dynamics-891300895)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bannerman-energy-ceo-discusses-progress-at-etango-uranium-project-and-market-dynamics/4d7bf0d9b91ef56f854dd921c5327820) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/bannerman-energy-advances-etango-uranium-project-amid-favorable-market-conditions)
+ 
 
 
 

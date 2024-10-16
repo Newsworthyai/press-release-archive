@@ -53,7 +53,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/new-00014-dogecoin-doge-rival-pumps-more-than-doge-in-7-days-heres-why)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shiba-budz-budz-emerges-as-a-strong-contender-to-dogecoin-doge-in-the-cryptocurrency-market/de2e9774241e549a5911cf39503ac2b1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/08/shiba-budz-emerges-as-formidable-rival-to-dogecoin-in-meme-coin-arena)
+ 
 
 
 

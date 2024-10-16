@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/syntekabio-in
 [Original/Source Press Release](https://newsdirect.com/news/syntekabio-introduces-develop-now-pay-later-with-ai-powered-stb-launchpad-program-910598144)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/syntekabio-introduces-develop-now-pay-later-with-ai-powered-stb-launchpad-program/a2cf798dc73c62dc8410f023575e19bd) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/29/syntekabio-unveils-develop-now-pay-later-ai-driven-drug-discovery-program)
+
+Pickup - [fishervista.com](https://fishervista.com/en/syntekabio-unveils-develop-now-pay-later-initiative-to-revolutionize-drug-development/20246385)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/syntekabio-unveils-develop-now-pay-later-model-for-ai-driven-drug-discovery/20246385)
+
+Pickup - [advos.io](https://advos.io/en/syntekabio-unveils-ai-powered-develop-now-pay-later-model-to-accelerate-drug-discovery/20246385)
+ 
 
 
 

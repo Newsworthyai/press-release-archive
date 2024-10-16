@@ -85,7 +85,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/gold-price-su
 [Original/Source Press Release](https://newsdirect.com/news/gold-price-surge-linked-to-chinese-market-enthusiasm-493580278)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-price-surge-linked-to-chinese-market-enthusiasm/d41676f35b3898fff9272aeef282082a) 
+
+ 
 
 
 

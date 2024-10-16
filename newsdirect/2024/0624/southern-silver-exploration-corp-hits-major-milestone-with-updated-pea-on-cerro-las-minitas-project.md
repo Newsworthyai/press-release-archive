@@ -19,7 +19,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/southern-silv
 [Original/Source Press Release](https://newsdirect.com/news/southern-silver-exploration-corp-hits-major-milestone-with-updated-pea-on-cerro-las-minitas-project-636602330)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/southern-silver-exploration-corp-president-larry-page-shares-results-from-updated-preliminary-economic-assessment-on-cerro-las-minitas-project/d6448a07daecf66768b46e6096506f23) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/southern-silver-exploration-corp-achieves-key-milestone-with-updated-pea-on-cerro-las-minitas-project/20244426)
+
+Pickup - [advos.io](https://advos.io/en/southern-silver-exploration-corp-announces-significant-milestone-with-updated-pea-on-cerro-las-minitas-project/20244426)
+ 
 
 
 

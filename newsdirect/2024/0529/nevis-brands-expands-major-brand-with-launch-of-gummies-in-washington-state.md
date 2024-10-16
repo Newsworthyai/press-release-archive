@@ -23,7 +23,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/nevis-brands-
 [Original/Source Press Release](https://newsdirect.com/news/nevis-brands-expands-major-brand-with-launch-of-gummies-in-washington-state-744181021)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nevis-brands-expands-major-brand-with-launch-of-gummies-in-washington-state/f143761ebd34e53d7760eebfe52659c6) 
+
+ 
 
 
 

@@ -21,7 +21,11 @@ Social MediaTelegram: https://t.me/flokainuofficialWebsite: https://floka.ai/Twi
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-floka-the-darling-of-the-floki-community)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/asian-developers-launch-floka-aiming-to-redefine-the-memecoin-landscape/9692357464f8e0af50432c2995594775) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/floka-the-darling-of-the-floki-community-aiming-to-redefine-memecoin-landscape)
+ 
 
 
 

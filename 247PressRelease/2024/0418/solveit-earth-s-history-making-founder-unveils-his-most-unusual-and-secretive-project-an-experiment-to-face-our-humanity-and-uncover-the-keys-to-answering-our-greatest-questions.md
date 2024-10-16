@@ -7,7 +7,11 @@ SAN TAN VALLEY, AZ, April 18, 2024 /24-7PressRelease/ -- Solveit.Earth is excite
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510171/solveitearths-history-making-founder-unveils-his-most-unusual-and-secretive-project-an-experiment-to-face-our-humanity-and-uncover-the-keys-to-answering-our-greatest-questions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solveit-earth-launches-groundbreaking-website-help-from-above/815b7c1be7bab490515c0df98d2e65d6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/18/solveit-earth-s-founder-unveils-unique-project-to-explore-humanity-s-deepest-questions)
+ 
 
 
 

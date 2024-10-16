@@ -15,7 +15,9 @@ One Love Smoke Shop is more than just a destination; it's a part of the communit
 [Original/Source Press Release](https://newsworthy.ai/news/202405081164/one-love-smoke-shop-and-lifestyle-apparel-continues-to-serve-charlotte-nc)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/one-love-smoke-shop-revolutionizing-the-retail-experience-in-charlotte/38d77ccf1b03247de0397f6e360a3feb) 
+
+ 
 
 
 

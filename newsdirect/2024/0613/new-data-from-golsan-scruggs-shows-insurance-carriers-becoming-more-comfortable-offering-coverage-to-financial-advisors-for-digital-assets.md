@@ -41,7 +41,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/new-data-from
 [Original/Source Press Release](https://newsdirect.com/news/new-data-from-golsan-scruggs-shows-insurance-carriers-becoming-more-comfortable-offering-coverage-to-financial-advisors-for-digital-assets-527446204)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/insurers-more-comfortable-offering-coverage-for-digital-assets-to-financial-advisors/57bf7e6446aab12ed4548672d1bade7c) 
+
+
+Pickup - [advos.io](https://advos.io/en/insurance-carriers-show-increased-willingness-to-cover-financial-advisors-for-digital-assets-reports-golsan-scruggs/20244121)
+ 
 
 
 

@@ -7,7 +7,11 @@ SEATTLE, WA, June 12, 2024 /24-7PressRelease/ -- The Global BrainTrust, a grassr
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511614/ai-grassroots-global-braintrust-formed-to-advocate-for-humanity)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-braintrust-advocates-for-human-centered-ai-adoption/8ce2bb51525ce8053f9a0e9eddd5ed41) 
+
+
+Pickup - [advos.io](https://advos.io/en/global-braintrust-advocates-for-human-centered-ai-development/20244062)
+ 
 
 
 

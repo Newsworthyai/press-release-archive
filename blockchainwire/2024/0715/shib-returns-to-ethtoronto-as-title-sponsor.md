@@ -25,7 +25,15 @@ To learn more about SHIB, please visit the official website: https://www.shib.io
 [Original/Source Press Release](https://blockchainwire.io/press-release/shib-returns-to-ethtoronto-as-title-sponsor)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shib-named-title-sponsor-of-canada-s-largest-web3-events/b3aee89cb5f0557eb55ffba0595cfb04) 
+
+
+Pickup - [advos.io](https://advos.io/en/shib-announced-as-title-sponsor-for-ethtoronto-2024/20245076)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/15/shib-announces-title-sponsorship-of-canada-s-largest-web3-events)
+
+Pickup - [fishervista.com](https://fishervista.com/en/shib-returns-as-title-sponsor-for-ethtoronto-2024/20245076)
+ 
 
 
 

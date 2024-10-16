@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/atlas-lithium
 [Original/Source Press Release](https://newsdirect.com/news/atlas-lithium-nasdaq-atlx-secures-partnerships-with-suppliers-to-tesla-byd-and-secures-funding-from-mitsui-and-co-to-fuel-growth-711131343)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atlas-lithium-secures-partnerships-with-suppliers-to-tesla-byd-and-funding-from-mitsui-co-to-fuel-growth/749584d2d86a78eba73908253f9ce0a2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/12/atlas-lithium-secures-partnerships-and-funding-to-fuel-growth-in-brazil-s-lithium-valley)
+ 
 
 
 

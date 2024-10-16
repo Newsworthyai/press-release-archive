@@ -19,7 +19,9 @@ View source version on newsdirect.com: https://newsdirect.com/news/alkane-resour
 [Original/Source Press Release](https://newsdirect.com/news/alkane-resources-boosts-confidence-in-gold-copper-property-following-kaiser-resource-update-199136254)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alkane-resources-boosts-confidence-in-gold-copper-property-following-kaiser-resource-update/447d1fd5fb56a356e9ae02d18e5b6a0e) 
+
+ 
 
 
 

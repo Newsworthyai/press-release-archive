@@ -7,7 +7,11 @@ MIAMI, FL, June 13, 2024 /24-7PressRelease/ -- ForgeStop Technology Corporation,
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511671/forgestop-announces-strategic-partnership-with-award-winning-whisky-manufacturer-to-revolutionize-product-authentication-and-customer-engagement)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/forgestop-partners-with-piccadily-distilleries-to-revolutionize-product-authentication/2678a23435715d3df5173ae101d6ace7) 
+
+
+Pickup - [advos.io](https://advos.io/en/forgestop-and-piccadily-distilleries-partner-to-enhance-product-authentication-with-nfc-smart-labels/20244099)
+ 
 
 
 

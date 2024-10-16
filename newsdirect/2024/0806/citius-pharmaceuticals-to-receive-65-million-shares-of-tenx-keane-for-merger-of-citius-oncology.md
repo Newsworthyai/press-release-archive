@@ -45,7 +45,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/citius-pharma
 [Original/Source Press Release](https://newsdirect.com/news/citius-pharmaceuticals-to-receive-65-million-shares-of-tenx-keane-for-merger-of-citius-oncology-466510279)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/citius-pharma-receives-approval-for-business-combination-with-tenx-keane-forming-citius-oncology-inc/310024ebbd7c0a727b6c218c86dc19e9) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/citius-pharmaceuticals-secures-65-million-shares-in-tenx-keane-merger-to-form-citius-oncology/20245530)
+
+Pickup - [advos.io](https://advos.io/en/citius-pharmaceuticals-and-tenx-keane-merge-to-form-citius-oncology/20245530)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/citius-pharmaceuticals-advances-oncology-spinoff-through-merger-with-tenx-keane)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/citius-pharmaceuticals-advances-oncology-subsidiary-merger-poised-for-lymphir-commercialization)
+ 
 
 
 

@@ -7,7 +7,17 @@ FORT LAUDERDALE, FL, August 28, 2024 /24-7PressRelease/ -- Hold the toppings! An
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513854/celebrate-national-cheese-pizza-day-at-anthonys-coal-fired-pizza-wings-with-10-large-cheese-pizzas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/anthony-s-coal-fired-pizza-wings-celebrates-national-cheese-pizza-day-with-special-offer/0f63d4485924f93537581c73b2d3c818) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/28/anthony-s-coal-fired-pizza-wings-offers-10-large-cheese-pizzas-for-national-cheese-pizza-day)
+
+Pickup - [fishervista.com](https://fishervista.com/en/anthony-s-coal-fired-pizza-wings-offers-10-large-cheese-pizzas-for-national-cheese-pizza-day/20246317)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/anthony-s-coal-fired-pizza-wings-offers-10-large-cheese-pizzas-for-national-cheese-pizza-day/20246317)
+
+Pickup - [advos.io](https://advos.io/en/anthony-s-coal-fired-pizza-wings-celebrates-national-cheese-pizza-day-with-10-large-cheese-pizzas/20246317)
+ 
 
 
 

@@ -19,7 +19,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-
 [Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-reports-q2-2024-performance-with-significant-revenue-growth-and-improved-profit-margins-107971163)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nextech3d-ai-reports-significant-revenue-growth-and-improved-profit-margins-in-q2-2024/7ac197791fd60a71a2aaa819a3df059c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/nextech3d-ai-announces-strong-q2-2024-results-with-revenue-growth-and-improved-margins)
+
+Pickup - [fishervista.com](https://fishervista.com/en/nextech3d-ai-reports-robust-q2-2024-growth-with-enhanced-profit-margins/20245358)
+
+Pickup - [advos.io](https://advos.io/en/nextech3d-ai-reports-strong-q2-2024-performance-with-revenue-surge-and-improved-margins/20245358)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/nextech3d-ai-sees-substantial-q2-2024-growth-with-revenue-increase-and-profit-margin-improvements)
+ 
 
 
 

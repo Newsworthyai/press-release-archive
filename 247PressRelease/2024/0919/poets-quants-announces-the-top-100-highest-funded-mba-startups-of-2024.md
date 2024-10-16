@@ -7,7 +7,9 @@ SAN FRANSISCO, CA, September 19, 2024 /24-7PressRelease/ -- Poets&Quants present
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514473/poetsquants-announces-the-top-100-highest-funded-mba-startups-of-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/poets-quants-releases-100-highest-funded-mba-startups-of-2024/e8a93c9fce991b5984b700388a12c35f) 
+
+ 
 
 
 

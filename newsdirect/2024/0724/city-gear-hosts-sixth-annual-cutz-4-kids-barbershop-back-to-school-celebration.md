@@ -39,7 +39,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/city-gear-hos
 [Original/Source Press Release](https://newsdirect.com/news/city-gear-hosts-sixth-annual-cutz-4-kids-barbershop-and-back-to-school-celebration-656187180)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/city-gear-announces-6th-annual-cutz-4-kids-barbershop-and-back-to-school-campaign/04f9cd4d43675b3dae4d60e9a3ea443b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/24/city-gear-launches-sixth-annual-cutz-4-kids-back-to-school-initiative)
+
+Pickup - [fishervista.com](https://fishervista.com/en/city-gear-hosts-sixth-annual-cutz-4-kids-barbershop-back-to-school-celebration/20245219)
+
+Pickup - [advos.io](https://advos.io/en/city-gear-hosts-sixth-annual-cutz-4-kids-back-to-school-celebration/20245219)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/city-gear-launches-sixth-annual-cutz-4-kids-back-to-school-campaign)
+ 
 
 
 

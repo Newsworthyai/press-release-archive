@@ -28,7 +28,13 @@ Stellar is more than a blockchain. Powered by a decentralized, fast, scalable, a
 [Original/Source Press Release](https://blockchainwire.io/press-release/draper-university-to-invest-in-the-stellar-ecosystem-with-new-accelerator-programs-focused-on-ai-and-soroban)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/draper-university-announces-support-for-stellar-ecosystem-growth/d16a93582d8fe9a88f7d7f3b17a5549f) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/draper-university-announces-support-for-stellar-ecosystem-growth)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/draper-university-announces-support-for-stellar-ecosystem-growth)
+ 
 
 
 

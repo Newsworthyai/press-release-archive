@@ -35,7 +35,15 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-halving-token-bhvt-debuts-on-chainbitvortex-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chainbitvortex-lists-bitcoin-halving-token-bhvt-for-trading/8fe3cfa82bcf22e591a5ab4beb756972) 
+
+
+Pickup - [advos.io](https://advos.io/en/chainbitvortex-exchange-lists-bitcoin-halving-token-bhvt-for-trading/20244204)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/chainbitvortex-lists-bitcoin-halving-token-bhvt-for-trading)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/chainbitvortex-lists-bitcoin-halving-token-bhvt-for-trading)
+ 
 
 
 

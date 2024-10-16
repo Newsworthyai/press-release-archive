@@ -39,7 +39,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/a-new-social-trend-welcome-to-the-blockdag-network-era--how-a-relatively-new-project-created-a-crypto-culture-of-its-own-)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/blockdag-network-the-emergence-of-a-new-social-trend-in-digital-finance/438530bcec805e6f86b0280131804197) 
+
+ 
 
 
 

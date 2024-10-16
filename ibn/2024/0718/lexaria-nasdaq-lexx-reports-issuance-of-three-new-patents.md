@@ -34,7 +34,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-nasdaq-lexx-reports-issuance-of-three-new-patents/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lexaria-bioscience-receives-three-new-patents-grows-portfolio-to-46-granted-patents-worldwide/b7dc84b708a8afb76e4e8bc629100b99) 
+
+ 
 
 
 

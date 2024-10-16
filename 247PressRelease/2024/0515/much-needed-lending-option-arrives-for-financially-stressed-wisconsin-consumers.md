@@ -7,7 +7,9 @@ DES PLAINES, IL, May 15, 2024 /24-7PressRelease/ -- "The statistics paint a pret
 [Original/Source Press Release](https://www.24-7pressrelease.com/press_release/510840/much-needed-lending-option-arrives-for-financially-stressed-wisconsin-consumers)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gocredit-loans-launches-operations-in-wisconsin-offering-innovative-short-term-installment-loans/d39147a15185d8171b47665f6ff1911c) 
+
+ 
 
 
 

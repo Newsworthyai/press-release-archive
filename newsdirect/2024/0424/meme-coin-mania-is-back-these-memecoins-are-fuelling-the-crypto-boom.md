@@ -57,7 +57,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/meme-coin-man
 [Original/Source Press Release](https://newsdirect.com/news/meme-coin-mania-is-back-these-memecoins-are-fuelling-the-crypto-boom-867727212)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meme-coins-shiba-inu-floki-and-kangamoon-fueling-crypto-boom/9790698f49a8b599c783eb460c6ca769) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/24/meme-coin-mania-is-back-these-memecoins-are-fuelling-the-crypto-boom)
+ 
 
 
 

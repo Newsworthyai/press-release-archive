@@ -31,7 +31,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/cencia-exchange-has-purchased-commercial-insurance-for-liquidation-providing-cash-claim-protection-for-cencia-users)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cencia-exchange-setting-new-standards-for-legitimacy-and-professionalism/bb5cc5dfddf65ceb4020fe24c7d02422) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/cencia-exchange-enhances-user-security-with-commercial-liquidation-insurance)
+ 
 
 
 

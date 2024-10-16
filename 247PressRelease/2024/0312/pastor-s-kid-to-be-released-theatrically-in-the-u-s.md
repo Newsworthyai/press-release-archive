@@ -7,7 +7,11 @@ LOS ANGELES, CA, March 12, 2024 /24-7PressRelease/ -- Atlas Distribution Company
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509181/pastors-kid-to-be-released-theatrically-in-the-us)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/atlas-distribution-company-announces-theatrical-release-of-pastor-s-kid/687ce33bb08c1f4cdf9fc1f389c32927) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/12/powerful-true-story-pastor-s-kid-hits-theaters-nationwide)
+ 
 
 
 

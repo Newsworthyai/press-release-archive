@@ -44,7 +44,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/stupid-cancer
 [Original/Source Press Release](https://newsdirect.com/news/stupid-cancer-announces-cancercon-live-2024-in-austin-texas-627125993)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stupid-cancer-announces-cancercon-live-2024-in-austin-tx/10304168b54e7a86447c1cec039083bd) 
+
+
+Pickup - [advos.io](https://advos.io/en/stupid-cancer-announces-cancercon-live-2024-in-austin-texas/20244096)
+ 
 
 
 

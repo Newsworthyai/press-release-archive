@@ -44,7 +44,21 @@ Disclaimer: This is a press release and does not contain any financial advice. R
 [Original/Source Press Release](https://blockchainwire.io/press-release/shepskyai-to-introduce-adaptive-ai-driven-bots-for-crypto-trading-in-upcoming-launch)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/upcoming-launch-of-shepskyai-s-ai-driven-trading-bots/7790a84e6cd122f0e02cb68e230f4934) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/12/shepskyai-set-to-launch-innovative-ai-driven-crypto-trading-bots)
+
+Pickup - [fishervista.com](https://fishervista.com/en/shepskyai-to-launch-adaptive-ai-driven-crypto-trading-bots/20245649)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/shepskyai-set-to-launch-ai-driven-crypto-trading-bots/20245649)
+
+Pickup - [advos.io](https://advos.io/en/shepskyai-to-launch-adaptive-ai-driven-crypto-trading-bots/20245649)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/upcoming-launch-of-shepskyai-s-ai-driven-trading-bots)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/upcoming-launch-of-shepskyai-s-ai-driven-trading-bots)
+ 
 
 
 

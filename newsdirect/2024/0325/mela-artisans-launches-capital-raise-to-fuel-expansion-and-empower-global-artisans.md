@@ -33,7 +33,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/mela-artisans
 [Original/Source Press Release](https://newsdirect.com/news/mela-artisans-launches-capital-raise-to-fuel-expansion-and-empower-global-artisans-712983972)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mela-artisans-launches-capital-raise-to-fuel-expansion-and-empower-global-artisans/867910d13459efc58c66cac5e51f4f5e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/25/mela-artisans-seeks-investments-to-empower-global-artisans-and-expand-operations)
+ 
 
 
 

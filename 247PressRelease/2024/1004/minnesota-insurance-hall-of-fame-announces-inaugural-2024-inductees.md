@@ -7,7 +7,9 @@ ST. PAUL, MN, October 04, 2024 /24-7PressRelease/ -- The Minnesota Insurance Hal
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514929/minnesota-insurance-hall-of-fame-announces-inaugural-2024-inductees)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/minnesota-insurance-hall-of-fame-announces-2024-inductees/c7bf47a1d619a06108946e097959d1bc) 
+
+ 
 
 
 

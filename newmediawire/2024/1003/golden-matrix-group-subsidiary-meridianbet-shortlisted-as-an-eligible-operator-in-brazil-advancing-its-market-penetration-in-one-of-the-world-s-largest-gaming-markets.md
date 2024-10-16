@@ -71,7 +71,9 @@ LAS VEGAS - (NewMediaWire) - October 03, 2024 - Golden Matrix Group Inc. (NASDAQ
 [Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-subsidiary-meridianbet-shortlisted-as-an-eligible-operator-in-brazil-advancing-its-market-penetration-in-one-of-the-world-s-largest-gaming-markets-7076146)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/meridian-gaming-brasil-successfully-passes-brazil-s-exclusive-licensing-process-for-sports-betting-and-igaming/00e342b944ce7f0ca182b7377b6def27) 
+
+ 
 
 
 

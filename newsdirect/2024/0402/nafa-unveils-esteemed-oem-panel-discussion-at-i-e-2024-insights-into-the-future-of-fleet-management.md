@@ -38,7 +38,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/nafa-unveils-
 [Original/Source Press Release](https://newsdirect.com/news/nafa-unveils-esteemed-oem-panel-discussion-at-iande-2024-insights-into-the-future-of-fleet-management-558066415)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nafa-announces-oem-panel-discussion-at-i-e-2024/58404651795fd9de42ff9a079e63d6fa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/02/fleet-experts-converge-at-nafa-s-i-e-2024-to-discuss-the-future-of-mobility)
+ 
 
 
 

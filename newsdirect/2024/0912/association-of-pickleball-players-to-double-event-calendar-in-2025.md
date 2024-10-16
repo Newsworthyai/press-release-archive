@@ -52,7 +52,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/association-o
 [Original/Source Press Release](https://newsdirect.com/news/association-of-pickleball-players-to-double-event-calendar-in-2025-502720999)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/association-of-pickleball-players-to-double-event-calendar-in-2025/00710564342e8465d0968611fbc86488) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/association-of-pickleball-players-announces-major-expansion-for-2025)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pickleball-set-for-major-expansion-as-app-doubles-2025-event-calendar/20246786)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/association-of-pickleball-players-announces-major-expansion-for-2025-season/20246786)
+
+Pickup - [advos.io](https://advos.io/en/pickleball-s-explosive-growth-app-doubles-2025-event-calendar/20246786)
+ 
 
 
 

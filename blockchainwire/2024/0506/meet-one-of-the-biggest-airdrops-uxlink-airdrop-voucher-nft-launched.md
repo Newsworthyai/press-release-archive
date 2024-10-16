@@ -47,7 +47,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/meet-one-of-the-biggest-airdrops-uxlink-airdrop-voucher-nft-launched)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uxlink-issues-in-uxlink-we-trust-nft-series-as-airdrop-vouchers/cb89ce69def33d431fcffe8a0c41db11) 
+
+ 
 
 
 

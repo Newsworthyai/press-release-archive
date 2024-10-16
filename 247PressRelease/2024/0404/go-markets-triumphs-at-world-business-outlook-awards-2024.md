@@ -7,7 +7,11 @@ SINGAPORE, April 04, 2024 /24-7PressRelease/ -- In a highly competitive market, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509746/go-markets-triumphs-at-world-business-outlook-awards-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/go-markets-named-best-global-forex-broker-asia-2024/ecc5d33a40ceb64d980233cc07fbf0e0) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/04/go-markets-crowned-best-global-forex-broker-asia-2024-at-world-business-outlook-awards)
+ 
 
 
 

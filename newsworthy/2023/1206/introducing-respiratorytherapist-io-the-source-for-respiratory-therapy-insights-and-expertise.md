@@ -23,7 +23,11 @@ Dive into a world of respiratory knowledge at www.RespiratoryTherapist.io.
 [Original/Source Press Release](https://newsworthy.ai/news/20231206872/introducing-respiratorytherapist-io-the-source-for-respiratory-therapy-insights-and-expertise)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newly-launched-respiratorytherapist-io-provides-expert-insights-in-respiratory-care/1227eeac21a6256e142f647fc8d17606) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/12/06/respiratorytherapist-io-empowering-respiratory-care-with-expert-insights)
+ 
 
 
 

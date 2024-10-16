@@ -7,7 +7,9 @@ TEMPE, AZ, September 20, 2024 /24-7PressRelease/ -- Associated Asset Management 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514500/aam-announces-leadership-transition-elaine-anghel-appointed-as-chief-operating-officer)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aam-announces-transition-of-leadership-team-as-coo-prepares-for-retirement/229291424f16d089e3496bb3dcfa4f2f) 
+
+ 
 
 
 

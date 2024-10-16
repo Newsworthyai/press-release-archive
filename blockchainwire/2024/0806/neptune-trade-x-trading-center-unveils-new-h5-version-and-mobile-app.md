@@ -33,7 +33,21 @@ Join Neptune Trade X Trading Center and take advantage of our latest advancement
 [Original/Source Press Release](https://blockchainwire.io/press-release/neptune-trade-x-trading-center-unveils-new-h5-version-and-mobile-app)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/neptune-trade-x-unveils-new-h5-version-and-mobile-app/fb76da7b7e6e924f4f28bdd12a2a5cf6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/neptune-trade-x-trading-center-launches-advanced-h5-version-and-mobile-app)
+
+Pickup - [fishervista.com](https://fishervista.com/en/neptune-trade-x-trading-center-unveils-new-h5-version-and-mobile-app/20245534)
+
+Pickup - [advos.io](https://advos.io/en/neptune-trade-x-introduces-new-h5-version-and-mobile-app-to-enhance-trading-experience/20245534)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/neptune-trade-x-unveils-new-h5-version-and-mobile-app)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/neptune-trade-x-unveils-new-h5-version-and-mobile-app)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/neptune-trade-x-launches-advanced-h5-version-and-mobile-app-for-enhanced-cryptocurrency-trading)
+ 
 
 
 

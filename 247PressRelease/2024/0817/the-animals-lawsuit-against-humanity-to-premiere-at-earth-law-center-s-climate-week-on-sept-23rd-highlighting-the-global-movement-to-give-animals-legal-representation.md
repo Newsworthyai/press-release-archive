@@ -7,7 +7,17 @@ NEW YORK, NY, August 17, 2024 /24-7PressRelease/ -- Although its roots trace to 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513542/the-animals-lawsuit-against-humanity-to-premiere-at-earth-law-centers-climate-week-on-sept-23rd-highlighting-the-global-movement-to-give-animals-legal-representation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/interfaith-adaptation-of-ancient-tale-to-debut-at-climate-week-nyc/40e12cc662403790e4a35dd9cc0aa635) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/17/ancient-tale-the-animals-lawsuit-against-humanity-to-make-stage-debut-at-climate-week-nyc)
+
+Pickup - [fishervista.com](https://fishervista.com/en/the-animals-lawsuit-against-humanity-premieres-at-climate-week-highlighting-animal-legal-representation/20245796)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/ancient-tale-reimagined-the-animals-lawsuit-against-humanity-to-debut-at-climate-week-nyc/20245796)
+
+Pickup - [advos.io](https://advos.io/en/the-animals-lawsuit-against-humanity-to-debut-at-climate-week-nyc-emphasizing-legal-rights-for-animals/20245796)
+ 
 
 
 

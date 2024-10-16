@@ -51,7 +51,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-and-blockdag-network-among-the-top-crypto-gainers-of-the-year)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/crypto-market-booms-in-2024-bitcoin-and-blockdag-network-lead-the-way/582b4e270eb3039f54a7404ece84b5fd) 
+
+ 
 
 
 

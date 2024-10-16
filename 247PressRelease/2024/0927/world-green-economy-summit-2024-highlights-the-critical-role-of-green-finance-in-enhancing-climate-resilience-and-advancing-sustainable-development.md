@@ -7,7 +7,9 @@ DUBAI, UAE, September 27, 2024 /24-7PressRelease/ -- Amid the escalating climate
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514717/world-green-economy-summit-2024-highlights-the-critical-role-of-green-finance-in-enhancing-climate-resilience-and-advancing-sustainable-development)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uae-takes-lead-in-mobilizing-climate-finance-at-world-green-economy-summit/325f093d15a67487e280f9f0575e5ebb) 
+
+ 
 
 
 

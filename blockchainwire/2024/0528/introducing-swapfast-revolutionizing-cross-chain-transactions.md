@@ -9,7 +9,13 @@ Key Features:- 2M+ Potential Users: A vast user base poised to benefit from Swap
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-swapfast-revolutionizing-cross-chain-transactions)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/swapfast-launches-as-innovative-cross-chain-aggregator-in-decentralized-finance/a9cb916909fc6a6108d329e0ea992e5d) 
+
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/swapfast-launches-as-innovative-cross-chain-aggregator-in-decentralized-finance)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/swapfast-launches-as-innovative-cross-chain-aggregator-in-decentralized-finance)
+ 
 
 
 

@@ -37,7 +37,9 @@ About BUIDL (NEW)
 [Original/Source Press Release](https://blockchainwire.io/press-release/buidlnew-a-decentralized-launchpad-will-be-listed-on-coinw-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-list-buidl-new-on-innovation-zone-with-17000-usdt-bounty-program/50c3f710f7dc7ee7483101dba73ea931) 
+
+ 
 
 
 

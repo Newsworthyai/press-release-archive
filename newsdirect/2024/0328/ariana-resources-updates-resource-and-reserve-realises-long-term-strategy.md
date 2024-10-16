@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/ariana-resour
 [Original/Source Press Release](https://newsdirect.com/news/ariana-resources-updates-resource-and-reserve-realises-long-term-strategy-844938835)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ariana-resources-updates-resource-and-reserve-realizes-long-term-strategy/8ebb8adf2977e8911325aa3a06e1d5bc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/28/ariana-resources-unveils-expanded-resource-and-reserve-advancing-long-term-strategy)
+ 
 
 
 

@@ -7,7 +7,17 @@ LOS ANGELES, CA, September 05, 2024 /24-7PressRelease/ -- MorganHill, a recogniz
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514031/morganhill-announces-availability-of-iso-27001-policy-templates-to-simplify-compliance)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/morganhill-launches-new-iso-27001-policy-templates-for-streamlined-compliance/fadcf89b9787d03219382b2fe666ef1b) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/05/morganhill-launches-iso-27001-policy-templates-to-ease-compliance-process)
+
+Pickup - [fishervista.com](https://fishervista.com/en/morganhill-unveils-iso-27001-policy-templates-to-streamline-compliance/20246546)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/morganhill-releases-iso-27001-policy-templates-to-ease-compliance-process/20246546)
+
+Pickup - [advos.io](https://advos.io/en/morganhill-introduces-iso-27001-policy-templates-to-aid-compliance/20246546)
+ 
 
 
 

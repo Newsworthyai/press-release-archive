@@ -11,7 +11,11 @@ A Vision for Market Leadership and InnovationDuring the ceremony, Mr. Kwon and C
 [Original/Source Press Release](https://blockchainwire.io/press-release/toobit-reinforces-global-leadership-in-crypto-exchange-with-strategic-executive-appointments)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/toobit-appoints-new-ceo-and-expands-leadership-team-in-landmark-event/82fbd7f1f6a114b1f636ca06fbcbf27a) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/25/toobit-bolsters-global-crypto-exchange-dominance-with-key-executive-hires)
+ 
 
 
 

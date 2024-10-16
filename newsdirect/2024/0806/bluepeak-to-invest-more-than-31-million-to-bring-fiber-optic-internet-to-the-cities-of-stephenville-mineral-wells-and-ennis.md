@@ -33,7 +33,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/bluepeak-to-i
 [Original/Source Press Release](https://newsdirect.com/news/bluepeak-to-invest-more-than-31-million-to-bring-fiber-optic-internet-to-the-cities-of-stephenville-mineral-wells-and-ennis-914958652)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bluepeak-invests-31m-to-expand-fiber-internet-in-texas/2fe702a3400285ba2a4e0a8e2e47dce4) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/bluepeak-to-invest-over-31-million-in-fiber-optic-internet-expansion-in-texas/20245531)
+
+Pickup - [advos.io](https://advos.io/en/bluepeak-to-invest-31-million-in-fiber-optic-internet-expansion-in-texas/20245531)
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/06/bluepeak-announces-31-million-fiber-internet-expansion-to-three-texas-cities)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/bluepeak-announces-31-million-fiber-internet-expansion-to-three-texas-cities)
+ 
 
 
 

@@ -31,7 +31,11 @@ marumaruNFT is a groundbreaking NFT marketplace that focuses on Japan's nightlif
 [Original/Source Press Release](https://blockchainwire.io/press-release/maru-an-nft-marketplace-and-metaverse-hub-will-be-listed-on-coinw-exchange)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coinw-to-list-maru-nft-marketplace-for-japan-s-nightlife-culture/e3f2494516871a8f68682fbb26e164b1) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/16/maru-an-nft-marketplace-and-metaverse-hub-will-be-listed-on-coinw-exchange)
+ 
 
 
 

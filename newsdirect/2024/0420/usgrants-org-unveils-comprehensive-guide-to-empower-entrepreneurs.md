@@ -59,7 +59,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/usgrants-org-
 [Original/Source Press Release](https://newsdirect.com/news/usgrants-org-unveils-comprehensive-guide-to-empower-entrepreneurs-921747306)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/usgrants-org-unveils-comprehensive-guide-to-empower-entrepreneurs/65d89d322df8af9b29ff16fc0fb403aa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/20/usgrants-org-unveils-comprehensive-guide-to-empower-entrepreneurs)
+ 
 
 
 

@@ -47,7 +47,9 @@ CARSON CITY, NV - (NewMediaWire) - September 26, 2024 - LeapCharger Corporation
 [Original/Source Press Release](http://www.newmediawire.com/news/leapcharger-nears-finalization-of-strategic-consultant-to-guide-expansion-into-north-america-7076093)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/leapcharger-corporation-expanding-into-north-american-market-with-innovative-ev-charging-solutions/adc109330331fa41a433cbdbfc0d4fad) 
+
+ 
 
 
 

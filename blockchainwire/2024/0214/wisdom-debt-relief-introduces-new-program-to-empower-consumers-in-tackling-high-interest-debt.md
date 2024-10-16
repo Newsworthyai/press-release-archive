@@ -33,7 +33,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/wisdom-debt-relief-introduces-new-program-to-empower-consumers-in-tackling-high-interest-debt)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wisdom-debt-relief-launches-innovative-debt-resolution-program-to-tackle-1-13-trillion-credit-card-debt-crisis/ea9f3b2e6cdc4ee853936aaa9051f393) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/02/14/wisdom-debt-relief-unveils-innovative-program-to-tackle-high-interest-debt)
+ 
 
 
 

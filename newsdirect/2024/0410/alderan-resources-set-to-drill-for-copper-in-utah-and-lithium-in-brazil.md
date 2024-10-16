@@ -19,7 +19,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/alderan-resou
 [Original/Source Press Release](https://newsdirect.com/news/alderan-resources-set-to-drill-for-copper-in-utah-and-lithium-in-brazil-762510825)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alderan-resources-set-to-drill-for-copper-in-utah-and-lithium-in-brazil/3ca10768678c985c09838ca25b317b39) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/10/alderan-resources-to-commence-drilling-for-copper-in-utah-and-lithium-in-brazil)
+ 
 
 
 

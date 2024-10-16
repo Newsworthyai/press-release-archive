@@ -45,7 +45,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/beyond-big-te
 [Original/Source Press Release](https://newsdirect.com/news/beyond-big-tech-how-brand-engagement-network-nasdaq-bnai-is-shaping-the-future-of-ai-413596581)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brand-engagement-network-nasdaq-bnai-leading-the-future-of-ai/85013199fb79c93b18c318e9b170eb1f) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/26/brand-engagement-network-challenges-big-tech-s-ai-dominance)
+ 
 
 
 

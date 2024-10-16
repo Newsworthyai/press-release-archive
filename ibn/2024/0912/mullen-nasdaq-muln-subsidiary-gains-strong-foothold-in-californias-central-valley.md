@@ -25,7 +25,17 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-subsidiary-gains-strong-foothold-in-californias-central-valley/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-nasdaq-muln-expands-retail-network-with-addition-of-affinity-truck-center/da362fda3458b98fb6e160f64daf60f6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/mullen-subsidiary-bollinger-motors-expands-retail-network-in-california-s-central-valley)
+
+Pickup - [fishervista.com](https://fishervista.com/en/mullen-s-bollinger-motors-expands-retail-network-in-california-s-central-valley/20246793)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/mullen-s-bollinger-motors-expands-presence-in-california-s-central-valley-with-new-dealer-partnership/20246793)
+
+Pickup - [advos.io](https://advos.io/en/mullen-s-subsidiary-bollinger-motors-expands-retail-network-in-california-s-central-valley/20246793)
+ 
 
 
 

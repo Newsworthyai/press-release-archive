@@ -25,7 +25,11 @@ Toobit is a leading innovator in the cryptocurrency investment space, providing 
 [Original/Source Press Release](https://blockchainwire.io/press-release/toobit-leads-the-way-in-harnessing-bitcoins-potential-as-the-ultimate-hedge-against-inflation)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/toobit-unveils-bitcoin-inflation-hedge-plan/cd704a8440e5de05c6467bf34efcf070) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/03/toobit-pioneers-bitcoin-as-inflation-resistant-asset)
+ 
 
 
 

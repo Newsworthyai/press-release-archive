@@ -40,7 +40,11 @@ The WEMIX blockchain-based mega-ecosystem includes WEMIX, its native coin and br
 [Original/Source Press Release](https://blockchainwire.io/press-release/wemix30s-stwemix-liquid-staking-token-makes-worldwide-debut-on-bitmart-and-gopax)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wemade-introduces-stwemix-a-liquid-staking-token-lst-for-wemix3-0-blockchain/9f9ae1a6ab53f8fdf45de627eeb4cfaa) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/10/wemix-ecosystem-unveils-stwemix-liquid-staking-token-for-enhanced-liquidity-and-flexibility)
+ 
 
 
 

@@ -7,7 +7,17 @@ LOS ANGELES, CA, September 09, 2024 /24-7PressRelease/ -- Love Your Liver helps 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513943/blue-faery-continues-its-love-your-liver-campaign-during-hispanic-heritage-month)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/love-your-liver-raises-awareness-about-liver-cancer-risk-factors-in-hispanic-community/9caa39807131a7bf9b2fd837605173f6) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/09/blue-faery-launches-hispanic-heritage-month-liver-cancer-awareness-campaign)
+
+Pickup - [fishervista.com](https://fishervista.com/en/blue-faery-advances-liver-cancer-awareness-in-hispanic-community-during-heritage-month/20246607)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/blue-faery-launches-hispanic-heritage-month-liver-cancer-awareness-campaign/20246607)
+
+Pickup - [advos.io](https://advos.io/en/blue-faery-enhances-liver-cancer-awareness-during-hispanic-heritage-month/20246607)
+ 
 
 
 

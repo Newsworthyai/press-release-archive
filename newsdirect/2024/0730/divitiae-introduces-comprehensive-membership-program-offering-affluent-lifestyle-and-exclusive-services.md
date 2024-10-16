@@ -35,7 +35,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/divitiae-intr
 [Original/Source Press Release](https://newsdirect.com/news/divitiae-introduces-comprehensive-membership-program-offering-affluent-lifestyle-and-exclusive-services-391013661)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/divitiae-launches-exclusive-membership-program-for-affluent-lifestyle/25637128a583850fb461f48703e45205) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/30/divitiae-launches-exclusive-membership-program-for-luxury-lifestyle-services)
+
+Pickup - [fishervista.com](https://fishervista.com/en/divitiae-launches-exclusive-membership-program-for-affluent-lifestyles/20245352)
+
+Pickup - [advos.io](https://advos.io/en/divitiae-launches-exclusive-membership-program-for-affluent-lifestyle/20245352)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/divitiae-launches-luxury-membership-program-with-exclusive-services-and-mastercard-partnership)
+ 
 
 
 

@@ -7,7 +7,9 @@ BALTIMORE, MD, September 26, 2024 /24-7PressRelease/ -- Get ready to face your d
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514659/the-nevermore-haunt-returns-for-a-terrifying-2024-season)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-nevermore-haunt-returns-for-2024-season-with-new-chilling-attractions/da8c7510928c0fb35c18e6007f216629) 
+
+ 
 
 
 

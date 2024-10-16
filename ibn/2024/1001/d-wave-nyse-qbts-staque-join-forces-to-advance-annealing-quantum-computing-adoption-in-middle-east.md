@@ -29,7 +29,9 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-staque-join-forces-to-advance-annealing-quantum-computing-adoption-in-middle-east/)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-and-staque-partner-to-advance-quantum-computing-adoption-in-the-middle-east/63fad8231f1de343ea085a3e851bf996) 
+
+ 
 
 
 

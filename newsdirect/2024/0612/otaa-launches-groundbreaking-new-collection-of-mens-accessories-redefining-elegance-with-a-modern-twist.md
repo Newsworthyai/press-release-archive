@@ -43,7 +43,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/otaa-launches
 [Original/Source Press Release](https://newsdirect.com/news/otaa-launches-groundbreaking-new-collection-of-mens-accessories-redefining-elegance-with-a-modern-twist-349048417)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/otaa-launches-groundbreaking-new-collection-of-mens-accessories-redefining-elegance-with-a-modern-twist/425243ad89bf062406cb7c78cbc1ef74) 
+
+
+Pickup - [advos.io](https://advos.io/en/otaa-introduces-new-collection-of-mens-accessories-blending-traditional-charm-with-modern-elegance/20244094)
+ 
 
 
 

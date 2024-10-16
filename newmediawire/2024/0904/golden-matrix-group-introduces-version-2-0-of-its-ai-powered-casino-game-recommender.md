@@ -65,7 +65,17 @@ LAS VEGAS, NV - (NewMediaWire) - September 04, 2024 - Golden Matrix Group (NASD
 [Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-introduces-version-2-0-of-its-ai-powered-casino-game-recommender-7075996)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-matrix-group-launches-ai-powered-casino-game-recommender-version-2-0/384e445a4e0cfdf8af77677dfdf5f9e3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/04/golden-matrix-group-unveils-ai-powered-casino-game-recommender-2-0)
+
+Pickup - [fishervista.com](https://fishervista.com/en/golden-matrix-group-unveils-ai-powered-casino-game-recommender-version-2-0/20246514)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/en/golden-matrix-group-upgrades-ai-casino-game-recommender-for-enhanced-igaming-experience/20246514)
+
+Pickup - [advos.io](https://advos.io/en/golden-matrix-group-launches-ai-powered-casino-game-recommender-version-2-0/20246514)
+ 
 
 
 

@@ -67,7 +67,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcx-wallet-set-to-launch-public-testnet-aiming-to-reshape-the-crypto-payment-experience)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/upcx-wallet-announces-new-features-and-upcoming-public-testnet/4960665aaceb571488f2913f5b2eace3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/upcx-wallet-unveils-innovative-crypto-payment-solutions-ahead-of-public-testnet-launch)
+ 
 
 
 

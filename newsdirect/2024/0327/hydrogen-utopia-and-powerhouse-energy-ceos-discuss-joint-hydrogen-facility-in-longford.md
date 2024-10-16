@@ -25,7 +25,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/hydrogen-utop
 [Original/Source Press Release](https://newsdirect.com/news/hydrogen-utopia-and-powerhouse-energy-ceos-discuss-joint-hydrogen-facility-in-longford-440728577)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/hydrogen-utopia-and-powerhouse-energy-ceos-discuss-joint-hydrogen-facility-in-longford/dd7f0021bbcc3161d28bc89c88ca4b14) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/27/hydrogen-utopia-and-powerhouse-energy-join-forces-for-sustainable-energy-in-longford)
+ 
 
 
 

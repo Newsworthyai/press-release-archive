@@ -31,7 +31,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/vending-venue
 [Original/Source Press Release](https://newsdirect.com/news/vending-venue-ltd-launches-pizza-vending-machines-across-the-uk-335198641)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vending-venue-ltd-launches-pizza-vending-machines-across-the-uk/796394211abc9e3463490795a51ad4a2) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/23/vending-venue-ltd-revolutionizes-fast-food-with-uk-wide-pizza-vending-machines)
+
+Pickup - [fishervista.com](https://fishervista.com/en/vending-venue-ltd-launches-pizza-vending-machines-across-the-uk/20245920)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/vending-venue-ltd-introduces-innovative-pizza-vending-machines-across-the-uk/20245920)
+
+Pickup - [advos.io](https://advos.io/en/vending-venue-ltd-launches-pizza-vending-machines-across-the-uk/20245920)
+ 
 
 
 

@@ -7,7 +7,9 @@ HALTOM CITY, TX, May 28, 2024 /24-7PressRelease/ -- In an effort to prevent loca
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510241/minnesota-legislators-seek-statewide-elimination-of-outdated-and-burdensome-minimum-parking-requirements)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/minnesota-considers-legislation-to-eliminate-parking-mandates-encouraging-redevelopment/a37dd6a700101b128fa374aec920991f) 
+
+ 
 
 
 

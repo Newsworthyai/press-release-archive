@@ -259,7 +259,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/introducing-t
 [Original/Source Press Release](https://newsdirect.com/news/introducing-the-sigma-28-45mm-f1-8-dg-dn-art-the-first-full-frame-f1-8-zoom-lens-for-mirrorless-camera-systems-395010328)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-the-sigma-28-45mm-f1-8-dg-dn-art-the-world-s-first-full-frame-f1-8-zoom-lens/67d4325bb5964e409a5a5c62b701d489) 
+
+
+Pickup - [advos.io](https://advos.io/en/sigma-unveils-world-s-first-full-frame-f1-8-zoom-lens-for-mirrorless-cameras/20243628)
+ 
 
 
 

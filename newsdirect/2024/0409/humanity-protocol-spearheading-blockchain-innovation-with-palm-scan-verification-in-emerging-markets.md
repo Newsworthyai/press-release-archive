@@ -49,7 +49,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/humanity-prot
 [Original/Source Press Release](https://newsdirect.com/news/humanity-protocol-spearheading-blockchain-innovation-with-palm-scan-verification-in-emerging-markets-426922278)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/humanity-protocol-pioneers-blockchain-innovation-with-palm-scan-verification-in-emerging-markets/a781ef6fb9e94cf06b427a5e30dee378) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/humanity-protocol-pioneers-biometric-identity-for-economic-inclusion)
+ 
 
 
 

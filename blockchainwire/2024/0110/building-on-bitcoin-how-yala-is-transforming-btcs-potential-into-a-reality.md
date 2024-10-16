@@ -31,7 +31,11 @@ Yala is Re-pioneering Bitcoin’s DeFi Frontier. At Yala, we’re dedicated to t
 [Original/Source Press Release](https://blockchainwire.io/press-release/building-on-bitcoin-how-yala-is-transforming-btcs-potential-into-a-reality)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/yala-emerges-as-visionary-bitcoin-builder-unlocks-untapped-billions/07c1dff80bf858945fee5b41de27ef03) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/10/yala-unlocking-bitcoin-s-untapped-potential-in-decentralized-finance)
+ 
 
 
 

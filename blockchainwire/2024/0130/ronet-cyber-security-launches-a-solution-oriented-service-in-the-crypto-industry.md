@@ -27,7 +27,11 @@ Disclaimer: The information provided in this press release is not a solicitatio
 [Original/Source Press Release](https://blockchainwire.io/press-release/ronet-cyber-security-launches-a-solution-oriented-service-in-the-crypto-industry)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ronet-cyber-security-utilizes-computer-forensic-science-to-recover-cryptocurrency/0c4679b76a5cdb9f2d4c2495b1709312) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/30/ronet-cyber-security-launches-crypto-forensics-service)
+ 
 
 
 

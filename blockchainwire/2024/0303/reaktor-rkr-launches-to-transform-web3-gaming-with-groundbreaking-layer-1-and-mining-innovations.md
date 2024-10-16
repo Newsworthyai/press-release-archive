@@ -7,7 +7,11 @@ Huntsville, AL, USA – February 29, 2024 – Lion’s Share Group is excited to
 [Original/Source Press Release](https://blockchainwire.io/press-release/reaktor-rkr-launches-to-transform-web3-gaming-with-groundbreaking-layer-1-and-mining-innovations)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lion-s-share-group-unveils-reaktor-transforming-the-web3-gaming-landscape/cd880780f8d31aaaee3e491eb90731b5) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/03/03/reaktor-heralds-a-new-era-in-web3-gaming-with-innovative-blockchain-and-mining-solutions)
+ 
 
 
 

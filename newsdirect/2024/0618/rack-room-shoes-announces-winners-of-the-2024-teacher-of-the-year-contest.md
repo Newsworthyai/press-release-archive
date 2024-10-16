@@ -39,7 +39,13 @@ View source version on newsdirect.com: https://newsdirect.com/news/rack-room-sho
 [Original/Source Press Release](https://newsdirect.com/news/rack-room-shoes-announces-winners-of-the-2024-teacher-of-the-year-contest-887085972)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rack-room-shoes-announces-winners-of-2024-teacher-of-the-year-contest/fe1d9ec843baae713fb0fe66de8b91c5) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/rack-room-shoes-honors-five-educators-with-teacher-of-the-year-awards/20244262)
+
+Pickup - [advos.io](https://advos.io/en/rack-room-shoes-honors-outstanding-educators-with-teacher-of-the-year-contest/20244262)
+ 
 
 
 

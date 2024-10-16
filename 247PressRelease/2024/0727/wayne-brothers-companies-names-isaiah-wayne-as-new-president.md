@@ -7,7 +7,17 @@ CHARLOTTE, NC, July 27, 2024 /24-7PressRelease/ -- Wayne Brothers Companies, a l
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/512858/wayne-brothers-companies-names-isaiah-wayne-as-new-president)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/isaiah-wayne-named-president-of-wayne-brothers-companies/532e6450d43bec6af40203e9c57855ae) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/27/wayne-brothers-companies-appoints-isaiah-wayne-as-new-president)
+
+Pickup - [fishervista.com](https://fishervista.com/en/isaiah-wayne-appointed-president-of-wayne-brothers-companies/20245305)
+
+Pickup - [advos.io](https://advos.io/en/wayne-brothers-companies-appoints-isaiah-wayne-as-new-president/20245305)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/wayne-brothers-companies-appoints-isaiah-wayne-as-new-president)
+ 
 
 
 

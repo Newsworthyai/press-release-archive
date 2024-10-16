@@ -19,7 +19,17 @@ Contact:Tom RicherCEOinvestorrelations@intelagen.ai
 [Original/Source Press Release](https://blockchainwire.io/press-release/intelagen-announces-new-sales-leadership-to-continue-growth)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/intelagen-appoints-greg-wilson-as-head-of-google-solution-sales/a76893edba295f5f407ab1fc61b595f8) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/07/25/intelagen-appoints-greg-wilson-as-head-of-google-solution-sales-to-drive-growth)
+
+Pickup - [fishervista.com](https://fishervista.com/en/intelagen-appoints-greg-wilson-as-head-of-google-solution-sales-to-fuel-growth/20245254)
+
+Pickup - [advos.io](https://advos.io/en/intelagen-appoints-greg-wilson-as-head-of-google-solution-sales-to-strengthen-growth/20245254)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/intelagen-appoints-greg-wilson-as-new-head-of-google-solution-sales)
+ 
 
 
 

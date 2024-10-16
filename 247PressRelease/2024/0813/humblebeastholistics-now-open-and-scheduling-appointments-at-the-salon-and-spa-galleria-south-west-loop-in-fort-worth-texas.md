@@ -7,7 +7,17 @@ FORT WORTH, TX, August 13, 2024 /24-7PressRelease/ -- Licensed Cosmetologist Key
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513205/humblebeastholistics-now-open-and-scheduling-appointments-at-the-salon-and-spa-galleria-south-west-loop-in-fort-worth-texas)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/licensed-cosmetologist-opens-new-salon-in-fort-worth-texas/35653e71de88d93a21de270ae59043b4) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/13/new-salon-humblebeastholistics-opens-in-fort-worth-offering-diverse-hair-services-and-holistic-products)
+
+Pickup - [fishervista.com](https://fishervista.com/en/humblebeastholistics-opens-at-salon-and-spa-galleria-south-west-loop-in-fort-worth/20245672)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-salon-humblebeastholistics-opens-in-fort-worth-offering-diverse-hair-services-and-holistic-products/20245672)
+
+Pickup - [advos.io](https://advos.io/en/humblebeastholistics-opens-new-salon-in-fort-worth-s-salon-and-spa-galleria/20245672)
+ 
 
 
 

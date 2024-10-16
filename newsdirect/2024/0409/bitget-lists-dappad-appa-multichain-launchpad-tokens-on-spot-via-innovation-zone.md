@@ -35,7 +35,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/bitget-lists-
 [Original/Source Press Release](https://newsdirect.com/news/bitget-lists-dappad-appa-multichain-launchpad-tokens-on-spot-via-innovation-zone-380900967)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitget-lists-dappad-multichain-launchpad-tokens-on-spot/b7359db00eb0a108409b9c6f98b776e3) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/09/bitget-expands-crypto-investment-options-with-dappad-launchpad-token-listing)
+ 
 
 
 

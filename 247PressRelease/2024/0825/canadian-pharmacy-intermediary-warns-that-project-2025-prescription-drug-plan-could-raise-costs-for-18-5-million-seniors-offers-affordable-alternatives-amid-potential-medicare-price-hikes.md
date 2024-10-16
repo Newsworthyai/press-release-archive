@@ -7,7 +7,17 @@ VANCOUVER, BC, August 25, 2024 /24-7PressRelease/ -- SaveRxCanada.to, a trusted 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513759/canadian-pharmacy-intermediary-warns-that-project-2025-prescription-drug-plan-could-raise-costs-for-185-million-seniors-offers-affordable-alternatives-amid-potential-medicare-price-hikes)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/saverxcanada-to-voices-concern-over-project-2025-s-proposed-changes-to-medicare-s-prescription-drug-plan/ca83233e15143ec34c5dfcde00944d9e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/25/project-2025-medicare-changes-could-increase-drug-costs-for-millions-of-seniors)
+
+Pickup - [fishervista.com](https://fishervista.com/en/potential-medicare-reforms-could-increase-drug-costs-for-millions-of-seniors-saverxcanada-to-offers-solutions/20245951)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/project-2025-medicare-changes-could-increase-drug-costs-for-millions-of-seniors/20245951)
+
+Pickup - [advos.io](https://advos.io/en/canadian-pharmacy-warns-project-2025-could-raise-drug-costs-for-18-5-million-seniors-offers-affordable-alternatives/20245951)
+ 
 
 
 

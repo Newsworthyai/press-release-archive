@@ -7,7 +7,13 @@ HELSINKI, FINLAND, June 26, 2024 /24-7PressRelease/ -- NinaData, an innovator in
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511996/ninadata-unveils-revolutionary-contextual-gen-ai-political-advertising-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ninadata-launches-innovative-ai-political-advertising-platform/03ce3fafb65984e2a7cc773a5d1a4404) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/ninadata-launches-privacy-first-ai-platform-for-political-advertising/20244474)
+
+Pickup - [advos.io](https://advos.io/en/ninadata-launches-ai-driven-political-advertising-platform-amid-surge-in-digital-ad-spend/20244474)
+ 
 
 
 

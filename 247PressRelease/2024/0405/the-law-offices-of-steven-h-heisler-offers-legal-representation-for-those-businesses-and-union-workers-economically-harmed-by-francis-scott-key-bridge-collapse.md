@@ -7,7 +7,11 @@ BALTIMORE, MD, April 05, 2024 /24-7PressRelease/ -- Since the tragic collapse of
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/509845/the-law-offices-of-steven-h-heisler-offers-legal-representation-for-those-businesses-and-union-workers-economically-harmed-by-francis-scott-key-bridge-collapse)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/legal-support-offered-in-wake-of-francis-scott-key-bridge-collapse/26aabae03d491bd365805af16e0336cf) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/baltimore-law-firm-offers-legal-support-for-businesses-and-workers-impacted-by-bridge-collapse)
+ 
 
 
 

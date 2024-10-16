@@ -11,7 +11,13 @@ About LDALDA Capital is a global alternative investment group with expertise in 
 [Original/Source Press Release](https://blockchainwire.io/press-release/psub-raises-10m-investment-from-lda-capital-to-project-grow-expand-platform)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/psub-project-receives-10-million-investment-from-lda-capital-to-accelerate-global-growth/f4530e1b05fa4a7db28408c206235bd4) 
+
+
+Pickup - [fishervista.com](https://fishervista.com/en/psub-secures-10m-investment-from-lda-capital-to-enhance-blockchain-platform/20244281)
+
+Pickup - [advos.io](https://advos.io/en/psub-secures-10m-investment-from-lda-capital-to-expand-blockchain-platform/20244281)
+ 
 
 
 

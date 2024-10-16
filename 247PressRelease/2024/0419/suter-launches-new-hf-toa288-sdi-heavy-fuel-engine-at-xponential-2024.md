@@ -7,7 +7,11 @@ TURBENTHAL, SWITZERLAND, April 19, 2024 /24-7PressRelease/ -- Suter is launching
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/510091/suter-launches-new-hf-toa288-sdi-heavy-fuel-engine-at-xponential-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/suter-to-launch-new-heavy-fuel-engine-at-xponential-2024-in-san-diego/7589c8d8255da34476e70fcfc6680d0e) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/19/suter-launches-new-hf-toa288-sdi-heavy-fuel-engine-at-xponential-2024)
+ 
 
 
 

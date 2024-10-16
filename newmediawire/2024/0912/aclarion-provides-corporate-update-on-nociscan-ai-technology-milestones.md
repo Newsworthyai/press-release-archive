@@ -85,7 +85,17 @@ jodi@sprigconsulting.com
 [Original/Source Press Release](https://www.newmediawire.com/news/aclarion-provides-corporate-update-on-nociscan-ai-technology-milestones-7076042)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aclarion-inc-announces-significant-milestones-in-establishing-nociscan-as-standard-of-care-for-chronic-low-back-pain/e1e9d35f8f1c21bab64832898aa4fadc) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/09/12/aclarion-s-nociscan-ai-technology-gains-traction-in-chronic-low-back-pain-diagnosis)
+
+Pickup - [fishervista.com](https://fishervista.com/en/aclarion-s-nociscan-ai-technology-gains-traction-in-chronic-low-back-pain-diagnosis/20246770)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/aclarion-s-nociscan-ai-technology-gains-traction-in-chronic-low-back-pain-diagnosis/20246770)
+
+Pickup - [advos.io](https://advos.io/en/aclarion-s-nociscan-ai-technology-gains-traction-in-chronic-low-back-pain-diagnosis/20246770)
+ 
 
 
 

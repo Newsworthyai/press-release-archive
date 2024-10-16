@@ -26,7 +26,11 @@ Disclaimer: The information provided in this press release is not a solicitation
 [Original/Source Press Release](https://blockchainwire.io/press-release/bluesky-miner-launches-to-transform-cryptocurrency-mining-into-passive-income-stream)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bluesky-miner-innovating-cloud-mining-for-mainstream-access/59c6ac23339403714c0e787ac8c680ef) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/05/bluesky-miner-revolutionizes-cloud-mining-with-user-friendly-platform)
+ 
 
 
 

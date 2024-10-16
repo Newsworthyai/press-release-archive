@@ -9,7 +9,11 @@ Introduction: In the ever-evolving landscape of cryptocurrency, where trends co
 [Original/Source Press Release](https://blockchainwire.io/press-release/unleashing-conan-the-epic-tale-of-solanas-newest-meme-coin-sensation-in-2024)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/introducing-conan-the-next-big-thing-in-meme-coins-on-solana-blockchain/3c062f2968f50f5cd6a25d1619e5ed5c) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/01/26/conan-the-meme-coin-sensation-taking-solana-by-storm)
+ 
 
 
 

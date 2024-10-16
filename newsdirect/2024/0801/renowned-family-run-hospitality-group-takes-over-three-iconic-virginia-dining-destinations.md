@@ -73,7 +73,17 @@ View source version on newsdirect.com: https://newsdirect.com/news/renowned-fami
 [Original/Source Press Release](https://newsdirect.com/news/renowned-family-run-hospitality-group-takes-over-three-iconic-virginia-dining-destinations-735399098)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pack-brothers-hospitality-expands-with-iconic-virginia-dining-destinations/4df8f66f32957a0440964fd8ba8ef324) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/08/01/pack-brothers-hospitality-expands-portfolio-with-acquisition-of-three-iconic-virginia-restaurants)
+
+Pickup - [fishervista.com](https://fishervista.com/en/pack-brothers-hospitality-expands-portfolio-with-three-iconic-virginia-restaurants/20245431)
+
+Pickup - [advos.io](https://advos.io/en/pack-brothers-hospitality-expands-with-acquisition-of-three-iconic-virginia-restaurants/20245431)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/pack-brothers-hospitality-expands-portfolio-with-acquisition-of-three-iconic-virginia-restaurants)
+ 
 
 
 

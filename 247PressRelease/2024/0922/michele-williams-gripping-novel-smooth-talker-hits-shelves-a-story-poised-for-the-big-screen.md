@@ -7,7 +7,9 @@ ATLANTA, GA, September 22, 2024 /24-7PressRelease/ -- Michele' Williams, an emer
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514558/michele-williams-gripping-novel-smooth-talker-hits-shelves-a-story-poised-for-the-big-screen)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/emotionally-charged-novel-smooth-talker-considered-for-film-and-multimedia-adaptations/ece95011ce8046f009fc4da6b3fb3bb9) 
+
+ 
 
 
 

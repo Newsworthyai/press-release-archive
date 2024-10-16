@@ -27,7 +27,11 @@ View source version on newsdirect.com: https://newsdirect.com/news/fendx-technol
 [Original/Source Press Release](https://newsdirect.com/news/fendx-technologies-innovates-surface-protection-with-nanotechnology-326962839)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fendx-technologies-innovates-surface-protection-with-nanotechnology/b22ffd662fe6052a1d5f8136936ed9f9) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2024/04/08/fendx-technologies-brings-nanotechnology-to-surface-protection)
+ 
 
 
 

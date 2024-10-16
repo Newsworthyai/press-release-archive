@@ -23,7 +23,11 @@ Embark on a journey of discovery and industry immersion at www.ManufacturingExpe
 [Original/Source Press Release](https://newsworthy.ai/news/20231129842/manufacturingexperts-net-launches-as-premier-destination-for-manufacturing-industry-knowledge)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/manufacturingexperts-net-launches-as-premier-online-destination-for-manufacturing-knowledge-and-insights/8e4e7713db0c9dd8913807cb3ef64559) 
+
+
+Pickup - [citybuzz.co](https://citybuzz.co/2023/11/29/manufacturingexperts-net-emerges-as-premier-knowledge-hub-for-manufacturing-sector)
+ 
 
 
 

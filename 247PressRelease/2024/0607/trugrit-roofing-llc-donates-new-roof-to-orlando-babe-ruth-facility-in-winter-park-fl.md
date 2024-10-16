@@ -7,7 +7,11 @@ ORLANDO, FL, June 07, 2024 /24-7PressRelease/ -- In May 2024, TruGrit Roofing LL
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511492/trugrit-roofing-llc-donates-new-roof-to-orlando-babe-ruth-facility-in-winter-park-fl)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trugrit-roofing-llc-donates-metal-roof-to-orlando-babe-ruth-baseball-facility/09147eeea2c3f317d411805561c57c15) 
+
+
+Pickup - [advos.io](https://advos.io/en/trugrit-roofing-llc-donates-metal-roof-to-orlando-babe-ruth-facility-in-winter-park-fl/20243919)
+ 
 
 
 

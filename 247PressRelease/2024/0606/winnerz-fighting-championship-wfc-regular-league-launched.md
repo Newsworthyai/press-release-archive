@@ -7,7 +7,15 @@ WASHINGTON, DC, June 06, 2024 /24-7PressRelease/ -- Following the Winnerz Fighti
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/511452/winnerz-fighting-championship-wfc-regular-league-launched)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/winnerz-fighting-championship-wfc-launches-wfc1-mma-league-at-winnerz-sports-center-in-seoul/e1fd457dc94e1b519252564d5c540f6c) 
+
+
+Pickup - [advos.io](https://advos.io/en/winnerz-launches-regular-mma-league-with-wfc1-competition-in-seoul/20243878)
+
+Pickup - [stackspay.net](https://stackspay.net/crypto-news/winnerz-fighting-championship-wfc-launches-wfc1-mma-league-at-winnerz-sports-center-in-seoul)
+
+Pickup - [egswap.exchange](https://egswap.exchange/crypto-news/winnerz-fighting-championship-wfc-launches-wfc1-mma-league-at-winnerz-sports-center-in-seoul)
+ 
 
 
 

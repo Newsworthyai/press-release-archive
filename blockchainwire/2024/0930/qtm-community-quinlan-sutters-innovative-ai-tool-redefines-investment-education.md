@@ -33,7 +33,9 @@ With the increasing complexity of financial markets, QTM Community is dedicated 
 [Original/Source Press Release](https://blockchainwire.io/press-release/qtm-community-quinlan-sutters-innovative-ai-tool-redefines-investment-education)
                     
 
-[Newsramp.com TLDR](None) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quantummind-ai-inc-revolutionizes-investment-education-with-innovative-ai-product/fa54d63bd52e26079675e5d1b7aaa816) 
+
+ 
 
 
 
