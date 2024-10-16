@@ -54,9 +54,17 @@ If you want to know more about bluestone mining machine, please visit its offici
 
 https://bluestonemining.com/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-btc-reaches-a-high-of-67k-how-bluestonemining-analysts-avoid-risks-and-profits)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cweb5q/investing_in_new_energy_cloud_mining_the_key_to/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cweb5q/investing_in_new_energy_cloud_mining_the_key_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/20/tileQlwe.webp)

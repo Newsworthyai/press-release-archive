@@ -40,9 +40,17 @@ Discord: https://discord.gg/Q7BxghMVyu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/standard-chartered-on-bitcoin-reaching-150k-post-halving-while-blockdag-networks-100m-liquidity-boosts-investor-confidence-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cdrbb4/bitcoin_predicted_to_reach_150k_blockdag_network/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cdrbb4/bitcoin_predicted_to_reach_150k_blockdag_network/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/26/healk6m2.webp)

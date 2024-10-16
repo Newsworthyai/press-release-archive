@@ -30,9 +30,17 @@ Company Websitehttps://1businessworld.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/chris-turner-unveils-the-transformative-power-of-coaching-in-hospitality-at-1tourismworld-101136074 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/chris-turner-unveils-the-transformative-power-of-coaching-in-hospitality-at-1tourismworld-101136074)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1byzokk/renowned_hospitality_business_coach_unveils/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1byzokk/renowned_hospitality_business_coach_unveils/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/8/riceU3Ya.webp)

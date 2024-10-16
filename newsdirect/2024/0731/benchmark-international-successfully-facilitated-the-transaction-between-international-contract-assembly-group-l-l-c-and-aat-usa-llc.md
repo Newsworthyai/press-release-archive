@@ -32,9 +32,17 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-international-contract-assembly-group-l-l-c-and-aat-usa-llc-536988737 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-international-contract-assembly-group-l-l-c-and-aat-usa-llc-536988737)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1egn8hb/benchmark_international_facilitates_transaction/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1egn8hb/benchmark_international_facilitates_transaction/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/31/pondQNku.webp)

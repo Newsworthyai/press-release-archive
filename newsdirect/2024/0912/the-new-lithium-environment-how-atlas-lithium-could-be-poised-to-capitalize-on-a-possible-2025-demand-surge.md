@@ -48,9 +48,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-new-lithium-environment-how-atlas-lithium-could-be-poised-to-capitalize-on-a-possible-2025-demand-surge-630413033 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-new-lithium-environment-how-atlas-lithium-could-be-poised-to-capitalize-on-a-possible-2025-demand-surge-630413033)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1ffh3v0/lithiums_sharp_price_decline_a_potential/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1ffh3v0/lithiums_sharp_price_decline_a_potential/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/12/roamvXZu.webp)

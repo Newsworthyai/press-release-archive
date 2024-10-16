@@ -60,9 +60,17 @@ max@edgeclear.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-you-can-sharpen-your-trading-skills-with-edgeclear-this-volatile-election-year-688615861 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/how-you-can-sharpen-your-trading-skills-with-edgeclear-this-volatile-election-year-688615861)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1embenu/market_volatility_spurs_need_for_trade_discipline/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1embenu/market_volatility_spurs_need_for_trade_discipline/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/7/paleXlPY.webp)

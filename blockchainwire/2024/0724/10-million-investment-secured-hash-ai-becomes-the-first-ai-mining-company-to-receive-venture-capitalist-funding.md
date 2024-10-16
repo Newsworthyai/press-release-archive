@@ -34,9 +34,17 @@ About Bolt's Capital
 
 Bolt's Capital is a premier private investment firm focused on the blockchain industry. Founded by seasoned investors with extensive experience in cryptocurrency, venture capital, and public markets, Bolt's Capital propels the blockchain industry forward by providing investments and strategic support to digital assets. Their mission is to empower promising blockchain protocols with breakthrough technology to achieve their next level of growth and innovation. For more information visit: [https://www.boltscapital.com/](https://www.boltscapital.com/) Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/10-million-investment-secured-hash-ai-becomes-the-first-ai-mining-company-to-receive-venture-capitalist-funding)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ebebgw/hash_ai_secures_10_million_investment_from_bolts/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ebebgw/hash_ai_secures_10_million_investment_from_bolts/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/24/cooltfU2.webp)

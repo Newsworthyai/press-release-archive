@@ -40,9 +40,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/a-liberian-gold-rush-introducing-pasofino-golds-tsx-v-vein-dugbe-gold-project-140034751 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/a-liberian-gold-rush-introducing-pasofino-golds-tsx-v-vein-dugbe-gold-project-140034751)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c72ugs/pasofino_golds_dugbe_gold_project_west_africas/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c72ugs/pasofino_golds_dugbe_gold_project_west_africas/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/18/navyNjS6.webp)

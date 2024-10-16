@@ -42,9 +42,17 @@ Company Websitehttps://www.enkryptai.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/enkrypt-ai-unveils-llm-safety-leaderboard-to-enable-enterprises-to-adopt-generative-ai-safely-and-responsibly-147863159 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/enkrypt-ai-unveils-llm-safety-leaderboard-to-enable-enterprises-to-adopt-generative-ai-safely-and-responsibly-147863159)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1clik2u/enkrypt_ai_unveils_llm_safety_leaderboard_for/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1clik2u/enkrypt_ai_unveils_llm_safety_leaderboard_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/6/ellaZtBW.webp)

@@ -35,9 +35,17 @@ Company Websitehttps://weewu.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/weewu-projects-presale-is-open-for-solana-based-community-gaming-metaverse-242932732 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/weewu-projects-presale-is-open-for-solana-based-community-gaming-metaverse-242932732)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1boig8e/weewu_token_presale_underway_redefining_gaming/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1boig8e/weewu_token_presale_underway_redefining_gaming/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/xeno7_MU.webp)

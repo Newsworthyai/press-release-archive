@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/trident-royalties-reports-strong-quarterly-performance-and-strategic-asset-developments-975086152 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/trident-royalties-reports-strong-quarterly-performance-and-strategic-asset-developments-975086152)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cn4ad2/trident_royalties_reports_strong_quarterly/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cn4ad2/trident_royalties_reports_strong_quarterly/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/8/rubyzbwv.webp)

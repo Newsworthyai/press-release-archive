@@ -10,9 +10,17 @@ Furthermore, Ketamine-Assisted Therapy is offered as an innovative treatment op
 
 Individuals struggling with depression should contact Serenity Wellness and Counseling Center today to schedule a consultation and take the first step toward holistic healing. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401231023/elevate-the-mind-serenity-wellness-s-journey-into-ketamine-assisted-psychotherapy-in-cypress-tx)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1avleqq/innovative_depression_treatments_offered_at/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1avleqq/innovative_depression_treatments_offered_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/warpnpIY.webp)

@@ -10,9 +10,17 @@ The clinic provides customized treatment plans, considering each individual's un
 
 Dedicated to providing exceptional care, The Holistic Mental Health Clinic requires a 50% deposit for the initial 90-minute appointment. This commitment ensures that clients receive focused attention, enabling therapists to create an EMDR treatment plan tailored to each client's specific goals. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401211009/holistic-mental-health-clinic-introduces-effective-emdr-therapy-for-psychological-healing)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avldi0/holistic_mental_health_clinic_introduces_emdr/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avldi0/holistic_mental_health_clinic_introduces_emdr/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/hushwZly.webp)

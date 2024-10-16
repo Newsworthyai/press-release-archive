@@ -48,9 +48,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/unlocking-the-power-of-immunotherapy-elicio-therapeutics-nasdaq-eltx-novel-amp-platform-701860677 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/unlocking-the-power-of-immunotherapy-elicio-therapeutics-nasdaq-eltx-novel-amp-platform-701860677)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1bwgpyi/elicio_therapeutics_unlocks_the_power_of/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1bwgpyi/elicio_therapeutics_unlocks_the_power_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/5/knotcf1l.webp)

@@ -28,9 +28,17 @@ Company Websitehttps://fliphead.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/fliphead-redefining-fashion-with-upcycled-garments-and-couture-469788143 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/fliphead-redefining-fashion-with-upcycled-garments-and-couture-469788143)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1craojr/fliphead_redefining_fashion_with_upcycled/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1craojr/fliphead_redefining_fashion_with_upcycled/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/ninaGMp1.webp)

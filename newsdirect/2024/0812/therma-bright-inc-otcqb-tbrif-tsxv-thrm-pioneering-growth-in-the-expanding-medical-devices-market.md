@@ -56,9 +56,17 @@ Company Websitehttps://razorpitch.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/therma-bright-inc-otcqb-tbrif-tsxv-thrm-pioneering-growth-in-the-expanding-medical-devices-market-318774428 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/therma-bright-inc-otcqb-tbrif-tsxv-thrm-pioneering-growth-in-the-expanding-medical-devices-market-318774428)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eq9w69/therma_bright_inc_pioneering_growth_in_the/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eq9w69/therma_bright_inc_pioneering_growth_in_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/12/urgeXLYz.webp)

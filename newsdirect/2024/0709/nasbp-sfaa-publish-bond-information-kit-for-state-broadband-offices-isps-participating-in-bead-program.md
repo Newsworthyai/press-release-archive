@@ -34,9 +34,17 @@ Company Websitehttps://surety.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/nasbp-and-sfaa-publish-bond-information-kit-for-state-broadband-offices-and-isps-participating-in-bead-program-309719492 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nasbp-and-sfaa-publish-bond-information-kit-for-state-broadband-offices-and-isps-participating-in-bead-program-309719492)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dz5bnp/nasbp_and_sfaa_release_surety_bond_information/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dz5bnp/nasbp_and_sfaa_release_surety_bond_information/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/9/roamOUAV.webp)

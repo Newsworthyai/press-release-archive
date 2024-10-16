@@ -24,9 +24,17 @@ The concept behind BEK TV’s programming is to provide a media service platform
 
 BEK TV is the 2021, 2022, and 2023 winner of the Bismarck Tribune’s Best of the Best contest, selected by the people for “Best Local TV Station”. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202407181045/bek-tv-network-introduces-seven-exciting-new-shows-one-of-nations-only-free-speech-networks-credits-viewers-for-growth)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1e6au96/bek_tv_network_introduces_seven_exciting_new/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1e6au96/bek_tv_network_introduces_seven_exciting_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/247/18/roampLaB.webp)

@@ -38,9 +38,17 @@ The combination of a compelling keynote and the dynamic Ecosystem Showcase will 
 
 Join us for the Texas Venture Fest 2024 and become part of this growing community of innovators and business leaders. Register now at kerredc.com/tvf. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202410011291/texas-venture-fest-2024-kicks-off-with-keynote-speaker-and-ecosystem-showcase)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ftmjdt/exciting_day_at_texas_venture_fest_2024_in/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ftmjdt/exciting_day_at_texas_venture_fest_2024_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2410/1/fineuzZq.webp)

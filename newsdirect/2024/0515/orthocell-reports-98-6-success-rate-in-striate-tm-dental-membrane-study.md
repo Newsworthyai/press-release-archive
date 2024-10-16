@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/orthocell-reports-98-6-success-rate-in-striate-dental-membrane-study-500764500 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/orthocell-reports-98-6-success-rate-in-striate-dental-membrane-study-500764500)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1csso69/orthocell_achieves_986_success_rate_in_striate/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1csso69/orthocell_achieves_986_success_rate_in_striate/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/taroN00J.webp)

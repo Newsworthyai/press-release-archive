@@ -24,9 +24,17 @@ Company Websitehttps://www.mybluepeak.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bluepeak-reaches-major-milestone-of-100-000-customers-356321986 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bluepeak-reaches-major-milestone-of-100-000-customers-356321986)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1fjvavi/bluepeak_surpasses_100000_subscribers_expands/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1fjvavi/bluepeak_surpasses_100000_subscribers_expands/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/18/hinteeuv.webp)

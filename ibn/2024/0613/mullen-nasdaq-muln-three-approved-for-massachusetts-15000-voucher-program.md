@@ -18,9 +18,17 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, h
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-three-approved-for-massachusetts-15000-voucher-program/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1f2qj24/mullen_automotive_nasdaq_muln_qualifies_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1f2qj24/mullen_automotive_nasdaq_muln_qualifies_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/zealsovq.webp)

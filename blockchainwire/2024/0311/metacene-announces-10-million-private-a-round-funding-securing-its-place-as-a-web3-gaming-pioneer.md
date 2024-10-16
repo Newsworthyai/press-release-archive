@@ -24,9 +24,17 @@ About MetaCeneMetaCene is building a next-gen blockchain MMORPG homeland for mas
 
 Website | Twitter | Discord 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/metacene-announces-10-million-private-a-round-funding-securing-its-place-as-a-web3-gaming-pioneer)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1bc57hh/metacene_secures_10m_funding_for_revolutionary/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1bc57hh/metacene_secures_10m_funding_for_revolutionary/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/11/larkvHJp.webp)

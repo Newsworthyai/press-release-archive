@@ -18,9 +18,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/baselode-energy-initiates-drill-program-and-geophysical-survey-in-athabasca-basin-178894344 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/baselode-energy-initiates-drill-program-and-geophysical-survey-in-athabasca-basin-178894344)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cmfr8r/baselode_energy_initiates_drill_program_and/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cmfr8r/baselode_energy_initiates_drill_program_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/blurfg4j.webp)

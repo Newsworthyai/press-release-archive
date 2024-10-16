@@ -52,9 +52,17 @@ Twitter: SHIBA BUDZ "$BUDZ" (@ShibaBudz) / X
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/shiba-budz-strategies-for-investments-and-analyzing-meme-coin-rivals)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1c1fxdr/navigating_bonkonomics_the_rise_of_shiba_budz_budz/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1c1fxdr/navigating_bonkonomics_the_rise_of_shiba_budz_budz/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/11/fernNEE4.webp)

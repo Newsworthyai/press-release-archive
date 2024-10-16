@@ -24,9 +24,17 @@ About UC Berkeley FHL Vive Center
 
 Connecting the world of individuals and businesses in a fully decentralized and trustless fashion has generated tremendous excitement to develop new solutions in the blockchain and DeFi space. Berkeley FHL Vive Center aims to support the long-term growth of decentralized technologies and applications by offering our expertise to create new education and degree programs for motivated students; promote cross-disciplinary research to address urgent technology bottlenecks and provide a Berkeley platform for academic and industrial partners to collaborate. Together, we can shape our society in a digital world that is more immersive, more connected, and more fair. Website: vivecenter.berkeley.edu 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bytetrade-lab-and-uc-berkeley-partner-to-explore-the-next-generation-of-decentralized-ai)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1buuwb2/bytetrade_lab_and_uc_berkeley_launch/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1buuwb2/bytetrade_lab_and_uc_berkeley_launch/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/3/ninaTOH3.webp)

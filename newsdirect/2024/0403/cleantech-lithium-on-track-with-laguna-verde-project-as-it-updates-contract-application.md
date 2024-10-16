@@ -18,9 +18,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cleantech-lithium-on-track-with-laguna-verde-project-as-it-updates-contract-application-880798972 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cleantech-lithium-on-track-with-laguna-verde-project-as-it-updates-contract-application-880798972)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1butgnt/cleantech_lithium_ceo_updates_contract/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1butgnt/cleantech_lithium_ceo_updates_contract/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/3/lilyvxYs.webp)

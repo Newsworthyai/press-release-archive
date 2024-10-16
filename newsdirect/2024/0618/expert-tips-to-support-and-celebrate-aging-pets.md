@@ -46,9 +46,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/expert-tips-to-support-and-celebrate-aging-pets-270667640 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/expert-tips-to-support-and-celebrate-aging-pets-270667640)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1dj11to/expert_tips_to_support_and_celebrate_aging_pets/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1dj11to/expert_tips_to_support_and_celebrate_aging_pets/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/18/mieltw64.webp)

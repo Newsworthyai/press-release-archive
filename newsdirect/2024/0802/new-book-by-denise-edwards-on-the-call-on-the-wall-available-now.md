@@ -42,9 +42,17 @@ media@gcupublishing.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-book-by-denise-edwards-on-the-call-on-the-wall-available-now-236070305 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/new-book-by-denise-edwards-on-the-call-on-the-wall-available-now-236070305)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BookNews/comments/1eih8z1/renowned_international_prayer_leader_denise/
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1eih8z1/renowned_international_prayer_leader_denise/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/2/bendgpYO.webp)

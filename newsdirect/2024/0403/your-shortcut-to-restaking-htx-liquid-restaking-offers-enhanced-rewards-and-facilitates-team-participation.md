@@ -92,9 +92,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/your-shortcut-to-restaking-htx-liquid-restaking-offers-enhanced-rewards-and-facilitates-team-participation-123203010 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/your-shortcut-to-restaking-htx-liquid-restaking-offers-enhanced-rewards-and-facilitates-team-participation-123203010)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bul5ck/htx_liquid_restaking_enhanced_rewards_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bul5ck/htx_liquid_restaking_enhanced_rewards_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/3/vibeM7di.webp)

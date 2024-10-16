@@ -10,9 +10,17 @@ Moreover, TMS Solutions is proud to be pre-qualified by the VA to treat veterans
 
 TMS therapy offers a safe, non-invasive alternative to traditional depression treatments such as medications or electroconvulsive therapy. It is covered by most major medical insurance companies, Medicare, and the VA, and is sometimes covered by Medicaid in certain states. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20240117985/tms-solutions-offers-fda-cleared-tms-therapy-as-a-safe-and-effective-treatment-for-depression)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdox9/tms_solutions_revolutionizes_depression_treatment/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdox9/tms_solutions_revolutionizes_depression_treatment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/bestoWKB.webp)

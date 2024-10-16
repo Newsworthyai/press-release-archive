@@ -26,9 +26,17 @@ About the HRO Today Association
 
 The HRO Today Association is the premier networking and content community for advancing the human resources profession. By engaging in professional development opportunities and connecting with peers, members improve the quality, effectiveness, and efficiency of their HR operations and service delivery. The Association is managed by HRO Today/SharedXpertise Media, whose magazines, web portals, research, e-newsletters, events, and social networks reach over 180,000 senior-level HR decision-makers with rich, game-changing content. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231215909/apac-region-winners-announced-for-2023-hro-today-association-awards)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1avcua4/hro_today_association_awards_recognize_apac/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1avcua4/hro_today_association_awards_recognize_apac/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/nukeTt6X.webp)

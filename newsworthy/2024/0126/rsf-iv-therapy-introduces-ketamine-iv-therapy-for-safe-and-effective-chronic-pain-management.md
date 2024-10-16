@@ -10,9 +10,17 @@ Ketamine has demonstrated promising results in promoting the growth of new neura
 
 RSF IV Therapy invites individuals struggling with chronic pain to visit their clinic and learn more about the promising results of Ketamine IV Therapy. The compassionate team of healthcare professionals at RSF IV Therapy is ready to offer guidance, support, and a tailored treatment plan designed specifically for each patient. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401261037/rsf-iv-therapy-introduces-ketamine-iv-therapy-for-safe-and-effective-chronic-pain-management)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlfq1/rsf_iv_therapy_introduces_ketamine_iv_therapy_for/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlfq1/rsf_iv_therapy_introduces_ketamine_iv_therapy_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/eventqE_.webp)

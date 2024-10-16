@@ -46,9 +46,17 @@ Discord: https://discord.gg/Q7BxghMVyu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-and-blockdag-network-among-the-top-crypto-gainers-of-the-year)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1co3nyb/crypto_market_booms_in_2024_bitcoin_and_blockdag/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1co3nyb/crypto_market_booms_in_2024_bitcoin_and_blockdag/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/9/silk1LAL.webp)

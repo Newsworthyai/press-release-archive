@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/novo-resources-sees-substantial-upside-potential-at-nunyerry-101381028 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/novo-resources-sees-substantial-upside-potential-at-nunyerry-101381028)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1bq52bp/novo_resources_corp_sees_promising_gold_outcomes/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1bq52bp/novo_resources_corp_sees_promising_gold_outcomes/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/islePwYq.webp)

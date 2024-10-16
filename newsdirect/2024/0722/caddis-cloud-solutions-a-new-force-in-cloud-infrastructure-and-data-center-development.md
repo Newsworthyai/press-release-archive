@@ -26,9 +26,17 @@ Company Websitehttps://caddiscloud.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/caddis-cloud-solutions-a-new-force-in-cloud-infrastructure-and-data-center-development-570599367 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/caddis-cloud-solutions-a-new-force-in-cloud-infrastructure-and-data-center-development-570599367)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1eag7x7/caddis_cloud_solutions_a_new_force_in_cloud/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1eag7x7/caddis_cloud_solutions_a_new_force_in_cloud/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/22/gainqHLZ.webp)

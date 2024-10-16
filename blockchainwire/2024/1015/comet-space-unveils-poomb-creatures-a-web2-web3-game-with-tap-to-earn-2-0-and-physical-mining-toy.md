@@ -31,9 +31,17 @@ About Comet SpaceComet Space is an international game development company specia
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/comet-space-unveils-poomb-creatures-a-web2--web3-game-with-tap-to-earn-20-and-physical-mining-toy)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsInfo/comments/1g4cw92/comet_space_launches_poomb_creatures_the_new/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsInfo/comments/1g4cw92/comet_space_launches_poomb_creatures_the_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/15/harpy3C9.webp)

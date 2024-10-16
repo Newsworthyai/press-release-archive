@@ -20,9 +20,17 @@ BEK Communications Cooperative, founded in 1952, is a communications services co
 
 BEK emphasizes its fast, friendly, local service experience and a broad portfolio of high-quality communications, enterprise, broadcasting, and advertising services. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202404301155/bek-introduces-bek-smartbiz-a-game-changing-solution-for-small-businesses-to-elevate-connectivity-and-productivity)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cgrd1f/bek_communications_cooperative_launches_bek/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cgrd1f/bek_communications_cooperative_launches_bek/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/244/30/bestIIQ9.webp)

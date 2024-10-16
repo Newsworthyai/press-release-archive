@@ -34,9 +34,17 @@ Company Websitehttps://playactivate.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/activate-announces-37m-debt-financing-from-rbc-royal-bank-and-export-development-canada-to-accelerate-us-corporate-expansion-980224054 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/activate-announces-37m-debt-financing-from-rbc-royal-bank-and-export-development-canada-to-accelerate-us-corporate-expansion-980224054)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1do6lkf/activate_games_announces_global_expansion_plans/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1do6lkf/activate_games_announces_global_expansion_plans/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/25/ideapi3c.webp)

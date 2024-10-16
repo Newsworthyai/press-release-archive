@@ -16,9 +16,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/coniagas-battery-metals-expands-exploration-at-graal-project-with-promising-results-733282155 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/coniagas-battery-metals-expands-exploration-at-graal-project-with-promising-results-733282155)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1df4qe5/coniagas_battery_metals_expanding_exploration_at/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1df4qe5/coniagas_battery_metals_expanding_exploration_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/13/tall5de3.webp)

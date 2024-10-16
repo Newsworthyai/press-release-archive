@@ -26,9 +26,17 @@ Company Websitehttps://zombienaireklub.xyz
 
 View source version on newsdirect.com: https://newsdirect.com/news/unlock-the-zombienaire-klub-16-384-nfts-to-immortalize-yourself-in-a-daring-zombie-utopia-this-halloween-180523184 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/unlock-the-zombienaire-klub-16-384-nfts-to-immortalize-yourself-in-a-daring-zombie-utopia-this-halloween-180523184)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fz2gr4/zombienaire_klub_nft_collection_set_to_debut_on/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fz2gr4/zombienaire_klub_nft_collection_set_to_debut_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/8/gulfASBB.webp)

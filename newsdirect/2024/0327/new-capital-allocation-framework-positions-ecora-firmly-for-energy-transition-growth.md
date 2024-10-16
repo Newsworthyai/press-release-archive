@@ -22,9 +22,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-capital-allocation-framework-positions-ecora-firmly-for-energy-transition-growth-115352727 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/new-capital-allocation-framework-positions-ecora-firmly-for-energy-transition-growth-115352727)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bp1hza/ecora_resources_plc_ceo_discusses_transition_from/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bp1hza/ecora_resources_plc_ceo_discusses_transition_from/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/irisyp5I.webp)

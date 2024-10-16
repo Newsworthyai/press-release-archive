@@ -96,9 +96,17 @@ Company Websitehttps://www.sectorspdrs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/xlre-etf-an-exploration-to-the-real-estate-sector-716365692 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/xlre-etf-an-exploration-to-the-real-estate-sector-716365692)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1e1d52n/xlre_etf_an_exploration_to_the_real_estate_sector/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1e1d52n/xlre_etf_an_exploration_to_the_real_estate_sector/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/12/elleJljd.webp)

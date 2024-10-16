@@ -34,9 +34,17 @@ Company Websitehttps://www.direxion.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/direxion-unveils-uraa-a-bold-move-for-traders-seeking-200-exposure-to-uranium-and-nuclear-energy-industry-349953410 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/direxion-unveils-uraa-a-bold-move-for-traders-seeking-200-exposure-to-uranium-and-nuclear-energy-industry-349953410)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1doycww/direxion_launches_uraa_a_unique_opportunity_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1doycww/direxion_launches_uraa_a_unique_opportunity_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/26/mossW5sE.webp)

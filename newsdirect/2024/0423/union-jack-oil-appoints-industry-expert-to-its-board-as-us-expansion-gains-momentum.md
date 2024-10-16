@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/union-jack-oil-appoints-industry-expert-to-its-board-as-us-expansion-gains-momentum-513008006 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/union-jack-oil-appoints-industry-expert-to-its-board-as-us-expansion-gains-momentum-513008006)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cb4xao/union_jack_oil_appoints_industry_expert_to_board/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cb4xao/union_jack_oil_appoints_industry_expert_to_board/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/23/riceB1T4.webp)

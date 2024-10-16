@@ -42,9 +42,17 @@ Company Websitehttp://www.gaudmediaproductionservices.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gaud-media-inc-announces-expansion-of-services-with-innovative-media-production-offerings-707392142 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/gaud-media-inc-announces-expansion-of-services-with-innovative-media-production-offerings-707392142)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1eg4n5e/gaud_media_inc_announces_expansion_of_services/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1eg4n5e/gaud_media_inc_announces_expansion_of_services/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/30/mail6VMH.webp)

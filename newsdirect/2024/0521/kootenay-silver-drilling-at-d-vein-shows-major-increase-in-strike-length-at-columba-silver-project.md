@@ -16,9 +16,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kootenay-silver-drilling-at-d-vein-shows-major-increase-in-strike-length-at-columba-silver-project-538763705 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kootenay-silver-drilling-at-d-vein-shows-major-increase-in-strike-length-at-columba-silver-project-538763705)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cx9q5z/kootenay_silver_ceo_discusses_promising_results/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cx9q5z/kootenay_silver_ceo_discusses_promising_results/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/21/finepZAY.webp)

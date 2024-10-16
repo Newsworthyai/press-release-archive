@@ -22,9 +22,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/diamond-lake-minerals-and-boxabl-revolutionize-real-estate-with-modular-housing-collaboration-612333402 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/diamond-lake-minerals-and-boxabl-revolutionize-real-estate-with-modular-housing-collaboration-612333402)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c873yb/diamond_lake_minerals_and_boxabl_revolutionize/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c873yb/diamond_lake_minerals_and_boxabl_revolutionize/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/19/nukeI3Uj.webp)

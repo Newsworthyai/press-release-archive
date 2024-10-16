@@ -62,9 +62,17 @@ OTC Markets Group
 
 johnv@otcmarkets.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/neptune-digital-assets-to-present-at-the-blockchain--digital-asset-virtual-investor-conference-april-25th-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cb3soy/neptune_digital_assets_corp_to_present_at/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cb3soy/neptune_digital_assets_corp_to_present_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/23/irisBNpE.webp)

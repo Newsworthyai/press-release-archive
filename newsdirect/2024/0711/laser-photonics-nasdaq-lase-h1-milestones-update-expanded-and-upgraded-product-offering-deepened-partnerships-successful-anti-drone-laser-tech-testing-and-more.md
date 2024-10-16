@@ -52,9 +52,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/laser-photonics-nasdaq-lase-h1-milestones-update-expanded-and-upgraded-product-offering-deepened-partnerships-successful-anti-drone-laser-tech-testing-and-more-939864486 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/laser-photonics-nasdaq-lase-h1-milestones-update-expanded-and-upgraded-product-offering-deepened-partnerships-successful-anti-drone-laser-tech-testing-and-more-939864486)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e0odsc/laser_photonics_nasdaq_lase_hits_milestones_in_h1/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e0odsc/laser_photonics_nasdaq_lase_hits_milestones_in_h1/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/11/finehD_H.webp)

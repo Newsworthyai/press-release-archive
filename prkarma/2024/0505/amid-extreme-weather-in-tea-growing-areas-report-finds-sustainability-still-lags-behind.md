@@ -52,9 +52,17 @@ Visit Our Website
 
 Visit Our Blog 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/firsdtea/news_release/1459)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cuarsj/firsd_tea_report_reveals_lack_of_sustainability/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cuarsj/firsd_tea_report_reveals_lack_of_sustainability/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/245/17/openL9ud.webp)

@@ -70,9 +70,17 @@
 
 [3] KIDS SAVE LIVES: Basic Life Support Education for Schoolchildren: A Narrative Review and Scientific Statement From the International Liaison Committee on Resuscitation,  https://www.ahajournals.org/doi/10.1161/CIR.0000000000001128 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/national-football-league-s-cpr-commitment-awards-super-bowl-tickets-and-50-000-in-school-equipment-7076069)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fkks8t/american_heart_association_and_nfl_foundation/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fkks8t/american_heart_association_and_nfl_foundation/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/19/ovalArSY.webp)

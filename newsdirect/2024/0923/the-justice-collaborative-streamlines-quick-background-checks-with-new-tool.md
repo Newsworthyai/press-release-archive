@@ -32,9 +32,17 @@ Company Websitehttps://upventuremedia.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-justice-collaborative-streamlines-quick-background-checks-with-new-tool-350872674 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-justice-collaborative-streamlines-quick-background-checks-with-new-tool-350872674)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fnlui2/the_justice_collaborative_introduces_free/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fnlui2/the_justice_collaborative_introduces_free/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/23/tiletp3r.webp)

@@ -42,9 +42,17 @@ jennifer@agtechpr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/liechtenstein-group-invests-in-powerpollen-to-unlock-potential-for-major-food-crops-485467953 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/liechtenstein-group-invests-in-powerpollen-to-unlock-potential-for-major-food-crops-485467953)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cgqa4q/liechtenstein_group_leads_225m_funding_in/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cgqa4q/liechtenstein_group_leads_225m_funding_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/30/xenobPcC.webp)

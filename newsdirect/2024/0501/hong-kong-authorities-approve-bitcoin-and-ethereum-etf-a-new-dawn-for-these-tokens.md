@@ -50,9 +50,17 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/hong-kong-authorities-approve-bitcoin-and-ethereum-etf-a-new-dawn-for-these-tokens-990894943 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/hong-kong-authorities-approve-bitcoin-and-ethereum-etf-a-new-dawn-for-these-tokens-990894943)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1chiz2i/hong_kongs_approval_of_bitcoin_and_ethereum_etfs/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1chiz2i/hong_kongs_approval_of_bitcoin_and_ethereum_etfs/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/knotCSCr.webp)

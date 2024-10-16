@@ -28,9 +28,17 @@ DennisFuchs111@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-vr-project-simugaze-presale-goes-live-today-545124469 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-vr-project-simugaze-presale-goes-live-today-545124469)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1cg2vyr/simugaze_launches_to_transform_virtual_gaming_and/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1cg2vyr/simugaze_launches_to_transform_virtual_gaming_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/29/markCAuF.webp)

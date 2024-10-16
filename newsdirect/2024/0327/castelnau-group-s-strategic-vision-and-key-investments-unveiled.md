@@ -26,9 +26,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/castelnau-groups-strategic-vision-and-key-investments-unveiled-325080669 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/castelnau-groups-strategic-vision-and-key-investments-unveiled-325080669)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bp2cm4/castelnau_groups_strategic_vision_and_key/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bp2cm4/castelnau_groups_strategic_vision_and_key/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/cakevDev.webp)

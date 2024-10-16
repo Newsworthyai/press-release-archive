@@ -41,9 +41,17 @@ Visit Our Blog
 * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/ycommunicate/news_release/1544)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f6i67a/project_petals_receives_accreditation_from_unep/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f6i67a/project_petals_receives_accreditation_from_unep/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/249/1/mintBHx8.webp)

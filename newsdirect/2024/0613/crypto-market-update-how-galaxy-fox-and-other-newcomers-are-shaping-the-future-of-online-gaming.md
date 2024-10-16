@@ -32,9 +32,17 @@ media@galaxyfox.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/crypto-market-update-how-galaxy-fox-and-other-newcomers-are-shaping-the-future-of-online-gaming-441254063 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/crypto-market-update-how-galaxy-fox-and-other-newcomers-are-shaping-the-future-of-online-gaming-441254063)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1df8jl7/cryptocurrency_revolutionizing_online_gaming_the/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1df8jl7/cryptocurrency_revolutionizing_online_gaming_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/13/lunadGCu.webp)

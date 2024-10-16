@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/copper-lake-resources-announces-plans-for-summer-exploration-plans-at-marshall-lake-property-625770898 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/copper-lake-resources-announces-plans-for-summer-exploration-plans-at-marshall-lake-property-625770898)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1djk8t1/copper_lake_resources_ceo_terry_macdonald_shares/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1djk8t1/copper_lake_resources_ceo_terry_macdonald_shares/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/19/linel8Wp.webp)

@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/angle-achieves-breakthrough-with-eu-patent-for-cellkeep-technology-with-the-us-to-follow-719200265 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/angle-achieves-breakthrough-with-eu-patent-for-cellkeep-technology-with-the-us-to-follow-719200265)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cb4p0y/angle_plc_ceo_announces_breakthrough_in_cellkeep/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cb4p0y/angle_plc_ceo_announces_breakthrough_in_cellkeep/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/23/talll8z0.webp)

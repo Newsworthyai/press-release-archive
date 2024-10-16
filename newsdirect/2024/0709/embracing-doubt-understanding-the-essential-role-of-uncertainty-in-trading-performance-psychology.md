@@ -50,9 +50,17 @@ max@edgeclear.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/embracing-doubt-understanding-the-essential-role-of-uncertainty-in-trading-performance-psychology-353412050 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/embracing-doubt-understanding-the-essential-role-of-uncertainty-in-trading-performance-psychology-353412050)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dz1l8b/embracing_doubt_understanding_the_essential_role/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dz1l8b/embracing_doubt_understanding_the_essential_role/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/9/markI2Ll.webp)

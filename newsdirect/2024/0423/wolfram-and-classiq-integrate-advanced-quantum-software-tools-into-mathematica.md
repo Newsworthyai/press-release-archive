@@ -52,9 +52,17 @@ Company Websitehttp://www.classiq.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/wolfram-and-classiq-integrate-advanced-quantum-software-tools-into-mathematica-305197254 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/wolfram-and-classiq-integrate-advanced-quantum-software-tools-into-mathematica-305197254)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cb2za9/classiq_and_wolfram_partner_to_integrate_quantum/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cb2za9/classiq_and_wolfram_partner_to_integrate_quantum/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/23/riftSdoO.webp)

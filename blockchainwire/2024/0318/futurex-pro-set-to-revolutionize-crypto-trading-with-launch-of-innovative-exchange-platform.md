@@ -38,9 +38,17 @@ Contact Name - Alan Ang
 
 Email - Business@futurexpro.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/futurex-pro-set-to-revolutionize-crypto-trading-with-launch-of-innovative-exchange-platform)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bhqz4u/futurex_pro_announces_official_launch_of/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bhqz4u/futurex_pro_announces_official_launch_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/18/zeroZYmk.webp)

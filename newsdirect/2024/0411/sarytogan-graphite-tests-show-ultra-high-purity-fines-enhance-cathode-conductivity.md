@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sarytogan-graphite-tests-show-ultra-high-purity-fines-enhance-cathode-conductivity-710963958 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sarytogan-graphite-tests-show-ultra-high-purity-fines-enhance-cathode-conductivity-710963958)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c1hmfx/sarytogan_graphite_ltd_successfully_tests/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c1hmfx/sarytogan_graphite_ltd_successfully_tests/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/swimgsgW.webp)

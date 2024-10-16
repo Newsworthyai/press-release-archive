@@ -41,9 +41,17 @@ Company Websitehttps://www.pathai.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/pathai-announces-launch-of-ai-based-measurement-of-metabolic-dysfunction-associated-steatohepatitis-aim-mash-on-the-aisight-image-management-system-272093093 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pathai-announces-launch-of-ai-based-measurement-of-metabolic-dysfunction-associated-steatohepatitis-aim-mash-on-the-aisight-image-management-system-272093093)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1er7ixm/pathai_launches_aibased_measurement_of_metabolic/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1er7ixm/pathai_launches_aibased_measurement_of_metabolic/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/13/yarnEzvR.webp)

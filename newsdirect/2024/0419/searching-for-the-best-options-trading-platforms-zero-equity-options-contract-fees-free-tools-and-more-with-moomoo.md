@@ -69,9 +69,17 @@ Company Websitehttp://www.moomoo.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/searching-for-the-best-options-trading-platforms-zero-equity-options-contract-fees-free-tools-and-more-with-moomoo-878433739 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/searching-for-the-best-options-trading-platforms-zero-equity-options-contract-fees-free-tools-and-more-with-moomoo-878433739)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1c877pd/moomoo_financial_inc_introduces_zero_contract/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1c877pd/moomoo_financial_inc_introduces_zero_contract/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/19/filetaA4.webp)

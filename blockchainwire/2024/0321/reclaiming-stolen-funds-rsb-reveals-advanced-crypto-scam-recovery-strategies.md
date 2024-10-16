@@ -35,9 +35,17 @@ Email: support@reportscammedbitcoin.com
 
 Website: https://reportscammedbitcoin.com/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/reclaiming-stolen-funds-rsb-reveals-advanced-crypto-scam-recovery-strategies)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bko8kr/report_scammed_bitcoin_unveils_comprehensive/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bko8kr/report_scammed_bitcoin_unveils_comprehensive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/22/seek6Bje.webp)

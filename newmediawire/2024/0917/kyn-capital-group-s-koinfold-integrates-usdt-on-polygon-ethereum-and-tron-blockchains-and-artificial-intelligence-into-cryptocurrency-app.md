@@ -46,9 +46,17 @@ KYN Capital Group, Inc. (KYNC)
 
 info@kyncap.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/kyn-capital-group-s-koinfold-integrates-usdt-on-polygon-ethereum-and-tron-blockchains-and-artificial-intelligence-into-cryptocurrency-app-7076058)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fjpv81/kyn_capital_group_updates_customers_on_new/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fjpv81/kyn_capital_group_updates_customers_on_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/18/blurQvza.webp)

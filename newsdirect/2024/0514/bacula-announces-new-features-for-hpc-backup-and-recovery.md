@@ -40,9 +40,17 @@ Company Websitehttps://www.baculasystems.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bacula-announces-new-features-for-hpc-backup-and-recovery-810411787 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bacula-announces-new-features-for-hpc-backup-and-recovery-810411787)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1crns21/bacula_systems_announces_new_features_for_hpc/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1crns21/bacula_systems_announces_new_features_for_hpc/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/14/swim5iYM.webp)

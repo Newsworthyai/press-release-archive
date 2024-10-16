@@ -42,9 +42,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/contractor-is-leveling-the-playing-field-turning-the-construction-industry-on-its-head-with-its-potentially-game-changing-ai-driven-app-754747807 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/contractor-is-leveling-the-playing-field-turning-the-construction-industry-on-its-head-with-its-potentially-game-changing-ai-driven-app-754747807)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1csk4bh/contractor_revolutionizing_construction_industry/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1csk4bh/contractor_revolutionizing_construction_industry/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/glowsI7z.webp)

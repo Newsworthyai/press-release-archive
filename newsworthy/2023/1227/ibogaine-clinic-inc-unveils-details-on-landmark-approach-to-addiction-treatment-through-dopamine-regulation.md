@@ -22,9 +22,17 @@ Ibogaine by David Dardashti’s innovative use of ibogaine represents a signific
 
 For those who wish to learn more specifics about our protocols, or inquire about treatment, please call 1-800-818-4511. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231227943/ibogaine-clinic-inc-unveils-details-on-landmark-approach-to-addiction-treatment-through-dopamine-regulation)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1avcw5d/ibogaine_clinic_inc_introduces_innovative/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1avcw5d/ibogaine_clinic_inc_introduces_innovative/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/odor51t0.webp)

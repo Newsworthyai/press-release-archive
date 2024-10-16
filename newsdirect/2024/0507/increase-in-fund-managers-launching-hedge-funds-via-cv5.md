@@ -30,9 +30,17 @@ Company Websitehttps://www.cv5capital.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/increase-in-fund-managers-launching-hedge-funds-via-cv5-294552821 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/increase-in-fund-managers-launching-hedge-funds-via-cv5-294552821)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cme38z/cv5_capital_launches_regulated_and_audited_hedge/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cme38z/cv5_capital_launches_regulated_and_audited_hedge/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/lime8iqX.webp)

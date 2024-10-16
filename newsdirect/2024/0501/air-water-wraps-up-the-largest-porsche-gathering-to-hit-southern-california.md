@@ -38,9 +38,17 @@ Company Websitehttps://air-water.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/air-water-wraps-up-the-largest-porsche-gathering-to-hit-southern-california-767521294 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/air-water-wraps-up-the-largest-porsche-gathering-to-hit-southern-california-767521294)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1chloy7/airwater_porsche_enthusiast_show_draws_over_11000/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1chloy7/airwater_porsche_enthusiast_show_draws_over_11000/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/clubDP0_.webp)

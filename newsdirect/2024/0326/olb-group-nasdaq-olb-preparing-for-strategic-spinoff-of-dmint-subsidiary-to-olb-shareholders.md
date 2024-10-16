@@ -34,9 +34,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/olb-group-nasdaq-olb-preparing-for-strategic-spinoff-of-dmint-subsidiary-to-olb-shareholders-437443506 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/olb-group-nasdaq-olb-preparing-for-strategic-spinoff-of-dmint-subsidiary-to-olb-shareholders-437443506)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bo7jhr/olb_group_to_spin_off_bitcoin_mining_subsidiary/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bo7jhr/olb_group_to_spin_off_bitcoin_mining_subsidiary/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/echoJsI6.webp)

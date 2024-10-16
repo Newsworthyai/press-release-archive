@@ -42,9 +42,17 @@ Social Links:
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/tectum-softnote-wallet-app-now-available-on-apple-app-store-across-multiple-countries)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fzzmd8/softnote_wallet_application_now_on_the_apple_app/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fzzmd8/softnote_wallet_application_now_on_the_apple_app/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/9/hushFvvQ.webp)

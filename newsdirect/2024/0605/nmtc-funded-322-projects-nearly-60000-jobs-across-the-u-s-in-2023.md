@@ -52,9 +52,17 @@ Company Websitehttps://nmtccoalition.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/nmtc-funded-322-projects-nearly-60-000-jobs-across-the-u-s-in-2023-640480853 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nmtc-funded-322-projects-nearly-60-000-jobs-across-the-u-s-in-2023-640480853)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d8pcqp/nmtc_report_shows_322_projects_and_nearly_60000/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d8pcqp/nmtc_report_shows_322_projects_and_nearly_60000/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/5/bendLOA1.webp)

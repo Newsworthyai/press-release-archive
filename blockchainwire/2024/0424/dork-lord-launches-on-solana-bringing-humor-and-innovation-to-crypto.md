@@ -28,9 +28,17 @@ Website | Twitter | Telegram | DEXTools
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/dork-lord-launches-on-solana-bringing-humor-and-innovation-to-crypto)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ccb6u8/dork_lord_revolutionizing_decentralized_humor_on/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ccb6u8/dork_lord_revolutionizing_decentralized_humor_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/24/yawnNfKZ.webp)

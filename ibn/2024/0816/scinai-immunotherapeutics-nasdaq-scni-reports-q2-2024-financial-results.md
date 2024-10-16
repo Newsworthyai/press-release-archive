@@ -32,9 +32,17 @@ Scinai Immunotherapeutics (NASDAQ: SCNI) is a biopharmaceutical company focused
 
  BioMedWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/scinai-immunotherapeutics-nasdaq-scni-reports-q2-2024-financial-results/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2ggb0/scinai_immunotherapeutics_publishes_q2_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2ggb0/scinai_immunotherapeutics_publishes_q2_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/filomo_l.webp)

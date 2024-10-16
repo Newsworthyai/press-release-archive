@@ -40,9 +40,17 @@ Company Websitehttp://www.bilasolar.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bila-solar-to-unveil-520-watt-glass-free-solar-panel-with-19-3-efficiency-at-re-506305462 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bila-solar-to-unveil-520-watt-glass-free-solar-panel-with-19-3-efficiency-at-re-506305462)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1f9guir/bila_solar_unveils_520watt_glassfree_solar_panel/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1f9guir/bila_solar_unveils_520watt_glassfree_solar_panel/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/5/rendAoH7.webp)

@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sunstone-metals-one-step-closer-to-el-palmar-resource-amid-strong-trenching-results-917967647 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sunstone-metals-one-step-closer-to-el-palmar-resource-amid-strong-trenching-results-917967647)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cu9j28/sunstone_metals_makes_significant_progress_in/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cu9j28/sunstone_metals_makes_significant_progress_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/17/lunabfEs.webp)

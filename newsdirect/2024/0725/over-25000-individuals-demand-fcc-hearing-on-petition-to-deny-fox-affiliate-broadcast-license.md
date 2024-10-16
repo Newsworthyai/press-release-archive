@@ -32,9 +32,17 @@ Company Websitehttps://www.mediaanddemocracyproject.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/over-25-000-individuals-demand-fcc-hearing-on-petition-to-deny-fox-affiliate-broadcast-license-482027135 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/over-25-000-individuals-demand-fcc-hearing-on-petition-to-deny-fox-affiliate-broadcast-license-482027135)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1ebyr6d/over_25000_individuals_demand_fcc_hearing_on/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ebyr6d/over_25000_individuals_demand_fcc_hearing_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/25/moon7_qt.webp)

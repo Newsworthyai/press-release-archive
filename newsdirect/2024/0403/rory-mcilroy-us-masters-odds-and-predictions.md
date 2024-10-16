@@ -29,9 +29,17 @@ info-media@acroudmedia.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/rory-mcilroy-us-masters-odds-and-predictions-901416327 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/rory-mcilroy-us-masters-odds-and-predictions-901416327)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bulgz5/rory_mcilroys_us_masters_odds_and_predictions/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bulgz5/rory_mcilroys_us_masters_odds_and_predictions/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/3/lambvKo3.webp)

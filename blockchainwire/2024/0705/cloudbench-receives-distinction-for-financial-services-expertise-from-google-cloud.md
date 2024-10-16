@@ -12,9 +12,17 @@ About CloudbenchCloudbench is at the forefront of value-driven vertical AI solut
 
 Press Inquiries:Tom RicherCEO[investorrelations@cloudbench.net](mailto:investorrelations@cloudbench.net) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cloudbench-receives-distinction-for-financial-services-expertise-from-google-cloud)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dvvj60/cloudbench_earns_google_cloud_expertise/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dvvj60/cloudbench_earns_google_cloud_expertise/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/5/vibe4DsE.webp)

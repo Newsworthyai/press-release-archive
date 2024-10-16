@@ -39,9 +39,17 @@ Company Websitehttps://www.gratonresortcasino.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/b-side-lounge-the-newest-music-venue-opens-at-graton-resort-and-casino-351960013 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/b-side-lounge-the-newest-music-venue-opens-at-graton-resort-and-casino-351960013)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1dz52h8/graton_resort_casino_unveils_new_music_venue/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1dz52h8/graton_resort_casino_unveils_new_music_venue/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/9/faceLeWy.webp)

@@ -20,9 +20,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fah-mai-holdings-uk-head-says-market-pullback-is-an-opportunity-for-buyers-689885134 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/fah-mai-holdings-uk-head-says-market-pullback-is-an-opportunity-for-buyers-689885134)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1c1cad9/fah_mai_holdings_uk_head_discusses_whisky_auction/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1c1cad9/fah_mai_holdings_uk_head_discusses_whisky_auction/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/zeroJMra.webp)

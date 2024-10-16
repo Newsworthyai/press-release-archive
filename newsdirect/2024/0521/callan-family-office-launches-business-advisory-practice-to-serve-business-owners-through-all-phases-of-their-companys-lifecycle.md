@@ -32,9 +32,17 @@ Company Websitehttps://callanfamilyoffice.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/callan-family-office-launches-business-advisory-practice-to-serve-business-owners-through-all-phases-of-their-companys-lifecycle-475819558 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/callan-family-office-launches-business-advisory-practice-to-serve-business-owners-through-all-phases-of-their-companys-lifecycle-475819558)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cx8tr7/callan_family_office_launches_business_advisory/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cx8tr7/callan_family_office_launches_business_advisory/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/21/kitegVUm.webp)

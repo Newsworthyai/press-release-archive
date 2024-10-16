@@ -42,9 +42,17 @@ Cast your vote now: https://city-pop.tokyo/voting
 
 Media Contacts:Contact Person: John F, Co-founderCompany Email: [Info@Gemie.io](mailto:Info@Gemie.io)Website: [https://www.gemie.io/](https://www.gemie.io/) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/launch-of-metaverses-got-talent-finals-unveiling-the-next-metaverse-superstar)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d9mkdx/voting_launched_for_metaverses_got_talent_choose/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d9mkdx/voting_launched_for_metaverses_got_talent_choose/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/icyJGJu.webp)

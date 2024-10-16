@@ -50,9 +50,17 @@ Innovate with Technology: Utilize AI and big data to enhance service models and 
 
 With a dedicated team and advanced technology, Innovatech Investment Education Foundation is positioned to be a trusted partner for investors, supporting their journey to financial success. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/innovatech-investment-education-foundation-new-initiatives-led-by-bertram-charlton)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1en9zud/innovatech_investment_education_foundation/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1en9zud/innovatech_investment_education_foundation/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/8/glow437H.webp)

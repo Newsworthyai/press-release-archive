@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/westwater-resources-hails-white-house-decision-on-critical-mineral-tariffs-370177255 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/westwater-resources-hails-white-house-decision-on-critical-mineral-tariffs-370177255)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cstmqx/westwater_resources_endorses_white_house_decision/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cstmqx/westwater_resources_endorses_white_house_decision/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/fastDJQ9.webp)

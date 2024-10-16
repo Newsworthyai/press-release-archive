@@ -22,9 +22,17 @@ Company Websitehttp://www.aprubrands.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/for-immediate-release-237662538 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/for-immediate-release-237662538)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1crt8io/apple_rush_company_inc_clears_final_details_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1crt8io/apple_rush_company_inc_clears_final_details_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/14/glownWfv.webp)

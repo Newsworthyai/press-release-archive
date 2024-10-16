@@ -18,9 +18,17 @@ CorporateStrategy.io stands as a beacon for strategic brilliance in the corporat
 
 Elevate your strategic acumen. Begin the journey at www.CorporateStrategy.io. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231218799/corporatestrategy-io-launches-a-new-hub-for-business-visionaries-and-strategic-thinkers)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1avx4cp/revolutionizing_business_strategy_with/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1avx4cp/revolutionizing_business_strategy_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/quipZ2vl.webp)

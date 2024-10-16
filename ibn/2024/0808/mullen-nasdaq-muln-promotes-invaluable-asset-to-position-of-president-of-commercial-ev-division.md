@@ -18,9 +18,17 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-promotes-invaluable-asset-to-position-of-president-of-commercial-ev-division/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2rhva/mullen_automotive_appoints_john_taylor_as/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2rhva/mullen_automotive_appoints_john_taylor_as/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/leangM9J.webp)

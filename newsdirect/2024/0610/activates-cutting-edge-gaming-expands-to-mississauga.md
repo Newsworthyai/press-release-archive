@@ -52,9 +52,17 @@ Company Websitehttps://playactivate.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/activates-cutting-edge-gaming-expands-to-mississauga-413209285 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/activates-cutting-edge-gaming-expands-to-mississauga-413209285)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dclcr5/activate_expands_to_mississauga_with_cuttingedge/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dclcr5/activate_expands_to_mississauga_with_cuttingedge/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/10/lossVXPT.webp)

@@ -44,9 +44,17 @@ Company Websitehttps://www.recall.ai/
 
 View source version on newsdirect.com: https://newsdirect.com/news/recall-ai-raises-10m-to-give-any-developer-the-ability-to-build-ai-meeting-bots-in-days-298036258 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/recall-ai-raises-10m-to-give-any-developer-the-ability-to-build-ai-meeting-bots-in-days-298036258)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1ctgpnc/recallai_raises_10m_to_enable_ai_meeting_bots_in/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1ctgpnc/recallai_raises_10m_to_enable_ai_meeting_bots_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/16/barnwttl.webp)

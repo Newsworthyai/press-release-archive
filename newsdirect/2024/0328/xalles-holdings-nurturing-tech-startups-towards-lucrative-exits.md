@@ -24,9 +24,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/xalles-holdings-nurturing-tech-startups-towards-lucrative-exits-896542006 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/xalles-holdings-nurturing-tech-startups-towards-lucrative-exits-896542006)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/StartupBusinessNews/comments/1bpufh5/xalles_holdings_nurturing_tech_startups_towards/
+
+
+[Reddit Post](https://www.reddit.com/r/StartupBusinessNews/comments/1bpufh5/xalles_holdings_nurturing_tech_startups_towards/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/loftcQ3g.webp)

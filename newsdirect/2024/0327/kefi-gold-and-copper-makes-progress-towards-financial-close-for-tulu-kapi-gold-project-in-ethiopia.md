@@ -22,9 +22,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kefi-gold-and-copper-makes-progress-towards-financial-close-for-tulu-kapi-gold-project-in-ethiopia-963034108 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kefi-gold-and-copper-makes-progress-towards-financial-close-for-tulu-kapi-gold-project-in-ethiopia-963034108)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bp0hvh/kefi_gold_and_copper_makes_significant_progress/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bp0hvh/kefi_gold_and_copper_makes_significant_progress/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/takedhAP.webp)

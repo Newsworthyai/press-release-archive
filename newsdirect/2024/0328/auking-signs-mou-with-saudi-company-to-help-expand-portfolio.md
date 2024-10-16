@@ -14,9 +14,17 @@ Jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/auking-signs-mou-with-saudi-company-to-help-expand-portfolio-421814521 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/auking-signs-mou-with-saudi-company-to-help-expand-portfolio-421814521)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bq7k3n/auking_mining_partners_with_bsmc_to_expand/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bq7k3n/auking_mining_partners_with_bsmc_to_expand/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/camc7uib.webp)

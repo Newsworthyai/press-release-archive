@@ -64,9 +64,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/alta-global-group-hype-acquisition-will-help-unlock-the-unparalleled-opportunity-to-convert-640-million-combat-sports-fans-to-participants-536978165 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/alta-global-group-hype-acquisition-will-help-unlock-the-unparalleled-opportunity-to-convert-640-million-combat-sports-fans-to-participants-536978165)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d3m20s/alta_global_groups_strategic_acquisition_to/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d3m20s/alta_global_groups_strategic_acquisition_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/29/navyoXxG.webp)

@@ -26,9 +26,17 @@ Company Websitehttps://www.mybluepeak.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bluepeak-named-winner-of-broadbandnows-digital-inclusivity-award-503254228 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bluepeak-named-winner-of-broadbandnows-digital-inclusivity-award-503254228)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1f1r8rs/bluepeak_honored_with_broadbandnows_2024_digital/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1f1r8rs/bluepeak_honored_with_broadbandnows_2024_digital/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/9/wolfbVl1.webp)

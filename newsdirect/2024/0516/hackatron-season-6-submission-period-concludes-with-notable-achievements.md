@@ -97,9 +97,17 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/hackatron-season-6-submission-period-concludes-with-notable-achievements-996486489 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/hackatron-season-6-submission-period-concludes-with-notable-achievements-996486489)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ctcn5g/tron_dao_completes_monumental_hackatron_season_6/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ctcn5g/tron_dao_completes_monumental_hackatron_season_6/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/16/camcoQst.webp)

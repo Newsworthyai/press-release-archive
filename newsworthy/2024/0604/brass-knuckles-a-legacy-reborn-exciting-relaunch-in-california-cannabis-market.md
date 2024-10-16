@@ -23,9 +23,17 @@ California (Newsworthy.ai) Tuesday Jun 4, 2024 @ 7:00 AM America/Detroit —
 
  For more information, follow us at www.brassknucklesog.com or on Instagram @therealbrassknucklesog_ 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202406041182/brass-knuckles-a-legacy-reborn-exciting-relaunch-in-california-cannabis-market)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1d7ui9j/brass_knuckles_announces_return_to_california/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1d7ui9j/brass_knuckles_announces_return_to_california/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/246/4/fastZlG_.webp)

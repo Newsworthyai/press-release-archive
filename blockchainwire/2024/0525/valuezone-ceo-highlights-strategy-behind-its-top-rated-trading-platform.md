@@ -29,9 +29,17 @@ Media Contact DetailsContact Name: Siodina EdgarContact Email: siodinaedgar@valu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/valuezone-ceo-highlights-strategy-behind-its-top-rated-trading-platform)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1emm0ku/valuezone_ceo_reveals_strategies_to_position/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1emm0ku/valuezone_ceo_reveals_strategies_to_position/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/mossQ_at.webp)

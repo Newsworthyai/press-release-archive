@@ -49,9 +49,17 @@ Company Websitehttps://avriotech.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/avrio-announces-merger-with-moon-to-deliver-crypto-lending-to-the-market-759947998 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/avrio-announces-merger-with-moon-to-deliver-crypto-lending-to-the-market-759947998)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1elher2/avrio_worldwide_pbc_announces_merger_with_moon/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1elher2/avrio_worldwide_pbc_announces_merger_with_moon/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/6/barnbJ6B.webp)

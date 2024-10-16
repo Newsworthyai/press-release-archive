@@ -12,9 +12,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/polymetals-resources-secures-5-million-investment-from-metals-acquisition-for-endeavor-mine-274058343 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/polymetals-resources-secures-5-million-investment-from-metals-acquisition-for-endeavor-mine-274058343)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/StartupBusinessNews/comments/1d24ug8/polymetals_resources_secures_5_million_investment/
+
+
+[Reddit Post](https://www.reddit.com/r/StartupBusinessNews/comments/1d24ug8/polymetals_resources_secures_5_million_investment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/27/glee2vf1.webp)

@@ -43,9 +43,17 @@ Media Contact DetailsContact Name: William MillerContact Email: william@okaycoin
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/william-millers-vision-at-okaycoin-crypto-staking-accessible-to-all-investors)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fvggvo/okaycoin_ceo_unveils_vision_for_inclusive/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fvggvo/okaycoin_ceo_unveils_vision_for_inclusive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/noondWYs.webp)

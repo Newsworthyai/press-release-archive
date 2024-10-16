@@ -23,9 +23,17 @@ Company Websitehttps://curealz.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/cure-alzheimers-fund-announces-19th-straight-year-of-record-results-362472627 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cure-alzheimers-fund-announces-19th-straight-year-of-record-results-362472627)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1e0p7ll/cure_alzheimers_fund_achieves_recordbreaking_year/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1e0p7ll/cure_alzheimers_fund_achieves_recordbreaking_year/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/11/lossEnzs.webp)

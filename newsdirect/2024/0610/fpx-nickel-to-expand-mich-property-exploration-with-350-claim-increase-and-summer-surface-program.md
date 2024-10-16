@@ -20,9 +20,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fpx-nickel-to-expand-mich-property-exploration-with-350-claim-increase-and-summer-surface-program-764460514 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/fpx-nickel-to-expand-mich-property-exploration-with-350-claim-increase-and-summer-surface-program-764460514)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dcpjil/fpx_nickel_expands_mich_property_exploration/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dcpjil/fpx_nickel_expands_mich_property_exploration/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/10/archmekK.webp)

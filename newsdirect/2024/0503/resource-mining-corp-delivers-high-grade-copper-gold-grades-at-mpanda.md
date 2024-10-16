@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/resource-mining-corp-delivers-high-grade-copper-gold-grades-at-mpanda-812777598 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/resource-mining-corp-delivers-high-grade-copper-gold-grades-at-mpanda-812777598)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cjbreu/resource_mining_corp_delivers_highgrade/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cjbreu/resource_mining_corp_delivers_highgrade/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/3/taro0lbo.webp)

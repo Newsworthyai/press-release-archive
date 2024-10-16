@@ -26,9 +26,17 @@ About Wendt Partners:
 
  Distributed by: Reportable, Inc. 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/wendt-partners-announces-major-q3-client-wins-promotions-and-global-expansion-activities-7076135)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1fuh4ix/wendt_partners_announces_major_q3_client_wins/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1fuh4ix/wendt_partners_announces_major_q3_client_wins/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/1/mildmiKA.webp)

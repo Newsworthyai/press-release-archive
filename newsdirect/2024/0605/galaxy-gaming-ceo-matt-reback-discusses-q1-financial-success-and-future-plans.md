@@ -10,9 +10,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/galaxy-gaming-ceo-matt-reback-discusses-q1-financial-success-and-future-plans-341289346 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/galaxy-gaming-ceo-matt-reback-discusses-q1-financial-success-and-future-plans-341289346)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d8wvuf/galaxy_gaming_ceo_matt_reback_discusses_q1/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d8wvuf/galaxy_gaming_ceo_matt_reback_discusses_q1/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/5/ellaet6T.webp)

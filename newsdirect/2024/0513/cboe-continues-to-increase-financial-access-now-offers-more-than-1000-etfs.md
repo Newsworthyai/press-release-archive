@@ -38,9 +38,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cboe-continues-to-increase-financial-access-now-offers-more-than-1-000-etfs-760496110 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cboe-continues-to-increase-financial-access-now-offers-more-than-1-000-etfs-760496110)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1cqyf82/cboe_global_markets_surpasses_1000_etf_listings/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1cqyf82/cboe_global_markets_surpasses_1000_etf_listings/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/evenuxYu.webp)

@@ -12,9 +12,17 @@ Patients considering ketamine therapy can expect a welcoming and supportive envi
 
 With its compassionate and science-based approach, Music City Ketamine is revolutionizing mental health treatment in Nashville and beyond. By offering Ketamine-Assisted Psychotherapy, they are empowering individuals to overcome treatment-resistant depression, anxiety, PTSD, and other mental health challenges, providing hope for a brighter future. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402251093/music-city-ketamine-offers-cutting-edge-ketamine-assisted-psychotherapy-for-effective-mental-health-treatment)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1b09pl2/music_city_ketamine_revolutionizes_mental_health/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1b09pl2/music_city_ketamine_revolutionizes_mental_health/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/26/healAlXZ.webp)

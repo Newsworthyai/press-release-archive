@@ -40,9 +40,17 @@ Company Websitehttps://www.unifyapps.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/unifyapps-secures-11mn-to-transform-enterprise-integrations-with-generative-ai-868953499 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/unifyapps-secures-11mn-to-transform-enterprise-integrations-with-generative-ai-868953499)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cxzv61/unifyapps_secures_11mn_to_transform_enterprise/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cxzv61/unifyapps_secures_11mn_to_transform_enterprise/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/urgeai6E.webp)

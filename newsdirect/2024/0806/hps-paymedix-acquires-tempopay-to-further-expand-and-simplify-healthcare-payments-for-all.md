@@ -36,9 +36,17 @@ Company Websitehttps://paymedix.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hps-paymedix-acquires-tempopay-to-further-expand-and-simplify-healthcare-payments-for-all-910298009 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/hps-paymedix-acquires-tempopay-to-further-expand-and-simplify-healthcare-payments-for-all-910298009)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1elg3xb/hpspaymedix_acquires_tempopay_to_expand/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1elg3xb/hpspaymedix_acquires_tempopay_to_expand/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/6/hushAQSp.webp)

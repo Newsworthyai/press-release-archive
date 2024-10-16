@@ -36,9 +36,17 @@ Lisa Moretti is a dedicated advocate for the residents of Pasco County, Florida,
 
 For more information about Lisa Moretti’s campaign and her vision for Pasco County, visit her website, or Follow her on YouTube. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202409251280/development-is-a-privilege-not-a-right-lisa-moretti-pushes-for-stronger-rules-in-pasco-county-florida)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fp1tks/lisa_moretti_calls_for_responsible_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fp1tks/lisa_moretti_calls_for_responsible_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/249/25/fastFaIT.webp)

@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fathom-nickel-reports-promising-exploration-results-at-gochager-lake-prepares-for-autumn-program-255513077 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/fathom-nickel-reports-promising-exploration-results-at-gochager-lake-prepares-for-autumn-program-255513077)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1e6jao4/fathom_nickel_reports_promising_exploration/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1e6jao4/fathom_nickel_reports_promising_exploration/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/18/arch1XyD.webp)

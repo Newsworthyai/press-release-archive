@@ -39,9 +39,17 @@ Company Websitehttp://www.basileinternationallegalfirm.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/basile-international-legal-firm-sets-new-standards-in-international-debt-collection-895515924 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/basile-international-legal-firm-sets-new-standards-in-international-debt-collection-895515924)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e6yzoz/basile_international_sets_new_standards_in/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e6yzoz/basile_international_sets_new_standards_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/19/ovaliaRo.webp)

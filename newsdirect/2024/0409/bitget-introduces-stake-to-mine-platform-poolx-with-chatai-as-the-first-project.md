@@ -26,9 +26,17 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-introduces-stake-to-mine-platform-poolx-with-chatai-as-the-first-project-539001762 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitget-introduces-stake-to-mine-platform-poolx-with-chatai-as-the-first-project-539001762)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bzrwkt/bitget_unveils_poolx_staketomine_platform_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bzrwkt/bitget_unveils_poolx_staketomine_platform_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/9/herbdm6b.webp)

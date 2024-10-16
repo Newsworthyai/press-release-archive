@@ -62,9 +62,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/teslas-optimus-robot-could-hit-the-market-by-end-of-next-year-756057417 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/teslas-optimus-robot-could-hit-the-market-by-end-of-next-year-756057417)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1d2o6gx/knightscope_expands_operations_with_new/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1d2o6gx/knightscope_expands_operations_with_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/28/glowwmLQ.webp)

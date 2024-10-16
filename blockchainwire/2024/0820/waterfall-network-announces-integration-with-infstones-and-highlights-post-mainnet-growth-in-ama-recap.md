@@ -56,9 +56,17 @@ Visit: www.infstones.com
 
 Media contact: bluewave@transformgroup.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/waterfall-network-announces-integration-with-infstones-and-highlights-post-mainnet-growth-in-ama-recap)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvd376/waterfall_network_integrates_with_infstones_to/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvd376/waterfall_network_integrates_with_infstones_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/20/loft3FVj.webp)

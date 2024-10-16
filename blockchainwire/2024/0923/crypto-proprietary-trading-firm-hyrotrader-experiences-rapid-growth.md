@@ -48,9 +48,17 @@ As part of its growth strategy, HyroTrader is not only expanding into new region
 
 For more information, visit HyroTrader’s website. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-proprietary-trading-firm-hyrotrader-experiences-rapid-growth)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1g3l1y2/hyrotrader_achieves_51_monthonmonth_revenue/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1g3l1y2/hyrotrader_achieves_51_monthonmonth_revenue/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/14/lilyw068.webp)

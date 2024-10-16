@@ -18,9 +18,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/greatland-gold-says-gold-at-a-record-boosts-the-economics-of-the-companys-projects-616286080 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/greatland-gold-says-gold-at-a-record-boosts-the-economics-of-the-companys-projects-616286080)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c874cm/greatland_gold_director_discusses_impact_of_high/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c874cm/greatland_gold_director_discusses_impact_of_high/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/19/silkzpWx.webp)

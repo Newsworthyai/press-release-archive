@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ariana-resources-updates-resource-and-reserve-realises-long-term-strategy-844938835 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ariana-resources-updates-resource-and-reserve-realises-long-term-strategy-844938835)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bpqwu5/ariana_resources_updates_resource_and_reserve/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bpqwu5/ariana_resources_updates_resource_and_reserve/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/deepwI1C.webp)

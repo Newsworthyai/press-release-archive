@@ -38,9 +38,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/this-new-gamified-trading-platform-is-eyeing-a-share-of-the-30b-a-year-fantasy-sports-market-652563543 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/this-new-gamified-trading-platform-is-eyeing-a-share-of-the-30b-a-year-fantasy-sports-market-652563543)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1fco9fv/fantasy_trading_platform_bullrush_enters_30b/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1fco9fv/fantasy_trading_platform_bullrush_enters_30b/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/9/lambGn9n.webp)

@@ -54,9 +54,17 @@ MIAMI - (NewMediaWire) - October 15, 2024 - Luminar Media Group, Inc. (OTCMARKE
 
  Follow us on X: [@FortunCorp](https://x.com/FortunCorp) 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/luminar-media-group-fortun-otcmarkets-lrgr-forecasts-continued-significant-growth-q4-2024-7076227)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1g492re/luminar_media_group_forecasts_strong_growth_in_q4/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1g492re/luminar_media_group_forecasts_strong_growth_in_q4/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/15/lilyCnHp.webp)

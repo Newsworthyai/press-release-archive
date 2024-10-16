@@ -34,9 +34,17 @@ Company Websitehttps://csj-consulting.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/csj-consulting-limited-announces-strategic-collaborations-with-bnp-paribas-and-societe-generale-762941148 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/csj-consulting-limited-announces-strategic-collaborations-with-bnp-paribas-and-societe-generale-762941148)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dclrk3/csj_consulting_limited_announces_strategic/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dclrk3/csj_consulting_limited_announces_strategic/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/10/wamcwj4T.webp)

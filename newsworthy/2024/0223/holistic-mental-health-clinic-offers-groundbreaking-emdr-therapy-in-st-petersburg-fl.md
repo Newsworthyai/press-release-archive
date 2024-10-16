@@ -8,9 +8,17 @@ Extensively researched and proven effective, EMDR therapy offers a safe and natu
 
 Don't let anxiety, trauma, or depression hold you back any longer. Take control of your mental health journey and experience the transformative power of EMDR therapy at The Holistic Mental Health Clinic. To schedule a consultation or learn more about the clinic's services, contact them today. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402231085/holistic-mental-health-clinic-offers-groundbreaking-emdr-therapy-in-st-petersburg-fl)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1az59st/holistic_mental_health_clinic_introduces_emdr/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1az59st/holistic_mental_health_clinic_introduces_emdr/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/24/hintuG7q.webp)

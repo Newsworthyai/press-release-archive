@@ -50,9 +50,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/1-million-users-join-the-waitlist-for-robinhoods-new-gold-credit-card-within-a-month-whats-behind-the-hype-471002035 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/1-million-users-join-the-waitlist-for-robinhoods-new-gold-credit-card-within-a-month-whats-behind-the-hype-471002035)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1cj832u/robinhood_gold_card_attracts_over_1_million_users/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1cj832u/robinhood_gold_card_attracts_over_1_million_users/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/3/gulfW3P8.webp)

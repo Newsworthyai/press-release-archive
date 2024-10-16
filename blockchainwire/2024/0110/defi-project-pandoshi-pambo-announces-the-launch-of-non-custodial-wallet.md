@@ -36,9 +36,17 @@ Visit the links below for more information about Pandoshi (PAMBO):
 
 Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/defi-project-pandoshi-pambo-announces-the-launch-of-non-custodial-wallet)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avdq1e/pandoshi_raises_17m_in_initial_funding_for_unique/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avdq1e/pandoshi_raises_17m_in_initial_funding_for_unique/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/best71aQ.webp)

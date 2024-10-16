@@ -68,9 +68,17 @@ Company Websitehttps://www.packbrothershospitality.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/renowned-family-run-hospitality-group-takes-over-three-iconic-virginia-dining-destinations-735399098 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/renowned-family-run-hospitality-group-takes-over-three-iconic-virginia-dining-destinations-735399098)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1ehgbdx/pack_brothers_hospitality_expands_with_iconic/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ehgbdx/pack_brothers_hospitality_expands_with_iconic/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/1/larkasFP.webp)

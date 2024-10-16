@@ -32,9 +32,17 @@ ronald@futuremarketsresearch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nuvectis-pharma-rises-in-pre-market-following-fda-orphan-drug-designation-for-nxp800-fueling-optimism-ahead-of-key-clinical-data-693388467 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nuvectis-pharma-rises-in-pre-market-following-fda-orphan-drug-designation-for-nxp800-fueling-optimism-ahead-of-key-clinical-data-693388467)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1f45wg5/nuvectis_pharma_receives_fda_orphan_drug/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1f45wg5/nuvectis_pharma_receives_fda_orphan_drug/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/29/bendYbVA.webp)

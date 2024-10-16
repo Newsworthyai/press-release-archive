@@ -34,9 +34,17 @@ Forward-Looking Statement
 
 This press release contains forward-looking statements that are subject to risks and uncertainties. Actual results may differ materially from those expressed in these statements. 
 
+---
+
 [Original/Source Press Release](http://www.newmediawire.com/news/supercloud-global-holdings-inc-releases-first-piece-of-exclusive-content-from-new-subsidiary-supercloud-studios-marking-new-revenue-opportunity-7076090)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1frcb79/newly_formed_fullscale_entertainment_production/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1frcb79/newly_formed_fullscale_entertainment_production/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/28/oxenTV_q.webp)

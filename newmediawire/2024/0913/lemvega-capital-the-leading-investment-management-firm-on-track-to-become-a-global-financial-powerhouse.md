@@ -50,9 +50,17 @@ For more information, visit www.lemvegacapital.com.
 
 Media Inquiries Email: info@lemvegacapital.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/lemvega-capital-the-leading-investment-management-firm-on-track-to-become-a-global-financial-powerhouse-7076051)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1figvrx/lemvega_capital_redefining_financial_landscape/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1figvrx/lemvega_capital_redefining_financial_landscape/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/16/iris5TqV.webp)

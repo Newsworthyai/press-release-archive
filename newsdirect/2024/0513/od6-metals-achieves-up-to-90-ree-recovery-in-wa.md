@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/od6-metals-achieves-up-to-90-ree-recovery-in-wa-119052207 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/od6-metals-achieves-up-to-90-ree-recovery-in-wa-119052207)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cr97j0/od6_metals_achieves_up_to_90_ree_recovery_in_wa/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cr97j0/od6_metals_achieves_up_to_90_ree_recovery_in_wa/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/wolfxya5.webp)

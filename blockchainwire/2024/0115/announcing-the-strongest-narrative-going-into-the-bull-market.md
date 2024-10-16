@@ -38,9 +38,17 @@ Platforms focused on community values and aligned incentives often outgrow short
 
 The upcoming seed sale for $BETX tokens provides a limited golden opportunity for early investors to maximize their potential benefits from Betix’s offerings with the $BETX token - this will be the first of two seed raises, and this first seed sale will be hosted on Gempad from January 30th to February 6th 2024. More information regarding the seed sale is being revealed on Betix’s official X account, so follow to be prepared 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/announcing-the-strongest-narrative-going-into-the-bull-market)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avx65r/the_rising_tide_of_gamblefi/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avx65r/the_rising_tide_of_gamblefi/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/cake2gOY.webp)

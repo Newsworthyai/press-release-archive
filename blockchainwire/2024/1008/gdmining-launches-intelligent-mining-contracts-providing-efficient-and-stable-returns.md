@@ -33,9 +33,17 @@ For more information, visit https://gdmining.com/.
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can involve risk. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-launches-intelligent-mining-contracts-providing-efficient-and-stable-returns)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fz5711/gdmining_launches_intelligent_mining_contracts/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fz5711/gdmining_launches_intelligent_mining_contracts/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/8/zealj2Np.webp)

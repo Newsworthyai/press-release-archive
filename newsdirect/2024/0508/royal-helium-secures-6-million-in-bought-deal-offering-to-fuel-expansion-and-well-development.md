@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/royal-helium-secures-6-million-in-bought-deal-offering-to-fuel-expansion-and-well-development-646614364 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/royal-helium-secures-6-million-in-bought-deal-offering-to-fuel-expansion-and-well-development-646614364)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cngc9m/royal_helium_raises_6_million_in_bought_deal/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cngc9m/royal_helium_raises_6_million_in_bought_deal/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/8/lamb246N.webp)

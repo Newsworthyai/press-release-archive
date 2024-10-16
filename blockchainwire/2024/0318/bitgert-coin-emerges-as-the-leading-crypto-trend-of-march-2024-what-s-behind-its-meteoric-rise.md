@@ -36,9 +36,17 @@ Buy on Pancakeswap
 
 Buy on[Uniswap](https://bit.ly/43kIzQb)Disclaimer:The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency.[](https://bit.ly/43kIzQb) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitgert-coin-emerges-as-the-leading-crypto-trend-of-march-2024-whats-behind-its-meteoric-rise)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bhstvp/bitgert_the_hottest_cryptocurrency_project_of/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bhstvp/bitgert_the_hottest_cryptocurrency_project_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/18/smoguZwU.webp)

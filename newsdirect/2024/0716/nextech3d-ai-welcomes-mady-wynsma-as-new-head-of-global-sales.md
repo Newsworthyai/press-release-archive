@@ -16,9 +16,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-welcomes-mady-wynsma-as-new-head-of-global-sales-359772034 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-welcomes-mady-wynsma-as-new-head-of-global-sales-359772034)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e4rlgr/nextech3dai_welcomes_mady_wynsma_as_new_head_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e4rlgr/nextech3dai_welcomes_mady_wynsma_as_new_head_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/16/glueKIaB.webp)

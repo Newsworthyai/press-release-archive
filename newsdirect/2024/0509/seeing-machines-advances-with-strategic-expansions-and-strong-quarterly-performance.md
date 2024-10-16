@@ -22,9 +22,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/seeing-machines-advances-with-strategic-expansions-and-strong-quarterly-performance-393547122 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/seeing-machines-advances-with-strategic-expansions-and-strong-quarterly-performance-393547122)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cnuw0w/seeing_machines_advances_with_strategic/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cnuw0w/seeing_machines_advances_with_strategic/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/quizSXpE.webp)

@@ -58,9 +58,17 @@ For media inquiries or further information, please contact:
 
 Disclaimer: Not affiliated with or endorsed by Marvel Comics, Marvel Cinematic Universe or Marvel Characters, Inc. The information provided in this press release is not investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/artfi-launches-genesis-offering-pass-sale-democratizing-art-access-for-just-10-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bb4x1w/artfi_launches_genesis_offering_pass_sale_making/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bb4x1w/artfi_launches_genesis_offering_pass_sale_making/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/8/neonp0sO.webp)

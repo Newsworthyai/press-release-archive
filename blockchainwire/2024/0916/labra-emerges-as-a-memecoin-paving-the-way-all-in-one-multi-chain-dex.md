@@ -26,9 +26,17 @@ Twitter: https://x.com/Labra_Token
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/labra-emerges-as-a-memecoin-paving-the-way-all-in-one-multi-chain-dex)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fibllp/labrador_unveils_labra_a_loyal_meme_token_on/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fibllp/labrador_unveils_labra_a_loyal_meme_token_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/16/hikeRJ_Z.webp)

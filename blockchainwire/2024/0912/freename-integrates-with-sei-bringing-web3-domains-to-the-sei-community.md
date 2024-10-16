@@ -14,9 +14,17 @@ Freename users can now benefit from Sei’s blockchain, which is designed for sc
 
 About Freename: Freename is the leading multichain Web3 Namespace where users can register and mint their own Web3 domains on their preferred chain. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/freename-integrates-with-sei-bringing-web3-domains-to-the-sei-community)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvbtll/freename_integrates_with_sei_blockchain_to/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvbtll/freename_integrates_with_sei_blockchain_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/12/smogLKsp.webp)

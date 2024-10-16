@@ -36,9 +36,17 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-wallet-integrates-babylon-testnet-to-simplify-bitcoin-staking-824629202 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitget-wallet-integrates-babylon-testnet-to-simplify-bitcoin-staking-824629202)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1clgdti/bitget_wallet_integrates_babylon_testnet_to/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1clgdti/bitget_wallet_integrates_babylon_testnet_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/6/openiIaA.webp)

@@ -23,9 +23,17 @@ Contact: info@hr.com
 
 HR.com Newsroom 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202409091256/hr-com-celebrates-25-years-as-the-leading-online-community-for-hr-professionals)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fcnv6q/hrcom_celebrates_25th_anniversary_as_the_premier/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fcnv6q/hrcom_celebrates_25th_anniversary_as_the_premier/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/249/9/barn9cyS.webp)

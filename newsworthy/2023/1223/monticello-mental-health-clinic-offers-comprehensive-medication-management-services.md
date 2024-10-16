@@ -12,9 +12,17 @@ However, the clinic emphasizes that medication alone is not a cure-all solution.
 
 "We acknowledge that while medication can be beneficial, it should be complemented by a patient's commitment to actively improve their mental health," says Dr. Miller. "Our team is dedicated to providing guidance, education, and ongoing support to empower patients in their pursuit of mental wellness." 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231223942/monticello-mental-health-clinic-offers-comprehensive-medication-management-services)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcw6s/monticello_mental_health_clinic_a_holistic/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcw6s/monticello_mental_health_clinic_a_holistic/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/paveGO7A.webp)

@@ -14,9 +14,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/acarix-announces-shares-are-now-being-traded-on-the-otcqb-under-the-ticker-acixf-960444671 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/acarix-announces-shares-are-now-being-traded-on-the-otcqb-under-the-ticker-acixf-960444671)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1eg4uqy/acarix_ceo_announces_trading_on_otcqb_market_in/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1eg4uqy/acarix_ceo_announces_trading_on_otcqb_market_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/30/mendfRuG.webp)

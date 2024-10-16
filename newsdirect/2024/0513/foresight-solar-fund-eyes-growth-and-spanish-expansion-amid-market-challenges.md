@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/foresight-solar-fund-eyes-growth-and-spanish-expansion-amid-market-challenges-648341164 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/foresight-solar-fund-eyes-growth-and-spanish-expansion-amid-market-challenges-648341164)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cr1k3b/foresight_solar_fund_focuses_on_growth_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cr1k3b/foresight_solar_fund_focuses_on_growth_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/mendbna0.webp)

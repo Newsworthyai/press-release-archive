@@ -38,9 +38,17 @@ Company Websitehttps://unicelab.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/unice-the-first-ai-doctor-leverages-fireblocks-for-safe-digital-asset-transfers-856624969 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/unice-the-first-ai-doctor-leverages-fireblocks-for-safe-digital-asset-transfers-856624969)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1ca8oi2/unice_partners_with_fireblocks_to_revolutionize/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1ca8oi2/unice_partners_with_fireblocks_to_revolutionize/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/22/bosshIE2.webp)

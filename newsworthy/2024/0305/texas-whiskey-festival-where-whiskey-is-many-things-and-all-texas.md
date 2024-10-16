@@ -35,9 +35,17 @@ About the Texas Whiskey Festival
 
 The festival's mission is simple: To create events, collaborations, and blends that celebrate Texas Whiskey and its community. We want to promote and educate Texans about the whiskeys produced in our great state. As an organization, we know that Texas has some of the best distilleries and whiskeys globally. The Texas Whiskey Festival is an opportunity to showcase that. For more information, please visit https://txwhiskeyfest.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202403051104/texas-whiskey-festival-where-whiskey-is-many-things-and-all-things-texan)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1b7kswf/7th_annual_texas_whiskey_festival_returns_to/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1b7kswf/7th_annual_texas_whiskey_festival_returns_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/243/5/quipU4EJ.webp)

@@ -30,9 +30,17 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-tygra-industries-llc-and-fugue-capital-799686123 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-tygra-industries-llc-and-fugue-capital-799686123)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ddorwj/fugue_capital_expands_through_acquisition_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ddorwj/fugue_capital_expands_through_acquisition_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/11/pondfzeb.webp)

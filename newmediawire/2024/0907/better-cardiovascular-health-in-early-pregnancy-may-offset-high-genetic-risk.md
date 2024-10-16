@@ -78,9 +78,17 @@ Research Highlights:
 
  heart.org and stroke.org 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/better-cardiovascular-health-in-early-pregnancy-may-offset-high-genetic-risk-7076020)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1fbfaun/good_cardiovascular_health_in_early_pregnancy_may/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1fbfaun/good_cardiovascular_health_in_early_pregnancy_may/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/7/plumAPpa.webp)

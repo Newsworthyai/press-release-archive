@@ -40,9 +40,17 @@ Email: official@cwallet.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cwallet-launches-gift-card-feature--shopping-experience-upgrade)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dqndk0/cwallet_launches_new_gift_card_feature_for/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dqndk0/cwallet_launches_new_gift_card_feature_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/28/zealRpw4.webp)

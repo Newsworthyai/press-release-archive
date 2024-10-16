@@ -36,9 +36,17 @@ Website: www.upcx.io
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/tom-daleys-medal-triumph-highlights-successful-upcx-partnership-at-world-aquatics-championships)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avxhxr/tom_daley_wins_first_medal_at_world_aquatics/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avxhxr/tom_daley_wins_first_medal_at_world_aquatics/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/hush24Ju.webp)

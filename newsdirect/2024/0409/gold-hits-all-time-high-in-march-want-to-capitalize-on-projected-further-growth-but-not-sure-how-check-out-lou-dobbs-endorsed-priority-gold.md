@@ -38,9 +38,17 @@ Company Websitehttps://prioritygold.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/gold-hits-all-time-high-in-march-want-to-capitalize-on-projected-further-growth-but-not-sure-how-check-out-lou-dobbs-endorsed-priority-gold-165418618 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/gold-hits-all-time-high-in-march-want-to-capitalize-on-projected-further-growth-but-not-sure-how-check-out-lou-dobbs-endorsed-priority-gold-165418618)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1bzr9lx/gold_hits_alltime_high_in_march_want_to/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1bzr9lx/gold_hits_alltime_high_in_march_want_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/9/coolYF2c.webp)

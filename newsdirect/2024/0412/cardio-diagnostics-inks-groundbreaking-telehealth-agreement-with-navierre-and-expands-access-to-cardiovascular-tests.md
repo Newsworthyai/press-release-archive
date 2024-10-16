@@ -64,9 +64,17 @@ Company Websitehttps://cardiodiagnosticsinc.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/cardio-diagnostics-inks-groundbreaking-telehealth-agreement-with-navierre-and-expands-access-to-cardiovascular-tests-127263786 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cardio-diagnostics-inks-groundbreaking-telehealth-agreement-with-navierre-and-expands-access-to-cardiovascular-tests-127263786)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1c28fqo/cardio_diagnostics_expands_access_to/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1c28fqo/cardio_diagnostics_expands_access_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/12/envySUmd.webp)

@@ -52,9 +52,17 @@ Discord: https://discord.gg/Q7BxghMVyu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/twitter-traders-and-influencers-on-blockdag-network-its-going-to-go-10000-times-up)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvnoq0/blockdag_network_shaping_cryptocurrency_market/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvnoq0/blockdag_network_shaping_cryptocurrency_market/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/warp6Lrn.webp)

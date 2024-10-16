@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/market-forecasts-hint-at-a-lithium-revival-could-this-be-a-golden-opportunity-for-argentina-lithium-otcqx-lilif-and-other-miners-145899786 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/market-forecasts-hint-at-a-lithium-revival-could-this-be-a-golden-opportunity-for-argentina-lithium-otcqx-lilif-and-other-miners-145899786)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dhx6ma/is_the_lithium_market_set_for_a_turnaround/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dhx6ma/is_the_lithium_market_set_for_a_turnaround/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/17/riceOUuF.webp)

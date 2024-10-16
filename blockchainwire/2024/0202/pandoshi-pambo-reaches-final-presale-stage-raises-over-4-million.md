@@ -32,9 +32,17 @@ Visit the links below for more information about Pandoshi (PAMBO):
 
 Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/pandoshi-pambo-reaches-final-presale-stage-raises-over-4-million)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avjwak/pandoshi_pambo_raises_over_4_million_in_presale/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avjwak/pandoshi_pambo_raises_over_4_million_in_presale/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/glowx0e7.webp)

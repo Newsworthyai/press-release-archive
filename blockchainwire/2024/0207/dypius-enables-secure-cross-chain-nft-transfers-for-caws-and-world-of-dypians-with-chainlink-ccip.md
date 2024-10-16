@@ -40,9 +40,17 @@ Dypius caters to both crypto beginners and experts with versatile solutions, inc
 
 You can learn more about Dypius and World of Dypians at these links: DYPIUS Website| World of Dypians | Twitter | Discord | Telegram | GitHub | YouTube 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/dypius-enables-secure-cross-chain-nft-transfers-for-caws-and-world-of-dypians-with-chainlink-ccip)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1avjy3i/dypius_integrates_chainlink_ccip_for_seamless_nft/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1avjy3i/dypius_integrates_chainlink_ccip_for_seamless_nft/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/icyv6cU.webp)

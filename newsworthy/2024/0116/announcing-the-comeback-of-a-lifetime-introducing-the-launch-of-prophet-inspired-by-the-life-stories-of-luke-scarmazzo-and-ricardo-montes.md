@@ -25,9 +25,17 @@ Prophet Brands
 
 oracle@prophetbrands.com 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20240116991/announcing-the-comeback-of-a-lifetime-introducing-the-launch-of-prophet-inspired-by-the-life-stories-of-luke-scarmazzo-and-ricardo-montes)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1avdov5/prophet_brands_makes_debut_at_premier_group/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1avdov5/prophet_brands_makes_debut_at_premier_group/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/jadehw6l.webp)

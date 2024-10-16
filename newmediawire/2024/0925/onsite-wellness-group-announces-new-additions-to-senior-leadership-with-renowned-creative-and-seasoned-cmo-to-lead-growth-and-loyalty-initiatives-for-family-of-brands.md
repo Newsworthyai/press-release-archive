@@ -28,9 +28,17 @@ Lindsey Nobles
 
 lindsey@onsiteworkshops.com 
 
+---
+
 [Original/Source Press Release](http://www.newmediawire.com/news/onsite-wellness-group-announces-new-additions-to-senior-leadership-with-renowned-creative-and-seasoned-cmo-to-lead-growth-and-loyalty-initiatives-for-family-of-brands-7076091)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1frcdqv/onsite_wellness_group_welcomes_two_executives_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1frcdqv/onsite_wellness_group_welcomes_two_executives_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/28/mossvl6A.webp)

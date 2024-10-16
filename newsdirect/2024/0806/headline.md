@@ -66,9 +66,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/headline-383147319 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/headline-383147319)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1elhexa/alzamend_neuro_advances_nextgeneration_treatments/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1elhexa/alzamend_neuro_advances_nextgeneration_treatments/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/6/meanj8Uy.webp)

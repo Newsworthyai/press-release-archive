@@ -60,9 +60,17 @@ Company Websitehttps://www.tradeweb.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/institutional-investors-embrace-next-wave-of-etfs-390716658 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/institutional-investors-embrace-next-wave-of-etfs-390716658)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1en5kym/institutional_investors_embrace_next_wave_of_etfs/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1en5kym/institutional_investors_embrace_next_wave_of_etfs/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/8/seekXHc9.webp)

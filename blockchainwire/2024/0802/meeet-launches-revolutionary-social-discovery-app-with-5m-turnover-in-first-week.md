@@ -26,9 +26,17 @@ Website: https://meeetapp.com
 
 Email Address: ceo@meeetapp.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/meeet-launches-revolutionary-social-discovery-app-with-5m-turnover-in-first-week)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eie9tj/meeet_app_revolutionizes_business_communication/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eie9tj/meeet_app_revolutionizes_business_communication/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/2/beanisP9.webp)

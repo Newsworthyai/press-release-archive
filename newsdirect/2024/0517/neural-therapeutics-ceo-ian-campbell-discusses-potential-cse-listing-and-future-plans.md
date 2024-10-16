@@ -20,9 +20,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/neural-therapeutics-ceo-ian-campbell-discusses-potential-cse-listing-and-future-plans-400274467 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/neural-therapeutics-ceo-ian-campbell-discusses-potential-cse-listing-and-future-plans-400274467)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1cu3ngr/neural_therapeutics_ceo_ian_campbell_discusses/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1cu3ngr/neural_therapeutics_ceo_ian_campbell_discusses/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/17/deep67RL.webp)

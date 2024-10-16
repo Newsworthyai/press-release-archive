@@ -52,9 +52,17 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/analyst-namtoshi-predicts-15-for-dogecoin-kangamoon-nears-5m-amidst-shiba-inu-decline-938381189 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/analyst-namtoshi-predicts-15-for-dogecoin-kangamoon-nears-5m-amidst-shiba-inu-decline-938381189)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c31pn7/dogecoin_doge_and_shiba_inu_shib_analyst/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c31pn7/dogecoin_doge_and_shiba_inu_shib_analyst/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/13/urgeLOoX.webp)

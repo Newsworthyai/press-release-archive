@@ -42,9 +42,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ecoai-coin-a-sustainable-digital-token-for-a-greener-planet-725494337 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ecoai-coin-a-sustainable-digital-token-for-a-greener-planet-725494337)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cgs5j2/ecoai_coin_a_sustainable_digital_token_for_a/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cgs5j2/ecoai_coin_a_sustainable_digital_token_for_a/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/30/plumggRd.webp)

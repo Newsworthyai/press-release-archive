@@ -40,9 +40,17 @@ Trade on-the-go with the FameEX app (iOS/Android)
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/fameex-leads-the-way-in-simplifying-crypto-trading-amidst-market-expansion)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1csiysl/fameex_simplifying_crypto_trading_for_newcomers/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1csiysl/fameex_simplifying_crypto_trading_for_newcomers/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/15/clubh5gp.webp)

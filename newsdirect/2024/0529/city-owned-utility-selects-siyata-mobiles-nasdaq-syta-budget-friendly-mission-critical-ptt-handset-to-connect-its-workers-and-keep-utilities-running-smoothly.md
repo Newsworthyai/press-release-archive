@@ -32,9 +32,17 @@ SYTA@haydenir.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/city-owned-utility-selects-siyata-mobiles-nasdaq-syta-budget-friendly-mission-critical-ptt-handset-to-connect-its-workers-and-keep-utilities-running-smoothly-490666411 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/city-owned-utility-selects-siyata-mobiles-nasdaq-syta-budget-friendly-mission-critical-ptt-handset-to-connect-its-workers-and-keep-utilities-running-smoothly-490666411)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1d3mbf6/siyata_mobile_inc_selected_for_budgetfriendly/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1d3mbf6/siyata_mobile_inc_selected_for_budgetfriendly/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/29/dual68E7.webp)

@@ -104,9 +104,17 @@ Company Websitehttps://modality.store/
 
 View source version on newsdirect.com: https://newsdirect.com/news/transforming-textiles-groundbreaking-fashion-line-modality-to-debut-at-milan-fashion-week-221189197 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/transforming-textiles-groundbreaking-fashion-line-modality-to-debut-at-milan-fashion-week-221189197)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1fi8ato/modalitys_fading_fables_collection_to_debut_at/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1fi8ato/modalitys_fading_fables_collection_to_debut_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/16/rendj4Kf.webp)

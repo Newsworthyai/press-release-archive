@@ -38,9 +38,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/navigating-the-future-iteris-expertise-in-intelligent-transportation-systems-its-architecture-and-design-180474921 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/navigating-the-future-iteris-expertise-in-intelligent-transportation-systems-its-architecture-and-design-180474921)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bt879l/iteris_leads_the_charge_in_intelligent/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bt879l/iteris_leads_the_charge_in_intelligent/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/1/rainzlmm.webp)

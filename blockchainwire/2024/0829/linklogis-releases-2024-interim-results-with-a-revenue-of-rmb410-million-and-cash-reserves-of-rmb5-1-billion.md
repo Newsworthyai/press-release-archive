@@ -46,9 +46,17 @@ In terms of ESG ratings, Linklogis was graded as “Low Risk” by Sustainalytic
 
 Charles Song, the founder, chairman and CEO of Linklogis, said, “Looking ahead to the second half of the year, we will focus on core businesses that generate sustainable revenue growth and profitability, while expediting the replacement of old growth drivers with new ones. We will continue to deepen customer engagement, embrace AI-driven technological breakthroughs that herald a new era in technological revolution, and enhance customer value through innovative product applications. We plan to optimize internal resource allocation, improve operational efficiency, and implement technology-driven cost reduction and efficiency measures to regain profitability. Additionally, we will remain committed to enhancing shareholder returns and creating sustainable value for our shareholders." 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/linklogis-releases-2024-interim-results-with-a-revenue-of-rmb410-million-and-cash-reserves-of-rmb51-billion)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1f45wd4/linklogis_inc_achieves_strong_interim_results_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f45wd4/linklogis_inc_achieves_strong_interim_results_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/29/luna8hUr.webp)

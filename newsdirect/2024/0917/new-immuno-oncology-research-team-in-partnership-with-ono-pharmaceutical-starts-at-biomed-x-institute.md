@@ -32,9 +32,17 @@ Company Websitehttps://www.bio.mx/
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-immuno-oncology-research-team-in-partnership-with-ono-pharmaceutical-starts-at-biomed-x-institute-876552598 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/new-immuno-oncology-research-team-in-partnership-with-ono-pharmaceutical-starts-at-biomed-x-institute-876552598)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1fivdri/biomed_x_and_ono_pharmaceutical_co_ltd/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1fivdri/biomed_x_and_ono_pharmaceutical_co_ltd/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/17/warpkK6n.webp)

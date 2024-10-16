@@ -62,9 +62,17 @@ Company Websitehttp://www.ourcrowd.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/unicorn-hailo-closes-120-million-funding-round-debuts-powerful-hailo-10-ai-accelerator-bringing-genai-to-edge-devices-743865891 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/unicorn-hailo-closes-120-million-funding-round-debuts-powerful-hailo-10-ai-accelerator-bringing-genai-to-edge-devices-743865891)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1c5fecu/hailo_raises_120m_and_introduces_hailo10_ai/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1c5fecu/hailo_raises_120m_and_introduces_hailo10_ai/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/gulfTuG3.webp)

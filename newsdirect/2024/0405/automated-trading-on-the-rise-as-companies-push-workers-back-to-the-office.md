@@ -36,9 +36,17 @@ max@edgeclear.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/automated-trading-on-the-rise-as-companies-push-workers-back-to-the-office-469612589 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/automated-trading-on-the-rise-as-companies-push-workers-back-to-the-office-469612589)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1bwhbpc/automated_trading_rises_as_companies_push_workers/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1bwhbpc/automated_trading_rises_as_companies_push_workers/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/5/openU82t.webp)

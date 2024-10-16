@@ -16,9 +16,17 @@ About FinHash Finance:FinHash Finance is a leading decentralized finance platfor
 
 Contact Information:Website: https://finhash.finance/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/finhash-four-years-of-meticulous-development-leads-to-public-launch-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ffh3ss/finhash_finance_launches_innovative_multichain/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ffh3ss/finhash_finance_launches_innovative_multichain/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/12/frogrENI.webp)

@@ -12,9 +12,17 @@ Company Websitehttp://www.newsdirect.com
 
 View original content to download multimedia: https://newsdirect.com/news/news-direct-highlights-the-advantages-of-its-modern-digital-content-and-news-distribution-platform-in-a-new-marketing-campaign-559089667 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/news-direct-highlights-the-advantages-of-its-modern-digital-content-and-news-distribution-platform-in-a-new-marketing-campaign-559089667)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/MarketingNewsramp/comments/1enezw3/news_direct_corp_showcases_advantages_of_modern/
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1enezw3/news_direct_corp_showcases_advantages_of_modern/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/8/keepA_cH.webp)

@@ -30,9 +30,17 @@ X (Twitter) | Telegram | Discord
 
 About HyroTraderHyroTrader is a crypto proprietary trading firm, offering traders the opportunity to trade with up to $100,000 in initial capital. With a focus on empowering traders, HyroTrader allows them to retain up to 90% of their profits while covering all losses. The firm supports its traders through challenges and mentorship, providing a platform for growth and success in the dynamic crypto market. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-prop-firm-hyrotrader-seeks-traders-trade-with-up-to-1m-in-capital)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ay4qs3/join_hyrotrader_trade_crypto_with_up_to_1_million/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ay4qs3/join_hyrotrader_trade_crypto_with_up_to_1_million/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/22/zestaWfA.webp)

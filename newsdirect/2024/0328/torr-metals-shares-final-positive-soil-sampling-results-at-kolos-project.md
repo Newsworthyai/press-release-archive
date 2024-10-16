@@ -22,9 +22,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/torr-metals-shares-final-positive-soil-sampling-results-at-kolos-project-577788425 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/torr-metals-shares-final-positive-soil-sampling-results-at-kolos-project-577788425)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bpuu1k/torr_metals_unveils_promising_results_from_kolos/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bpuu1k/torr_metals_unveils_promising_results_from_kolos/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/zero80Yt.webp)

@@ -48,9 +48,17 @@ Company Websitehttps://www.kevin.eu/
 
 View source version on newsdirect.com: https://newsdirect.com/news/kevin-trionfa-con-la-prima-transazione-nfc-da-conto-a-conto-su-iphone-836189758 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kevin-trionfa-con-la-prima-transazione-nfc-da-conto-a-conto-su-iphone-836189758)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1c1ddeh/kevin_marks_milestone_with_first_nfc/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1c1ddeh/kevin_marks_milestone_with_first_nfc/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/navyZt_L.webp)

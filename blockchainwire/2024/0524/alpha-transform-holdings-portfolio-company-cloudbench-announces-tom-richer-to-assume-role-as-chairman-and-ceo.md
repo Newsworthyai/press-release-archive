@@ -12,9 +12,17 @@ About CloudbenchCloudbench is at the forefront of value-driven emerging technolo
 
 About Alpha Transform HoldingsAlpha Transform Holdings (ATH) is an investment and advisory organization that focuses on fintech, AI and digital assets. ATH’s principals have a track record of early investment in ventures that have become “unicorns” and other industry-leading ventures, and its principals take an active role in driving the success of their portfolio companies. Visit: https://www.alphatransform.io/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/alpha-transform-holdings-portfolio-company-cloudbench-announces-tom-richer-to-assume-role-as-chairman-and-ceo)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/StartupBusinessNews/comments/1d7mm9r/cloudbench_announces_founder_tom_richer_as/
+
+
+[Reddit Post](https://www.reddit.com/r/StartupBusinessNews/comments/1d7mm9r/cloudbench_announces_founder_tom_richer_as/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/navyvLYS.webp)

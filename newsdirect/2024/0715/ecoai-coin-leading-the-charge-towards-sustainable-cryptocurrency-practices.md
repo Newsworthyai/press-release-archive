@@ -60,9 +60,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ecoai-coin-leading-the-charge-towards-sustainable-cryptocurrency-practices-249178205 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ecoai-coin-leading-the-charge-towards-sustainable-cryptocurrency-practices-249178205)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1e3tsrm/renewable_energy_in_bitcoin_mining_ecoai_coin/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1e3tsrm/renewable_energy_in_bitcoin_mining_ecoai_coin/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/15/gleeBnQq.webp)

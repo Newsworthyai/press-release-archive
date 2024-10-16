@@ -82,9 +82,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/west-red-lake-gold-mines-pours-first-gold-bar-and-reports-high-grade-gold-results-484663640 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/west-red-lake-gold-mines-pours-first-gold-bar-and-reports-high-grade-gold-results-484663640)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dg09b8/west_red_lake_gold_mines_pours_first_gold_bar_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dg09b8/west_red_lake_gold_mines_pours_first_gold_bar_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/13/rainjMea.webp)

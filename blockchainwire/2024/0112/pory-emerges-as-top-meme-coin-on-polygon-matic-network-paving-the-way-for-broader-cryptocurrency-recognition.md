@@ -26,9 +26,17 @@ PORY's journey to the top of the meme coin rankings on Polygon represents a test
 
 Offcial website: [https://porygon.io/](https://porygon.io/) Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/pory-emerges-as-top-meme-coin-on-polygon-matic-network-paving-the-way-for-broader-cryptocurrency-recognition)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avdqnb/pory_becomes_leading_meme_coin_on_polygon_network/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avdqnb/pory_becomes_leading_meme_coin_on_polygon_network/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/kisstuna.webp)

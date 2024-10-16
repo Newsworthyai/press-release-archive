@@ -26,9 +26,17 @@ InMed Pharmaceuticals (NASDAQ: INM), a clinical stage company developing a pipel
 
  BioMedWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/inmed-pharmaceuticals-nasdaq-inm-inm-089-showing-great-promise-in-treating-amd/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1f2gs4t/inmed_pharmaceuticals_advancing_innovative/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f2gs4t/inmed_pharmaceuticals_advancing_innovative/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/blurFm7d.webp)

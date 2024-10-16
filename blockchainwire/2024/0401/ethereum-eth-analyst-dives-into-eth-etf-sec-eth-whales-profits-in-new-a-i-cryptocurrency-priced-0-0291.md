@@ -46,9 +46,17 @@ https://twitter.com/Option2Trade (O2T)
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ethereum-eth-analyst-dives-into-eth-etf--sec-eth-whales-profits-in-new-ai-cryptocurrency-priced-00291)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1btieom/ethereum_eth_whales_eye_option2trade_o2t_as/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1btieom/ethereum_eth_whales_eye_option2trade_o2t_as/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/1/pear4d9R.webp)

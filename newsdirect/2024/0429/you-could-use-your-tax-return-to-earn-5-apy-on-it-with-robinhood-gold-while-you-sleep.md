@@ -36,9 +36,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/you-could-use-your-tax-return-to-earn-5-apy-on-it-with-robinhood-gold-while-you-sleep-760698029 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/you-could-use-your-tax-return-to-earn-5-apy-on-it-with-robinhood-gold-while-you-sleep-760698029)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1cfy83x/robinhood_gold_offers_5_apy_on_uninvested_cash/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1cfy83x/robinhood_gold_offers_5_apy_on_uninvested_cash/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/29/quay38lJ.webp)

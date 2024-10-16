@@ -38,9 +38,17 @@ Company Websitehttp://www.nlpc.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/shareholder-group-and-gender-ideology-opponent-to-press-disney-on-discrimination-at-companys-annual-meeting-540050461 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/shareholder-group-and-gender-ideology-opponent-to-press-disney-on-discrimination-at-companys-annual-meeting-540050461)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bt9rv6/shareholder_group_and_gender_ideology_opponent_to/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bt9rv6/shareholder_group_and_gender_ideology_opponent_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/1/joke9b4y.webp)

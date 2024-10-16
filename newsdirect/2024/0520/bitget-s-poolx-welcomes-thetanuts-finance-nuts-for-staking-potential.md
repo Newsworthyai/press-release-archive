@@ -28,9 +28,17 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitgets-poolx-welcomes-thetanuts-finance-nuts-for-staking-potential-452455230 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitgets-poolx-welcomes-thetanuts-finance-nuts-for-staking-potential-452455230)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cweb0t/bitgets_poolx_welcomes_thetanuts_finance_nuts_for/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cweb0t/bitgets_poolx_welcomes_thetanuts_finance_nuts_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/20/warpbfNz.webp)

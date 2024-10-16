@@ -62,9 +62,17 @@ About Lucky Lion Weed Dispensary
 
 Established in 2023, Lucky Lion Weed Dispensary is a trusted and respected name in Portland's cannabis community. With a focus on quality, customer satisfaction, and community engagement, Lucky Lion continues to be a leading force in the ever-growing cannabis industry. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402011050/discover-the-difference-lucky-lion-s-exceptional-cannabis-at-148th-powell)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1avlgp0/lucky_lion_weed_dispensary_a_premium_cannabis/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1avlgp0/lucky_lion_weed_dispensary_a_premium_cannabis/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/join4GLD.webp)

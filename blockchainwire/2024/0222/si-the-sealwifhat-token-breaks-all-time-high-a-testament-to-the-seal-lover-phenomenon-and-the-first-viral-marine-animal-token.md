@@ -22,9 +22,17 @@ In conclusion, $SI's recent surge is more than just a stroke of luck; it's a tes
 
 Source: Sealwifhat TeamFor more information, visit $SI Project Social Links: https://linktr.ee/sealwifhat 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/si-the-sealwifhat-token-breaks-all-time-high-a-testament-to-the-seal-lover-phenomenon-and-the-first-viral-marine-animal-token)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ay4r7f/sealwifhat_token_si_surges_to_900k_usd_market_cap/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ay4r7f/sealwifhat_token_si_surges_to_900k_usd_market_cap/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/22/dualammU.webp)

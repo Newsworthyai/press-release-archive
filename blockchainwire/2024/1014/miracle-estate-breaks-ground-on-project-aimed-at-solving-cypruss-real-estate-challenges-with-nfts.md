@@ -20,9 +20,17 @@ Hakan Törehan, CEO of Miracle Cash & More. also emphasized that Miracle Estat
 
 For more information about Phoenic Hera, visit www.phoenichera.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/miracle-estate-breaks-ground-on-project-aimed-at-solving-cypruss-real-estate-challenges-with-nfts-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1g3ps9t/miracle_estate_breaks_ground_for_phoenic_hera/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1g3ps9t/miracle_estate_breaks_ground_for_phoenic_hera/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/14/xeno8qyh.webp)

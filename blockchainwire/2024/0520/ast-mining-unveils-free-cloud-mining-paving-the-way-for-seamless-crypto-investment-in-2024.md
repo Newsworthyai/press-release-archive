@@ -33,9 +33,17 @@ Website : https://astmining.com/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ast-mining-unveils-free-cloud-mining-paving-the-way-for-seamless-crypto-investment-in-2024-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cwujwf/ast_mining_free_cloud_mining_for_better_returns/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cwujwf/ast_mining_free_cloud_mining_for_better_returns/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/21/limeg7Wi.webp)

@@ -18,9 +18,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/arway-ai-strikes-two-major-deals-with-immerslabs-and-riyad-bank-for-immersive-ar-experiences-598787139 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/arway-ai-strikes-two-major-deals-with-immerslabs-and-riyad-bank-for-immersive-ar-experiences-598787139)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cin0a1/arwayai_announces_major_ar_partnerships_with/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cin0a1/arwayai_announces_major_ar_partnerships_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/2/noonUzpH.webp)

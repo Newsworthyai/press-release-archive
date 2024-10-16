@@ -54,9 +54,17 @@ About AI2030
 
 AI2030 is a member-based initiative aiming to harness the transformative power of AI to benefit humanity while minimizing its potential negative impact. Focused on Responsible AI, AI for All, and AI for Good, the goal is to bridge awareness, talent, and resource gaps, enabling responsible AI adoption across public and private sectors. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cthfundamental-labs-axlflops-and-metaera-announce-speakers-for-palo-alto-ai-x-web3-summit)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1fjmzlx/palo_alto_ai_x_web3_summit_unveils_key_speakers/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1fjmzlx/palo_alto_ai_x_web3_summit_unveils_key_speakers/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/11/waitPAtJ.webp)

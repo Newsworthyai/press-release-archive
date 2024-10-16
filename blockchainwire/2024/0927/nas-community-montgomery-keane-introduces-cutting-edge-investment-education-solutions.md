@@ -20,9 +20,17 @@ As NAS Community continues to expand its reach, it remains focused on its core m
 
 About NAS Community: NAS Community is committed to providing top-tier investment education and training. By blending online and offline resources, the organization empowers investors to enhance their skills and navigate the financial landscape effectively. With a focus on innovation and community engagement, NAS Community is dedicated to transforming the future of investment education. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/nas-community-montgomery-keane-introduces-cutting-edge-investment-education-solutions)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fqrf19/nas_community_launches_groundbreaking_investment/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fqrf19/nas_community_launches_groundbreaking_investment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/27/urged1g_.webp)

@@ -44,9 +44,17 @@ SOURCE: TrendingTool Team
 
 Disclaimer:This press release may contain forward-looking statements. Forward-looking statements describe future expectations, plans, results, or strategies (including product offerings, regulatory plans and business plans) and may change without notice. You are cautioned that such statements are subject to a multitude of risks and uncertainties that could cause future circumstances, events, or results to differ materially from those projected in the forward-looking statements, including the risks that actual results may differ materially from those projected in the forward-looking statements. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/unlocking-the-future-of-social-media-marketing-trendingtool--the-tokenized-smm-panel)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/MarketingNewsramp/comments/1avdtla/trendingtool_revolutionizes_smm_with_tokenized/
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1avdtla/trendingtool_revolutionizes_smm_with_tokenized/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/smogeifr.webp)

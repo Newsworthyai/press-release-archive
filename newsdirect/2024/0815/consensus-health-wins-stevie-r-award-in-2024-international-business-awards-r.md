@@ -34,9 +34,17 @@ Company Websitehttps://www.consensushealth.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/consensus-health-wins-stevie-r-award-in-2024-international-business-awards-r-392452446 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/consensus-health-wins-stevie-r-award-in-2024-international-business-awards-r-392452446)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1et18hw/consensus_health_wins_bronze_stevie_award_in_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1et18hw/consensus_health_wins_bronze_stevie_award_in_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/15/vastyiWA.webp)

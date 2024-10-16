@@ -28,9 +28,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/september-04-2024-09-00-am-eastern-340642620 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/september-04-2024-09-00-am-eastern-340642620)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1f9gudc/cingulates_breakthrough_technology_revolutionizes/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1f9gudc/cingulates_breakthrough_technology_revolutionizes/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/5/barnD6oH.webp)

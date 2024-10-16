@@ -56,9 +56,17 @@ Company Websitehttps://www.dbschenker.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-video-series-offers-deep-insights-into-the-strategic-role-of-the-port-of-savannah-for-logistics-professionals-773186894 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/new-video-series-offers-deep-insights-into-the-strategic-role-of-the-port-of-savannah-for-logistics-professionals-773186894)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1f8bl37/db_schenker_launches_video_series_on_port_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f8bl37/db_schenker_launches_video_series_on_port_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/3/rubyjOdu.webp)

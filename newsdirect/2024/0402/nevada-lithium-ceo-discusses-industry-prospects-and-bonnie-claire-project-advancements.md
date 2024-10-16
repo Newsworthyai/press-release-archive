@@ -22,9 +22,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nevada-lithium-ceo-discusses-industry-prospects-and-bonnie-claire-project-advancements-906457700 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nevada-lithium-ceo-discusses-industry-prospects-and-bonnie-claire-project-advancements-906457700)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bu4dba/nevada_lithium_ceo_highlights_industry_prospects/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bu4dba/nevada_lithium_ceo_highlights_industry_prospects/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/2/joltQIiW.webp)

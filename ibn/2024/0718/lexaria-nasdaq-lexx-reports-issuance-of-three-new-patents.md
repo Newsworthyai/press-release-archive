@@ -29,9 +29,17 @@
 
  CBDWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-nasdaq-lexx-reports-issuance-of-three-new-patents/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1f2feio/lexaria_bioscience_receives_three_new_patents/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f2feio/lexaria_bioscience_receives_three_new_patents/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/vasteKYq.webp)

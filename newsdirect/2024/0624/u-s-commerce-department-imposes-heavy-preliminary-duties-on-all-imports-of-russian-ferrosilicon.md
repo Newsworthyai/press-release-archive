@@ -28,9 +28,17 @@ elizabeth@eahstrategiesllc.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/u-s-commerce-department-imposes-heavy-preliminary-duties-on-all-imports-of-russian-ferrosilicon-373217786 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/u-s-commerce-department-imposes-heavy-preliminary-duties-on-all-imports-of-russian-ferrosilicon-373217786)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dnptoy/us_commerce_department_imposes_heavy_duties_on/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dnptoy/us_commerce_department_imposes_heavy_duties_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/24/lilyy32F.webp)

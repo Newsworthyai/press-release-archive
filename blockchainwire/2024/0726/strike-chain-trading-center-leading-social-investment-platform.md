@@ -38,9 +38,17 @@ This award-winning technology allows you to copy the portfolios of successful cr
 
 Finally, when it comes to security, privacy, compliance, and customer service, we maintain some of the highest standards in the industry. With over 5 million users globally, it is one of the most mature cryptocurrency exchanges. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/strike-chain-trading-center-leading-social-investment-platform)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ecrzjb/revolutionizing_social_investment_virtual_forex/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ecrzjb/revolutionizing_social_investment_virtual_forex/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/26/fileKDJe.webp)

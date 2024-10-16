@@ -52,9 +52,17 @@ Investor Relations
 
 IR@ImageProtectCorporation.com 
 
+---
+
 [Original/Source Press Release](http://www.newmediawire.com/news/image-protect-inc-otc-imtl-subsidiary-2centtexts-com-completes-profitable-case-study-for-its-major-customer-in-the-6-9-billion-dollar-carpet-cleaning-industry-7076089)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1frcb3l/image_protect_inc_achieves_10x_roi_in_60day_case/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1frcb3l/image_protect_inc_achieves_10x_roi_in_60day_case/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/28/goldIc9g.webp)

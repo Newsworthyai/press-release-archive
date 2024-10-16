@@ -24,9 +24,17 @@ Culture Pilot is a Texas-based brand strategy and marketing firm building consum
 
 Contact:General Inquiriesleadtheway@culturepilot.com(713) 868-4100 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202410011289/project-luong-unveils-rebrand-and-new-website-in-its-next-chapter-of-impact-on-architecture)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ftmjbx/project_luong_launches_new_website_and_rebrand/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ftmjbx/project_luong_launches_new_website_and_rebrand/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2410/1/icyfXBW.webp)

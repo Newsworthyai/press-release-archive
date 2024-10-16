@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-standard-of-care-icecure-submits-final-ice3-data-to-fda-minimally-invasive-cryoablation-shows-similar-5-year-recurrence-outcomes-to-surgery-with-hormone-therapy-927473927 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/new-standard-of-care-icecure-submits-final-ice3-data-to-fda-minimally-invasive-cryoablation-shows-similar-5-year-recurrence-outcomes-to-surgery-with-hormone-therapy-927473927)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cfy0v2/icecures_prosense_cryoablation_therapy_shows/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cfy0v2/icecures_prosense_cryoablation_therapy_shows/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/29/pondQbTh.webp)

@@ -30,9 +30,17 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-z-consulting-llc-and-the-bridge-609983075 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-z-consulting-llc-and-the-bridge-609983075)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1dtxet2/benchmark_international_facilitates_transaction/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1dtxet2/benchmark_international_facilitates_transaction/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/2/iconds_X.webp)

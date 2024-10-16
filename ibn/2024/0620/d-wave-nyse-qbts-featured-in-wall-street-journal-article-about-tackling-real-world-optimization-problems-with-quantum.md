@@ -24,9 +24,17 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-featured-in-wall-street-journal-article-about-tackling-real-world-optimization-problems-with-quantum/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1f2qeug/dwave_quantum_inc_featured_in_emwall_street/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1f2qeug/dwave_quantum_inc_featured_in_emwall_street/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/ellaG05F.webp)

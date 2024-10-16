@@ -18,9 +18,17 @@ Brewing.guru envisions to be the brewmaster's compass—a guide, confidante, and
 
 Embark on a brewing odyssey at www.Brewing.guru. Where every drop tells a story, and every brew is a journey. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231208784/introducing-brewing-guru-the-ultimate-digital-mecca-for-brew-enthusiasts-and-craftsmen)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avx2xw/brewingguru_the_ultimate_digital_epicenter_for/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avx2xw/brewingguru_the_ultimate_digital_epicenter_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/calmB7wh.webp)

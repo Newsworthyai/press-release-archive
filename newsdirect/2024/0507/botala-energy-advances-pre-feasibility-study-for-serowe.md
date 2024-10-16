@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/botala-energy-advances-pre-feasibility-study-for-serowe-293245491 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/botala-energy-advances-pre-feasibility-study-for-serowe-293245491)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cmk9ce/botala_energy_advances_prefeasibility_study_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cmk9ce/botala_energy_advances_prefeasibility_study_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/takeQxze.webp)

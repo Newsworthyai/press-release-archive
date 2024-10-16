@@ -12,9 +12,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/xigem-technologies-reports-strong-q1-financial-performance-driven-by-echodigital-797536149 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/xigem-technologies-reports-strong-q1-financial-performance-driven-by-echodigital-797536149)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1d2mipi/xigem_technologies_reports_strong_q1_financial/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1d2mipi/xigem_technologies_reports_strong_q1_financial/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/28/archIz9Y.webp)

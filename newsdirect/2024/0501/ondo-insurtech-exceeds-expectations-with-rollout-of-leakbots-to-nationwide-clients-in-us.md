@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ondo-insurtech-exceeds-expectations-with-rollout-of-leakbots-to-nationwide-clients-in-us-513273060 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ondo-insurtech-exceeds-expectations-with-rollout-of-leakbots-to-nationwide-clients-in-us-513273060)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1chmwj1/ondo_insurtech_exceeds_expectations_with_rollout/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1chmwj1/ondo_insurtech_exceeds_expectations_with_rollout/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/meanO7Yx.webp)

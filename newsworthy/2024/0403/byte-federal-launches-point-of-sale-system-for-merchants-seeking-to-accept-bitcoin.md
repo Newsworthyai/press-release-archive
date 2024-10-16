@@ -16,9 +16,17 @@ For more information about Byte Federal and for press inquiries, please send an 
 
 For additional information about the merchant point of sale system, please send an email to: michelle@bytefederal.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202404031140/byte-federal-launches-point-of-sale-system-for-merchants-seeking-to-accept-bitcoin)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1busbs7/byte_federal_launches_revolutionary_pos_system/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1busbs7/byte_federal_launches_revolutionary_pos_system/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/244/3/kiwikPoV.webp)

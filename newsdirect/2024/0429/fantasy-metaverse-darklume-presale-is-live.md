@@ -36,9 +36,17 @@ Osvaldo111@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fantasy-metaverse-darklume-presale-is-live-954312044 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/fantasy-metaverse-darklume-presale-is-live-954312044)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1cg5vjn/darklume_vr_launches_immersive_metaverse/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1cg5vjn/darklume_vr_launches_immersive_metaverse/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/29/boss4crk.webp)

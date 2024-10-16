@@ -30,9 +30,17 @@ Company Websitehttps://www.bysato.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/this-bitcoin-miner-is-ready-to-expand-with-q1-performance-review-370076472 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/this-bitcoin-miner-is-ready-to-expand-with-q1-performance-review-370076472)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dy8all/sato_technologies_corp_ceo_discusses_expansion/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dy8all/sato_technologies_corp_ceo_discusses_expansion/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/8/numbDbEr.webp)

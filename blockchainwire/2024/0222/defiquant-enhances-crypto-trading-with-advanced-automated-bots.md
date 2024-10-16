@@ -50,9 +50,17 @@ Website: www.defiquant.net
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-enhances-crypto-trading-with-advanced-automated-bots)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ay4qir/defiquant_introduces_advanced_automated_trading/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ay4qir/defiquant_introduces_advanced_automated_trading/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/22/lambQT8x.webp)

@@ -24,9 +24,17 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/3-penny-cryptos-with-massive-potential-in-2024-dogecoin-hedera-and-raboo-891030561 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/3-penny-cryptos-with-massive-potential-in-2024-dogecoin-hedera-and-raboo-891030561)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cgsl01/3_penny_cryptos_set_to_make_waves_in_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cgsl01/3_penny_cryptos_set_to_make_waves_in_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/30/camcsQ1p.webp)

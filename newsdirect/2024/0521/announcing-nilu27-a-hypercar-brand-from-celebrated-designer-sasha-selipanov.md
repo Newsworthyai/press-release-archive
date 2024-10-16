@@ -44,9 +44,17 @@ Company Websitehttps://www.nilu27.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/announcing-nilu27-a-hypercar-brand-from-celebrated-designer-sasha-selipanov-206444675 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/announcing-nilu27-a-hypercar-brand-from-celebrated-designer-sasha-selipanov-206444675)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cx7qr3/nilu27_to_debut_revolutionary_nilu_hypercar_at/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cx7qr3/nilu27_to_debut_revolutionary_nilu_hypercar_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/21/bossE6F2.webp)

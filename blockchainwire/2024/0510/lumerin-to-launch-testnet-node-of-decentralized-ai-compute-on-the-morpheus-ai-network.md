@@ -34,9 +34,17 @@ Lumerin is an open-source protocol and foundational layer technology that uses s
 
 For more info, visit https://lumerin.io/. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/lumerin-to-launch-testnet-node-of-decentralized-ai--compute-on-the-morpheus-ai-network-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1coow37/lumerin_announces_testnet_node_for_decentralized/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1coow37/lumerin_announces_testnet_node_for_decentralized/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/10/plumb3El.webp)

@@ -70,9 +70,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/copper-prices-could-climb-50-as-ai-green-energy-and-defense-spending-drive-demand-580352246 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/copper-prices-could-climb-50-as-ai-green-energy-and-defense-spending-drive-demand-580352246)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d2iidt/copper_prices_soar_as_ai_green_energy_and_defense/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d2iidt/copper_prices_soar_as_ai_green_energy_and_defense/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/28/jazzBari.webp)

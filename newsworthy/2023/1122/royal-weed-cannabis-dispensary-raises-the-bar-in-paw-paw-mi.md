@@ -20,9 +20,17 @@ Moreover, the Paw Paw location is not just a point of sale; it's a hub of inform
 
 Paw Paw, Michigan Dispensary continues to be a pivotal landmark in Michigan's cannabis scene. With its unwavering commitment to quality, extensive product range, and exceptional customer service, it remains a top destination for both cannabis enthusiasts and newcomers. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231122897/royal-weed-cannabis-dispensary-raises-the-bar-in-paw-paw-mi)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1avcs0o/royal_weed_cannabis_dispensary_a_leader_in/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1avcs0o/royal_weed_cannabis_dispensary_a_leader_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/yogaBAwY.webp)

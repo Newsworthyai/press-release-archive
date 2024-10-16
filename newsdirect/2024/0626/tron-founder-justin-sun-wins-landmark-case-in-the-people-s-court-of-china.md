@@ -60,9 +60,17 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tron-founder-justin-sun-wins-landmark-case-in-the-peoples-court-of-china-936352034 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tron-founder-justin-sun-wins-landmark-case-in-the-peoples-court-of-china-936352034)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dpaw1i/tron_dao_founder_justin_sun_wins_defamation_suit/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dpaw1i/tron_dao_founder_justin_sun_wins_defamation_suit/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/26/isleV_iB.webp)

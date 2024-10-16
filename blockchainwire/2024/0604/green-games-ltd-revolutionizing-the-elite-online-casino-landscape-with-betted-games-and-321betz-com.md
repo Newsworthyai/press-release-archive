@@ -58,9 +58,17 @@ X (Twitter) | Telegram
 
 Disclaimer: This is a press release and does not contain any financial advice. Readers should do their own research before taking any actions related to the company mentioned. You are solely responsible, directly or indirectly, for any damage or loss caused or alleged to be caused by or in connection with the use of or reliance on any content, goods, or services mentioned in the press release. Cryptocurrency is volatile. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/green-games-ltd-revolutionizing-the-elite-online-casino-landscape-with-bettedgames-and-321betzcom)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d7wsx8/green_games_ltd_launches_bettedgames_and/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d7wsx8/green_games_ltd_launches_bettedgames_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/isle_wG9.webp)

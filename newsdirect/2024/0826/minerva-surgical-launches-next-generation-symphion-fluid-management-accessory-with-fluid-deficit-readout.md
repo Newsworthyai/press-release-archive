@@ -24,9 +24,17 @@ Company Websitehttps://minervasurgical.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/minerva-surgical-launches-next-generation-symphion-fluid-management-accessory-with-fluid-deficit-readout-971230383 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/minerva-surgical-launches-next-generation-symphion-fluid-management-accessory-with-fluid-deficit-readout-971230383)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1f1un6u/minerva_surgical_launches_symphion_fluid_deficit/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1f1un6u/minerva_surgical_launches_symphion_fluid_deficit/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/26/irismOky.webp)

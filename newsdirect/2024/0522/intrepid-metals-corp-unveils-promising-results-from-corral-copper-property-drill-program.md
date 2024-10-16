@@ -10,9 +10,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/intrepid-metals-corp-unveils-promising-results-from-corral-copper-property-drill-program-263059343 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/intrepid-metals-corp-unveils-promising-results-from-corral-copper-property-drill-program-263059343)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cy4sse/intrepid_metals_corp_unveils_promising_results/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cy4sse/intrepid_metals_corp_unveils_promising_results/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/urgeL72H.webp)

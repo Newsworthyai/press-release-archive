@@ -50,9 +50,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/amesite-inc-nasdaq-amst-is-helping-transform-the-booming-digital-education-market-in-north-america-with-its-innovative-ai-technology-776236442 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/amesite-inc-nasdaq-amst-is-helping-transform-the-booming-digital-education-market-in-north-america-with-its-innovative-ai-technology-776236442)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bt87cq/amesite_inc_nasdaq_amst_leads_digital_education/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bt87cq/amesite_inc_nasdaq_amst_leads_digital_education/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/1/lilylJk2.webp)

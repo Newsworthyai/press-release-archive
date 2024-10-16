@@ -34,9 +34,17 @@ Flappy Base is an innovative Tap-to-Earn game developed on the Base Network. The
 
 For more information, please visit the official Flappy Base website or join the community on social media channels. Stay tuned for further updates and announcements as the launch date approaches. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/flappy-base-announces-airdrop-of-over-5-million-flappy-tokens-on-base-network)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dtso0c/flappy_base_announces_airdrop_of_over_5_million/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dtso0c/flappy_base_announces_airdrop_of_over_5_million/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/2/take2m9i.webp)

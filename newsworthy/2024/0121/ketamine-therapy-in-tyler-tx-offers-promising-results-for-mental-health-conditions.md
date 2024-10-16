@@ -12,9 +12,17 @@ It's essential for those considering ketamine therapy to seek treatment from qua
 
 As a potent tool in the mental health arsenal, ketamine therapy offers new hope to those who've had limited success with traditional methods. With ongoing research illuminating its benefits, an increasing number of people are exploring this innovative therapy as a source of relief. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401211006/ketamine-therapy-in-tyler-tx-offers-promising-results-for-mental-health-conditions)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1avk0a8/ketamine_therapy_a_gamechanger_in_mental_health/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1avk0a8/ketamine_therapy_a_gamechanger_in_mental_health/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/clubfrZs.webp)

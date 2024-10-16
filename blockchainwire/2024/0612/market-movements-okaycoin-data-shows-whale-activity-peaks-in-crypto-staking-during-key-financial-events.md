@@ -45,9 +45,17 @@ Media Contact DetailsContact Name: William MillerContact Email: william@okaycoin
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/market-movements-okaycoin-data-shows-whale-activity-peaks-in-crypto-staking-during-key-financial-events)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1de54jr/okaycoin_study_reveals_surge_in_cryptocurrency/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1de54jr/okaycoin_study_reveals_surge_in_cryptocurrency/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/12/quizUFJj.webp)

@@ -32,9 +32,17 @@ Company Websitehttps://text.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/text-patents-a-method-for-combining-asynchronous-and-real-time-communication-143788012 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/text-patents-a-method-for-combining-asynchronous-and-real-time-communication-143788012)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eevj33/text_secures_fifth_patent_for_asynchronous_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eevj33/text_secures_fifth_patent_for_asynchronous_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/29/flaxHWgO.webp)

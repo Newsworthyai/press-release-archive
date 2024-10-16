@@ -72,9 +72,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/manitoba-woman-beats-stage-4-cancer-with-breakthrough-car-t-cell-therapy-472550199 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/manitoba-woman-beats-stage-4-cancer-with-breakthrough-car-t-cell-therapy-472550199)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1d9h7sb/breakthrough_car_tcell_therapy_successfully/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1d9h7sb/breakthrough_car_tcell_therapy_successfully/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/6/isleQbC8.webp)

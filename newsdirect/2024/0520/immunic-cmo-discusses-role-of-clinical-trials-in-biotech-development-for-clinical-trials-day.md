@@ -20,9 +20,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/immunic-cmo-discusses-role-of-clinical-trials-in-biotech-development-for-clinical-trials-day-627960534 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/immunic-cmo-discusses-role-of-clinical-trials-in-biotech-development-for-clinical-trials-day-627960534)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cwgn8l/immunic_inc_cmo_discusses_role_of_clinical_trials/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cwgn8l/immunic_inc_cmo_discusses_role_of_clinical_trials/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/20/tint1EBt.webp)

@@ -52,9 +52,17 @@ Website: www.upcx.io
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcx-upc-launches-new-spot-trading-competition-upc-token-rises-against-the-trend)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/StartupBusinessNews/comments/1chn1ca/upcx_hosts_upc_spot_trading_competition_on_bitget/
+
+
+[Reddit Post](https://www.reddit.com/r/StartupBusinessNews/comments/1chn1ca/upcx_hosts_upc_spot_trading_competition_on_bitget/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/1/voltz2wf.webp)

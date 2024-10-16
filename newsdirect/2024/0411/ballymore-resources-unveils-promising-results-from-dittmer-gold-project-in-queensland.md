@@ -22,9 +22,17 @@ writers.australia@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ballymore-resources-unveils-promising-results-from-dittmer-gold-project-in-queensland-843062478 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ballymore-resources-unveils-promising-results-from-dittmer-gold-project-in-queensland-843062478)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c1ct40/ballymore_resources_unveils_promising_results/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c1ct40/ballymore_resources_unveils_promising_results/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/hikeZneZ.webp)

@@ -24,9 +24,17 @@ The Raiinmaker AI Super App is powered by the Raiinmaker Network, providing seam
 
 [Website](https://www.raiinmaker.com/)| [x](https://twitter.com/Raiinmakerapp) | [Telegram](https://t.me/raiinmakertalk)| [Discord](https://discord.com/invite/nxWzdAKCBK) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/raiinmaker-announces-launch-of-native-token-coiin-on-base)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bzpw0m/raiinmaker_sells_out_coiin_token_ido_on_tenset/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bzpw0m/raiinmaker_sells_out_coiin_token_ido_on_tenset/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/9/barnVSXo.webp)

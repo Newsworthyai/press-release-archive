@@ -16,9 +16,17 @@ With Floka, the developers are looking to create a digital currency that can cap
 
 Social MediaTelegram: https://t.me/flokainuofficialWebsite: https://floka.ai/Twitter: https://x.com/FlokaInu 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-floka-the-darling-of-the-floki-community)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bz49lr/asian_developers_launch_floka_aiming_to_redefine/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bz49lr/asian_developers_launch_floka_aiming_to_redefine/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/8/lunag1Es.webp)

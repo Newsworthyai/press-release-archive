@@ -32,9 +32,17 @@ marketing@mileimoneda.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/investors-eye-milei-moneda-meda-as-the-futures-biggest-meme-coin-892248429 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/investors-eye-milei-moneda-meda-as-the-futures-biggest-meme-coin-892248429)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bpzukd/milei_moneda_meda_the_futures_biggest_meme_coin/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bpzukd/milei_moneda_meda_the_futures_biggest_meme_coin/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/pinkrgrw.webp)

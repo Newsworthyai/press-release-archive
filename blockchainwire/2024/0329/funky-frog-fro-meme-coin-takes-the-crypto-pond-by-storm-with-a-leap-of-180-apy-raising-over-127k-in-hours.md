@@ -44,9 +44,17 @@ Links
 
  Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/funky-frog-fro-meme-coin-takes-the-crypto-pond-by-storm-with-a-leap-of-180-apy-raising-over-127k-in-hours)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bqur01/funky_frog_fro_presale_raises_over_127000_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bqur01/funky_frog_fro_presale_raises_over_127000_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/29/eachzcRv.webp)

@@ -38,9 +38,17 @@ Company Websitehttps://rabootoken.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/doges-rebound-attempt-fails-amid-raboos-dominating-price-action-surpassing-rival-coin-pepe-977619235 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/doges-rebound-attempt-fails-amid-raboos-dominating-price-action-surpassing-rival-coin-pepe-977619235)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ds4zc0/raboo_dogecoin_and_pepe_the_current_state_of_the/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ds4zc0/raboo_dogecoin_and_pepe_the_current_state_of_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/30/riceU2IW.webp)

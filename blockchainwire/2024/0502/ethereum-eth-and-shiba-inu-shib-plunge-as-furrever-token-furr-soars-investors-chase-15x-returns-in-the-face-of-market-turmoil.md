@@ -24,9 +24,17 @@ Investors looking to join the Furrever Token ecosystem can do so through the off
 
 Media Contact:Robert Smith[https://furrevertoken.com/](https://furrevertoken.com/)[support@furrevertoken.com](mailto:support@furrevertoken.com)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ethereum-eth-and-shiba-inu-shib-plunge-as-furrever-token-furr-soars-investors-chase-15x-returns-in-the-face-of-market-turmoil)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cif1rt/cryptocurrency_chaos_eth_and_shib_plunge_furr/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cif1rt/cryptocurrency_chaos_eth_and_shib_plunge_furr/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/2/club7Fht.webp)

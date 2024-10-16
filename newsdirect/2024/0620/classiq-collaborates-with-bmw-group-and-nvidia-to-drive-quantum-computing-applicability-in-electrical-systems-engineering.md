@@ -34,9 +34,17 @@ Company Websitehttp://www.classiq.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/classiq-collaborates-with-bmw-group-and-nvidia-to-drive-quantum-computing-applicability-in-electrical-systems-engineering-555609784 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/classiq-collaborates-with-bmw-group-and-nvidia-to-drive-quantum-computing-applicability-in-electrical-systems-engineering-555609784)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dki8s7/classiq_nvidia_and_bmw_group_collaborate_to_drive/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dki8s7/classiq_nvidia_and_bmw_group_collaborate_to_drive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/20/airycQBk.webp)

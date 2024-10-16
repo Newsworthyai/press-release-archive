@@ -20,9 +20,17 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-ceo-emphasizes-importance-of-mining-industry-during-speech-at-annual-current-trends-in-mining-finance-conference/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1f2qj57/mcewen_mining_ceo_stresses_importance_of_mining/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1f2qj57/mcewen_mining_ceo_stresses_importance_of_mining/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/lambKUvd.webp)

@@ -47,9 +47,17 @@ Zulu Network is the Bitcoin Layer 2 for an Open Future. Zulu invites everyone to
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/zulu-network-secures-3-million-in-pre-seed-funding-to-revolutionize-bitcoin-layer-2)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bwgiyt/zulu_network_closes_3m_in_preseed_funding_for/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bwgiyt/zulu_network_closes_3m_in_preseed_funding_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/5/leanJ8Il.webp)

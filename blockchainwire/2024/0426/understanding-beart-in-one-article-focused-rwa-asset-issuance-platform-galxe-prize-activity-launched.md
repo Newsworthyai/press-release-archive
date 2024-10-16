@@ -55,9 +55,17 @@ ConclusionThe encrypted assets introduced by BeArt represent the latest converge
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/understanding-beart-in-one-article--focused-rwa-asset-issuance-platform-galxe-prize-activity-launched)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cdkl0z/beart_introduces_innovative_rwa_assets_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cdkl0z/beart_introduces_innovative_rwa_assets_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/26/tileBgBA.webp)

@@ -28,9 +28,17 @@ Ready to experience the power of Political Power Up? Schedule a 15-minute demo a
 
 Please visit https://connects360.net/political or contact 240-447-5261. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202407101208/connects-360-unveils-revolutionary-political-power-up-solution-to-transform-campaigning)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dzu6zi/connects_360_unveils_political_power_up_to/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dzu6zi/connects_360_unveils_political_power_up_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/247/10/takeCTsv.webp)

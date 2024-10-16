@@ -20,9 +20,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mediazests-geoff-robertson-on-audio-visual-solutions-for-big-brands-and-market-expansion-101562392 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/mediazests-geoff-robertson-on-audio-visual-solutions-for-big-brands-and-market-expansion-101562392)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cud613/mediazest_ceo_discusses_market_expansion_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cud613/mediazest_ceo_discusses_market_expansion_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/17/mailg6dj.webp)

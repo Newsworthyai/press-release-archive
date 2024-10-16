@@ -8,9 +8,17 @@ Unlike traditional antidepressants, ketamine works by regenerating synaptic conn
 
 NTX prides itself on its team of dedicated professionals who provide a wide range of therapies and treatments for various mental health conditions. Their services include individual therapy, group therapy, ADHD testing, genetic testing, neuropsychological testing, and medication management. NTX specializes in treating depression, anxiety disorders, bipolar disorder, PTSD, OCD, eating disorders, and more. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231221917/ntx-introduces-groundbreaking-ketamine-treatment-for-depression-anxiety-ptsd-and-ocd)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1avcv9n/ketamine_treatment_offers_breakthrough_relief_for/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1avcv9n/ketamine_treatment_offers_breakthrough_relief_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/wallhvHA.webp)

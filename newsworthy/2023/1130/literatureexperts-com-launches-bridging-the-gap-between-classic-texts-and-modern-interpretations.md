@@ -18,9 +18,17 @@ As a beacon for literature lovers globally, LiteratureExperts.com strives to be 
 
 To immerse oneself in the literary universe, visit www.LiteratureExperts.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231130839/literatureexperts-com-launches-bridging-the-gap-between-classic-texts-and-modern-interpretations)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BookNews/comments/1avcsvl/new_platform_literatureexpertscom_unveils_a_world/
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1avcsvl/new_platform_literatureexpertscom_unveils_a_world/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/eachUfKn.webp)

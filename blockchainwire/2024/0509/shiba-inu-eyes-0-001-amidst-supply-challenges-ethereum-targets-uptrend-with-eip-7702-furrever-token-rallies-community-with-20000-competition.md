@@ -34,9 +34,17 @@ Join Furrever Token Presale Now: Furrever Token Official Website   Visit Furreve
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/shiba-inu-eyes-0001-amidst-supply-challenges-ethereum-targets-uptrend-with-eip-7702-furrever-token-rallies-community-with-20000-competition)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cnv8xc/cryptocurrency_market_update_shib_eth_and_furr/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cnv8xc/cryptocurrency_market_update_shib_eth_and_furr/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/9/abletr3u.webp)

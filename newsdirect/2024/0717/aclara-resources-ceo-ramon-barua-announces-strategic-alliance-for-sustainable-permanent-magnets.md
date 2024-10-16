@@ -20,9 +20,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/aclara-resources-ceo-ramon-barua-announces-strategic-alliance-for-sustainable-permanent-magnets-561128618 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/aclara-resources-ceo-ramon-barua-announces-strategic-alliance-for-sustainable-permanent-magnets-561128618)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e5kcus/aclara_resources_ceo_announces_strategic_alliance/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e5kcus/aclara_resources_ceo_announces_strategic_alliance/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/17/seekMM7g.webp)

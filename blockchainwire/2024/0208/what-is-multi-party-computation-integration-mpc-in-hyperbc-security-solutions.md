@@ -40,9 +40,17 @@ Backed by HyperLab, its security R&D center in Australia, and supported by top-t
 
 For more information, visit the official website: HyperBC 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/what-is-multi-party-computation-integration-mpc-in-hyperbc-security-solutions-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avjywq/hyperbc_introduces_innovations_in_crypto_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avjywq/hyperbc_introduces_innovations_in_crypto_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/wallio2n.webp)

@@ -32,9 +32,17 @@ Company Websitehttps://www.blusparc.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/blusparc-expands-executive-team-for-next-phase-of-growth-477902556 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/blusparc-expands-executive-team-for-next-phase-of-growth-477902556)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1efsycr/blusparc_expands_executive_team_for_next_phase_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1efsycr/blusparc_expands_executive_team_for_next_phase_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/12/frog8PpP.webp)

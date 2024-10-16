@@ -6,9 +6,17 @@ Meet FLOKITA ( $FLOKITA ) , BSC BLOCKCHAIN very own Floki the Frog, stirring up 
 
 FLOKITA ( $FLOKITA ) isn't just another Floki in the pond. We're the cute new face on bsc, bringing together memes in harmony ratherthan competition. With the backing of BNB , we're not just leaping over gas fees; we're setting the stage for meme coin evolution," says an anonymous yet strikingly charismatic frog behind the project.The transition to BSC chain could not be more timely. As users grow weary of Ethereum's gas fees, BSC blockchain presents a more efficient and cost-effective blockchain for trading and minting NFTs.FLOKITA ( $FLOKITA ) arrival on bsc chain could not only revolutionize how meme coins operate but also provide a new homefor Pepe lovers seeking refuge from the high costs of Ethereum transactions.Is FLOKITA ( $FLOKITA ) the next $4 billion PEPE project? Only time will tell. The Blue Pepe currently boasts a market cap of $2 million. To reach the colossal $4 billion market cap akin to its Ethereum counterpart, FLOKITA ( $FLOKITA ) would need to multiply its value by approximately 67 times. This vast potential for growth showcases the bullish trajectory $FLOKITA could embark on.Socials:Website: [https://flokita.cx/](https://flokita.cx/)Telegram: [https://t.me/flokita_Portal](https://t.me/flokita_Portal)Twitter X: [https://twitter.com/missflokita](https://twitter.com/missflokita)Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bsc-flokita---flokita---labelled-the-next-pepe)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bekwn1/flokita_flokita_the_next_gamechanger_in_the/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bekwn1/flokita_flokita_the_next_gamechanger_in_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/14/ableV7gL.webp)

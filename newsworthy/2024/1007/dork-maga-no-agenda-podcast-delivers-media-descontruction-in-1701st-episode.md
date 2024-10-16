@@ -18,9 +18,17 @@ Executive Producers for Episode 1701 IncludeSir Ryan &, Baronetess Bear, Grant S
 
 Associate Executive Producers for Episode 1701 IncludeSir Nanook of the West, Wyatt Wermes, Linda Lu Duchess of jobs and writer resumes, Michael Day 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202410071306/dork-maga-no-agenda-podcast-delivers-media-descontruction-in-1701st-episode)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fxyqa2/no_agenda_show_celebrates_1701st_episode_with/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fxyqa2/no_agenda_show_celebrates_1701st_episode_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2410/7/zeroGhDe.webp)

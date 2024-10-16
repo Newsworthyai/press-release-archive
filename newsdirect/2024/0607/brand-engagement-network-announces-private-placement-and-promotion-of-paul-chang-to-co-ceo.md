@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/brand-engagement-network-announces-private-placement-and-promotion-of-paul-chang-to-co-ceo-440973667 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/brand-engagement-network-announces-private-placement-and-promotion-of-paul-chang-to-co-ceo-440973667)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1da9guy/ben_secures_5m_in_funding_appoints_paul_chang_as/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1da9guy/ben_secures_5m_in_funding_appoints_paul_chang_as/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/7/wallPspr.webp)

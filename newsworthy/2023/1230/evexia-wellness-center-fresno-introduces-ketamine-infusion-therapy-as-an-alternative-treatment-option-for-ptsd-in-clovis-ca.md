@@ -10,9 +10,17 @@ About Evexia Wellness Center
 
 At the Evexia Wellness Centers, highly trained professional staff work with your team of professionals to implement a community approach to helping every patient achieve the desired result of freedom from chronic issues and optimizing balance in their life. Our Services include anxiety treatment, depression treatment,  PTSD / trauma treatment, chronic pain treatment, OCD treatment, migraine treatment. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231230960/evexia-wellness-center-fresno-introduces-ketamine-infusion-therapy-as-an-alternative-treatment-option-for-ptsd-in-clovis-ca)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1avdolo/new_treatment_for_ptsd_evexia_wellness_center/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1avdolo/new_treatment_for_ptsd_evexia_wellness_center/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/rift4KQt.webp)

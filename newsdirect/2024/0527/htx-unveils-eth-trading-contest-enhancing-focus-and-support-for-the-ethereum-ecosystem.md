@@ -22,9 +22,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-unveils-eth-trading-contest-enhancing-focus-and-support-for-the-ethereum-ecosystem-244462449 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-unveils-eth-trading-contest-enhancing-focus-and-support-for-the-ethereum-ecosystem-244462449)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1d1wbiq/htx_launches_eth_trading_contest_in_celebration/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1d1wbiq/htx_launches_eth_trading_contest_in_celebration/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/27/milkPu8r.webp)

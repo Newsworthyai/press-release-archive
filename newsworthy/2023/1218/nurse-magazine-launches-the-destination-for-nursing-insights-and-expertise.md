@@ -18,9 +18,17 @@ Nurse Magazine stands as a paragon of nursing information online, extending its 
 
 For the latest updates and articles, visit www.NurseMagazine.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231218854/nurse-magazine-launches-the-destination-for-nursing-insights-and-expertise)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcurm/nurse_magazine_launches_as_a_premier_online/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcurm/nurse_magazine_launches_as_a_premier_online/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/yarnLMoM.webp)

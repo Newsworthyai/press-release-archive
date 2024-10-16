@@ -30,9 +30,17 @@ CLEARWATER, FL - (NewMediaWire) - September 03, 2024 - REMSleep Holdings, Inc. 
 
  Phone: 912-590-2001 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/remsleep-patent-application-has-been-allowed-by-the-united-states-patent-and-trademark-office-7075990)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1f7y49w/remsleep_holdings_inc_announces_new_patent/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1f7y49w/remsleep_holdings_inc_announces_new_patent/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/3/goldBvNd.webp)

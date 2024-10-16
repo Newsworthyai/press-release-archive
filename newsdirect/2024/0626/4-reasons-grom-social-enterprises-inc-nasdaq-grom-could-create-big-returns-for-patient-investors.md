@@ -54,9 +54,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/4-reasons-grom-social-enterprises-inc-nasdaq-grom-could-create-big-returns-for-patient-investors-125397332 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/4-reasons-grom-social-enterprises-inc-nasdaq-grom-could-create-big-returns-for-patient-investors-125397332)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dov3vq/grom_social_enterprises_a_kidfriendly_stock_with/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dov3vq/grom_social_enterprises_a_kidfriendly_stock_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/26/knobOmH_.webp)

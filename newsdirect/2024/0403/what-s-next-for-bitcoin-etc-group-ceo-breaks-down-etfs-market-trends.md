@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/whats-next-for-bitcoin-etc-group-ceo-breaks-down-etfs-and-market-trends-187005465 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/whats-next-for-bitcoin-etc-group-ceo-breaks-down-etfs-and-market-trends-187005465)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1but7zq/etc_group_ceo_breaks_down_bitcoin_etfs_and_market/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1but7zq/etc_group_ceo_breaks_down_bitcoin_etfs_and_market/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/3/daveVPVo.webp)

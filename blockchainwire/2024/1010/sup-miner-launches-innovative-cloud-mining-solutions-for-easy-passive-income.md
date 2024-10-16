@@ -81,9 +81,17 @@ About SUP Miner:SUP Miner is a cloud mining platform designed to make cryptocurr
 
 To learn more about SUP Miner, please visit their official website at https://www.supminer.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/sup-miner-launches-innovative-cloud-mining-solutions-for-easy-passive-income)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1g0uoz5/sup_miner_revolutionizes_cryptocurrency_mining/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1g0uoz5/sup_miner_revolutionizes_cryptocurrency_mining/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/10/bendZclh.webp)

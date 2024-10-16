@@ -44,9 +44,17 @@ Harbour Investment Partners encourages high-net-worth individuals and families t
 
 To learn more about Harbour Investment Partners’ wealth management solutions, visit firm’s website to schedule a consultation today. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/harbour-investment-partners-introduces-bespoke-wealth-management-solutions-for-affluent-clients)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1flau3p/harbour_investment_partners_launches_custom/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1flau3p/harbour_investment_partners_launches_custom/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/20/glueICPX.webp)

@@ -16,9 +16,17 @@ About OrthodontiCell, Inc.
 
 OrthodontiCell Inc. is a biotechnology company specializing in precise controlled bioelectric-induced biologic protein expressions for orthodontics. Founded in 2017 within Leonhardt's Launchpads innovation and startup launch accelerator programs in Utah and California http://www.leonhardtventures.com the OrthodontiCell team has completed many lab experiments, dozens of pre-clinical animals, and now this clinical study in steps towards proving the safety and efficacy of this unique technology platform. This pre-clinical study completed by our team was published in https://pubmed.ncbi.nlm.nih.gov/34692946/ in 2021. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231220914/straightening-teeth-in-three-months-possible-new-science-says-yes)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcv11/orthodonticell_inc_announces_positive_data_for/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcv11/orthodonticell_inc_announces_positive_data_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/smogRiIH.webp)

@@ -53,9 +53,17 @@ Visit Our Blog
 * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1542)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1f6i64e/joanne_gore_communications_to_showcase_expanded/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1f6i64e/joanne_gore_communications_to_showcase_expanded/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/249/1/roam2iDd.webp)

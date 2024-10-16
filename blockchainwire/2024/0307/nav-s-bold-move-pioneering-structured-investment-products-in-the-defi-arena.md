@@ -44,9 +44,17 @@ Documentation: https://docs.nav.finance/
 
 Discord: https://discord.gg/C9J2c7a3NX 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/navs-bold-move-pioneering-structured-investment-products-in-the-defi-arena)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1b9vn3k/nav_secures_2_million_in_seed_funding_for/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1b9vn3k/nav_secures_2_million_in_seed_funding_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/7/gainrAb2.webp)

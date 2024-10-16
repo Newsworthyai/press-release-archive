@@ -54,9 +54,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-dao-x-tron-token2049-afterparty-leading-the-next-decade-of-web3-ecosystem-313199441 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-dao-x-tron-token2049-afterparty-leading-the-next-decade-of-web3-ecosystem-313199441)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fkbocw/htx_dao_x_tron_afterparty_leading_the_next_decade/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fkbocw/htx_dao_x_tron_afterparty_leading_the_next_decade/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/19/meanGdkU.webp)

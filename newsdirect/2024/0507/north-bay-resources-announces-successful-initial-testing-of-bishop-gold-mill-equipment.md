@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/north-bay-resources-announces-successful-initial-testing-of-bishop-gold-mill-equipment-220232085 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/north-bay-resources-announces-successful-initial-testing-of-bishop-gold-mill-equipment-220232085)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cmk15j/north_bay_resources_ceo_announces_successful/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cmk15j/north_bay_resources_ceo_announces_successful/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/beanEjsN.webp)

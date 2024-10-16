@@ -22,9 +22,17 @@ All trademarks and product names belong to their respective companies.
 
 Media Contact:David HaefeleFortyThree, Inc.advokate@43pr.com831.888.9011 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231214908/hello-kitty-seven-wonders-unveils-joyful-christmas-special-in-metagaia-metaverse)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1avxpa6/metagaia_and_sanrio_hong_kong_launch_limitedtime/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1avxpa6/metagaia_and_sanrio_hong_kong_launch_limitedtime/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/noteRvt6.webp)

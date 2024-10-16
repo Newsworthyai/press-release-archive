@@ -20,9 +20,17 @@ writers.australia@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/foresta-group-holdings-innovating-with-pine-for-sustainable-future-400118195 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/foresta-group-holdings-innovating-with-pine-for-sustainable-future-400118195)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bvsn8x/foresta_group_holdings_innovating_with_pine_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bvsn8x/foresta_group_holdings_innovating_with_pine_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/4/taroHUrx.webp)

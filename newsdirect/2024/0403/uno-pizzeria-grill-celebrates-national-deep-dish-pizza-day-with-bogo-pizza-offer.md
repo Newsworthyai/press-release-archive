@@ -24,9 +24,17 @@ Company Websitehttps://www.unos.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/uno-pizzeria-and-grill-celebrates-national-deep-dish-pizza-day-with-bogo-pizza-offer-847359237 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/uno-pizzeria-and-grill-celebrates-national-deep-dish-pizza-day-with-bogo-pizza-offer-847359237)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1buxyyi/celebrate_national_deep_dish_pizza_day_with_uno/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1buxyyi/celebrate_national_deep_dish_pizza_day_with_uno/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/3/wait8dPT.webp)

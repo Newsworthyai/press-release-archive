@@ -26,9 +26,17 @@ InMed Pharmaceuticals (NASDAQ: INM), a pharmaceutical company focused on develop
 
  BioMedWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/inmed-pharmaceuticals-nasdaq-inm-reports-long-term-study-results-on-treatment-for-ad/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2fu1a/inmed_pharmaceuticals_reports_positive_results/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2fu1a/inmed_pharmaceuticals_reports_positive_results/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/hushqelm.webp)

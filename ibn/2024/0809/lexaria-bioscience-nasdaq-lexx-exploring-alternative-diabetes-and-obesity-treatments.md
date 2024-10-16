@@ -26,9 +26,17 @@
 
  CannabisNewsWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-bioscience-nasdaq-lexx-exploring-alternative-diabetes-and-obesity-treatments/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1f2g8mi/lexaria_explores_alternatives_for_diabetes_and/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1f2g8mi/lexaria_explores_alternatives_for_diabetes_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/tallMwGo.webp)

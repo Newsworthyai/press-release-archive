@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-coppers-growing-demand-is-creating-newfound-value-for-mining-firms-516874516 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/how-coppers-growing-demand-is-creating-newfound-value-for-mining-firms-516874516)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1eg4un8/rising_demand_for_copper_sparks_investment/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1eg4un8/rising_demand_for_copper_sparks_investment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/30/hint5xND.webp)

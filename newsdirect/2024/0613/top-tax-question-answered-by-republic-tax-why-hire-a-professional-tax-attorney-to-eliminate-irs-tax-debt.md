@@ -50,9 +50,17 @@ Company Websitehttps://republictax.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/top-tax-question-answered-by-republic-tax-why-hire-a-professional-tax-attorney-to-eliminate-irs-tax-debt-750955179 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/top-tax-question-answered-by-republic-tax-why-hire-a-professional-tax-attorney-to-eliminate-irs-tax-debt-750955179)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1dfc5s7/why_hiring_a_professional_tax_attorney_is/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1dfc5s7/why_hiring_a_professional_tax_attorney_is/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/13/jinxP5AR.webp)

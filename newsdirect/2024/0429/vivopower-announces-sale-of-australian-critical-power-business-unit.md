@@ -26,9 +26,17 @@ Company Websitehttps://vivopower.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/vivopower-announces-sale-of-australian-critical-power-business-unit-205842555 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/vivopower-announces-sale-of-australian-critical-power-business-unit-205842555)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cfx1fi/vivopower_announces_sale_of_australian_critical/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cfx1fi/vivopower_announces_sale_of_australian_critical/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/29/rendyJwJ.webp)

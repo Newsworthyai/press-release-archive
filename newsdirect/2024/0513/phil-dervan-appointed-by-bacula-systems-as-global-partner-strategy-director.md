@@ -28,9 +28,17 @@ Company Websitehttps://www.baculasystems.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/phil-dervan-appointed-by-bacula-systems-as-global-partner-strategy-director-459771487 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/phil-dervan-appointed-by-bacula-systems-as-global-partner-strategy-director-459771487)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cqw8ne/bacula_systems_appoints_phil_dervan_as_global/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cqw8ne/bacula_systems_appoints_phil_dervan_as_global/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/echosMu5.webp)

@@ -68,9 +68,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/west-africa-has-long-had-a-wealth-of-gold-resources-companies-are-now-looking-to-regions-like-liberia-for-their-as-yet-untapped-potential-943545867 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/west-africa-has-long-had-a-wealth-of-gold-resources-companies-are-now-looking-to-regions-like-liberia-for-their-as-yet-untapped-potential-943545867)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dudo2l/west_africas_gold_potential_liberias_untapped/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dudo2l/west_africas_gold_potential_liberias_untapped/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/3/tallJvU6.webp)

@@ -54,9 +54,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sector-spotlight-orphan-drug-developers-with-significant-upside-473277125 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sector-spotlight-orphan-drug-developers-with-significant-upside-473277125)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1d7m2n0/biotech_sector_rebounds_key_players_positioned/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1d7m2n0/biotech_sector_rebounds_key_players_positioned/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/3/diveKsUQ.webp)

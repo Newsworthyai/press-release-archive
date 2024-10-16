@@ -24,9 +24,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/power-nickel-expands-near-surface-copper-platinum-and-palladium-5-km-away-from-main-nisk-deposit-990156613 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/power-nickel-expands-near-surface-copper-platinum-and-palladium-5-km-away-from-main-nisk-deposit-990156613)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1c6hyic/power_nickel_inc_ceo_shares_positive_initial/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1c6hyic/power_nickel_inc_ceo_shares_positive_initial/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/17/joinJCH5.webp)

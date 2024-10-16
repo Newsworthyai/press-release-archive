@@ -47,9 +47,17 @@ About Aethir
 
 Aethir is the leading provider of decentralized GPU cloud infrastructure, dedicated to delivering enterprise-grade solutions that empower the AI community. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/kip-protocol-announces-strategic-partnership-with-aethir-to-propel-decentralized-ai-and-gpu-infrastructure)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1clh32p/kip_protocol_and_aethir_form_strategic/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1clh32p/kip_protocol_and_aethir_form_strategic/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/6/meanrC0s.webp)

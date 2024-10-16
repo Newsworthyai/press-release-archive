@@ -54,9 +54,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/laser-photonics-inks-deals-with-brokk-fastenal-and-isl-to-bring-its-laser-technology-to-more-markets-527648302 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/laser-photonics-inks-deals-with-brokk-fastenal-and-isl-to-bring-its-laser-technology-to-more-markets-527648302)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1dlaoi8/laser_photonics_inks_deals_with_brokk_fastenal/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1dlaoi8/laser_photonics_inks_deals_with_brokk_fastenal/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/21/pitapicoGoDb.webp)

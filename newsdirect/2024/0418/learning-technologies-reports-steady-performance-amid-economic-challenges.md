@@ -22,9 +22,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/learning-technologies-reports-steady-performance-amid-economic-challenges-829565438 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/learning-technologies-reports-steady-performance-amid-economic-challenges-829565438)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c72fiz/learning_technologies_group_ceo_discusses_2023/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c72fiz/learning_technologies_group_ceo_discusses_2023/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/18/ellaNyPw.webp)

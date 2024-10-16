@@ -30,9 +30,17 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-talent-framework-llc-and-savard-labor-and-marine-personnel-861120191 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-talent-framework-llc-and-savard-labor-and-marine-personnel-861120191)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e0ldqz/talent_framework_llc_and_savard_labor_and_marine/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e0ldqz/talent_framework_llc_and_savard_labor_and_marine/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/11/fineGKvX.webp)

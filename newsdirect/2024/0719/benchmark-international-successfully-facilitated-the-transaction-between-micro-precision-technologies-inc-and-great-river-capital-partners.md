@@ -30,9 +30,17 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-micro-precision-technologies-inc-and-great-river-capital-partners-296952335 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-micro-precision-technologies-inc-and-great-river-capital-partners-296952335)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e709wc/benchmark_international_facilitates_transaction/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e709wc/benchmark_international_facilitates_transaction/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/19/nukeXfqC.webp)

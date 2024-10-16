@@ -49,9 +49,17 @@ Company Websitehttps://ledn.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/ledn-is-helping-to-restore-confidence-in-crypto-backed-lending-846776533 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ledn-is-helping-to-restore-confidence-in-crypto-backed-lending-846776533)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1crrvhl/ledn_restores_confidence_in_crypto_backed_lending/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1crrvhl/ledn_restores_confidence_in_crypto_backed_lending/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/14/zeroXXwf.webp)

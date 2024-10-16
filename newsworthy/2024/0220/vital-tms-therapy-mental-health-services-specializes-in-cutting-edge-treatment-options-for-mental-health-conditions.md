@@ -10,9 +10,17 @@ The practice's focus is on patient outcomes, ensuring each individual receives t
 
 Experience the transformative power of TMS therapy and explore the comprehensive treatment options at Vital TMS Therapy & Mental Health Services. With a commitment to enhancing patient outcomes and delivering long-lasting results, Vital TMS Therapy encourages individuals to take proactive steps toward regaining mental well-being. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402201077/vital-tms-therapy-mental-health-services-specializes-in-cutting-edge-treatment-options-for-mental-health-conditions)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AlternativeHealthNews/comments/1awkmag/vital_tms_therapy_mental_health_services_leading/
+
+
+[Reddit Post](https://www.reddit.com/r/AlternativeHealthNews/comments/1awkmag/vital_tms_therapy_mental_health_services_leading/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/20/zestzHmL.webp)

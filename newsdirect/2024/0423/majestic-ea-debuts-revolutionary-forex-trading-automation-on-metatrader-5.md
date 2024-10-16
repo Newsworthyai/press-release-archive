@@ -28,9 +28,17 @@ Company Websitehttps://majesticea.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/majestic-ea-debuts-revolutionary-forex-trading-automation-on-metatrader-5-787390240 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/majestic-ea-debuts-revolutionary-forex-trading-automation-on-metatrader-5-787390240)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1cb9rql/avenix_fzco_launches_revolutionary_forex_trading/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1cb9rql/avenix_fzco_launches_revolutionary_forex_trading/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/23/quipU2W6.webp)

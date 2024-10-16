@@ -45,9 +45,17 @@ Visit Our Website
 * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/shootoutarena/news_release/1453)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cder54/exciting_battle_of_the_nations_bull_riding_event/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cder54/exciting_battle_of_the_nations_bull_riding_event/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/244/26/apexnx_U.webp)

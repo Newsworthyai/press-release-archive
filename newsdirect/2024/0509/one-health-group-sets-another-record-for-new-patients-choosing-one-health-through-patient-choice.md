@@ -22,9 +22,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/one-health-group-sets-another-record-for-new-patients-choosing-one-health-through-patient-choice-727776556 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/one-health-group-sets-another-record-for-new-patients-choosing-one-health-through-patient-choice-727776556)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cnujr2/one_health_group_plc_achieves_record_revenue_and/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cnujr2/one_health_group_plc_achieves_record_revenue_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/numbCR3V.webp)

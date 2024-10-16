@@ -40,9 +40,17 @@ alexa@stakek.it
 
 View source version on newsdirect.com: https://newsdirect.com/news/stakekit-launches-tron-stake-2-0-on-ledger-live-552744515 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/stakekit-launches-tron-stake-2-0-on-ledger-live-552744515)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1eg4qha/stakekit_launches_tron_stake_20_on_ledger_live/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1eg4qha/stakekit_launches_tron_stake_20_on_ledger_live/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/30/take227s.webp)

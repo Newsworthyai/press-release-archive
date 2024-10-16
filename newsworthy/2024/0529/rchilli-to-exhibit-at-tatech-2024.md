@@ -24,9 +24,17 @@ About RChilli
 
 RChilli is the trusted partner for parsing, matching, and data enrichment, providing companies, in 50+ countries, with solutions built for the future of technology and recruiting. RChilli’s innovative products, backed by an industry-leading tech stack, power the processing of 4.1 billion+ docs a year for 1600+ top global recruiting platforms. Enabling companies to hire better talent faster since 2010, RChilli is ISO 27001:2022, SOC 2 Type II, and HIPAA certified and GDPR compliant. RChilli also has its multilingual resume parsing app available on Oracle Cloud Marketplace and Salesforce AppExchange. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202405291183/rchilli-to-exhibit-at-tatech-2024)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HRnews/comments/1d3ou95/rchilli_to_showcase_nextgeneration_hr_solutions/
+
+
+[Reddit Post](https://www.reddit.com/r/HRnews/comments/1d3ou95/rchilli_to_showcase_nextgeneration_hr_solutions/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/245/29/meanIUAZ.webp)

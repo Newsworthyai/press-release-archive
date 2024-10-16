@@ -33,9 +33,17 @@ Galaxis is a pioneering platform dedicated to supporting creators in the Web3 sp
 
 Twitter | Discord 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/galaxis-introduces-ai-powered-suite-to-revolutionize-community-creation-for-creators)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1cubin1/galaxis_unveils_aipowered_suite_for_community/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1cubin1/galaxis_unveils_aipowered_suite_for_community/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/17/mielscDq.webp)

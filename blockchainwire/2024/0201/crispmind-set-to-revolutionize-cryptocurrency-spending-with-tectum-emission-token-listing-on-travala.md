@@ -18,9 +18,17 @@ Website URL: https://tectum.io/ ,  https://www.softnote.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securitie 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/crispmind-set-to-revolutionize-cryptocurrency-spending-with-tectum-emission-token-listing-on-travala-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avjw7y/tectum_emission_token_listed_on_travala/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avjw7y/tectum_emission_token_listed_on_travala/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/vastXek0.webp)

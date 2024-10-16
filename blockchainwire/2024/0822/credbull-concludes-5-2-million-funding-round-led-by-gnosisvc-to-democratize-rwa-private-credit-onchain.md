@@ -28,9 +28,17 @@ tavia@credbull.io
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/credbull-concludes-52-million-funding-round-led-by-gnosisvc-to-democratize-rwa-private-credit-onchain-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eym0m3/credbull_closes_52m_funding_round_led_by_gnosisvc/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eym0m3/credbull_closes_52m_funding_round_led_by_gnosisvc/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/22/knotzXnK.webp)

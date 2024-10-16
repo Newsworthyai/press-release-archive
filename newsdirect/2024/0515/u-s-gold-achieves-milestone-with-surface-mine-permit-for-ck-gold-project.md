@@ -16,9 +16,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/u-s-gold-achieves-milestone-with-surface-mine-permit-for-ck-gold-project-188757899 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/u-s-gold-achieves-milestone-with-surface-mine-permit-for-ck-gold-project-188757899)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1csqf56/us_gold_achieves_milestone_with_surface_mine/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1csqf56/us_gold_achieves_milestone_with_surface_mine/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/dave5fjZ.webp)

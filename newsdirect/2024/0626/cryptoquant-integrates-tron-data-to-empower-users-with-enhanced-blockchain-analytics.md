@@ -51,9 +51,17 @@ nick@cryptoquant.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cryptoquant-integrates-tron-data-to-empower-users-with-enhanced-blockchain-analytics-787228834 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cryptoquant-integrates-tron-data-to-empower-users-with-enhanced-blockchain-analytics-787228834)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvggsi/cryptoquant_integrates_tron_data_to_empower_users/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvggsi/cryptoquant_integrates_tron_data_to_empower_users/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/26/pear8b8k.webp)

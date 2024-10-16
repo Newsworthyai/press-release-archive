@@ -46,9 +46,17 @@ Company Websitehttps://www.amplifiersecurity.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/amplifier-security-emerges-from-stealth-to-bridge-divide-between-the-workforce-and-security-with-ai-copilot-and-human-in-the-loop-automation-640336581 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/amplifier-security-emerges-from-stealth-to-bridge-divide-between-the-workforce-and-security-with-ai-copilot-and-human-in-the-loop-automation-640336581)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cbz2cu/amplifier_security_launches_aipowered/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cbz2cu/amplifier_security_launches_aipowered/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/24/quayQ_uu.webp)

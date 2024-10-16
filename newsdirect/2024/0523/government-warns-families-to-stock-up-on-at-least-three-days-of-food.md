@@ -26,9 +26,17 @@ Company Websitehttps://readywise.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/government-warns-families-to-stock-up-on-at-least-three-days-of-food-647189272 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/government-warns-families-to-stock-up-on-at-least-three-days-of-food-647189272)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cz3kby/readywise_offers_up_to_60_off_emergency_food/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cz3kby/readywise_offers_up_to_60_off_emergency_food/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/23/neon1IbC.webp)

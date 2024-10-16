@@ -28,9 +28,17 @@ Company Websitehttps://www.forevernetwork.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-verticals-catapult-forever-network-into-comscore-top-25-us-media-rankings-950821569 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/new-verticals-catapult-forever-network-into-comscore-top-25-us-media-rankings-950821569)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dzudjk/forever_network_breaks_into_comscores_top_25_us/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dzudjk/forever_network_breaks_into_comscores_top_25_us/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/10/envy26gI.webp)

@@ -30,9 +30,17 @@ This release contains forward-looking statements within the meaning of the Priva
 
 Cavitation Technologies, Inc.818-718-0905info@ctinanotech.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/cavitation-technologies-inc-and-desmet-belgium-s-a-sign-agreement-that-will-allow-cti-to-monetize-parts-of-its-ip-portfolio-while-retaining-worldwide-exclusive-licenses-in-its-primary-business-lines-7076214)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1g3fo8l/cavitation_technologies_inc_enters_agreement_with/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1g3fo8l/cavitation_technologies_inc_enters_agreement_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/14/jazzQmWu.webp)

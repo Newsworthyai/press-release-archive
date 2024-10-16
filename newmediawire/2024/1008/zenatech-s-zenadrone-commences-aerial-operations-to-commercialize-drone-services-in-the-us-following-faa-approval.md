@@ -50,9 +50,17 @@ TORONTO, Ontario - (NewMediaWire) - October 08, 2024 - ZenaTech, Inc. (Nasdaq: Z
 
  Further, any forward-looking statement speaks only as of the date on which such statement is made, and, except as required by applicable law, ZenaTech undertakes no obligation to update any forward-looking statement to reflect events or circumstances after the date on which such statement is made or to reflect the occurrence of unanticipated events. New factors emerge from time to time, and it is not possible for management to predict all such factors and to assess in advance the impact of each such factor on ZenaTech’s business or the extent to which any factor, or combination of factors, may cause actual results to differ materially from those contained in any forward-looking statement. Potential investors should read this document with the understanding that ZenaTech’s actual future results may be materially different from what is currently anticipated. 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/zenatech-s-zenadrone-commences-aerial-operations-to-commercialize-drone-services-in-the-us-following-faa-approval-7076165)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1fzsxus/zenatechs_zenadrone_receives_faa_approval_for/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1fzsxus/zenatechs_zenadrone_receives_faa_approval_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/9/smogkLd9.webp)

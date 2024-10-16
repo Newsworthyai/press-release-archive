@@ -20,9 +20,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/spectra-systems-ceo-announces-major-contract-with-central-bank-for-sensor-manufacturing-747891824 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/spectra-systems-ceo-announces-major-contract-with-central-bank-for-sensor-manufacturing-747891824)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1e6izf1/spectra_systems_ceo_secures_379m_contract_for/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1e6izf1/spectra_systems_ceo_secures_379m_contract_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/18/glueLszY.webp)

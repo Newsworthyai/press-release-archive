@@ -26,9 +26,17 @@ Telegram: https://t.me/geojamofficial
 
 Email Signup: [http://eepurl.com/hhyaMH](http://eepurl.com/hhyaMH) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/geojam-ramps-up-marketing-for-jam-token-with-major-activations)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/MarketingNewsramp/comments/1d7mmhb/geojam_announces_major_marketing_initiatives_for/
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1d7mmhb/geojam_announces_major_marketing_initiatives_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/tintwkJ6.webp)

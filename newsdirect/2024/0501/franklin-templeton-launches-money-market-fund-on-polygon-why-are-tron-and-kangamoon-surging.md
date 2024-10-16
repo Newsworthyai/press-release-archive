@@ -40,9 +40,17 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/franklin-templeton-launches-money-market-fund-on-polygon-why-are-tron-and-kangamoon-surging-846564474 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/franklin-templeton-launches-money-market-fund-on-polygon-why-are-tron-and-kangamoon-surging-846564474)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1chglc1/franklin_templeton_launches_moneymarket_fund_on/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1chglc1/franklin_templeton_launches_moneymarket_fund_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/swimpnp6.webp)

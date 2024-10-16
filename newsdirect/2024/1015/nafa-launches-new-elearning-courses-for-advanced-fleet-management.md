@@ -29,9 +29,17 @@ Company Websitehttps://www.nafa.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/nafa-launches-new-elearning-courses-for-advanced-fleet-management-659504064 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nafa-launches-new-elearning-courses-for-advanced-fleet-management-659504064)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1g492oa/nafa_launches_new_elearning_courses_for_advanced/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1g492oa/nafa_launches_new_elearning_courses_for_advanced/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/15/dualHmQm.webp)

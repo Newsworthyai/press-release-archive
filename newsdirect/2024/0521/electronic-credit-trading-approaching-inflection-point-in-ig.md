@@ -70,9 +70,17 @@ Company Websitehttps://www.tradeweb.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/electronic-credit-trading-approaching-inflection-point-in-ig-982354676 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/electronic-credit-trading-approaching-inflection-point-in-ig-982354676)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cxei8d/electronification_of_us_investmentgrade_bond/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cxei8d/electronification_of_us_investmentgrade_bond/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/21/tilekQjI.webp)

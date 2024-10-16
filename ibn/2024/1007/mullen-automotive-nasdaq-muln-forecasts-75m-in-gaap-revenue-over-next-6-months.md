@@ -20,9 +20,17 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-forecasts-75m-in-gaap-revenue-over-next-6-months/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fya1df/mullen_automotive_nasdaq_muln_expects_75_million/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fya1df/mullen_automotive_nasdaq_muln_expects_75_million/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2410/7/yarnREoO.webp)

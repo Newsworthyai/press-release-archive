@@ -20,9 +20,17 @@ For more information, please visit www.jjcverse.com/vos, download "Victory of Su
 
 About JOJOJOJOSoft CO., Ltd.: Headquartered in Nakhon Ratchasima, Thailand, JOJOJOJOSoft CO., Ltd., under CEO Krichanont Songpracone's leadership, innovates at the intersection of gaming and blockchain technology, creating games that offer both enjoyment and economic opportunities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/jojojojosoft-launches-meet-the-suckers-a-revolutionary-gamefi-platform-blending-fun-and-financial-opportunity)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1avjryd/jojojojosoft_co_ltd_unveils_meet_the_suckers_a/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1avjryd/jojojojosoft_co_ltd_unveils_meet_the_suckers_a/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/ableLq_K.webp)

@@ -30,9 +30,17 @@ Company Websitehttps://iondigitalcorp.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/i-on-digital-corp-announces-delay-in-annual-report-filing-491990201 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/i-on-digital-corp-announces-delay-in-annual-report-filing-491990201)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c51nun/ion_digital_corp_delays_annual_report_filing/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c51nun/ion_digital_corp_delays_annual_report_filing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/15/wall4Puq.webp)

@@ -20,9 +20,17 @@ Presale Link: Join the DigiFolio Presale https://presale.digifolios.com
 
 Contact InformationWebsite: https://digifolios.com Socials: https://linktr.ee/digifolio 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/digifolio-announces-new-advisory-board-members-to-propel-growth-and-innovation-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvifb3/digifolio_welcomes_five_industry_leaders_to/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvifb3/digifolio_welcomes_five_industry_leaders_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/14/zealymf8.webp)

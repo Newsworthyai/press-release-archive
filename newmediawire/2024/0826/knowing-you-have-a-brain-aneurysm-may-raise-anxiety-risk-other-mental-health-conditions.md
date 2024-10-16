@@ -67,9 +67,17 @@ Research Highlights:
 
  heart.org and stroke.org 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/knowing-you-have-a-brain-aneurysm-may-raise-anxiety-risk-other-mental-health-conditions-7075965)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1f7lomh/study_shows_higher_risk_of_mental_illness_in/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1f7lomh/study_shows_higher_risk_of_mental_illness_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/2/harpMugZ.webp)

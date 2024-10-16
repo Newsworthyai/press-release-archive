@@ -48,9 +48,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/colorectal-cancer-survival-rate-after-5-years-is-90-with-early-detection-yet-testing-is-inaccessible-for-many-mainz-biomed-wants-to-change-that-567899645 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/colorectal-cancer-survival-rate-after-5-years-is-90-with-early-detection-yet-testing-is-inaccessible-for-many-mainz-biomed-wants-to-change-that-567899645)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1deyb6j/mainz_biomeds_coloalert_revolutionizes_colorectal/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1deyb6j/mainz_biomeds_coloalert_revolutionizes_colorectal/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/13/navyXyym.webp)

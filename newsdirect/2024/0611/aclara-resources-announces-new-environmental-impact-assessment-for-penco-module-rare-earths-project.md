@@ -14,9 +14,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/aclara-resources-announces-new-environmental-impact-assessment-for-penco-module-rare-earths-project-152854685 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/aclara-resources-announces-new-environmental-impact-assessment-for-penco-module-rare-earths-project-152854685)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1ddj4z5/aclara_resources_announces_new_environmental/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1ddj4z5/aclara_resources_announces_new_environmental/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/11/knotrepN.webp)

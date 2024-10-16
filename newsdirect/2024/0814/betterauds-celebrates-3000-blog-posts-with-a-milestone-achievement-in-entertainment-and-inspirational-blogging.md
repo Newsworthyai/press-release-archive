@@ -32,9 +32,17 @@ Company Websitehttps://betterauds.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/betterauds-celebrates-3000-blog-posts-with-a-milestone-achievement-in-entertainment-and-inspirational-blogging-837972714 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/betterauds-celebrates-3000-blog-posts-with-a-milestone-achievement-in-entertainment-and-inspirational-blogging-837972714)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1es4vf7/betteraudscom_celebrates_3000th_blog_post/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1es4vf7/betteraudscom_celebrates_3000th_blog_post/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/14/cakengCa.webp)

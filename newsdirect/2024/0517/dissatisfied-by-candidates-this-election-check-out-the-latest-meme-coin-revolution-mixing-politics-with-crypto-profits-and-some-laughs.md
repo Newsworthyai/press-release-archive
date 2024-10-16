@@ -34,9 +34,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/dissatisfied-by-candidates-this-election-check-out-the-latest-meme-coin-revolution-mixing-politics-with-crypto-profits-and-some-laughs-129289297 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/dissatisfied-by-candidates-this-election-check-out-the-latest-meme-coin-revolution-mixing-politics-with-crypto-profits-and-some-laughs-129289297)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cu48n9/rise_of_political_meme_coins_and_the_impact_on/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cu48n9/rise_of_political_meme_coins_and_the_impact_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/17/deep9Eom.webp)

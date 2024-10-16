@@ -30,9 +30,17 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitgets-pre-market-brings-notcoin-not-to-its-users-prior-to-cex-listings-682969994 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitgets-pre-market-brings-notcoin-not-to-its-users-prior-to-cex-listings-682969994)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1condtp/bitget_announces_premarket_token_sales_for_not/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1condtp/bitget_announces_premarket_token_sales_for_not/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/10/rainU9a5.webp)

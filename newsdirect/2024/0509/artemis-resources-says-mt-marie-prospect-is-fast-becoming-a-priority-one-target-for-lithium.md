@@ -18,9 +18,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/artemis-resources-says-mt-marie-prospect-is-fast-becoming-a-priority-one-target-for-lithium-948647894 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/artemis-resources-says-mt-marie-prospect-is-fast-becoming-a-priority-one-target-for-lithium-948647894)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cnvme5/artemis_resources_unveils_promising_results_from/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cnvme5/artemis_resources_unveils_promising_results_from/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/gulf_1Ww.webp)

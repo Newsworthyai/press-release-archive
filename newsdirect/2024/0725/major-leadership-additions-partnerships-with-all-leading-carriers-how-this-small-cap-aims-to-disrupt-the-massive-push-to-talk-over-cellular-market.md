@@ -58,9 +58,17 @@ SYTA@haydenir.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/major-leadership-additions-partnerships-with-all-leading-carriers-how-this-small-cap-aims-to-disrupt-the-massive-push-to-talk-over-cellular-market-376055872 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/major-leadership-additions-partnerships-with-all-leading-carriers-how-this-small-cap-aims-to-disrupt-the-massive-push-to-talk-over-cellular-market-376055872)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ebuar1/siyata_mobile_inc_aims_to_disrupt_pushtotalk_over/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ebuar1/siyata_mobile_inc_aims_to_disrupt_pushtotalk_over/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/25/nukejyIx.webp)

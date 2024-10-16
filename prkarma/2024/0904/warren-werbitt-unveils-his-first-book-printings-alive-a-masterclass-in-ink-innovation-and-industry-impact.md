@@ -42,9 +42,17 @@ Visit Our Blog
 
  * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1553)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BookNews/comments/1f9vdzj/renowned_print_expert_warren_werbitt_releases/
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1f9vdzj/renowned_print_expert_warren_werbitt_releases/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/249/5/veilKbVa.webp)

@@ -32,9 +32,17 @@ team@klumiventures.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/klumi-ventures-uaes-first-web3-venture-capital-firm-regulated-by-adgm-605103519 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/klumi-ventures-uaes-first-web3-venture-capital-firm-regulated-by-adgm-605103519)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cibrzc/klumi_ventures_receives_first_web3_venture/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cibrzc/klumi_ventures_receives_first_web3_venture/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/2/ideatXsK.webp)

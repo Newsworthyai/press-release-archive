@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/first-phosphate-corp-partners-with-rapid-building-systems-to-develop-manufacturing-plant-in-quebec-390784345 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/first-phosphate-corp-partners-with-rapid-building-systems-to-develop-manufacturing-plant-in-quebec-390784345)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cnckbh/first_phosphate_corp_partners_with_rapid_building/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cnckbh/first_phosphate_corp_partners_with_rapid_building/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/8/jinxFhFd.webp)

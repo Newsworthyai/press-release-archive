@@ -62,9 +62,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/should-proprietary-trading-firms-be-regulated-696531275 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/should-proprietary-trading-firms-be-regulated-696531275)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1dudwgy/regulators_eye_proprietary_trading_as_pipfarm/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1dudwgy/regulators_eye_proprietary_trading_as_pipfarm/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/3/plum8Ruz.webp)

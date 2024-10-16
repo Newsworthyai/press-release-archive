@@ -28,9 +28,17 @@ bkfc@n6krma.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/liquid-death-becomes-official-partner-of-brooklyn-football-clubs-womens-franchise-799938835 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/liquid-death-becomes-official-partner-of-brooklyn-football-clubs-womens-franchise-799938835)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f3gzyi/liquid_death_partners_with_brooklyn_fc_for_womens/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f3gzyi/liquid_death_partners_with_brooklyn_fc_for_womens/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/28/lunaFbIi.webp)

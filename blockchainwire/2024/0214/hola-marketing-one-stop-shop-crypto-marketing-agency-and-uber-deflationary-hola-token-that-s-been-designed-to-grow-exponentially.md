@@ -30,9 +30,17 @@ Telegram: https://t.me/Hola_token_Official
 
 Website: [https://www.holatoken.io/](https://www.holatoken.io/)Twitter X: [https://twitter.com/HolaToken](https://twitter.com/HolaToken)Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/hola-marketing-one-stop-shop-crypto-marketing-agency---and-uber-deflationary-hola-token-thats-been-designed-to-grow-exponentially-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/MarketingNewsramp/comments/1avcb6w/hola_marketing_agency_relaunches_hola_token_with/
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1avcb6w/hola_marketing_agency_relaunches_hola_token_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/15/noteI5G_.webp)

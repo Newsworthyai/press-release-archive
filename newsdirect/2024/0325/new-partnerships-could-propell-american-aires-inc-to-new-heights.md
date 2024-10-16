@@ -46,9 +46,17 @@ Company Websitehttp://CapitalGainsReport.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-partnerships-could-propell-american-aires-inc-to-new-heights-842511532 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/new-partnerships-could-propell-american-aires-inc-to-new-heights-842511532)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bnudbt/american_aires_inc_leads_the_charge_in_addressing/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bnudbt/american_aires_inc_leads_the_charge_in_addressing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/kissvMAu.webp)

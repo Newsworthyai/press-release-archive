@@ -33,9 +33,17 @@ The HWT founder commented on the project’s ambitions:
 
 Those interested in learning more about Huqqa World Token can join its Telegram channel or visit these links:  Website | X (Twitter) | Medium | Instagram 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/from-hookah-bars-to-blockchain-hwts-vision-for-a-thriving-crypto-community)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avju93/nargilem_introduces_huqqa_world_token_hwt_backed/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avju93/nargilem_introduces_huqqa_world_token_hwt_backed/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/neonDnfi.webp)

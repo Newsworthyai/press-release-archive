@@ -18,9 +18,17 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, i
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-reports-new-dealer-makes-first-sale-of-muln-ev-in-massachusetts/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1f2r0kr/mullen_automotive_announces_first_commercial_ev/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1f2r0kr/mullen_automotive_announces_first_commercial_ev/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/pond8zEZ.webp)

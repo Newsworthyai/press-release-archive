@@ -30,9 +30,17 @@ Company Websitehttps://www.powderfi.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/fintech-firm-powder-closes-5-million-in-seed-funding-570177622 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/fintech-firm-powder-closes-5-million-in-seed-funding-570177622)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1eaa7oj/fintech_firm_powder_closes_5_million_in_seed/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1eaa7oj/fintech_firm_powder_closes_5_million_in_seed/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/23/zeroqc40.webp)

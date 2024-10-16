@@ -30,9 +30,17 @@ About Wemade
 
 WEMADE aims to accelerate the mass adoption of blockchain technology, and is building through its WEMIX subsidiary, an experience-based, platform-driven, and service-oriented mega-ecosystem. Based on the WEMIX3.0 Mainnet, the WEMIX ecosystem features a wide spectrum of intuitive, convenient, and easy-to-use Web3 protocols and services. [www.wemade.com](http://www.wemade.com/) / [www.wemix.com/communication](http://www.wemix.com/communication) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/una-messenger-the-omnichain-communication-platform-for-a-truly-unbound-universal-blockchain-ecosystem)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avca0h/wemix_foundation_introduces_una_messenger_for/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avca0h/wemix_foundation_introduces_una_messenger_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/16/wamcTO2F.webp)

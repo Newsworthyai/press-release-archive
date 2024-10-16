@@ -16,9 +16,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cloud-dx-secures-4th-provincial-health-contract-for-remote-patient-monitoring-739644377 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cloud-dx-secures-4th-provincial-health-contract-for-remote-patient-monitoring-739644377)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cnck7o/cloud_dx_ceo_robert_kaul_secures_new_remote/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cnck7o/cloud_dx_ceo_robert_kaul_secures_new_remote/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/8/linedaOx.webp)

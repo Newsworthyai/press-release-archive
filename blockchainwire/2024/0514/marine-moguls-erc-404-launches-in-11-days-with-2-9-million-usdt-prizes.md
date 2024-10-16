@@ -60,9 +60,17 @@ CoinMarketCap: https://coinmarketcap.com/currencies/metfi2
 
 CoinGecko: https://www.coingecko.com/en/coins/metfiInstagram: https://instagram.com/metfidao 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/marine-moguls-erc-404-launches-in-11-days-with-29-million-usdt-prizes)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1crm5fr/revolutionary_marine_moguls_erc404_token_and_nft/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1crm5fr/revolutionary_marine_moguls_erc404_token_and_nft/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/14/lambc_2A.webp)

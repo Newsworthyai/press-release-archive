@@ -22,9 +22,17 @@ Investing in Furrever Token not only provides potential financial returns but al
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/investing-smart-ethereums-etf-progress-bitcoins-decline-and-furrever-tokens-rewards)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dydra1/ethereums_etf_progress_and_bitcoins_decline/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dydra1/ethereums_etf_progress_and_bitcoins_decline/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/19/limeuLcl.webp)

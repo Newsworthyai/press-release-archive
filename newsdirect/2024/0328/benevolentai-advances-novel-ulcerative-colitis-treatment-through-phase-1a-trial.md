@@ -20,9 +20,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/benevolentai-advances-novel-ulcerative-colitis-treatment-through-phase-1a-trial-704278808 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benevolentai-advances-novel-ulcerative-colitis-treatment-through-phase-1a-trial-704278808)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1bpufbj/benevolentai_advances_novel_ulcerative_colitis/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1bpufbj/benevolentai_advances_novel_ulcerative_colitis/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/cakeuRC7.webp)

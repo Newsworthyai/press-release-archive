@@ -36,9 +36,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bodegas-are-the-new-frontier-for-underbanked-communities-olb-group-leading-the-charge-490892524 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bodegas-are-the-new-frontier-for-underbanked-communities-olb-group-leading-the-charge-490892524)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c0ki2p/olb_group_empowers_unbanked_communities_through/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c0ki2p/olb_group_empowers_unbanked_communities_through/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/10/wolfTpkf.webp)

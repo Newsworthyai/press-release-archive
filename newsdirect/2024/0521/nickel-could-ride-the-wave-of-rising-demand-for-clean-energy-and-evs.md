@@ -42,9 +42,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nickel-could-ride-the-wave-of-rising-demand-for-clean-energy-and-evs-818251808 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nickel-could-ride-the-wave-of-rising-demand-for-clean-energy-and-evs-818251808)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cx6wuo/nickel_could_ride_the_wave_of_rising_demand_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cx6wuo/nickel_could_ride_the_wave_of_rising_demand_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/21/gleeOan7.webp)

@@ -42,9 +42,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/aqua-metals-initiates-33m-loan-agreement-to-fund-commercial-scale-lithium-battery-recycling-plant-980941006 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/aqua-metals-initiates-33m-loan-agreement-to-fund-commercial-scale-lithium-battery-recycling-plant-980941006)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dvxxzu/aqua_metals_secures_33m_loan_for_commercialscale/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dvxxzu/aqua_metals_secures_33m_loan_for_commercialscale/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/5/ricePjSC.webp)

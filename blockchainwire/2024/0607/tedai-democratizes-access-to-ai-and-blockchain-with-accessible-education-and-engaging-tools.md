@@ -54,9 +54,17 @@ Telegram: https://t.me/tedai_io
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/-tedai-democratizes-access-to-ai-and-blockchain-with-accessible-education-and-engaging-tools)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvknyh/tedai_revolutionizes_access_to_ai_and_blockchain/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvknyh/tedai_revolutionizes_access_to_ai_and_blockchain/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/7/wamc4zfN.webp)

@@ -47,9 +47,17 @@ Visit Our Blog
 * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1441)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bztpq4/taktiful_software_solutions_launches_innovative/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bztpq4/taktiful_software_solutions_launches_innovative/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/244/9/limesW2a.webp)

@@ -66,9 +66,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/navigating-the-growing-cannabis-stock-landscape-in-2024-589489444 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/navigating-the-growing-cannabis-stock-landscape-in-2024-589489444)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1c4hr05/navigating_the_evolving_cannabis_stock_landscape/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1c4hr05/navigating_the_evolving_cannabis_stock_landscape/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/15/fondk0oK.webp)

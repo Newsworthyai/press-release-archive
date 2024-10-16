@@ -8,9 +8,17 @@ Since its inception seven years ago, with its headquarters in Dubai, CoinW has e
 
 Following Coinfest Asia 2024, the CoinW team will head to Korea for Korea Blockchain Week and then to Singapore for Token2049. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-unveils-nexus-program-at-coinfest-asia-to-expand-global-reach)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fe6hiv/coinw_introduces_nexus_program_and_propw_in_bali/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fe6hiv/coinw_introduces_nexus_program_and_propw_in_bali/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/11/markOOpa.webp)

@@ -44,9 +44,17 @@ Company Websitehttps://www.plotline.so/
 
 View source version on newsdirect.com: https://newsdirect.com/news/plotline-raises-2-6m-as-it-harnesses-ai-to-boost-adoption-in-the-super-app-era-646069925 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/plotline-raises-2-6m-as-it-harnesses-ai-to-boost-adoption-in-the-super-app-era-646069925)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cif9zj/plotline_raises_26m_to_boost_adoption_in_the/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cif9zj/plotline_raises_26m_to_boost_adoption_in_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/2/rendr85g.webp)

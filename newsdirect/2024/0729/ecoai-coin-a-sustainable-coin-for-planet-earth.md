@@ -51,9 +51,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ecoai-coin-a-sustainable-coin-for-planet-earth-882873910 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ecoai-coin-a-sustainable-coin-for-planet-earth-882873910)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1eeywl9/ecoai_coin_pioneering_sustainable_cryptocurrency/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1eeywl9/ecoai_coin_pioneering_sustainable_cryptocurrency/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/29/silkz2xf.webp)

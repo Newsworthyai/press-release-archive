@@ -55,9 +55,17 @@ About Mizner Country Club
 
 Mizner Country Club is proudly recognized as a Platinum Club of America and Distinguished Club of the World. The member-owned gated community currently features 471 single-family residences and is situated in Delray Beach, FL. Amenities for members and their guests include: a newly renovated 18-hole Kipp Schulties golf course, six tennis courts, a resort-style swimming pool, a fitness center with state of the art equipment including an aerobics facility, golf and tennis pro shops and programs, an elegant grand ballroom, versatile dining options, year-round social events and children's activities. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202407151179/mizner-country-club-new-executive-chef-daniel-montano-cec-reveals-favorite-dish)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1e3uf7a/celebrated_chef_daniel_montano_adds_fresh/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1e3uf7a/celebrated_chef_daniel_montano_adds_fresh/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/247/15/loftR2ax.webp)

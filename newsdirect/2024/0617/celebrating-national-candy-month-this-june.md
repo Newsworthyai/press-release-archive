@@ -32,9 +32,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/celebrating-national-candy-month-this-june-792094522 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/celebrating-national-candy-month-this-june-792094522)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1di2pi9/national_confectioners_association_celebrates/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1di2pi9/national_confectioners_association_celebrates/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/17/joinSKrA.webp)

@@ -90,9 +90,17 @@ Company Websitehttps://www.nilu27.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-highly-anticipated-nilu-hypercar-has-arrived-388263654 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-highly-anticipated-nilu-hypercar-has-arrived-388263654)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1embeib/sasha_selipanovs_nilu27_unveils_groundbreaking/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1embeib/sasha_selipanovs_nilu27_unveils_groundbreaking/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/7/hush78S_.webp)

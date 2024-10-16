@@ -40,9 +40,17 @@ Company Websitehttps://www.robooter.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/golden-technologies-partners-with-robooter-to-introduce-cutting-edge-mobility-solutions-267857593 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/golden-technologies-partners-with-robooter-to-introduce-cutting-edge-mobility-solutions-267857593)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d7y4am/golden_technologies_partners_with_robooter_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d7y4am/golden_technologies_partners_with_robooter_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/4/noraovMh.webp)

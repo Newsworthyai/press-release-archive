@@ -28,9 +28,17 @@ About ONDO
 
 [Ondo Finance](https://ondo.finance/) is a decentralized institutional-grade financial protocol leveraging blockchain technology to offer institutional-grade financial products and services, creating an open, permissionless, decentralized investment bank. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ondo-a-rwa-platform-will-be-listed-on-coinw-exchange-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ehm13m/coinw_to_list_ondo_token_celebrates_with_5000/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ehm13m/coinw_to_list_ondo_token_celebrates_with_5000/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/1/hushsNDR.webp)

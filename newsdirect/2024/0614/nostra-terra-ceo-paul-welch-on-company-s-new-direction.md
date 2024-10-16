@@ -18,9 +18,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nostra-terra-ceo-paul-welch-on-companys-new-direction-356420196 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nostra-terra-ceo-paul-welch-on-companys-new-direction-356420196)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dfr07i/nostra_terra_ceo_paul_welch_discusses_companys/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dfr07i/nostra_terra_ceo_paul_welch_discusses_companys/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/14/fileYkOo.webp)

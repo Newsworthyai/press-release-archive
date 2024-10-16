@@ -30,9 +30,17 @@ Nycrypto Labs was founded in 2022 to build easily accessible decentralized produ
 
 Disclaimer: This press release is for informational purposes only and does not constitute investment advice or an offer to invest. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/nycrypto-labs-raises-800k-to-launch-and-scale-tidus-the-crypto-everything-app)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1du9610/nycrypto_labs_raises_800k_for_tidus_wallet_launch/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1du9610/nycrypto_labs_raises_800k_for_tidus_wallet_launch/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/3/seekDzXi.webp)

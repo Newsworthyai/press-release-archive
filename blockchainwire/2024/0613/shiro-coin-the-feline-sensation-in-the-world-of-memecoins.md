@@ -26,9 +26,17 @@ X/Twitter: https://x.com/ShirocoinToken
 
 Website: [https://www.shirocoin.io/](https://www.shirocoin.io/) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/shiro-coin-the-feline-sensation-in-the-world-of-memecoins)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1df9hhi/shiro_coin_a_new_challenger_in_the_world_of/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1df9hhi/shiro_coin_a_new_challenger_in_the_world_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/13/mend0f1Q.webp)

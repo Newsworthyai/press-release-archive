@@ -38,9 +38,17 @@ www.americanpicturehouse.com
 
 OTC Symbol: APHP 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/barron-s-cove-to-premier-at-the-hamptons-international-film-festival-7076126)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ft4an9/american_picture_house_premieres_barrons_cove_at/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ft4an9/american_picture_house_premieres_barrons_cove_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/30/wallCUe3.webp)

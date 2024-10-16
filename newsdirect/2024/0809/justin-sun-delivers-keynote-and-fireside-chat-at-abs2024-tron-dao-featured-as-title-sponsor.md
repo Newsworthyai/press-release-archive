@@ -38,9 +38,17 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/justin-sun-delivers-keynote-and-fireside-chat-at-abs2024-tron-dao-featured-as-title-sponsor-604697709 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/justin-sun-delivers-keynote-and-fireside-chat-at-abs2024-tron-dao-featured-as-title-sponsor-604697709)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1enwynv/tron_dao_takes_center_stage_at_asia_blockchain/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1enwynv/tron_dao_takes_center_stage_at_asia_blockchain/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/9/knobzxoB.webp)

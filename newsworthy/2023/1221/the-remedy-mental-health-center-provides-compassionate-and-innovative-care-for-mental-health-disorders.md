@@ -12,9 +12,17 @@ As leaders in the field, The Remedy remains at the forefront of staying informed
 
 With multiple clinic locations in Vadnais Heights, Burnsville, and Hudson, WI, The Remedy is easily accessible to individuals seeking help for their mental health. Their team of specialized professionals offers a comprehensive range of services, including neuropsych evaluations, memory loss help, trauma therapy, and medication-assisted psychotherapy. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231221925/the-remedy-mental-health-center-provides-compassionate-and-innovative-care-for-mental-health-disorders)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcvji/the_remedy_offers_cuttingedge_mental_health/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcvji/the_remedy_offers_cuttingedge_mental_health/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/wall7vGs.webp)

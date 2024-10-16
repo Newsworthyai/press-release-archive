@@ -48,9 +48,17 @@ Company Websitehttps://navex.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/navex-releases-2024-regional-whistleblowing-and-incident-management-benchmark-report-709858757 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/navex-releases-2024-regional-whistleblowing-and-incident-management-benchmark-report-709858757)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cxzv8k/navex_releases_2024_regional_whistleblowing/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cxzv8k/navex_releases_2024_regional_whistleblowing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/sageh6us.webp)

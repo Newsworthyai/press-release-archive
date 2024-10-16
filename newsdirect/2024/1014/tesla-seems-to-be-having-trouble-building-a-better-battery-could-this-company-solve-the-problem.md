@@ -28,9 +28,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tesla-seems-to-be-having-trouble-building-a-better-battery-could-this-company-solve-the-problem-710058371 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tesla-seems-to-be-having-trouble-building-a-better-battery-could-this-company-solve-the-problem-710058371)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1g3fglc/dragonfly_energy_ceo_discusses_green_energy/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1g3fglc/dragonfly_energy_ceo_discusses_green_energy/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/14/frogbVBA.webp)

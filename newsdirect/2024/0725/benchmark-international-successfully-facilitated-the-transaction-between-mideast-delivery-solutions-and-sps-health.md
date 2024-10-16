@@ -34,9 +34,17 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-mideast-delivery-solutions-and-sps-health-244147419 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-mideast-delivery-solutions-and-sps-health-244147419)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1ebulmc/benchmark_international_facilitates_acquisition/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1ebulmc/benchmark_international_facilitates_acquisition/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/25/oxengbhV.webp)

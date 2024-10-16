@@ -38,9 +38,17 @@ Company Websitehttps://ucca.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/ukrainian-american-organization-demands-immediate-fcc-investigation-into-spacex-citing-musks-meddling-in-ukraine-erratic-behavior-and-illegal-drug-use-348798412 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ukrainian-american-organization-demands-immediate-fcc-investigation-into-spacex-citing-musks-meddling-in-ukraine-erratic-behavior-and-illegal-drug-use-348798412)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1cbx5a2/ukrainianamerican_organization_demands_immediate/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1cbx5a2/ukrainianamerican_organization_demands_immediate/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/24/ellaN_fU.webp)

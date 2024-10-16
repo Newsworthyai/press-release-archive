@@ -27,9 +27,17 @@ Disclaimer:
 
 RDDT Coin is an independent entity with no affiliation to any corporation, including Reddit or its affiliates. $RDDT is a meme coin created purely for entertainment purposes and holds no intrinsic value or expectation of financial return. Users are encouraged to engage with $RDDT in a lighthearted and fun manner. The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gamestop-wallstreetbets-and-now-rddt-coin-discover-the-potential-of-rddt-meme-fan-token-inspired-by-the-upcoming-reddit-ipo)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1be21aa/rddt_coin_poised_for_growth_amid_anticipation_of/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1be21aa/rddt_coin_poised_for_growth_amid_anticipation_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/13/rendSJIB.webp)

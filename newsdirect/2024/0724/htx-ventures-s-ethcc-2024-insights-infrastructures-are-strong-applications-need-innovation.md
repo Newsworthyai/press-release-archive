@@ -64,9 +64,17 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-venturess-ethcc-2024-insights-infrastructures-are-strong-applications-need-innovation-828499729 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-venturess-ethcc-2024-insights-infrastructures-are-strong-applications-need-innovation-828499729)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eb6fsv/htx_ventures_key_observations_and_engagement_at/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eb6fsv/htx_ventures_key_observations_and_engagement_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/24/navyVJSK.webp)

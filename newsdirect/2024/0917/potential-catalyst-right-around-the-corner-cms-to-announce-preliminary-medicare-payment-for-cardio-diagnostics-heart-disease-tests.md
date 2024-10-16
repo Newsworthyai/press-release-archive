@@ -42,9 +42,17 @@ Company Websitehttps://cardiodiagnosticsinc.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/potential-catalyst-right-around-the-corner-cms-to-announce-preliminary-medicare-payment-for-cardio-diagnostics-heart-disease-tests-993504448 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/potential-catalyst-right-around-the-corner-cms-to-announce-preliminary-medicare-payment-for-cardio-diagnostics-heart-disease-tests-993504448)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fiyz6t/crucial_decision_pending_for_cardio_diagnostics/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fiyz6t/crucial_decision_pending_for_cardio_diagnostics/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/17/vasta7hn.webp)

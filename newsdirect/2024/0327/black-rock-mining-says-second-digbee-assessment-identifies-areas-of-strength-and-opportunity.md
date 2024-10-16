@@ -18,9 +18,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/black-rock-mining-says-second-digbee-assessment-identifies-areas-of-strength-and-opportunity-194472982 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/black-rock-mining-says-second-digbee-assessment-identifies-areas-of-strength-and-opportunity-194472982)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bp0aww/black_rock_minings_second_digbee_assessment/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bp0aww/black_rock_minings_second_digbee_assessment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/pondapC7.webp)

@@ -36,9 +36,17 @@ Canada
 * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/drtalks/news_release/1574)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1fzsdf7/healing_lyme_summit_20_free_online_event/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1fzsdf7/healing_lyme_summit_20_free_online_event/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/2410/9/echoQNp2.webp)

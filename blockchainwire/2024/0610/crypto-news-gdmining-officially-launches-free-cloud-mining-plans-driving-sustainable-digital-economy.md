@@ -38,9 +38,17 @@ GDMining 支持多种支付系统来存入资金和接收付款，为用户提�
 
 GDMining 是领先的云挖矿服务提供商，为全球用户提供参与加密货币挖矿的机会，无需昂贵的硬件或技术专长。GDMining 致力于可持续发展和普惠金融，通过其创新解决方案让用户充分利用区块链技术并获得被动收入。欲了解更多信息，请访问 https://gdmining.com/。 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-news-gdmining-officially-launches-free-cloud-mining-plans-driving-sustainable-digital-economy-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvkaab/gdmining_launches_new_bitcoin_cloud_mining_plans/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvkaab/gdmining_launches_new_bitcoin_cloud_mining_plans/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/10/joinVYmZ.webp)

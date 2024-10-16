@@ -24,9 +24,17 @@ IR@BLACKWELL3D.COM
 
 +1 (702) 718-0807 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/blackwell-3d-announces-new-corporate-headquarters-in-the-heart-of-business-bay-dubai-7076045)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1ff1olf/blackwell_3d_construction_corp_secures_new/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1ff1olf/blackwell_3d_construction_corp_secures_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/12/cornhSzm.webp)

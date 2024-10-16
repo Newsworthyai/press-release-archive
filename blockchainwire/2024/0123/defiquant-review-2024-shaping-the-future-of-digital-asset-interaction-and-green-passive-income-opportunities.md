@@ -26,9 +26,17 @@ SOURCE: Defiquant
 
 "Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities." 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-review-2024-shaping-the-future-of-digital-asset-interaction-and-green-passive-income-opportunities)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avjs4y/defiquant_redefines_digital_asset_engagement_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avjs4y/defiquant_redefines_digital_asset_engagement_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/chipEKcY.webp)

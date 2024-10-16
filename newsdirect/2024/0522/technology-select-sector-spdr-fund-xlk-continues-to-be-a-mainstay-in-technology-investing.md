@@ -82,9 +82,17 @@ Company Websitehttps://www.sectorspdrs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/technology-select-sector-spdr-fund-xlk-continues-to-be-a-mainstay-in-technology-investing-837273829 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/technology-select-sector-spdr-fund-xlk-continues-to-be-a-mainstay-in-technology-investing-837273829)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cxvuuo/technology_select_sector_spdr_fund_xlk_a_mainstay/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cxvuuo/technology_select_sector_spdr_fund_xlk_a_mainstay/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/sageP3CF.webp)

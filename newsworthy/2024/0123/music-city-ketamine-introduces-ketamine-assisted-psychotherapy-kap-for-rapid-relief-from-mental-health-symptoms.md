@@ -10,9 +10,17 @@ As KAP gains recognition for its potential in treating various mental health con
 
 For more information about Music City Ketamine and its Ketamine Assisted Psychotherapy services, please visit www.musiccityketamine.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401231017/music-city-ketamine-introduces-ketamine-assisted-psychotherapy-kap-for-rapid-relief-from-mental-health-symptoms)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1avlene/innovative_ketamine_assisted_psychotherapy/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1avlene/innovative_ketamine_assisted_psychotherapy/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/irisV65C.webp)

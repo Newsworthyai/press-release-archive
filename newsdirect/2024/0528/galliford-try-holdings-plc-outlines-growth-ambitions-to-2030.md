@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/galliford-try-holdings-plc-outlines-growth-ambitions-to-2030-522399622 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/galliford-try-holdings-plc-outlines-growth-ambitions-to-2030-522399622)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d2l3ag/galliford_try_holdings_plc_outlines_ambitious/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d2l3ag/galliford_try_holdings_plc_outlines_ambitious/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/28/pinkQOWb.webp)

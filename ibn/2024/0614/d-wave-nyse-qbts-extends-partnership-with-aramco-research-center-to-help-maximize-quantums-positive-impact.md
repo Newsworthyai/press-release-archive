@@ -24,9 +24,17 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing 
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-extends-partnership-with-aramco-research-center-to-help-maximize-quantums-positive-impact/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1f2qrvu/dwave_extends_agreement_with_aramco_to_utilize/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1f2qrvu/dwave_extends_agreement_with_aramco_to_utilize/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/vibeKzFr.webp)

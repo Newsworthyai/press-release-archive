@@ -1,4 +1,4 @@
-# D-Wave (NYSE: QBTS) Expands Product Roadmap to Bring Power of Quantum to AI & ML
+# D-Wave  (NYSE: QBTS) Expands Product Roadmap to Bring Power of Quantum to AI & ML
 
 * Expanded product roadmap to enhance D-Wave’s Leap(TM) quantum cloud service and bring new Quantum AI solutions to market
 * Initiative targets three key development areas: quantum distributions for generative AI, Restricted Boltzmann Machine (“RBM”) architectures, and GPU integration
@@ -24,9 +24,17 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/d-wave-nyse-qbts-expands-product-roadmap-to-bring-power-of-quantum-to-ai-ml/)
+---
+
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-expands-product-roadmap-to-bring-power-of-quantum-to-ai-ml/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1f2g1nt/dwave_quantum_expands_roadmap_for_quantum_ai/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f2s36l/dwave_quantum_expands_leap_quantum_cloud_service/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/zeal0WW3.webp)

@@ -26,9 +26,17 @@ Somnia is a 300k+tps EVM Layer 1 with Interoperability Protocols to unify metave
 
 For more information, please visit Somnia.Network 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/somnias-new-world-builder-gives-creators-tools-to-make-games-and-virtual-experiences-easily)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1g18r4x/somnia_announces_launch_of_world_builder_for/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1g18r4x/somnia_announces_launch_of_world_builder_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/11/ovaliCKm.webp)

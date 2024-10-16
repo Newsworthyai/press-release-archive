@@ -8,9 +8,17 @@ Spravato is FDA-approved for specific types of depression and should be used in 
 
 During the treatment process, patients self-administer the nasal spray under the supervision of the Prime Psychiatry team. To ensure patient safety, individuals are required to stay briefly at the office for monitoring of any potential side effects. As Spravato may affect driving abilities, patients are advised to arrange for alternate transportation to and from the office. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231223940/prime-psychiatry-offers-spravato-treatment-for-treatment-resistant-depression-in-frisco-and-plano-texas)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcw1d/prime_psychiatry_introduces_fastacting/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcw1d/prime_psychiatry_introduces_fastacting/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/loftt9XB.webp)

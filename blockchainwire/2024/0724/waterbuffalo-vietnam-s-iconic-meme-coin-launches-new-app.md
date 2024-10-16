@@ -28,9 +28,17 @@ Official Website: https://www.waterbuffalo.online/
 
 Telegram: [https://t.me/WaterBuffalo_Community](https://t.me/WaterBuffalo_Community)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/waterbuffalo-vietnams-iconic-meme-coin-launches-new-app)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1eb9682/waterbuffalo_launches_vietnamfriendly/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1eb9682/waterbuffalo_launches_vietnamfriendly/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/24/takeBY7n.webp)

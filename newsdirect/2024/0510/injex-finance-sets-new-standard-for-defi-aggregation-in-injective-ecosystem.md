@@ -28,9 +28,17 @@ Company Websitehttps://injex.fi
 
 View source version on newsdirect.com: https://newsdirect.com/news/injex-finance-sets-new-standard-for-defi-aggregation-in-injective-ecosystem-497447238 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/injex-finance-sets-new-standard-for-defi-aggregation-in-injective-ecosystem-497447238)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cox3y0/injective_launches_injex_finance_to_revolutionize/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cox3y0/injective_launches_injex_finance_to_revolutionize/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/10/pave3kev.webp)

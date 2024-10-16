@@ -24,9 +24,17 @@ BinaryX actively leverages cutting-edge technologies in blockchain and tech to e
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities.Media contact: Sloane BarlowHead of PR sloane@four.memeContact for the second project: Kora KhungKora@binaryx.pro 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bnx-token-officially-added-as-trading-pair-on-fourmeme-platform)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fi48uz/fourmeme_announces_official_listing_of_bnx_token/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fi48uz/fourmeme_announces_official_listing_of_bnx_token/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/16/takeVotY.webp)

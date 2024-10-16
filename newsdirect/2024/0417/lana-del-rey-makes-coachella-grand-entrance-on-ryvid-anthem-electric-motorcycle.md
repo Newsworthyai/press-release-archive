@@ -34,9 +34,17 @@ Company Websitehttps://ryvid.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/lana-del-rey-makes-coachella-grand-entrance-on-ryvid-anthem-electric-motorcycle-947946536 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/lana-del-rey-makes-coachella-grand-entrance-on-ryvid-anthem-electric-motorcycle-947946536)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1c6dyht/lana_del_reys_dramatic_coachella_entrance_on/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1c6dyht/lana_del_reys_dramatic_coachella_entrance_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/17/wolf_t0e.webp)

@@ -52,9 +52,17 @@ Email address: Listing@xt.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-sync-syncus-listing-on-xtcom)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bko85l/xtcom_announces_listing_of_sync_token_on_its/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bko85l/xtcom_announces_listing_of_sync_token_on_its/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/22/taroCqv4.webp)

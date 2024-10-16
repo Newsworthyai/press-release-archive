@@ -38,9 +38,17 @@ Company Websitehttps://www.pawfury.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/pawfury-presale-nears-5m-mark-dont-miss-your-chance-to-join-the-next-crypto-giant-211719825 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pawfury-presale-nears-5m-mark-dont-miss-your-chance-to-join-the-next-crypto-giant-211719825)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1eqo84w/pawfury_paw_presale_surpasses_5m_mark_a/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1eqo84w/pawfury_paw_presale_surpasses_5m_mark_a/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/12/zealmMY_.webp)

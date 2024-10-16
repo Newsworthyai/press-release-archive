@@ -70,9 +70,17 @@ winniedrinkwater@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cosmos-hub-approves-1-million-grant-to-dora-factory-for-quadratic-funding-initiative-570783498 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cosmos-hub-approves-1-million-grant-to-dora-factory-for-quadratic-funding-initiative-570783498)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1csswup/cosmos_hub_approves_1_million_grant_to_dora/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1csswup/cosmos_hub_approves_1_million_grant_to_dora/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/goldmRcZ.webp)

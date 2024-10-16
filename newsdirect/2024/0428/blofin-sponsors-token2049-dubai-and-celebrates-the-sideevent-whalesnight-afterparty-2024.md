@@ -30,9 +30,17 @@ annio@blofin.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/blofin-sponsors-token2049-dubai-and-celebrates-the-sideevent-whalesnight-afterparty-2024-665341179 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/blofin-sponsors-token2049-dubai-and-celebrates-the-sideevent-whalesnight-afterparty-2024-665341179)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cfaxt6/blofin_shines_at_token2049_dubai_and_whalesnight/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cfaxt6/blofin_shines_at_token2049_dubai_and_whalesnight/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/28/healoOAZ.webp)

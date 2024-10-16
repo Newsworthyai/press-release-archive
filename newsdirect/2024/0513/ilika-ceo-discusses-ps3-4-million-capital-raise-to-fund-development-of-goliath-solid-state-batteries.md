@@ -18,9 +18,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ilika-ceo-discusses-ps3-4-million-capital-raise-to-fund-development-of-goliath-solid-state-batteries-318155279 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ilika-ceo-discusses-ps3-4-million-capital-raise-to-fund-development-of-goliath-solid-state-batteries-318155279)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1cr1bm4/ilika_ceo_discusses_34_million_capital_raise_for/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1cr1bm4/ilika_ceo_discusses_34_million_capital_raise_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/pondZvJF.webp)

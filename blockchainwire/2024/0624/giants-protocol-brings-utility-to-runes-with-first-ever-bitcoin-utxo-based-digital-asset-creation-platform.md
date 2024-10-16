@@ -47,9 +47,17 @@ Read more: https://medium.com/@giantsplanet/giants-protocol-worlds-first-bitcoin
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/giants-protocol-brings-utility-to-runes-with-first-ever-bitcoin-utxo-based-digital-asset-creation-platform)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvglpe/giants_protocol_pioneering_bitcoin_digital_asset/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvglpe/giants_protocol_pioneering_bitcoin_digital_asset/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/24/ulnajx3U.webp)

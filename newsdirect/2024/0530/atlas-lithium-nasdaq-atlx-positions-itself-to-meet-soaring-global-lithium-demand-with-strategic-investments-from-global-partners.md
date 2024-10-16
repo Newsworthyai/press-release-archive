@@ -56,9 +56,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/atlas-lithium-nasdaq-atlx-positions-itself-to-meet-soaring-global-lithium-demand-with-strategic-investments-from-global-partners-662880048 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/atlas-lithium-nasdaq-atlx-positions-itself-to-meet-soaring-global-lithium-demand-with-strategic-investments-from-global-partners-662880048)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1d433bz/atlas_lithium_positioned_to_meet_soaring_global/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1d433bz/atlas_lithium_positioned_to_meet_soaring_global/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/30/deepM08Q.webp)

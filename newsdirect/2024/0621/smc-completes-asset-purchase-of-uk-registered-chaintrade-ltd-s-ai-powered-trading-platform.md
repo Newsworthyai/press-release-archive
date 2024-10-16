@@ -34,9 +34,17 @@ Erik Blum, Chief Executive Officer
 
 View source version on newsdirect.com: https://newsdirect.com/news/smc-completes-asset-purchase-of-uk-registered-chaintrade-ltd-s-ai-powered-trading-platform-802158708 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/smc-completes-asset-purchase-of-uk-registered-chaintrade-ltd-s-ai-powered-trading-platform-802158708)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1dlaswx/smc_completes_acquisition_of_chaintrade_ltds/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1dlaswx/smc_completes_acquisition_of_chaintrade_ltds/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/21/glueGQuF.webp)

@@ -28,9 +28,17 @@ Neptune Trade X Trading Center Academy offers advanced resources on blockchain a
 
 Join Neptune Trade X Trading Center and take advantage of our latest advancements in cryptocurrency trading. Connect with investors worldwide and explore the new features we have to offer! 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/neptune-trade-x-trading-center-unveils-new-h5-version-and-mobile-app)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ellst1/neptune_trade_x_unveils_new_h5_version_and_mobile/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ellst1/neptune_trade_x_unveils_new_h5_version_and_mobile/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/6/meankXHS.webp)

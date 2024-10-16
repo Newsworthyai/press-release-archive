@@ -42,9 +42,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-humane-society-of-the-united-states-helping-pets-in-poverty-keeping-people-and-pets-together-in-hard-times-105263883 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-humane-society-of-the-united-states-helping-pets-in-poverty-keeping-people-and-pets-together-in-hard-times-105263883)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1crtglt/humane_society_launches_more_than_a_pet_campaign/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1crtglt/humane_society_launches_more_than_a_pet_campaign/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/14/chefABI_.webp)

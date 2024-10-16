@@ -24,9 +24,17 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-quantum-nyse-qbts-extends-quantum-ai-product-roadmap/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1f9gu7u/dwave_quantum_inc_extends_quantum_ai_product/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1f9gu7u/dwave_quantum_inc_extends_quantum_ai_product/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/249/5/taro4U9N.webp)

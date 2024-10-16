@@ -30,9 +30,17 @@ Company Websitehttps://stairhoppers.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/stairhopper-movers-recognized-as-bostons-top-moving-company-769411892 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/stairhopper-movers-recognized-as-bostons-top-moving-company-769411892)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1ebqmp7/stairhopper_movers_earns_top_honors_in_boston/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1ebqmp7/stairhopper_movers_earns_top_honors_in_boston/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/25/barnlqB1.webp)

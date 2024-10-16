@@ -36,9 +36,17 @@ Web: http://zenGate.Global Medium: https://medium.com/@zenGateYouTube: http:
 
 Discord: http://discord.gg/FQRA8wqRWa 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/former-un-chief-of-commodities-joins-zengate-globals-advisory-board)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1avxhrg/zengate_global_appoints_lamon_rutten_as_advisor/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1avxhrg/zengate_global_appoints_lamon_rutten_as_advisor/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/apexy90f.webp)

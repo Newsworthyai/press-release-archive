@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/northstar-gold-corp-completes-key-surveys-and-signs-letter-of-intent-for-boston-creek-mines-property-750797666 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/northstar-gold-corp-completes-key-surveys-and-signs-letter-of-intent-for-boston-creek-mines-property-750797666)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1ctie2b/northstar_gold_corp_makes_strides_in_exploration/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ctie2b/northstar_gold_corp_makes_strides_in_exploration/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/16/gold9wAz.webp)

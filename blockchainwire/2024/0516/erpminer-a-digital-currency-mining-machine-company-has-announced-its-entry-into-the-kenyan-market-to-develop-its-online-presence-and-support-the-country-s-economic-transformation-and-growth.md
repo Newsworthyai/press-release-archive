@@ -18,9 +18,17 @@ As Erpminer continues to grow in the Kenyan market, it is expected to bring new 
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/erpminer-a-digital-currency-mining-machine-company-has-announced-its-entry-into-the-kenyan-market-to-develop-its-online-presence-and-support-the-countrys-economic-transformation-and-growth)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1ctmm31/erpminer_expanding_operations_in_kenya_to_capture/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1ctmm31/erpminer_expanding_operations_in_kenya_to_capture/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/16/joinhmnM.webp)

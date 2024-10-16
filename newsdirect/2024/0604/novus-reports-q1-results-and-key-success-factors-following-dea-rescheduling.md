@@ -98,9 +98,17 @@ Company Websitehttps://getnovusnow.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/novus-reports-q1-results-and-key-success-factors-following-dea-rescheduling-714937832 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/novus-reports-q1-results-and-key-success-factors-following-dea-rescheduling-714937832)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d7vluj/novus_cannabis_medplan_reports_q1_results_and_key/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d7vluj/novus_cannabis_medplan_reports_q1_results_and_key/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/4/deepVeUB.webp)

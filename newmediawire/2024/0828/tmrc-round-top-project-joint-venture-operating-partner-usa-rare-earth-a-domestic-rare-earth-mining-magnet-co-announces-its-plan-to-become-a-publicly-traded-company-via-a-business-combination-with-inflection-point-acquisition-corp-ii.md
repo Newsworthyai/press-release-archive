@@ -30,9 +30,17 @@ E-mail: amarchese@tmrcorp.com
 
 Twitter: @TexasMineralRes 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/tmrc-round-top-project-joint-venture-operating-partner-usa-rare-earth-a-domestic-rare-earth-mining-magnet-co-announces-its-plan-to-become-a-publicly-traded-company-via-a-business-combination-with-inflection-point-acquisition-corp-ii-7075971)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f7lowq/usa_rare_earth_plans_public_listing_through/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f7lowq/usa_rare_earth_plans_public_listing_through/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/2/beanu0dk.webp)

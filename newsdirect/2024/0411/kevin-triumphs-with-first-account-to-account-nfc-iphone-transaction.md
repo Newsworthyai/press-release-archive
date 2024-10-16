@@ -2,7 +2,7 @@
 
 --News Direct--
 
-In a ground-breaking event set to disrupt the in-store payment landscape, kevin., a pioneer in payment technology, has successfully conducted the first-ever account-to-account NFC transaction on an iPhone.
+New York, NY – In a groundbreaking event set to disrupt the in-store payment landscape, kevin., a pioneer in payment technology, has successfully conducted the first-ever account-to-account NFC transaction on an iPhone.
 
 Video of transaction: link
 
@@ -23,8 +23,6 @@ Looking ahead, the industry anticipates a surge in similar payment solutions fol
 kevin. is a visionary technology firm reshaping payment systems for tomorrow’s needs. From their global headquarters in Europe to the recent expansion into the bustling financial hub of Dubai, kevin.’s mission has been consistent: to offer reliable end-to-end technology and significant savings on transaction fees without changing the way people pay. The introduction of their multi-tenant, brand-agnostic payment acceptance network marks a significant shift for consumers and businesses alike, granting autonomy and value unimpeded by the constraints of legacy technology.
 
 Download: Kevin logo, image of Pavel Sokolovas and iOS transaction video: link
-
-- ends -
 
 About kevin.
 
@@ -48,11 +46,19 @@ nick.leighton@nettresultsLLC.com
 
 Company Websitehttps://www.kevin.eu/
 
-View source version on newsdirect.com: https://newsdirect.com/news/kevin-triumphs-with-first-account-to-account-nfc-iphone-transaction-585951130 
+View source version on newsdirect.com: https://newsdirect.com/news/kevin-triumphs-with-first-account-to-account-nfc-iphone-transaction-471876851 
 
-[Original/Source Press Release](https://newsdirect.com/news/kevin-triumphs-with-first-account-to-account-nfc-iphone-transaction-585951130)
+---
+
+[Original/Source Press Release](https://newsdirect.com/news/kevin-triumphs-with-first-account-to-account-nfc-iphone-transaction-471876851)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c1ddgl/kevin_achieves_groundbreaking_accounttoaccount/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c1h4p8/kevin_breaks_ground_with_firstever_iphone_nfc/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/filobgy6.webp)

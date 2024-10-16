@@ -28,9 +28,17 @@ Company Websitehttps://camilkbank.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/mothers-milk-bank-california-welcomes-new-board-members-510332688 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/mothers-milk-bank-california-welcomes-new-board-members-510332688)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1fjpbho/mothers_milk_bank_california_welcomes_new_board/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1fjpbho/mothers_milk_bank_california_welcomes_new_board/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/18/rice0Jdl.webp)

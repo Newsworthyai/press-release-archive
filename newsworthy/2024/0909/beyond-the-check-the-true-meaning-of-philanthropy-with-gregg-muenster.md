@@ -20,9 +20,17 @@ For more information about The Building Texas Show and to explore other episodes
 
 About The Building Texas ShowThe Building Texas Show is a podcast dedicated to exploring the stories, people, and ideas that are shaping the future of Texas. Each episode features in-depth interviews with leaders, innovators, and experts across various industries, providing listeners with unique insights into the challenges and opportunities facing Texas today. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202409091251/beyond-the-check-the-true-meaning-of-philanthropy-with-gregg-muenster)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fcph9o/beyond_the_check_the_true_meaning_of_philanthropy/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fcph9o/beyond_the_check_the_true_meaning_of_philanthropy/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/249/9/pearvTi8.webp)

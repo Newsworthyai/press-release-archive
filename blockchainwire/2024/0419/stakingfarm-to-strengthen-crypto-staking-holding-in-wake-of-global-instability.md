@@ -55,9 +55,17 @@ Website: www.stakingfarm.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-to-strengthen-crypto-staking--holding-in-wake-of-global-instability)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c8bipe/cryptocurrency_market_adds_over_100_billion/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c8bipe/cryptocurrency_market_adds_over_100_billion/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/19/mark3CU2.webp)

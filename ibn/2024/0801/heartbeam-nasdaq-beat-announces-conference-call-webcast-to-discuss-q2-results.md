@@ -30,9 +30,17 @@ HeartBeam(NASDAQ: BEAT), a medical technology company focused on transforming c
 
  BioMedWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/heartbeam-nasdaq-beat-announces-conference-call-webcast-to-discuss-q2-results/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1f2fu4r/heartbeam_to_host_conference_call_on_q2_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1f2fu4r/heartbeam_to_host_conference_call_on_q2_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/nukeQkfv.webp)

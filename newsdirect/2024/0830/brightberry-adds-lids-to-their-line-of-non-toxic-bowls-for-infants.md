@@ -32,9 +32,17 @@ Company Websitehttps://brightberry.com.au/
 
 View source version on newsdirect.com: https://newsdirect.com/news/brightberry-adds-lids-to-their-line-of-non-toxic-bowls-for-infants-360754380 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/brightberry-adds-lids-to-their-line-of-non-toxic-bowls-for-infants-360754380)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1f4wltt/brightberry_introduces_spillprevention_lids_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1f4wltt/brightberry_introduces_spillprevention_lids_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/30/zeal_c2j.webp)

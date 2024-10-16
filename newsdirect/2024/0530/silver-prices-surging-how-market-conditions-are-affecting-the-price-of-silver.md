@@ -66,9 +66,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/silver-prices-surging-how-market-conditions-are-affecting-the-price-of-silver-904049082 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/silver-prices-surging-how-market-conditions-are-affecting-the-price-of-silver-904049082)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d43h7h/silver_prices_surge_how_market_conditions_are/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d43h7h/silver_prices_surge_how_market_conditions_are/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/30/calmGDKS.webp)

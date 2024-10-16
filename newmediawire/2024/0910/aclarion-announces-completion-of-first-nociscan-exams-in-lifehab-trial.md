@@ -50,9 +50,17 @@ SPRIG Consulting
 
 jodi@sprigconsulting.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/aclarion-announces-completion-of-first-nociscan-exams-in-lifehab-trial-7076029)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1fdfeb0/aclarion_completes_nociscan_exams_for_initial/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1fdfeb0/aclarion_completes_nociscan_exams_for_initial/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/10/seekHLsG.webp)

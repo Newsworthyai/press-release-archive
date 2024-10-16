@@ -28,9 +28,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/rezolve-ai-wants-to-push-the-boundaries-of-online-sales-and-improving-consumer-experience-198299343 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/rezolve-ai-wants-to-push-the-boundaries-of-online-sales-and-improving-consumer-experience-198299343)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fyyumw/rezolve_ai_ceo_dan_wagner_discusses_new/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fyyumw/rezolve_ai_ceo_dan_wagner_discusses_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/8/pinkN_MI.webp)

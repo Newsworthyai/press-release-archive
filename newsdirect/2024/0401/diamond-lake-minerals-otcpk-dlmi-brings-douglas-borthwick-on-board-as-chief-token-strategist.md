@@ -38,9 +38,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/diamond-lake-minerals-otcpk-dlmi-brings-douglas-borthwick-on-board-as-chief-token-strategist-786451051 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/diamond-lake-minerals-otcpk-dlmi-brings-douglas-borthwick-on-board-as-chief-token-strategist-786451051)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bt876f/diamond_lake_minerals_bolsters_leadership/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bt876f/diamond_lake_minerals_bolsters_leadership/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/1/ninapmFZ.webp)

@@ -38,9 +38,17 @@ Telegram: https://t.me/zchains_io
 
 Discord: https://discord.com/invite/fqfanc7SzP Instagram: https://www.instagram.com/zchains.io/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-fractionz-the-first-token-launchpad-on-zchains)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f3hq2f/fractionz_teased_tokenization_project_unveiled_on/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f3hq2f/fractionz_teased_tokenization_project_unveiled_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/28/lossuWif.webp)

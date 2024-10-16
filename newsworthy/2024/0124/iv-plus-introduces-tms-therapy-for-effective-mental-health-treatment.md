@@ -10,9 +10,17 @@ While TMS Therapy offers a novel approach to mental health treatment, it is a no
 
 IV Plus prioritizes individualized care, aiming to improve the lives of individuals struggling with mental health conditions. TMS Therapy represents a breakthrough in our commitment to providing the best care possible. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401241031/iv-plus-introduces-tms-therapy-for-effective-mental-health-treatment)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlf5r/iv_plus_introduces_tms_therapy_for_mental_health/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlf5r/iv_plus_introduces_tms_therapy_for_mental_health/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/seekC33N.webp)

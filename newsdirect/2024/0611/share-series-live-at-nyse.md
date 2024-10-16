@@ -22,9 +22,17 @@ Company Websitehttps://share-series.open-exchange.net
 
 View source version on newsdirect.com: https://newsdirect.com/news/share-series-live-at-nyse-572512612 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/share-series-live-at-nyse-572512612)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1ddg92f/share_series_hosts_event_at_nyse_with_highgrowth/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1ddg92f/share_series_hosts_event_at_nyse_with_highgrowth/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/11/knotbQ_b.webp)

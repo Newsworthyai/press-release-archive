@@ -28,9 +28,17 @@
 
  BioMedWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-ceo-discusses-findings-of-buntanetap-alzheimers-study-on-bell2bell-podcast/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1f2gw6m/annovis_bio_presents_breakthrough_alzheimers/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f2gw6m/annovis_bio_presents_breakthrough_alzheimers/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/coolALjc.webp)

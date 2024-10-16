@@ -6,9 +6,17 @@ During the event period, BitMart users can complete various tasks in Spot tradin
 
 For more details and T&Cs, please visit: https://www.bitmart.com/activity/2024Paris/en-US 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-launches-2024-epic-paris-campaign-with-50000-usdt-in-rewards)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ecgu3g/bitmart_launches_2024_epic_paris_campaign_for/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ecgu3g/bitmart_launches_2024_epic_paris_campaign_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/26/quipRdLb.webp)

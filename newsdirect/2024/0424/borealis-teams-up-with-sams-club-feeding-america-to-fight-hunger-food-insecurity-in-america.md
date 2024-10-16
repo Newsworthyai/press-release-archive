@@ -42,9 +42,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/borealis-teams-up-with-sams-club-feeding-america-to-fight-hunger-food-insecurity-in-america-383310197 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/borealis-teams-up-with-sams-club-feeding-america-to-fight-hunger-food-insecurity-in-america-383310197)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cbxkhv/feeding_america_and_sams_club_join_forces_with/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cbxkhv/feeding_america_and_sams_club_join_forces_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/24/bakeprtb.webp)

@@ -30,9 +30,17 @@ About Camptra Technologies
 
 Camptra Technologies is a premier provider of Oracle-based solutions, offering a comprehensive suite of products and services tailored to the needs of Oracle clients. With a focus on delivering innovative and scalable solutions, Camptra Technologies empowers organizations to optimize their Oracle ecosystems, driving efficiency, productivity, and business growth. With a team of seasoned professionals and a proven track record of success, Camptra Technologies is a trusted partner for organizations seeking to harness the full potential of Oracle technologies. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402261101/rchilli-and-camptra-technologies-collaborate-to-transform-hiring-practices-for-oracle-clients)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HRnews/comments/1b6rr1g/rchilli_announces_strategic_partnership_with/
+
+
+[Reddit Post](https://www.reddit.com/r/HRnews/comments/1b6rr1g/rchilli_announces_strategic_partnership_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/26/poemhq2G.webp)

@@ -42,9 +42,17 @@ press@metawin.inc
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-meme-coin-launch-rocky-surges-past-20m-market-cap-in-3-days-defying-the-market-trends-488745869 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/new-meme-coin-launch-rocky-surges-past-20m-market-cap-in-3-days-defying-the-market-trends-488745869)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1chso2h/new_meme_coin_rocky_surges_past_20m_market_cap_in/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1chso2h/new_meme_coin_rocky_surges_past_20m_market_cap_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/yarnugco.webp)

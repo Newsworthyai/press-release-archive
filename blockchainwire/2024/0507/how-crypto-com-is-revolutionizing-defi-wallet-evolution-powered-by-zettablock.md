@@ -43,9 +43,17 @@ Like what you see? Developers looking to build new wallet applications or stream
 
 Join us in shaping the future of DeFi! 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/how-cryptocom-is-revolutionizing-defi-wallet-evolution-powered-by-zettablock)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cmcy9z/cryptocom_introduces_degen_arcade_to_simplify/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cmcy9z/cryptocom_introduces_degen_arcade_to_simplify/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/7/nukeYHCK.webp)

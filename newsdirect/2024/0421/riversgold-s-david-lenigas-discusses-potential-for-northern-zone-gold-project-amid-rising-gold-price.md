@@ -20,9 +20,17 @@ writers.australia@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/riversgolds-david-lenigas-discusses-potential-for-northern-zone-gold-project-amid-rising-gold-price-459664510 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/riversgolds-david-lenigas-discusses-potential-for-northern-zone-gold-project-amid-rising-gold-price-459664510)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c9vn11/riversgolds_david_lenigas_discusses_potential_for/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c9vn11/riversgolds_david_lenigas_discusses_potential_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/21/glueXV44.webp)

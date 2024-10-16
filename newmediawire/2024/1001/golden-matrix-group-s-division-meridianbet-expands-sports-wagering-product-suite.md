@@ -40,9 +40,17 @@ Brett Milotte
 
 Brett.Milotte@icrinc.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-s-division-meridianbet-expands-sports-wagering-product-suite-7076129)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ftmw4a/golden_matrix_group_expands_meridianbet_product/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ftmw4a/golden_matrix_group_expands_meridianbet_product/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/1/boldIvy4.webp)

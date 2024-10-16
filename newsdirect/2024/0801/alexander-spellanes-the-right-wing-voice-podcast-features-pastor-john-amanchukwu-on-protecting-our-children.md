@@ -24,9 +24,17 @@ Company Websitehttps://www.fishercapitalgroup.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/alexander-spellanes-the-right-wing-voice-podcast-features-pastor-john-amanchukwu-on-protecting-our-children-846656608 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/alexander-spellanes-the-right-wing-voice-podcast-features-pastor-john-amanchukwu-on-protecting-our-children-846656608)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1ehoik7/the_right_wing_voice_podcast_features_pastor_john/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ehoik7/the_right_wing_voice_podcast_features_pastor_john/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/1/cakejCsf.webp)

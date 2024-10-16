@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-this-silver-miner-beat-expectations-in-its-recent-earnings-report-and-what-it-has-planned-next-454932842 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/how-this-silver-miner-beat-expectations-in-its-recent-earnings-report-and-what-it-has-planned-next-454932842)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f45wj9/silver_miner_beats_expectations_and_expands_amid/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f45wj9/silver_miner_beats_expectations_and_expands_amid/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/29/plum7Ncx.webp)

@@ -46,9 +46,17 @@ In an economy where lines between business owners, investors, and consumers are 
 
 About Cookie DAO:The Cookie DAO is an independent, decentralized collective of MarketingFi enthusiasts aiming to bolster decentralization through innovative blockchain solutions. It created the $COOKIE token and injected it into the Cookie ecosystem, by establishing a strategic partnership with Cookie3, to drive the MarketingFi ethos forward through governance and tokenized support. Anyone can become a member of the Cookie DAO. The sole requirement is to believe in MarketingFi and want to drive the MarketingFi economy forward. Cookie DAO members are encouraged to hold and stake $COOKIE for access to additional rewards and voting rights on matters relating to the Cookie DAO’s treasury and future.For more information, visit:[cookie.community](https://cookie.community/?utm_campaign=ido&utm_source=chainwire&utm_term=chainwire) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/chaingpt-pad-launches-cookie-to-introduce-marketingfi-a-transparent-decentralized-and-user-centric-approach-to-marketing)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d7xjc7/chaingpt_cookie3_and_cookie_dao_launch_cookie_ido/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d7xjc7/chaingpt_cookie3_and_cookie_dao_launch_cookie_ido/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/bakejdMh.webp)

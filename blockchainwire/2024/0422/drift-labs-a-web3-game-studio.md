@@ -72,9 +72,17 @@ As a leading global platform for cryptocurrency and blockchain technology, Coins
 
 Coinstore Social MediaTwitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Telegram Announcement 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/drift-labs---a-web3-game-studio)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1cajb4v/drift_labs_introduces_drift_token_for_web3_gaming/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1cajb4v/drift_labs_introduces_drift_token_for_web3_gaming/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/22/fine51KZ.webp)

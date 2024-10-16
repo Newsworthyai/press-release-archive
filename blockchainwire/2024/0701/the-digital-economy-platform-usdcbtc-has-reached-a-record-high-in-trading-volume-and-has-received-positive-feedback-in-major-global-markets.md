@@ -18,9 +18,17 @@ In the thriving digital economy, Usdcbtc's success undoubtedly sets a benchmark 
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-digital-economy-platform-usdcbtc-has-reached-a-record-high-in-trading-volume-and-has-received-positive-feedback-in-major-global-markets)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dsybgo/usdcbtc_achieves_recordhigh_trading_volume/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dsybgo/usdcbtc_achieves_recordhigh_trading_volume/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/1/dashMLGT.webp)

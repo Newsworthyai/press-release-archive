@@ -59,9 +59,17 @@ Get Started Today:
 
 Visit CryptoGames to start playing, and stay tuned for more exciting updates! 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptogames-unveils-exciting-updates-introducing-shiba-inu-new-lotteries-and-matic-to-pol-migration)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fu1w38/cryptogames_introduces_shiba_inu_new_lotteries/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fu1w38/cryptogames_introduces_shiba_inu_new_lotteries/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/1/warp_nyu.webp)

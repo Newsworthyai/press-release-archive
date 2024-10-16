@@ -52,9 +52,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-ranks-as-top-4-exchange-by-liquidity-aspiring-to-be-synonymous-with-quality-assets-840261638 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-ranks-as-top-4-exchange-by-liquidity-aspiring-to-be-synonymous-with-quality-assets-840261638)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1de7dey/htx_ranks_as_top_4_exchange_by_liquidity_aspiring/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1de7dey/htx_ranks_as_top_4_exchange_by_liquidity_aspiring/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/12/openxCt9.webp)

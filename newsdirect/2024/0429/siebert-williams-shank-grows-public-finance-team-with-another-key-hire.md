@@ -36,9 +36,17 @@ Company Websitehttps://www.siebertwilliams.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/siebert-williams-shank-grows-public-finance-team-with-another-key-hire-959707364 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/siebert-williams-shank-grows-public-finance-team-with-another-key-hire-959707364)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cg7nvo/siebert_williams_shank_grows_public_finance_team/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cg7nvo/siebert_williams_shank_grows_public_finance_team/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/29/harpxoPk.webp)

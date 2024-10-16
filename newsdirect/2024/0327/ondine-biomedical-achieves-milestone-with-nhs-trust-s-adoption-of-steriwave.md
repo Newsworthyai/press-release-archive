@@ -20,9 +20,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ondine-biomedical-achieves-milestone-with-nhs-trusts-adoption-of-steriwave-811326980 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ondine-biomedical-achieves-milestone-with-nhs-trusts-adoption-of-steriwave-811326980)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bp2l06/ondine_biomedical_achieves_milestone_with_nhs/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bp2l06/ondine_biomedical_achieves_milestone_with_nhs/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/larkV_mM.webp)

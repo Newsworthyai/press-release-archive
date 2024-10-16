@@ -38,9 +38,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-liquid-restaking-doubles-reward-pool-with-quota-rising-to-100m-and-launches-reward-boosters-768389186 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-liquid-restaking-doubles-reward-pool-with-quota-rising-to-100m-and-launches-reward-boosters-768389186)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1bnudmt/htx_liquid_restaking_doubles_reward_pool_and/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1bnudmt/htx_liquid_restaking_doubles_reward_pool_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/fond9MWX.webp)

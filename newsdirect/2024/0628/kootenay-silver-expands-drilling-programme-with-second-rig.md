@@ -16,9 +16,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kootenay-silver-expands-drilling-programme-with-second-rig-981465831 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kootenay-silver-expands-drilling-programme-with-second-rig-981465831)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dqtklu/kootenay_silver_expands_drilling_program_with/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dqtklu/kootenay_silver_expands_drilling_program_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/28/facenLHT.webp)

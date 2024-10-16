@@ -54,9 +54,17 @@ Company Websitehttps://navex.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/navex-2024-global-incident-management-benchmark-study-reveals-significant-third-party-reporting-to-companies-276410195 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/navex-2024-global-incident-management-benchmark-study-reveals-significant-third-party-reporting-to-companies-276410195)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bo497u/navex_releases_2024_whistleblowing_incident/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bo497u/navex_releases_2024_whistleblowing_incident/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/iris799F.webp)

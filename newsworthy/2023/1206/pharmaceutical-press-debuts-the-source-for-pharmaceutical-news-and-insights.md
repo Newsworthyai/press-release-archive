@@ -18,9 +18,17 @@ Pharmaceutical.press is devoted to delivering up-to-the-minute news, insights, a
 
 To stay at the forefront of pharmaceutical news and discussions, visit www.Pharmaceutical.press. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231206861/pharmaceutical-press-debuts-the-source-for-pharmaceutical-news-and-insights)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcthm/introducing_pharmaceuticalpress_your/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcthm/introducing_pharmaceuticalpress_your/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/larkw85x.webp)

@@ -27,9 +27,17 @@ About Trusaic
 
 At Trusaic, we’re on a mission to empower organizations to create a more equitable working world for all. We champion human potential through our industry-leading technology platform and first-to-market partnerships and integrations, enabling organizations to achieve pay equity, foster a more diverse and inclusive workforce, hire economically disadvantaged individuals, and ensure employee access to affordable healthcare. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202404241109/trusaic-aca-complete-software-provides-comprehensive-visibility-into-irs-penalty-risk-1-in-4-organizations-are-audited-for-aca-non-compliance)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cbzwq4/trusaic_announces_enhancements_to_aca_complete/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cbzwq4/trusaic_announces_enhancements_to_aca_complete/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/244/24/roam6G1r.webp)

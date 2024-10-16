@@ -16,9 +16,17 @@ The community has embraced the speech of Dr Hani and were proud to have a leader
 
 This has encouraged a group of crypto activists to launch an NFT collection under the name of Free Palestine with Hani Asfar and gifted this move to Dr Hani and the team of GCB. In response, Dr Hani decided to donate all the profits to support the Victims of Gaza.Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/dr-hani-asfar-founder--ceo-of-gcb-international--strikes-everyone-with-his-speech-during-istanbul-blockchain-week-2024-highlighting-on-free-palestine-which-had-a-huge-echo-in-the-markets)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f1r8hi/prominent_companies_and_industry_experts_gather/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f1r8hi/prominent_companies_and_industry_experts_gather/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/19/vibeVIjH.webp)

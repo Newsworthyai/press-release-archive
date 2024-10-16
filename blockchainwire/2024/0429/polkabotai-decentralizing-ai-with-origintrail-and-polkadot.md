@@ -8,9 +8,17 @@ The Polkabot.ai initiative received backing through an OpenGov treasury proposal
 
 Stay updated with the latest developments by following PolkaBotAI on X. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/polkabotai---decentralizing-ai-with-origintrail-and-polkadot)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cg4m3q/origintrails_verifiable_internet_for_ai/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cg4m3q/origintrails_verifiable_internet_for_ai/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/29/tallSExC.webp)

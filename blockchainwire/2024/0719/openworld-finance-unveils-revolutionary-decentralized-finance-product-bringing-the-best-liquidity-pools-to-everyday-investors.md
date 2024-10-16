@@ -28,8 +28,15 @@ Homepage: ow.finance
 
 Contract address: 0x58cb98a966f62aa6f2190eb3aa03132a0c3de3d5 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/openworld-finance-unveils-revolutionary-decentralized-finance-product-bringing-the-best-liquidity-pools-to-everyday-investors)
                     
 
 [Newsramp.com TLDR](None) 
 
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/19/yogayMQp.webp)

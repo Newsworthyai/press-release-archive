@@ -20,9 +20,17 @@ As the All Universe team continues to grow and as the ecosystem gradually evolve
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/all-universe-leading-the-new-era-of-virtual-and-physical-commerce)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvlnx1/all_universe_revolutionizing_virtual_and_physical/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvlnx1/all_universe_revolutionizing_virtual_and_physical/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/5/veilUdo_.webp)

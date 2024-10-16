@@ -255,9 +255,17 @@ Company Websitehttps://www.sigmaphoto.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/sigma-announces-24-70mm-f2-8-dg-dn-ii-art-lens-an-upgraded-follow-up-to-its-popular-standard-zoom-for-full-frame-mirrorless-cameras-492585571 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sigma-announces-24-70mm-f2-8-dg-dn-ii-art-lens-an-upgraded-follow-up-to-its-popular-standard-zoom-for-full-frame-mirrorless-cameras-492585571)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1ctbhjy/sigma_unveils_upgraded_2470mm_f28_dg_dn_ii_art/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1ctbhjy/sigma_unveils_upgraded_2470mm_f28_dg_dn_ii_art/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/16/jolt8aAT.webp)

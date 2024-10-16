@@ -38,9 +38,17 @@ Company Websitehttps://www.neuroskills.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/centre-for-neuro-skills-promotes-dr-omesh-singh-to-associate-chief-medical-officer-885794796 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/centre-for-neuro-skills-promotes-dr-omesh-singh-to-associate-chief-medical-officer-885794796)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cna2of/dr_omesh_singh_promoted_to_associate_chief/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cna2of/dr_omesh_singh_promoted_to_associate_chief/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/8/mailCqPN.webp)

@@ -46,9 +46,17 @@ For more information and updates, visit the website at https://winee3.io , or 
 
 With Winee3, step into the future of professional networking and be part of the revolution today! 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/winee3-launching-their-ai-driven-platform-for-professional-networking)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1avwz18/winee3_revolutionizing_professional_networking/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1avwz18/winee3_revolutionizing_professional_networking/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/19/zestyneX.webp)

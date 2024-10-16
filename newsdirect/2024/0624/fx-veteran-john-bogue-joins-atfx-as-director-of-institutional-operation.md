@@ -28,9 +28,17 @@ Company Websitehttps://www.atfx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/fx-veteran-john-bogue-joins-atfx-as-director-of-institutional-operation-893768884 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/fx-veteran-john-bogue-joins-atfx-as-director-of-institutional-operation-893768884)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1dnazoz/fx_veteran_john_bogue_joins_atfx_as_director_of/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1dnazoz/fx_veteran_john_bogue_joins_atfx_as_director_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/24/hikeWwso.webp)

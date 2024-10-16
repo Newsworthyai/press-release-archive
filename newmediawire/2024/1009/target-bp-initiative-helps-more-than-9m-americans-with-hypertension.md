@@ -47,9 +47,17 @@
 
  [1] Table 8-1. Heart Disease and Stroke Statistics—2024 Update: A Report From the American Heart Association. Circulation. 2024;149:e347-e913. https://www.ahajournals.org/doi/epub/10.1161/CIR.0000000000001209. 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/target-bp-initiative-helps-more-than-9m-americans-with-hypertension-7076169)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1fzsy52/american_heart_association_and_american_medical/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1fzsy52/american_heart_association_and_american_medical/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/9/sagea28Z.webp)

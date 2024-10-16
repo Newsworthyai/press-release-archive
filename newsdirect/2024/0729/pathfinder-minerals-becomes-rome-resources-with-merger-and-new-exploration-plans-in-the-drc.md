@@ -12,9 +12,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pathfinder-minerals-becomes-rome-resources-with-merger-and-new-exploration-plans-in-the-drc-740771948 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pathfinder-minerals-becomes-rome-resources-with-merger-and-new-exploration-plans-in-the-drc-740771948)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1ef2h5t/pathfinder_minerals_merges_with_rome_resources/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ef2h5t/pathfinder_minerals_merges_with_rome_resources/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/29/quitkNbf.webp)

@@ -38,9 +38,17 @@ gregwilsonpr@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pathway-lendings-hank-helton-elected-chair-of-cdfi-coalition-814647096 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pathway-lendings-hank-helton-elected-chair-of-cdfi-coalition-814647096)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bz3ips/pathway_lendings_hank_helton_elected_chair_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bz3ips/pathway_lendings_hank_helton_elected_chair_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/8/maskJMJB.webp)

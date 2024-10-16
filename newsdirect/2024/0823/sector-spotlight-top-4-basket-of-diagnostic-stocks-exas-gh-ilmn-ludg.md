@@ -36,9 +36,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sector-spotlight-top-4-basket-of-diagnostic-stocks-exas-gh-ilmn-ludg-857656365 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sector-spotlight-top-4-basket-of-diagnostic-stocks-exas-gh-ilmn-ludg-857656365)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ez91mp/diagnostic_stocks_thrive_amid_pandemic_fallout/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ez91mp/diagnostic_stocks_thrive_amid_pandemic_fallout/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/23/gleez3P5.webp)

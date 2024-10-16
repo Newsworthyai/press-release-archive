@@ -24,9 +24,17 @@ Company Websitehttps://www.agcbio.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/agc-biologics-begins-operations-at-new-state-of-the-art-manufacturing-building-in-copenhagen-after-successful-inspection-and-licensing-from-danish-medicines-agency-475663093 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/agc-biologics-begins-operations-at-new-state-of-the-art-manufacturing-building-in-copenhagen-after-successful-inspection-and-licensing-from-danish-medicines-agency-475663093)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1g0civb/agc_biologics_completes_milestone_at_new/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1g0civb/agc_biologics_completes_milestone_at_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/10/nukexNgH.webp)

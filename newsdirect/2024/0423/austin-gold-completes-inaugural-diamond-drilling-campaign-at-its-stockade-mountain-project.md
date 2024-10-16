@@ -40,9 +40,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/austin-gold-completes-inaugural-diamond-drilling-campaign-at-its-stockade-mountain-project-487216368 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/austin-gold-completes-inaugural-diamond-drilling-campaign-at-its-stockade-mountain-project-487216368)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cb40ij/austin_gold_completes_inaugural_diamond_drilling/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cb40ij/austin_gold_completes_inaugural_diamond_drilling/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/23/lushT3Mp.webp)

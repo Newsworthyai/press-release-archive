@@ -26,9 +26,17 @@ About MARU
 
 marumaruNFT is a groundbreaking NFT marketplace that focuses on Japan's nightlife culture, particularly the cabaret and host club scene. By offering unique NFT content centered around the stories of individuals in this vibrant industry, marumaruNFT aims to revolutionize the concept of NFT models and create new opportunities for creators and fans. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/maru-an-nft-marketplace-and-metaverse-hub-will-be-listed-on-coinw-exchange)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1c5j3y1/coinw_to_list_maru_nft_marketplace_for_japans/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1c5j3y1/coinw_to_list_maru_nft_marketplace_for_japans/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/16/evenabm8.webp)

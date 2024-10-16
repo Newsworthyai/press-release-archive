@@ -46,9 +46,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/wrapped-dog-wdog-launches-on-solana-with-revolutionary-decentralized-model-no-social-media-pure-community-engagement)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f0d9z1/wrapped_dog_wdog_the_future_of_decentralized/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f0d9z1/wrapped_dog_wdog_the_future_of_decentralized/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/24/airy4YVx.webp)

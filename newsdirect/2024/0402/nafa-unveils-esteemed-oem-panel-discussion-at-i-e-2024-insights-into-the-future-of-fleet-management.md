@@ -33,9 +33,17 @@ Company Websitehttps://www.nafa.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/nafa-unveils-esteemed-oem-panel-discussion-at-iande-2024-insights-into-the-future-of-fleet-management-558066415 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nafa-unveils-esteemed-oem-panel-discussion-at-iande-2024-insights-into-the-future-of-fleet-management-558066415)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bu6f6h/nafa_announces_oem_panel_discussion_at_ie_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bu6f6h/nafa_announces_oem_panel_discussion_at_ie_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/2/lossds3t.webp)

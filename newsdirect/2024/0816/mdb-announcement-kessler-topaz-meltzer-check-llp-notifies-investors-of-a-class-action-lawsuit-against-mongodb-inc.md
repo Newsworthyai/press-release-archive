@@ -56,9 +56,17 @@ Company Websitehttps://www.ktmc.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mdb-announcement-kessler-topaz-meltzer-and-check-llp-notifies-investors-of-a-class-action-lawsuit-against-mongodb-inc-268258664 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/mdb-announcement-kessler-topaz-meltzer-and-check-llp-notifies-investors-of-a-class-action-lawsuit-against-mongodb-inc-268258664)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1etq5xx/securities_class_action_lawsuit_against_mongodb/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1etq5xx/securities_class_action_lawsuit_against_mongodb/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/16/vibeD7QV.webp)

@@ -28,9 +28,17 @@ madeleine.worrall@bevelpr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/jessica-dalziel-elevated-to-chief-client-officer-at-avenue-z-650540779 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/jessica-dalziel-elevated-to-chief-client-officer-at-avenue-z-650540779)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/MarketingNewsramp/comments/1cx8duh/jessica_dalziel_elevated_to_chief_client_officer/
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1cx8duh/jessica_dalziel_elevated_to_chief_client_officer/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/21/lilyVfrB.webp)

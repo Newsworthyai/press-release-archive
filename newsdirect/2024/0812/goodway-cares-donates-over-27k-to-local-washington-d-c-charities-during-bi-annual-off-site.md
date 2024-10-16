@@ -36,9 +36,17 @@ Company Websitehttps://www.goodwaygroup.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/goodway-cares-donates-over-27k-to-local-washington-d-c-charities-during-bi-annual-off-site-841309667 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/goodway-cares-donates-over-27k-to-local-washington-d-c-charities-during-bi-annual-off-site-841309667)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eqeqns/goodway_cares_donates_27k_to_local_charities/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eqeqns/goodway_cares_donates_27k_to_local_charities/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/12/healb8YZ.webp)

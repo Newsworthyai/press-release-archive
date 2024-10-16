@@ -81,9 +81,17 @@ Statement Highlights:
 
  heart.org and stroke.org 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/heart-failure-atrial-fibrillation-coronary-heart-disease-linked-to-cognitive-impairment-7076176)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1g0etpg/new_research_links_cardiovascular_diseases_to/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1g0etpg/new_research_links_cardiovascular_diseases_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/10/duald5n8.webp)

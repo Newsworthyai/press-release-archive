@@ -59,9 +59,17 @@ Website: www.stakingfarm.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-aiming-to-innovate-with-new-staking-as-a-business-service)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c1m0l3/stakingfarm_to_launch_stakingasabusiness/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c1m0l3/stakingfarm_to_launch_stakingasabusiness/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/11/fernUOho.webp)

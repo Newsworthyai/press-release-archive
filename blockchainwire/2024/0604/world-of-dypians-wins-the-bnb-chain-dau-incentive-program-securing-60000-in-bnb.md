@@ -26,9 +26,17 @@ Another significant achievement for WOD was its handpicked selection for BNB Cha
 
 You can learn more about World of Dypians and stay up-to-date with its development at these links: Website | Twitter | Discord | Telegram | GitHub | YouTube | Download on Epic Games 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/world-of-dypians-wins-the-bnb-chain-dau-incentive-program-securing-60000-in-bnb)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1d7rcfd/world_of_dypians_wins_bnb_chain_dau_incentive/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1d7rcfd/world_of_dypians_wins_bnb_chain_dau_incentive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/bossOU4Q.webp)

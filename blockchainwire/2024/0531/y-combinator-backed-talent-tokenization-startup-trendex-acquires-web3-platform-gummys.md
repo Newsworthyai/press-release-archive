@@ -26,9 +26,17 @@ About TrendexTrendex is a pioneering platform in talent tokenization, allowing u
 
 Media ContactContact Person and Position: Kathleen Ryan, COO Company website: [https://www.trendex.vip/](https://www.trendex.vip/)Company email: [contact@trendex.tech](mailto:contact@trendex.tech)Links on social media: [https://www.instagram.com/trendex_official](https://www.instagram.com/trendex_official) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/y-combinator-backed-talent-tokenization-startup-trendex-acquires-web3-platform-gummys)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fvbitk/trendex_expands_into_us_market_with_nba/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fvbitk/trendex_expands_into_us_market_with_nba/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/cornTeJS.webp)

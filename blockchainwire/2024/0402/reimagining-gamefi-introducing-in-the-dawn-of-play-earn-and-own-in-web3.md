@@ -54,9 +54,17 @@ Join us as we craft a new chapter in gaming history. The world of "IN" awaits yo
 
 Instagram: [https://instagram.com/in.ongame](https://proficientpr.com/wp-json/wp-mail-smtp/v1/e/ZGF0YSU1QmVtYWlsX2xvZ19pZCU1RD0xMDQwJmRhdGElNUJldmVudF90eXBlJTVEPWNsaWNrLWxpbmsmZGF0YSU1Qm9iamVjdF9pZCU1RD0xODc5JmRhdGElNUJ1cmwlNUQ9aHR0cHMlMjUzQSUyNTJGJTI1MkZpbnN0YWdyYW0uY29tJTI1MkZpbi5vbmdhbWUmaGFzaD1hMTI4MGQ0YTk2ZGE2OTQ2YTJhM2ZjNzQ2YzA2NWNjN2ZiOTI1M2YzNGE2NTUzZTAzNTcxNzE3ZDM1ZGEyMjJl) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/reimagining-gamefi-introducing-in---the-dawn-of-play-earn-and-own-in-web3)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1bud3na/ongames_in_project_redefines_gaming_with/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1bud3na/ongames_in_project_redefines_gaming_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/2/knotmUZL.webp)

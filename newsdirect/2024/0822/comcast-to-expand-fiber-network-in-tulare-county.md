@@ -46,9 +46,17 @@ Company Websitehttps://california.comcast.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/comcast-to-expand-fiber-network-in-tulare-county-962658782 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/comcast-to-expand-fiber-network-in-tulare-county-962658782)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eytd03/comcast_to_expand_fiber_network_in_tulare_county/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eytd03/comcast_to_expand_fiber_network_in_tulare_county/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/22/clubFsFj.webp)

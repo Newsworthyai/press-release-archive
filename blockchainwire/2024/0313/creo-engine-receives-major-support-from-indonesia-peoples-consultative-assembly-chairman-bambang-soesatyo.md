@@ -20,9 +20,17 @@ Bambang Soesatyo concluded, "Creo Engine's local web3 game project continues to 
 
 About Creo EngineCreo Engine is a Web3 gaming platform dedicated to gamers & developers worldwide. Developers can join the platform and leverage Creo Engine’s users-based ecosystem at [www.creoplay.app](https://www.globenewswire.com/Tracker?data=ddaSrynRNBgfu-vxErGps3cRl9CoAOj4zbtswjca64B6Mk3wsjw8MkFOm2FjQdTU45QtPFFLIw8nBvW-HeW2xLcz9OVJpiweT5w9VxMnozE=) - a gamepedia with next-level features, or via CreoDapps - a ready-to-use tool for those looking to convert from Web2 to Web3 games. Creo Engine also delivered top-notch creations crafted by their in-house studio, ‘Nomina Games.’[https://www.creoengine.com/](https://www.globenewswire.com/Tracker?data=_PYTeR5BlE0StB3rYgi6yW1HfyWsWbV-JkguDe6VzgIML4fwpf3AquXV9o_DT67D94I4m9cw-pr5kYboxqvBStmXrW7LXUOv8tf_Qn27I8o=)Contract address: 0x9521728bF66a867BC65A93Ece4a543D817871Eb7 Ticker : CREO 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/creo-engine-receives-major-support-from-indonesia-peoples-consultative-assembly-chairman-bambang-soesatyo)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1bdyqc5/indonesian_political_leader_endorses_web3_game/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1bdyqc5/indonesian_political_leader_endorses_web3_game/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/13/joke91No.webp)

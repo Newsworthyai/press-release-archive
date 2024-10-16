@@ -23,9 +23,17 @@ About RChilli
 
 RChilli resume parser for ERP recruiting simplifies the recruitment process across 50+ countries through smart automation, with features that streamline hiring. Powered by deep learning, RChilli’s multilingual parsing solution and enhanced taxonomy, parses resumes in 27+ languages, enhances positive candidate and recruiter experience, and processes 4.1 billion+ docs per year. Enabling Oracle, PeopleSoft, & Salesforce clients to hire better and faster since 2021, RChilli is ISO 27001:2013, SOC 2 Type II, and HIPAA certified, and GDPR compliant. Powered by deep learning, RChilli’s resume parsing app is available on Oracle Cloud Marketplace and Salesforce AppExchange. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202405281177/vinay-johar-to-speak-at-ascend-2024-on-future-proofing-hiring-via-automation)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d2q4yj/rchilli_ceo_vinay_johar_to_speak_at_ascend_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d2q4yj/rchilli_ceo_vinay_johar_to_speak_at_ascend_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/245/28/rice9NJM.webp)

@@ -44,9 +44,17 @@ Company Websitehttps://www.freepik.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/freepik-unveils-ai-driven-design-transformations-revitalizing-local-small-businesses-in-san-franciscos-excelsior-district-as-part-of-the-neighborhood-design-project-592858311 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/freepik-unveils-ai-driven-design-transformations-revitalizing-local-small-businesses-in-san-franciscos-excelsior-district-as-part-of-the-neighborhood-design-project-592858311)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cbz2x4/freepik_unveils_aidriven_design_transformations/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cbz2x4/freepik_unveils_aidriven_design_transformations/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/19/icyLTIv.webp)

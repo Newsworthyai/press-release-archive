@@ -22,9 +22,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kefi-gold-and-copper-chairman-says-stars-are-aligning-with-gold-at-2-400-432307258 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kefi-gold-and-copper-chairman-says-stars-are-aligning-with-gold-at-2-400-432307258)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1c5do5d/kefi_gold_and_copper_chairman_projects_90_million/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1c5do5d/kefi_gold_and_copper_chairman_projects_90_million/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/jinxQqbs.webp)

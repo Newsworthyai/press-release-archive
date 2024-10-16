@@ -45,9 +45,17 @@ Visit Our Website
  * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/lumer-timeless-health-clinic/news_release/1474)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AlternativeHealthNews/comments/1d8xqjj/lumèr_timeless_health_clinic_announces_grand/
+
+
+[Reddit Post](https://www.reddit.com/r/AlternativeHealthNews/comments/1d8xqjj/lumèr_timeless_health_clinic_announces_grand/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/246/5/ricez5dC.webp)

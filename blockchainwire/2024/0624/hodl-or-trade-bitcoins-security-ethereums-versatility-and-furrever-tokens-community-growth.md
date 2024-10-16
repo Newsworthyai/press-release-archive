@@ -28,9 +28,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 
 CONTACT: Media Contact: Robert Smith https://furrevertoken.com/ support-at-furrevertoken.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/hodl-or-trade-bitcoins-security-ethereums-versatility-and-furrever-tokens-community-growth)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dnptmc/bitcoin_ethereum_and_furrever_token_a/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dnptmc/bitcoin_ethereum_and_furrever_token_a/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/24/voltYX_m.webp)

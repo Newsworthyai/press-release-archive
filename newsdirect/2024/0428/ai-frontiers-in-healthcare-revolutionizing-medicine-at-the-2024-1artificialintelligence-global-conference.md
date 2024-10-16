@@ -40,9 +40,17 @@ Company Websitehttps://1businessworld.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ai-frontiers-in-healthcare-revolutionizing-medicine-at-the-2024-1artificialintelligence-global-conference-675492780 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ai-frontiers-in-healthcare-revolutionizing-medicine-at-the-2024-1artificialintelligence-global-conference-675492780)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cfes9r/global_ai_conference_to_explore_ais_impact_on/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cfes9r/global_ai_conference_to_explore_ais_impact_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/28/jazzQDYQ.webp)

@@ -54,9 +54,17 @@ Thank you for being a part of our journey. Let's embark on a blockchain adventur
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptopia-celebrates-successful-token-launch-on-gateio)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dszj1z/cryptopia_launches_token_on_gateio_celebrates/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dszj1z/cryptopia_launches_token_on_gateio_celebrates/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/1/milktAfX.webp)

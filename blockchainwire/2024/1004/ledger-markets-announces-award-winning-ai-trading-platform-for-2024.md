@@ -28,9 +28,17 @@ For UK traders seeking an edge in the stock market, Ledger Markets’ AI-powered
 
 To learn more about how Ledger Markets can help you succeed in the stock market, visit their official website today. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ledger-markets-announces-award-winning-ai-trading-platform-for-2024)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fwbbna/ledger_markets_launches_awardwinning_ai_trading/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fwbbna/ledger_markets_launches_awardwinning_ai_trading/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/4/zealz_Gi.webp)

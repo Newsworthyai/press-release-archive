@@ -28,9 +28,17 @@ Company Websitehttp://www.nuggmd.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lava-cake-is-the-top-cannabis-strain-on-the-market-new-poll-finds-493786780 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/lava-cake-is-the-top-cannabis-strain-on-the-market-new-poll-finds-493786780)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1ddnjwu/new_poll_reveals_lava_cake_as_top_cannabis_strain/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1ddnjwu/new_poll_reveals_lava_cake_as_top_cannabis_strain/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/11/mielCp0h.webp)

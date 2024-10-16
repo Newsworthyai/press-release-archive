@@ -38,9 +38,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/justmarkets-releases-native-trading-inside-the-app-193424679 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/justmarkets-releases-native-trading-inside-the-app-193424679)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1elgq6n/justmarkets_introduces_inapp_trading_to_empower/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1elgq6n/justmarkets_introduces_inapp_trading_to_empower/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/6/smog_zWS.webp)

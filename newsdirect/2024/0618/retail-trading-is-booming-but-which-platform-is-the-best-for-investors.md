@@ -75,9 +75,17 @@ Company Websitehttp://www.moomoo.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/retail-trading-is-booming-but-which-platform-is-the-best-for-investors-371870504 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/retail-trading-is-booming-but-which-platform-is-the-best-for-investors-371870504)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1dipszz/retail_trading_revolution_the_rise_of_meme_stocks/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1dipszz/retail_trading_revolution_the_rise_of_meme_stocks/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/18/neon5pYH.webp)

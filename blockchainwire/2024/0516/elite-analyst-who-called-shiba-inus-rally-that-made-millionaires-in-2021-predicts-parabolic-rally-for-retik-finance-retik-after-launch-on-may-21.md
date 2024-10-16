@@ -26,9 +26,17 @@ Telegram: www.t.me/retikfinance
 
 Media Contact:Team Retik[bd@retik.com](mailto:bd@retik.com)[https://retik.com/](https://retik.com/)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/elite-analyst-who-called-shiba-inus-rally-that-made-millionaires-in-2021-predicts-parabolic-rally-for-retik-finance-retik-after-launch-on-may-21)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ctgyb6/retik_finance_retik_poised_for_explosive_growth/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ctgyb6/retik_finance_retik_poised_for_explosive_growth/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/16/chipT8Hh.webp)

@@ -32,9 +32,17 @@ Company Websitehttps://rgaa.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/responsible-gambling-affiliate-association-opens-membership-374604678 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/responsible-gambling-affiliate-association-opens-membership-374604678)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cloz62/responsible_gambling_affiliate_association/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cloz62/responsible_gambling_affiliate_association/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/6/echoQjTC.webp)

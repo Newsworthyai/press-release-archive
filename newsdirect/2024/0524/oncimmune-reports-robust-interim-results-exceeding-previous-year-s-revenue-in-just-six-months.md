@@ -16,9 +16,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/oncimmune-reports-robust-interim-results-exceeding-previous-years-revenue-in-just-six-months-417739559 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/oncimmune-reports-robust-interim-results-exceeding-previous-years-revenue-in-just-six-months-417739559)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1czpcye/oncimmune_ceo_announces_robust_interim_results/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1czpcye/oncimmune_ceo_announces_robust_interim_results/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/24/quizCJdn.webp)

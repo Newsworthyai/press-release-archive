@@ -102,9 +102,17 @@ Research Highlights:
 
  heart.org and stroke.org 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/high-blood-pressure-a-concern-for-adolescents-and-young-adults-in-u-s-7076006)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1f9rli2/high_blood_pressure_and_unmet_social_needs_among/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1f9rli2/high_blood_pressure_and_unmet_social_needs_among/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/5/evenkLEU.webp)

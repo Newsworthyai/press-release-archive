@@ -24,9 +24,17 @@ CodeMong Ai aims to become a leader in Ai TCG games in the future and grow into 
 
 Website: [https://www.codemong.ai/](https://www.codemong.ai/)Whitepaper: [https://codemong.gitbook.io/codemong-by-ai-tech](https://codemong.gitbook.io/codemong-by-ai-tech)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/innovative-ai-game-project-codemong-ai--coai)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dtv20p/code_mong_augmented_reality_tcg_game_with_ai/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dtv20p/code_mong_augmented_reality_tcg_game_with_ai/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/2/numbzMHK.webp)

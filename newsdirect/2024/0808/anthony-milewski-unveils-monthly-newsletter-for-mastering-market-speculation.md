@@ -63,9 +63,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/anthony-milewski-unveils-monthly-newsletter-for-mastering-market-speculation-228468030 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/anthony-milewski-unveils-monthly-newsletter-for-mastering-market-speculation-228468030)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1en70by/anthony_milewski_unveils_monthly_newsletter_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1en70by/anthony_milewski_unveils_monthly_newsletter_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/8/moss5JT7.webp)

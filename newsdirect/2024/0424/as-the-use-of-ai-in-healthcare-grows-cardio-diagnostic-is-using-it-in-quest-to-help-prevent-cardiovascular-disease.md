@@ -46,9 +46,17 @@ Company Websitehttps://cardiodiagnosticsinc.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/as-the-use-of-ai-in-healthcare-grows-cardio-diagnostic-is-using-it-in-quest-to-help-prevent-cardiovascular-disease-276589081 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/as-the-use-of-ai-in-healthcare-grows-cardio-diagnostic-is-using-it-in-quest-to-help-prevent-cardiovascular-disease-276589081)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cbx5f7/ai_telemedicine_and_cardio_diagnostics/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cbx5f7/ai_telemedicine_and_cardio_diagnostics/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/24/ideaON9Q.webp)

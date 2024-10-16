@@ -71,9 +71,17 @@ Research Highlights:
 
  heart.org and stroke.org 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/analysis-found-weight-loss-surgery-may-help-people-with-obesity-manage-high-blood-pressure-7076004)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1f9rplg/weightloss_surgery_shows_promise_in_managing_high/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1f9rplg/weightloss_surgery_shows_promise_in_managing_high/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/5/lambE_eG.webp)

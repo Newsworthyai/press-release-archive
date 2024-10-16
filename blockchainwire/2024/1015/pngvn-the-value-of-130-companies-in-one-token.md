@@ -56,9 +56,17 @@ Coinstore Social Media
 
 Twitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Telegram Announcement 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/pngvn-the-value-of-130-companies-in-one-token)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1g4bgpf/gngim_contracted_to_manage_pngvn_token/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1g4bgpf/gngim_contracted_to_manage_pngvn_token/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/15/archMj6l.webp)

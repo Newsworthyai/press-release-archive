@@ -42,9 +42,17 @@ bolon@kingdomstudios.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/defi-kingdoms-expands-its-empire-with-metis-l2-912840965 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/defi-kingdoms-expands-its-empire-with-metis-l2-912840965)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1bu0es0/defi_kingdoms_expands_its_empire_with_metis_l2/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1bu0es0/defi_kingdoms_expands_its_empire_with_metis_l2/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/2/vastcADS.webp)

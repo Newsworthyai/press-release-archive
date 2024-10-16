@@ -42,9 +42,17 @@ PUC(Parallel Universe Coin)parallel@outlook.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-puc-parallel-universe-coin-listing-on-xt)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1clhgys/xt_announces_listing_of_puc_token_on_socially/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1clhgys/xt_announces_listing_of_puc_token_on_socially/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/6/ovalNlas.webp)

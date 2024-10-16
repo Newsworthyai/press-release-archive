@@ -38,9 +38,17 @@ About Gate.io:
 
 Established in 2013, Gate.io is one of the world’s earliest cryptocurrency exchanges and a leader among compliant and secure digital asset platforms, offering diverse trading services with 100% user-verifiable Proof of Reserves. Further, the platform has consistently ranked as one of the top 10 cryptocurrency exchanges based on liquidity and trading volume on CoinGecko. Besides its primary exchange services, Gate.io has diversified its ecosystem to offer decentralized finance, research and analytics, venture capital investing, wallet services, startup incubation, and more. The platform currently serves more than 13 million active users worldwide. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gateio-announces-launch-of-innovative-inscription-launchpad-and-navigation-services)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avjuul/gateio_launches_innovative_inscription_launchpad/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avjuul/gateio_launches_innovative_inscription_launchpad/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/mailkgqm.webp)

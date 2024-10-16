@@ -64,9 +64,17 @@ Important factors that may cause actual results and outcomes to differ materiall
 
 Other important factors that may cause actual results and outcomes to differ materially from those contained in the forward-looking statements included in this communication are described in the Company’s publicly-filed reports, including, but not limited to, under the “Special Note Regarding Forward-Looking Statements,” “Risk Factors” and “Management’s Discussion and Analysis of Financial Condition and Results of Operations” sections of the Company’s periodic and current filings with the SEC, including the Form 10-Qs and Form 10-Ks, including, but not limited to, the Company’s Annual Report on Form 10-K for the year ended October 31, 2023 and its Quarterly Report on Form 10-Q for the quarter ended January 31, 2024, and future periodic reports on Form 10-K and Form 10‑Q. These reports are available at www.sec.gov. 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-reports-record-breaking-august-performance-by-subsidiary-meridianbet-7076043)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1ff1abu/meridianbet_achieves_recordbreaking_results_in/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ff1abu/meridianbet_achieves_recordbreaking_results_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/12/pints6qY.webp)

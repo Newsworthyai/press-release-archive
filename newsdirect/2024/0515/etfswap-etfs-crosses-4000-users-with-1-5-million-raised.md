@@ -46,9 +46,17 @@ info@etfswap.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/etfswap-etfs-crosses-4-000-users-with-1-5-million-raised-715780711 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/etfswap-etfs-crosses-4-000-users-with-1-5-million-raised-715780711)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1csjcq2/etfswap_etfs_records_unprecedented_surge_to_cross/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1csjcq2/etfswap_etfs_records_unprecedented_surge_to_cross/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/lushOlq4.webp)

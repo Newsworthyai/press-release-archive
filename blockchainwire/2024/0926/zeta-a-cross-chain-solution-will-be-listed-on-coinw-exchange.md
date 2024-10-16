@@ -26,9 +26,17 @@ About ZetaChain
 
 [ZetaChain](https://www.zetachain.com/) is the first universal L1 blockchain. It serves as the base-layer of the decentralized internet, providing a platform for global access, simplicity, and utility across any blockchain. Zetachain’s Omnichain Smart Contracts on the Universal EVM are purpose-built for general chain abstraction across the entire crypto ecosystem. ZetaChain can connect to any blockchain, from Ethereum and Cosmos to Bitcoin and beyond, enabling unified liquidity, user experience, and data all from a single place. Universal Apps on ZetaChain are future-proof and have full compatibility with both existing and new chain integrations. With a proposed Universal Proof-of-Stake capability, ZetaChain supports staking of assets like native Bitcoin and Ethereum in exchange for rewards, powering unbounded scale for economic security. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/zeta-a-cross-chain-solution-will-be-listed-on-coinw-exchange)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fptx3q/coinw_lists_zeta_on_innovation_zone_for/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fptx3q/coinw_lists_zeta_on_innovation_zone_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/26/yawn2cD6.webp)

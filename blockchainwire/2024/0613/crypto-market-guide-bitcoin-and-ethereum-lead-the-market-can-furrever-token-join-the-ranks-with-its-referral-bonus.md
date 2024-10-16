@@ -22,9 +22,17 @@ The TakeawayBitcoin and Ethereum have solidified their positions as the top cryp
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-market-guide-bitcoin-and-ethereum-lead-the-market---can-furrever-token-join-the-ranks-with-its-referral-bonus)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dg09i4/furrever_token_the_new_contender_in_the/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dg09i4/furrever_token_the_new_contender_in_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/13/quitFiQp.webp)

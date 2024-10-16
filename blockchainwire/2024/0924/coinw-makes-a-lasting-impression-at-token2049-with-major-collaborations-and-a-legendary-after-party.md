@@ -28,9 +28,17 @@ About CoinW
 
 Founded in 2017, [CoinW](https://www.coinw.com/) is a globally recognized [cryptocurrency exchange](https://www.coinw.com/) that provides a comprehensive trading ecosystem and innovative products. With over 18 localized service centers and more than 13 million users worldwide, CoinW is dedicated to empowering traders, investors, and innovators across the globe. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-makes-a-lasting-impression-at-token2049-with-major-collaborations-and-a-legendary-after-party)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1foaxmz/coinw_takes_center_stage_at_token2049_as_platinum/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1foaxmz/coinw_takes_center_stage_at_token2049_as_platinum/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/24/harp33k5.webp)

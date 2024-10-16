@@ -80,9 +80,17 @@ Company Websitehttps://www.sectorspdrs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/select-sector-spdr-etfs-a-focused-approach-for-sector-specific-portfolio-management-699166287 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/select-sector-spdr-etfs-a-focused-approach-for-sector-specific-portfolio-management-699166287)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1dn97pi/select_sector_spdr_etfs_a_focused_approach_for/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1dn97pi/select_sector_spdr_etfs_a_focused_approach_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/24/sagejW1o.webp)

@@ -32,9 +32,17 @@ Company Websitehttps://investmentsandwealth.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/investments-and-wealth-institute-names-courtney-schubert-as-managing-director-of-marketing-and-membership-sandi-garcia-as-managing-director-of-finance-156439214 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-institute-names-courtney-schubert-as-managing-director-of-marketing-and-membership-sandi-garcia-as-managing-director-of-finance-156439214)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ciphpd/investments_wealth_institute_names_new_marketing/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ciphpd/investments_wealth_institute_names_new_marketing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/2/sageo75i.webp)

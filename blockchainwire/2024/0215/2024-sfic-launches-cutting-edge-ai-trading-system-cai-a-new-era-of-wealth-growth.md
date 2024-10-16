@@ -33,9 +33,17 @@ Contact details
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/2024-sfic-launches-cutting-edge-ai-trading-system-cai-a-new-era-of-wealth-growth)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1avcad6/sfic_revolutionizes_investment_industry_with/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1avcad6/sfic_revolutionizes_investment_industry_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/16/riftOg0m.webp)

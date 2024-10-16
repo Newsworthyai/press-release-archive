@@ -20,9 +20,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/immunic-highlights-imu-856-gastrointestinal-candidate-to-mark-international-celiac-day-387800937 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/immunic-highlights-imu-856-gastrointestinal-candidate-to-mark-international-celiac-day-387800937)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1ctpa45/immunic_highlights_imu856_gastrointestinal/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1ctpa45/immunic_highlights_imu856_gastrointestinal/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/16/meanMBEF.webp)

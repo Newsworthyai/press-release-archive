@@ -38,9 +38,17 @@ Discord: https://discord.gg/Q7BxghMVyu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/large-whale-buy-ins-detected-in-bitcoin-and-blockdag-network-analysts-40-million-is-just-the-start-this-is-a-global-crypto-sensation)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1d8we0h/bitcoin_surpasses_69000_and_blockdag_network_hits/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1d8we0h/bitcoin_surpasses_69000_and_blockdag_network_hits/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/5/jinxk2i5.webp)

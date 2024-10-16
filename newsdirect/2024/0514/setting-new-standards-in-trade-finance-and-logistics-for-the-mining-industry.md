@@ -66,9 +66,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/setting-new-standards-in-trade-finance-and-logistics-for-the-mining-industry-106354014 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/setting-new-standards-in-trade-finance-and-logistics-for-the-mining-industry-106354014)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1crplcd/minehub_technologies_inc_revolutionizes_trade/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1crplcd/minehub_technologies_inc_revolutionizes_trade/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/14/archdbq7.webp)

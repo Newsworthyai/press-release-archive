@@ -40,9 +40,17 @@ Twitter | Discord | Merlin Chain Wiki
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/merlin-chain-secures-new-investments-co-led-by-spartan-group-and-hailstone-labs-to-empower-bitcoin-apps)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1c68wb8/merlin_chain_secures_new_funding_round_led_by/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1c68wb8/merlin_chain_secures_new_funding_round_led_by/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/17/mendCpwZ.webp)

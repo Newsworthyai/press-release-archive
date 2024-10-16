@@ -30,9 +30,17 @@ IR@BLACKWELL3D.COM
 
 +1 (702) 718-0807 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/blackwell-3d-engages-asas-capital-to-raise-capital-for-anticipated-real-estate-projects-in-dubai-7076123)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fsuqst/blackwell_3d_engages_asas_capital_for_real_estate/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fsuqst/blackwell_3d_engages_asas_capital_for_real_estate/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/30/envyeLGl.webp)

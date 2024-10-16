@@ -48,9 +48,17 @@ Company Websitehttps://www.kevin.eu/
 
 View source version on newsdirect.com: https://newsdirect.com/news/kevin-triumphiert-mit-der-ersten-nfc-transaktion-von-konto-zu-konto-auf-dem-iphone-866021485 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kevin-triumphiert-mit-der-ersten-nfc-transaktion-von-konto-zu-konto-auf-dem-iphone-866021485)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1c1dd5v/kevin_führt_bahnbrechende_nfctransaktion_von/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1c1dd5v/kevin_führt_bahnbrechende_nfctransaktion_von/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/calmoI7i.webp)

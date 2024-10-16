@@ -44,9 +44,17 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-at-cornell-blockchain-conference-584816179 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tron-dao-at-cornell-blockchain-conference-584816179)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cstmo9/tron_dao_showcases_leadership_at_cornell/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cstmo9/tron_dao_showcases_leadership_at_cornell/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/bestez2P.webp)

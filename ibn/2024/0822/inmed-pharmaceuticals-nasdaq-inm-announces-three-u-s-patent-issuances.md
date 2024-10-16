@@ -26,9 +26,17 @@ InMed Pharmaceuticals (NASDAQ: INM), a leader in the manufacturing, development 
 
  CanadianCannabisWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/inmed-pharmaceuticals-nasdaq-inm-announces-three-u-s-patent-issuances/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1f2fk1h/inmed_pharmaceuticals_nasdaq_inm_receives_three/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1f2fk1h/inmed_pharmaceuticals_nasdaq_inm_receives_three/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/warprsRJ.webp)

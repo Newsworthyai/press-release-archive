@@ -20,9 +20,17 @@ Disclaimer
 
 $Pussy is an SPL meme token with no intrinsic value or expectation of financial return. It’s built by a committed and based set of contributors solely for entertainment & community engagement purposes. The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/-a-new-memecoin-pussy-aims-to-retain-the-solana-memecoin-frenzy--become-the-dearest-cat-based-token)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cgc7gf/pussy_cat_the_next_big_memecoin_on_solana/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cgc7gf/pussy_cat_the_next_big_memecoin_on_solana/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/29/elle4vwW.webp)

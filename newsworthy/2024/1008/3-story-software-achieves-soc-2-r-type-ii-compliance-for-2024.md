@@ -12,9 +12,17 @@ The SOC 2 audit, conducted by A-LIGN, affirmed that 3 Story Software’s control
 
 For more information visit 3StorySoftware.com 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202410081304/3-story-software-achieves-soc-2-r-type-ii-compliance-for-2024)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fyx7pb/3_story_software_completes_soc_2_type_ii_audit/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fyx7pb/3_story_software_completes_soc_2_type_ii_audit/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2410/8/goldt__x.webp)

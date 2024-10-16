@@ -10,7 +10,9 @@ Aberdeen Ltd’s commitment to excellence extends beyond providing exceptional f
 
 Aberdeen Ltd’s ongoing negotiations with Tesco plc signify the trusted partnerships they establish with leading organizations worldwide. Aberdeen Ltd prides itself on fostering long-term collaborations by prioritizing client satisfaction and delivering measurable results. With their meticulous approach and technical expertise, they are confident in their capacity to support Tesco plc in achieving optimal results from their bond offerings.
 
-Contact DetailsAberdeen Ltd
+Disclaimer: Please note that the information contained within this press release has been provided by Aberdeen Limited. Neither PinionNewswire nor its distribution partners bear responsibility for any claims made herein. Inquiries regarding the product should be directed to the vendor. Additionally, investors are advised to conduct their own due diligence prior to making any investment decisions
+
+Contact DetailsAberdeen Limited
 
 Joe Cawley
 
@@ -18,11 +20,19 @@ joe.cawley@aberdeen-ltd.com
 
 Company Websitehttps://aberdeen-ltd.com/
 
-View source version on newsdirect.com: https://newsdirect.com/news/aberdeen-limited-in-talks-with-a-leading-multinational-retailer-276279761 
+View source version on newsdirect.com: https://newsdirect.com/news/aberdeen-limited-in-talks-with-a-leading-multinational-retailer-216533729 
 
-[Original/Source Press Release](https://newsdirect.com/news/aberdeen-limited-in-talks-with-a-leading-multinational-retailer-276279761)
+---
+
+[Original/Source Press Release](https://newsdirect.com/news/aberdeen-limited-in-talks-with-a-leading-multinational-retailer-216533729)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1doc0cx/aberdeen_ltd_in_negotiations_with_tesco_plc_for/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1doatjn/aberdeen_ltd_in_talks_with_leading_retailer_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/25/yawnTjKN.webp)

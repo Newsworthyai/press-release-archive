@@ -43,9 +43,17 @@ Visit Our Website
  * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/rapidfire/news_release/1452)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cder3g/rapidfire_safety_security_acquires_albuquerque/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cder3g/rapidfire_safety_security_acquires_albuquerque/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/244/26/rubyRIZ_.webp)

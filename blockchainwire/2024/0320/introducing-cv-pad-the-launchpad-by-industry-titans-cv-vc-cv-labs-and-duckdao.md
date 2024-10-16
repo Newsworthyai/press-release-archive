@@ -28,9 +28,17 @@ As CV Pad embarks on this exciting journey, be sure to explore more about the pl
 
 About CV PadCV Pad is a Launchpad+, aiming to take projects through their TGE with a suite of services from tokenomics support to distribution and marketing, with the support of their global network of partnerships. It is a collective: DuckDAO, CV VC, and CV Labs, that utilizes its wealth of experience in web3 and traditional venture capital to not only support projects but also provide vetted, curated picks for launchpad investors. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-cv-pad-the-launchpad-by-industry-titans-cv-vc-cv-labs-and-duckdao)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bj954x/cv_pad_reshaping_web3_investing_with_expertvetted/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bj954x/cv_pad_reshaping_web3_investing_with_expertvetted/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/20/pinty0i_.webp)

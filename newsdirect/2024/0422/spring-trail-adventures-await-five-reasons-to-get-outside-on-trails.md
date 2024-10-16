@@ -44,9 +44,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/spring-trail-adventures-await-five-reasons-to-get-outside-on-trails-601503480 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/spring-trail-adventures-await-five-reasons-to-get-outside-on-trails-601503480)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/TravelAndLeisureNews/comments/1cad9of/celebrate_trails_day_get_outside_and_explore/
+
+
+[Reddit Post](https://www.reddit.com/r/TravelAndLeisureNews/comments/1cad9of/celebrate_trails_day_get_outside_and_explore/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/22/apexAWSt.webp)

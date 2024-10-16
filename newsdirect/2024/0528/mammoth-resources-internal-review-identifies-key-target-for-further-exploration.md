@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mammoth-resources-internal-review-identifies-key-target-for-further-exploration-206642274 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/mammoth-resources-internal-review-identifies-key-target-for-further-exploration-206642274)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d2ofdj/mammoth_resources_corp_identifies_key_target_for/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d2ofdj/mammoth_resources_corp_identifies_key_target_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/28/barnben6.webp)

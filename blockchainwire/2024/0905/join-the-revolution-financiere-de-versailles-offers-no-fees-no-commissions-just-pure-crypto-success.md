@@ -34,9 +34,17 @@ Financiere de Versailles is inviting traders of all levels to join this revoluti
 
 To join the revolution and take advantage of Financiere de Versailles’ new platform, visit https://financieredeversailles.com/ and start trading smarter, not harder. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/join-the-revolution-financiere-de-versailles-offers-no-fees-no-commissions-just-pure-crypto-success)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fn8rh5/financiere_de_versailles_launches_zerofee/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fn8rh5/financiere_de_versailles_launches_zerofee/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/11/navynWBb.webp)

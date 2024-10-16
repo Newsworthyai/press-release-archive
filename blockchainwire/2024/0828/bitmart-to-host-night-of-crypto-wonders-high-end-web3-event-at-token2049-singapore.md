@@ -14,9 +14,17 @@ Generous support for the event comes from prominent Web3 companies such as Ascen
 
 For more information about the “Night of Crypto Wonders” event or to register, please visit the official event page. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-to-host-night-of-crypto-wonders-high-end-web3-event-at-token2049-singapore)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1f3h4dh/highend_networking_event_night_of_crypto_wonders/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1f3h4dh/highend_networking_event_night_of_crypto_wonders/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/28/dunev1tH.webp)

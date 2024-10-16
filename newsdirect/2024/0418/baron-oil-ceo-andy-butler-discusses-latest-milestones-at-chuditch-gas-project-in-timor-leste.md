@@ -22,9 +22,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/baron-oil-ceo-andy-butler-discusses-latest-milestones-at-chuditch-gas-project-in-timor-leste-607895979 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/baron-oil-ceo-andy-butler-discusses-latest-milestones-at-chuditch-gas-project-in-timor-leste-607895979)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c72fbq/baron_oil_ceo_andy_butler_discusses_latest/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c72fbq/baron_oil_ceo_andy_butler_discusses_latest/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/18/oxenbYiz.webp)

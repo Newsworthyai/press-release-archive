@@ -14,9 +14,17 @@ About IntelagenIntelagen is a leading AI integrator and development firm, specia
 
 About MarketMindMarketMind is a pioneering, generative AI-driven investor relations platform that helps public companies control their investor relations narratives as Google Gemini, ChatGPT and other LLM’s increasingly become the research medium of choice for professional and retail investors alike. In the dynamic landscape of investment decisions increasingly shaped by AI technologies, MarketMind empowers issuers to better influence these AI platforms’ messages and analytics. A key component of MarketMind’s service is a network of company-trained, branded chatbots that provide personalized, one-on-one virtual interactions with thousands of retail investors on a network of financial research sites - not influenced by potentially-misleading third-party information. Moreover, it gives public companies a window into their investors’ research interests, concerns and sentiment. For more information, contact your investor relations agency or visit https://marketmind.live/. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/intelagen-partners-with-google-looker-to-deliver-business-insights-for-small-and-medium-enterprises)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1ffs5cw/intelagen_announces_enhanced_partnership_with/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1ffs5cw/intelagen_announces_enhanced_partnership_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/13/jazzS7lk.webp)

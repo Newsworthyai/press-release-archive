@@ -33,9 +33,17 @@ Company Websitehttps://catalystmarketing.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/catalyst-marketing-agency-wins-prestigious-awards-for-creative-brand-campaign-535909800 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/catalyst-marketing-agency-wins-prestigious-awards-for-creative-brand-campaign-535909800)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1cz0x0y/catalyst_wins_prestigious_awards_for_creative/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1cz0x0y/catalyst_wins_prestigious_awards_for_creative/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/23/zesto8SF.webp)

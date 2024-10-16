@@ -56,9 +56,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 
 ### 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-aiming-to-enhance-customer-experience-with-expanded-support-team-post-bitcoin-halving-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cd23vs/stakingfarm_expands_support_team_to_meet_surge_in/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cd23vs/stakingfarm_expands_support_team_to_meet_surge_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/25/coolkGWr.webp)

@@ -22,9 +22,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/liberty-star-minerals-chief-geologist-shares-thoughts-on-drilling-at-hay-mountain-513743200 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/liberty-star-minerals-chief-geologist-shares-thoughts-on-drilling-at-hay-mountain-513743200)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bp3ze2/liberty_star_minerals_chief_geologist_gives/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bp3ze2/liberty_star_minerals_chief_geologist_gives/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/herbkI3r.webp)

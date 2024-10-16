@@ -52,9 +52,17 @@ leanne@cleancloud.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cleancloud-expands-global-footprint-now-partnering-with-businesses-in-over-100-countries-646820760 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cleancloud-expands-global-footprint-now-partnering-with-businesses-in-over-100-countries-646820760)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ewvupl/cleancloud_expands_global_footprint_now/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ewvupl/cleancloud_expands_global_footprint_now/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/20/mean3L2x.webp)

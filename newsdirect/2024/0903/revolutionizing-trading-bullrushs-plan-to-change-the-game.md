@@ -42,9 +42,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/revolutionizing-trading-bullrushs-plan-to-change-the-game-745007677 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/revolutionizing-trading-bullrushs-plan-to-change-the-game-745007677)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f80jn3/bullrush_the_gamified_trading_platform_where/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f80jn3/bullrush_the_gamified_trading_platform_where/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/3/healIgch.webp)

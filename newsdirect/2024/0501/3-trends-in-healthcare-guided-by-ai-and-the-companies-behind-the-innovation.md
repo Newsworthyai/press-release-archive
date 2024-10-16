@@ -84,9 +84,17 @@ Company Websitehttps://cardiodiagnosticsinc.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/3-trends-in-healthcare-guided-by-ai-and-the-companies-behind-the-innovation-489286769 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/3-trends-in-healthcare-guided-by-ai-and-the-companies-behind-the-innovation-489286769)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1chl60e/ai_transforming_healthcare_moderna_johnson/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1chl60e/ai_transforming_healthcare_moderna_johnson/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/nukeSkWc.webp)

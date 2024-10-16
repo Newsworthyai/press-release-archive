@@ -30,9 +30,17 @@ jchoo@kevel.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kevel-launches-kai-to-boost-performance-optimization-relevance-and-revenue-for-retail-media-networks-801227933 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kevel-launches-kai-to-boost-performance-optimization-relevance-and-revenue-for-retail-media-networks-801227933)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dz21d8/kevel_launches_kai_to_boost_performance/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dz21d8/kevel_launches_kai_to_boost_performance/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/9/pearf28_.webp)

@@ -28,9 +28,17 @@
 
  BioMedWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-files-new-composition-of-matter-patent-for-buntanetap/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2feky/annovis_bio_nyse_anvs_makes_strides_in/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2feky/annovis_bio_nyse_anvs_makes_strides_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/pavehQu_.webp)

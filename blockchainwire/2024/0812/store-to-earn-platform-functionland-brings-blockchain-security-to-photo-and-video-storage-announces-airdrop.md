@@ -34,9 +34,17 @@ For more information, visit Functionland's website.
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/store-to-earn-platform-functionland-brings-blockchain-security-to-photo-and-video-storage-announces-airdrop)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1eqg9ua/functionland_launches_fula_token_and_airdrop/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1eqg9ua/functionland_launches_fula_token_and_airdrop/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/12/yogaa8nG.webp)

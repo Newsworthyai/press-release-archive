@@ -52,9 +52,17 @@ The “Train Like a Champion” challenge is an excellent opportunity for WOD su
 
 You can learn more about World of Dypians and stay up-to-date with its development at these links: Website | Twitter | Discord | Telegram | GitHub | YouTube | Download on Epic Games 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/world-of-dypians-joins-bnb-chains-train-like-a-champion-challenge-with-250k-prize-pool)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1e6wun6/world_of_dypians_joins_bnb_chains_train_like_a/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1e6wun6/world_of_dypians_joins_bnb_chains_train_like_a/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/19/duneaecw.webp)

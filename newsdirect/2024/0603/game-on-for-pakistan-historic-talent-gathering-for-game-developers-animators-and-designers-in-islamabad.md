@@ -38,9 +38,17 @@ Company Websitehttps://idrakai.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/game-on-for-pakistan-historic-talent-gathering-for-game-developers-animators-and-designers-in-islamabad-436499640 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/game-on-for-pakistan-historic-talent-gathering-for-game-developers-animators-and-designers-in-islamabad-436499640)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1d7lo0c/game_on_for_pakistan_historic_talent_gathering/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1d7lo0c/game_on_for_pakistan_historic_talent_gathering/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/3/gulfolpP.webp)

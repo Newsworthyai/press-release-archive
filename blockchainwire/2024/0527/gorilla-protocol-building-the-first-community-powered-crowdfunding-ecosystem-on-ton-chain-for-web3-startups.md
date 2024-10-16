@@ -30,9 +30,17 @@ Wallace D.
 
 hello@gorillaonton.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gorilla-protocol-building-the-first-community-powered-crowdfunding-ecosystem-on-ton-chain-for-web3-startups)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvn88q/gorilla_protocol_launches_daobased_crowdfunding/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvn88q/gorilla_protocol_launches_daobased_crowdfunding/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/gainWEn6.webp)

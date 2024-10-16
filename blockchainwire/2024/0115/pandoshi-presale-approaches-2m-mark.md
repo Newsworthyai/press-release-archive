@@ -26,9 +26,17 @@ Visit the links below for more information about Pandoshi (PAMBO):
 
 Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/pandoshi-presale-approaches-2m-mark)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avdr4q/pandoshi_pambo_nears_2_million_milestone_in/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avdr4q/pandoshi_pambo_nears_2_million_milestone_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/blurgX4h.webp)

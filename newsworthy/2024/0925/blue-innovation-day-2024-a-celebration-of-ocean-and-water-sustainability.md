@@ -14,9 +14,17 @@ Contact: info@santacruzworks.org
 
 Website: Blue Innovation 2024 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202409251283/blue-innovation-day-2024-a-celebration-of-ocean-and-water-sustainability)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1fp5dvb/blue_innovation_day_2024_promoting_ocean_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1fp5dvb/blue_innovation_day_2024_promoting_ocean_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/249/25/jazzGcUd.webp)

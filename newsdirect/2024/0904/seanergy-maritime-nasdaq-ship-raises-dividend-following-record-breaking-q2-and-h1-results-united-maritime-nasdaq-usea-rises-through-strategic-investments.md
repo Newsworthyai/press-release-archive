@@ -58,9 +58,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/seanergy-maritime-nasdaq-ship-raises-dividend-following-record-breaking-q2-and-h1-results-united-maritime-nasdaq-usea-rises-through-strategic-investments-982905948 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/seanergy-maritime-nasdaq-ship-raises-dividend-following-record-breaking-q2-and-h1-results-united-maritime-nasdaq-usea-rises-through-strategic-investments-982905948)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1f9guf8/seanergy_maritime_reports_record_q2_and_h1/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1f9guf8/seanergy_maritime_reports_record_q2_and_h1/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/5/wamcwX9z.webp)

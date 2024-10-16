@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mako-gold-advances-napie-gold-and-korhogo-manganese-projects-167548979 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/mako-gold-advances-napie-gold-and-korhogo-manganese-projects-167548979)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cs0hw1/mako_gold_advances_napié_gold_and_korhogo/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cs0hw1/mako_gold_advances_napié_gold_and_korhogo/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/14/tallO0eU.webp)

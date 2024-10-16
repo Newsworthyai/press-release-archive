@@ -44,9 +44,17 @@ lexi.wangler@mystenlabs.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sui-teams-up-with-google-cloud-to-drive-web3-innovation-with-enhanced-security-scalability-and-ai-capabilities-864049963 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sui-teams-up-with-google-cloud-to-drive-web3-innovation-with-enhanced-security-scalability-and-ai-capabilities-864049963)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cgrk16/sui_teams_up_with_google_cloud_to_drive_web3/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cgrk16/sui_teams_up_with_google_cloud_to_drive_web3/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/30/hike61DH.webp)

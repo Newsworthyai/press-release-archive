@@ -18,9 +18,17 @@ DSSpotlight is a dedicated resource to the world of data science. The platform a
 
 Dive deep into the world of data science with www.DSSpotlight.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231215810/introducing-dsspotlight-com-the-pinnacle-platform-for-data-science-enthusiasts-and-professionals)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1avx43x/dsspotlightcom_launches_as_the_goto_hub_for_data/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1avx43x/dsspotlightcom_launches_as_the_goto_hub_for_data/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/yogamD8K.webp)

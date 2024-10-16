@@ -36,9 +36,17 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-quotient-inc-and-virtual-technologies-group-683887384 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-quotient-inc-and-virtual-technologies-group-683887384)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1eb17p5/benchmark_international_facilitates_transaction/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1eb17p5/benchmark_international_facilitates_transaction/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/24/mail0rwN.webp)

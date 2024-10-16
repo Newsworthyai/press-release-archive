@@ -28,9 +28,17 @@ About Forgame Holdings Limited
 
 Forgame Holdings Limited is a leading investment firm listed on the Hong Kong Stock Exchange, dedicated to fostering innovation and protecting the integrity of its portfolio companies. As a major shareholder of Redrock Biometrics, Inc., Forgame Holdings Limited is determined to defend Redrock’s intellectual property against any acts of infringement and unethical behavior.Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/hk-listed-company-forgame-holdings-limited-exposes-humancode-ais-corporate-theft-and-deceptive-practices)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dki8cq/forgame_holdings_takes_legal_action_against/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dki8cq/forgame_holdings_takes_legal_action_against/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/20/best2UUn.webp)

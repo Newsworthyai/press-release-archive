@@ -47,9 +47,17 @@ About Alpha Transform Holdings
 
 Alpha Transform Holdings (ATH) is an investment and advisory organization that focuses on fintech, AI and digital assets. ATH’s principals have a track record of early investment in ventures that reached unicorn status and other industry-leading ventures, and its principals take an active role in driving the success of their portfolio companies. Visit: https://www.alphatransform.io/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/marketmind-technologies-unveils-beta-launch--of-genai-investor-relations-platform-to-service-the-increase-in-retail-investors-growth)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fvbdlh/marketmind_unveils_groundbreaking_ai_investor/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fvbdlh/marketmind_unveils_groundbreaking_ai_investor/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/dualsnQ4.webp)

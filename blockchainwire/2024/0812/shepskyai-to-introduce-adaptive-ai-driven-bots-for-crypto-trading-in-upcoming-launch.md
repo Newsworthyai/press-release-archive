@@ -39,9 +39,17 @@ X (Twitter) | Telegram
 
 Disclaimer: This is a press release and does not contain any financial advice. Readers should do their own research before taking any actions related to the company mentioned. You are solely responsible, directly or indirectly, for any damage or loss caused or alleged to be caused by or in connection with the use of or reliance on any content, goods, or services mentioned in the press release. Cryptocurrency is volatile. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/shepskyai-to-introduce-adaptive-ai-driven-bots-for-crypto-trading-in-upcoming-launch)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1eqbmfl/upcoming_launch_of_shepskyais_aidriven_trading/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1eqbmfl/upcoming_launch_of_shepskyais_aidriven_trading/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/12/mielb1px.webp)

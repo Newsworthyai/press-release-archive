@@ -42,9 +42,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/suro-capital-unlocking-access-to-potentially-high-growth-venture-opportunities-like-openai-and-liquid-death-832630280 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/suro-capital-unlocking-access-to-potentially-high-growth-venture-opportunities-like-openai-and-liquid-death-832630280)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1g497h9/suro_capital_corp_unlocking_access_to_highgrowth/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1g497h9/suro_capital_corp_unlocking_access_to_highgrowth/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/15/open9gKO.webp)

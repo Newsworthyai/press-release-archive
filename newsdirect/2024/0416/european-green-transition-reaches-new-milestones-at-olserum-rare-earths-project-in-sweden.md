@@ -18,9 +18,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/european-green-transition-reaches-new-milestones-at-olserum-rare-earths-project-in-sweden-429468772 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/european-green-transition-reaches-new-milestones-at-olserum-rare-earths-project-in-sweden-429468772)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c5duji/european_green_transition_reaches_new_milestones/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c5duji/european_green_transition_reaches_new_milestones/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/waitnF5j.webp)

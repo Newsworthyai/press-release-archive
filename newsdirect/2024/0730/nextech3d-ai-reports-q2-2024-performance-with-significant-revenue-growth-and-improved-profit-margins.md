@@ -14,9 +14,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-reports-q2-2024-performance-with-significant-revenue-growth-and-improved-profit-margins-107971163 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-reports-q2-2024-performance-with-significant-revenue-growth-and-improved-profit-margins-107971163)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1eg4uji/nextech3dai_reports_significant_revenue_growth/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1eg4uji/nextech3dai_reports_significant_revenue_growth/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/30/numbKNk9.webp)

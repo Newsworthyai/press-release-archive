@@ -74,9 +74,17 @@ Company Websitehttps://www.transparencyinmedia.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/government-employees-in-geneva-switzerland-accused-of-genocide-and-crimes-against-humanity-in-a-comprehensive-communication-filed-at-the-international-criminal-court-at-the-hague-863773288 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/government-employees-in-geneva-switzerland-accused-of-genocide-and-crimes-against-humanity-in-a-comprehensive-communication-filed-at-the-international-criminal-court-at-the-hague-863773288)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dcrzik/geneva_child_protective_services_accused_of/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dcrzik/geneva_child_protective_services_accused_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/10/irisLZvk.webp)

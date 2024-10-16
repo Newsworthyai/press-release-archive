@@ -52,9 +52,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cleancore-annual-results-net-loss-narrowed-gross-margins-and-gross-profit-up-after-shift-in-sales-strategy-company-reports-having-2-years-runway-capital-182664233 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cleancore-annual-results-net-loss-narrowed-gross-margins-and-gross-profit-up-after-shift-in-sales-strategy-company-reports-having-2-years-runway-capital-182664233)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1fnkp6p/cleancore_solutions_inc_reports_positive/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1fnkp6p/cleancore_solutions_inc_reports_positive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/23/harppjtr.webp)

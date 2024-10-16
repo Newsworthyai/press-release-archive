@@ -90,9 +90,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-unveils-exciting-dragon-boat-festival-specials-on-a-range-of-products-and-services-971480996 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-unveils-exciting-dragon-boat-festival-specials-on-a-range-of-products-and-services-971480996)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1dg09r2/htx_unveils_exciting_dragon_boat_festival/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1dg09r2/htx_unveils_exciting_dragon_boat_festival/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/7/lendpMtn.webp)

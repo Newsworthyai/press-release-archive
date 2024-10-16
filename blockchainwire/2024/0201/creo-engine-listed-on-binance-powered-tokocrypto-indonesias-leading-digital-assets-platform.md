@@ -36,9 +36,17 @@ https://www.creoengine.com/
 
 Contract address: 0x9521728bF66a867BC65A93Ece4a543D817871Eb7 Ticker : CREO 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/creo-engine-listed-on-binance-powered-tokocrypto-indonesias-leading-digital-assets-platform)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avjvkn/binances_tokocrypto_celebrates_creo_engines/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avjvkn/binances_tokocrypto_celebrates_creo_engines/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/seekQVjc.webp)

@@ -113,9 +113,17 @@ Company Websitehttps://www.valuethemarkets.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/us-graphite-one-secures-lucid-motors-supply-agreement-711116408 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/us-graphite-one-secures-lucid-motors-supply-agreement-711116408)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1egkgir/graphite_one_enters_landmark_supply_agreement/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1egkgir/graphite_one_enters_landmark_supply_agreement/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/31/meanWvRY.webp)

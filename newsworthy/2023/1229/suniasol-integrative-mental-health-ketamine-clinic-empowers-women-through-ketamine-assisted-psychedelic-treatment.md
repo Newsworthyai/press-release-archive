@@ -8,9 +8,17 @@ Ketamine works by temporarily silencing the Default Mode Network (DMN) in the br
 
 Prospective patients can learn more about the Women's Empowerment Ketamine Series and other services offered by Suniasol Clinic by visiting their website and filling out the necessary forms. The clinic provides information about fees and insurance coverage, and testimonials from previous patients are available. Additionally, a regularly updated blog with relevant mental health articles provides valuable insights for individuals seeking information or support. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231229956/suniasol-integrative-mental-health-ketamine-clinic-empowers-women-through-ketamine-assisted-psychedelic-treatment)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1avdoav/suniasol_clinic_offers_womens_empowerment/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1avdoav/suniasol_clinic_offers_womens_empowerment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/bestOPSk.webp)

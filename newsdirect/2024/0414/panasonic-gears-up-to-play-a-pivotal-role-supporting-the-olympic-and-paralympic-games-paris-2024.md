@@ -41,9 +41,17 @@ Company Websitehttps://na.panasonic.com/us/panasonic-connect
 
 View source version on newsdirect.com: https://newsdirect.com/news/panasonic-gears-up-to-play-a-pivotal-role-supporting-the-olympic-and-paralympic-games-paris-2024-520882131 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/panasonic-gears-up-to-play-a-pivotal-role-supporting-the-olympic-and-paralympic-games-paris-2024-520882131)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1c3ymqg/panasonic_to_supply_av_solutions_for_olympic/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1c3ymqg/panasonic_to_supply_av_solutions_for_olympic/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/14/lilyeDgh.webp)

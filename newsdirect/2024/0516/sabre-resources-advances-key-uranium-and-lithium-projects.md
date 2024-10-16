@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sabre-resources-advances-key-uranium-and-lithium-projects-857146649 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sabre-resources-advances-key-uranium-and-lithium-projects-857146649)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1ctltqr/sabre_resources_advances_key_uranium_and_lithium/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1ctltqr/sabre_resources_advances_key_uranium_and_lithium/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/16/knob7Elz.webp)

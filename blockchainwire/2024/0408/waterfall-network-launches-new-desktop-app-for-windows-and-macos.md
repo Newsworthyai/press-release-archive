@@ -20,9 +20,17 @@ Waterfall is the leading layer one (L1) architecture to combine scalability and 
 
 Waterfall Network Media Contact: bluewave@transformgroup.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/waterfall-network-launches-new-desktop-app-for-windows-and-macos)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bysi8g/waterfall_network_launches_new_desktop_app_for/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bysi8g/waterfall_network_launches_new_desktop_app_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/8/noteKpHe.webp)

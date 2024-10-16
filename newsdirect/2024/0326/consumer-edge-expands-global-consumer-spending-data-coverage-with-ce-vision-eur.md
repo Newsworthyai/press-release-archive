@@ -28,9 +28,17 @@ Company Websitehttps://consumer-edge.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/consumer-edge-expands-global-consumer-spending-data-coverage-with-ce-vision-eur-343054188 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/consumer-edge-expands-global-consumer-spending-data-coverage-with-ce-vision-eur-343054188)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bo7jkm/consumer_edge_expands_data_coverage_to_europe/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bo7jkm/consumer_edge_expands_data_coverage_to_europe/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/hintYRUF.webp)

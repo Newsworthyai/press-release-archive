@@ -18,9 +18,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bluefield-solar-income-fund-reports-strong-quarter-as-hedging-strategy-counters-weaker-prices-597517944 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bluefield-solar-income-fund-reports-strong-quarter-as-hedging-strategy-counters-weaker-prices-597517944)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1csiflp/bluefield_solar_income_fund_reports_strong/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1csiflp/bluefield_solar_income_fund_reports_strong/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/pineKSYn.webp)

@@ -34,9 +34,17 @@ Company Websitehttps://ledn.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/no-need-to-sell-bitcoin-get-a-crypto-backed-loan-instead-325721656 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/no-need-to-sell-bitcoin-get-a-crypto-backed-loan-instead-325721656)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cdk5ri/accessing_liquidity_through_crypto_loans_with_ledn/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cdk5ri/accessing_liquidity_through_crypto_loans_with_ledn/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/26/rift2sqi.webp)

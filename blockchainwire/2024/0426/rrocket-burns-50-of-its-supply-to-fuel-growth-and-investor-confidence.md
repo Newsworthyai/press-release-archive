@@ -41,9 +41,17 @@ Anyone interested in discovering RROCKET's goals and milestones can refer to its
 
 X (Twitter) | Telegram 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/rrocket-burns-50-of-its-supply-to-fuel-growth-and-investor-confidence)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cdfx2g/rrocket_project_announces_50_token_supply_burn/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cdfx2g/rrocket_project_announces_50_token_supply_burn/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/26/icyG4gz.webp)

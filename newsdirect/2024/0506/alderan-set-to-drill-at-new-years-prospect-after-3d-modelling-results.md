@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/alderan-set-to-drill-at-new-years-prospect-after-3d-modelling-results-692442490 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/alderan-set-to-drill-at-new-years-prospect-after-3d-modelling-results-692442490)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1clrfl1/alderan_resources_to_drill_at_new_years_prospect/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1clrfl1/alderan_resources_to_drill_at_new_years_prospect/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/6/wolf70_o.webp)

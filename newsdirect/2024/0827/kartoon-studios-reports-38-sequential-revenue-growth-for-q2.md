@@ -28,9 +28,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kartoon-studios-reports-38-sequential-revenue-growth-for-q2-310150200 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kartoon-studios-reports-38-sequential-revenue-growth-for-q2-310150200)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2jfi8/kartoon_studios_ceo_andy_heyward_discusses/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2jfi8/kartoon_studios_ceo_andy_heyward_discusses/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/27/fineNoyZ.webp)

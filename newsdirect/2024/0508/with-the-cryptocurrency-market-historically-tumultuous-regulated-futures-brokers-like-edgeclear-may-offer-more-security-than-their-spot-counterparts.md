@@ -52,9 +52,17 @@ max@edgeclear.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/with-the-cryptocurrency-market-historically-tumultuous-regulated-futures-brokers-like-edgeclear-may-offer-more-security-than-their-spot-counterparts-831087626 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/with-the-cryptocurrency-market-historically-tumultuous-regulated-futures-brokers-like-edgeclear-may-offer-more-security-than-their-spot-counterparts-831087626)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cn3vlh/regulated_futures_brokers_like_edgeclear_offer/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cn3vlh/regulated_futures_brokers_like_edgeclear_offer/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/8/lineQFpD.webp)

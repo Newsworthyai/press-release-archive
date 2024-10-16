@@ -20,9 +20,17 @@ About HackIndia
 
 HackIndia brings together over 9,000 students from across India competing for $150K in prizes. Participants will benefit from the guidance of 72 judges and mentors, insights from 36 speakers, and the camaraderie of peers from 59 participating universities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/rair-technologies-empowers-developers-to-build-web3-applications-through-indias-largest-hackathon)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1dqh6iu/rair_technologies_partners_with_hackindia_to/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1dqh6iu/rair_technologies_partners_with_hackindia_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/28/dune9vz5.webp)

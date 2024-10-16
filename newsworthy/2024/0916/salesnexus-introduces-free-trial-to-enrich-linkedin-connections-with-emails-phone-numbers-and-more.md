@@ -28,9 +28,17 @@ For more information, please contact:
 
 Craig KleinCEO, SalesNexus.com 713-405-1117cklein@salesnexus.comwww.salesnexus.com 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202409161262/salesnexus-introduces-free-trial-to-enrich-linkedin-connections-with-emails-phone-numbers-and-more)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fi2z01/salesnexus_introduces_new_linkedin_enrichment/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fi2z01/salesnexus_introduces_new_linkedin_enrichment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/249/16/zealF4fh.webp)

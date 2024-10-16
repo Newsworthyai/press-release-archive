@@ -36,9 +36,17 @@ Company Websitehttps://www.tourbillonpartners.co.uk/
 
 View source version on newsdirect.com: https://newsdirect.com/news/concentrated-global-equity-fund-tourbillon-announces-availability-to-qualified-us-investors-108043279 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/concentrated-global-equity-fund-tourbillon-announces-availability-to-qualified-us-investors-108043279)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c1f00z/tourbillon_investment_management_announces/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c1f00z/tourbillon_investment_management_announces/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/mosshJ4y.webp)

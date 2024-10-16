@@ -42,9 +42,17 @@ Company Websitehttps://na.panasonic.com/us/panasonic-connect
 
 View source version on newsdirect.com: https://newsdirect.com/news/panasonic-connect-expands-solution-suite-to-capture-create-and-deliver-engaging-content-215514766 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/panasonic-connect-expands-solution-suite-to-capture-create-and-deliver-engaging-content-215514766)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1bzrwnd/panasonic_connect_expands_solution_suite_to/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1bzrwnd/panasonic_connect_expands_solution_suite_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/9/markpOpJ.webp)

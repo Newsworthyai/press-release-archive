@@ -34,9 +34,17 @@ About Ronin
 
 Ronin is an EVM blockchain specifically forged for gaming. Developed by Sky Mavis, the creator of Web3’s breakout title Axie Infinity which has generated over $1.3B in revenue, Ronin is the only blockchain proven to scale a single game to accommodate millions of daily active users and has processed over $4B in NFT volumes. Ronin optimizes for near-instant transactions and negligible fees that enable millions of in-game transactions to occur seamlessly, making it the leading choice for Web3 games. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/-earn-alliance-and-sky-mavis-partner-to-create-a-reward-based-experience-for-gamers-on-ronin-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1do6dr9/earn_alliance_and_sky_mavis_announce_partnership/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1do6dr9/earn_alliance_and_sky_mavis_announce_partnership/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/24/bakeDUti.webp)

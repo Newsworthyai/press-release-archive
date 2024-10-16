@@ -18,9 +18,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/arway-and-avr-labs-forge-partnership-for-ar-navigation-with-ai-avatars-in-the-gulf-region-902773523 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/arway-and-avr-labs-forge-partnership-for-ar-navigation-with-ai-avatars-in-the-gulf-region-902773523)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bvsn5e/arwayai_and_avr_labs_forge_partnership_for_ar/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bvsn5e/arwayai_and_avr_labs_forge_partnership_for_ar/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/4/facebssT.webp)

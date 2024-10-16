@@ -34,9 +34,17 @@ Company Websitehttps://numberstory.org/together/
 
 View source version on newsdirect.com: https://newsdirect.com/news/coffee-con-conchas-highlights-healing-and-community-engagement-in-sacramento-309531906 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/coffee-con-conchas-highlights-healing-and-community-engagement-in-sacramento-309531906)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dkhywb/coffee_con_conchas_celebrating_community_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dkhywb/coffee_con_conchas_celebrating_community_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/20/oxenMGnu.webp)

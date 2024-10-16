@@ -30,9 +30,17 @@ Zealy: https://zealy.io/c/monsterlord
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/web3-trendy-toy-social-platform-monster-lord-successfully-completed-its-first-round-of-nft-mints-sold-out-on-launch-day)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ezfxq3/monster_lord_releases_meta_monster_card_nft_first/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ezfxq3/monster_lord_releases_meta_monster_card_nft_first/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/23/yawnVf5Q.webp)

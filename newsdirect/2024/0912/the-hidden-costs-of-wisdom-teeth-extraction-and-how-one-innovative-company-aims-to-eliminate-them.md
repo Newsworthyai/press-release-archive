@@ -50,9 +50,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-hidden-costs-of-wisdom-teeth-extraction-and-how-one-innovative-company-aims-to-eliminate-them-412205960 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-hidden-costs-of-wisdom-teeth-extraction-and-how-one-innovative-company-aims-to-eliminate-them-412205960)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ff1oj1/innovative_technology_aims_to_eliminate_the/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ff1oj1/innovative_technology_aims_to_eliminate_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/12/zesthAT9.webp)

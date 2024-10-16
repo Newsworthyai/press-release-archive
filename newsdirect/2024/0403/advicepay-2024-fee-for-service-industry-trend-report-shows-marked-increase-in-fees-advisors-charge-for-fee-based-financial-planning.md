@@ -32,9 +32,17 @@ Company Websitehttps://advicepay.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/advicepay-2024-fee-for-service-industry-trend-report-shows-marked-increase-in-fees-advisors-charge-for-fee-based-financial-planning-978255176 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/advicepay-2024-fee-for-service-industry-trend-report-shows-marked-increase-in-fees-advisors-charge-for-fee-based-financial-planning-978255176)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1buyrbc/advicepay_2024_report_increase_in_fees_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1buyrbc/advicepay_2024_report_increase_in_fees_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/3/veil_BIV.webp)

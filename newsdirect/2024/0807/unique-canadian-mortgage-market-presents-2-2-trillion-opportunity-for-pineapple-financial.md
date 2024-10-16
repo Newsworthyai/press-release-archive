@@ -56,9 +56,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/unique-canadian-mortgage-market-presents-2-2-trillion-opportunity-for-pineapple-financial-703321048 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/unique-canadian-mortgage-market-presents-2-2-trillion-opportunity-for-pineapple-financial-703321048)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1em750j/pineapple_financial_inc_eyes_22_trillion/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1em750j/pineapple_financial_inc_eyes_22_trillion/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/7/jazzYIVO.webp)

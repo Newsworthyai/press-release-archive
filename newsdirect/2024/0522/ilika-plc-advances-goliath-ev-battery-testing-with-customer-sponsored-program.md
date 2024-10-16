@@ -16,9 +16,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ilika-plc-advances-goliath-ev-battery-testing-with-customer-sponsored-program-617331262 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ilika-plc-advances-goliath-ev-battery-testing-with-customer-sponsored-program-617331262)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1cy0i8k/ilika_plc_advances_goliath_ev_battery_testing/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1cy0i8k/ilika_plc_advances_goliath_ev_battery_testing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/roams085.webp)

@@ -18,9 +18,17 @@ About EquityGatesEquityGates has established itself as a premier platform that p
 
 Its commitment to transparency also ensures that clients have access to clear information about fees, market conditions, and other relevant factors. Last but not least, the company's dedicated support team is always available to assist traders with any questions or concerns. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/equitygates-collaborates-with-metatrader-4-bringing-exceptional-trading-technology-to-customers)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fpzydn/equitygates_announces_strategic_partnership_with/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fpzydn/equitygates_announces_strategic_partnership_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/26/quayq1to.webp)

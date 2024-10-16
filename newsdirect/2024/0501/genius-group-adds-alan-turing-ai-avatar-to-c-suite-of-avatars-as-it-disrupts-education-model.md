@@ -20,9 +20,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/genius-group-adds-alan-turing-ai-avatar-to-c-suite-of-avatars-as-it-disrupts-education-model-397008965 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/genius-group-adds-alan-turing-ai-avatar-to-c-suite-of-avatars-as-it-disrupts-education-model-397008965)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1choatc/genius_group_adds_alan_turing_ai_avatar_to_csuite/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1choatc/genius_group_adds_alan_turing_ai_avatar_to_csuite/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/jadeUoB6.webp)

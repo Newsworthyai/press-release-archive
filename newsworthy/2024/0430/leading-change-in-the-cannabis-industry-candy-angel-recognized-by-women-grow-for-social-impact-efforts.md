@@ -22,9 +22,17 @@ About Women Grow
 
 Women Grow was founded in 2014 in Denver, Colorado but is now headquartered in Washington, D.C. Women Grow was created to Connect, Educate, Empower, and Inspire the next generation of industry leaders by creating programs, community, and events for aspiring and current business executives. Founded in 2014 in Denver now headquartered in Washington DC, Women Grow serves as a catalyst for women to influence and succeed in emerging industries as the end of prohibition occurs on a global scale. For more information, please visit WomenGrow.com or follow us on social media @womengrow. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202404301156/leading-change-in-the-cannabis-industry-candy-angel-recognized-by-women-grow-for-social-impact-efforts)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1ch0m4x/candy_angel_receives_prestigious_social_impact/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1ch0m4x/candy_angel_receives_prestigious_social_impact/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/244/30/quay4IIW.webp)

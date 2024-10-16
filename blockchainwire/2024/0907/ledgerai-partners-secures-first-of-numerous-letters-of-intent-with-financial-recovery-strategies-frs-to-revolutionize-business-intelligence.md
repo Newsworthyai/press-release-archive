@@ -36,9 +36,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ledgerai-partners-secures-first-of-numerous-letters-of-intent-with-financial-recovery-strategies-frs-to-revolutionize-business-intelligence)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1fistwc/ledgerai_secures_transformative_loi_with/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1fistwc/ledgerai_secures_transformative_loi_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/11/hintLOJB.webp)

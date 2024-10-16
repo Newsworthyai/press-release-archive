@@ -4,9 +4,17 @@ Memechao, the innovative cryptocurrency platform, is poised to revolutionize the
 
 At the heart of Memechao' 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/memechao-is-bridging-the-gap-between-crypto-meme-culture-creator-culture-and-ai)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bpo8x0/memechao_revolutionizing_meme_coins_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bpo8x0/memechao_revolutionizing_meme_coins_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/28/iconiQq5.webp)

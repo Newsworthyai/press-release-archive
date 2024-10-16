@@ -18,9 +18,17 @@ CHRODaily.com serves as the cornerstone for HR leaders to engage, learn, and gro
 
 Stay ahead in the HR leadership curve. Explore more at www.CHRODaily.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231219790/announcing-chrodaily-com-the-go-to-hub-for-human-resource-leadership-and-insights)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HRnews/comments/1avcuvd/chrodailycom_the_premier_digital_destination_for/
+
+
+[Reddit Post](https://www.reddit.com/r/HRnews/comments/1avcuvd/chrodailycom_the_premier_digital_destination_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/gaineOXd.webp)

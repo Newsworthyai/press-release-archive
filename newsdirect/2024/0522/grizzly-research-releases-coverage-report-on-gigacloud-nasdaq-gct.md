@@ -49,9 +49,17 @@ Admin@grizzlyreports.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/grizzly-research-releases-coverage-report-on-gigacloud-nasdaq-gct-899597226 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/grizzly-research-releases-coverage-report-on-gigacloud-nasdaq-gct-899597226)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cy0y6z/grizzly_research_report_reveals_concerns_about/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cy0y6z/grizzly_research_report_reveals_concerns_about/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/palel7Tr.webp)

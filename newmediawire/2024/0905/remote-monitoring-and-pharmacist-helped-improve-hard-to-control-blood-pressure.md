@@ -69,9 +69,17 @@ Research Highlights:
 
  heart.org and stroke.org 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/remote-monitoring-and-pharmacist-helped-improve-hard-to-control-blood-pressure-7076005)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f9rleo/remote_monitoring_and_pharmacist_helped_improve/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f9rleo/remote_monitoring_and_pharmacist_helped_improve/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/5/voltwJ1M.webp)

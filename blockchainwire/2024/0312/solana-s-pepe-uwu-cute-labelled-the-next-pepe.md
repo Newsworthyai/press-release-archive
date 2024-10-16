@@ -14,9 +14,17 @@ Is PEPE UWU (CUTE) the next $4 billion PEPE project? Only time will tell. The Bl
 
 https://t.me/PEPEUWUCUTEhttps://twitter.com/PEPEUWUCUTE[https://pepeuwu.com/](https://pepeuwu.com/)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/solanas-pepe-uwu-cute-labelled-the-next-pepe)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1bcwzb5/pepe_uwu_cute_the_next_big_meme_coin_on_solana/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1bcwzb5/pepe_uwu_cute_the_next_big_meme_coin_on_solana/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/12/roamz3IM.webp)

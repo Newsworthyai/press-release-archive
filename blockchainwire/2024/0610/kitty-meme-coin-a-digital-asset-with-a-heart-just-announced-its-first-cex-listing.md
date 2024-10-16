@@ -10,9 +10,17 @@ Kitty aims to build a better world by investing in education, creating better co
 
 Join the Kitty Meme Coin movement today and be part of something bigger – a digital revolution with a heart. Don't miss out on the kitty meme wave! If you missed Doge, SLERF, or Bome, Kitty is your chance to ride the next big wave!Website: [https://www.kittymemecoin.com/](https://www.kittymemecoin.com/)Telegram: [https://t.me/kitty_memecoin](https://t.me/kitty_memecoin)Twitter X: [https://x.com/kittymemecoin](https://x.com/kittymemecoin)[](https://www.instagram.com/kittymemecoin/)Instagram: [https://www.instagram.com/kittymemecoin/](https://www.instagram.com/kittymemecoin/)Facebook: [https://www.facebook.com/Kittymemecoin](https://www.facebook.com/Kittymemecoin)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/kitty-meme-coin-a-digital-asset-with-a-heart---just-announced-its-first-cex-listing)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1e3ombh/kitty_meme_coin_the_next_big_wave_in_crypto/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1e3ombh/kitty_meme_coin_the_next_big_wave_in_crypto/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/10/ulnan2Kp.webp)

@@ -12,9 +12,17 @@ Mr. Yang emphasized that applying CLEBUS-X's blockchain and NFT technology could
 
 Both companies expressed their commitment to technology and knowledge sharing, facilitating research and development activities to develop new ideas and innovative products. The collaboration aims to help maintain their leading positions in their respective fields and gain competitive advantages. Through this agreement, the two companies will provide various strategic support for technology development and business expansion, playing a crucial role in creating new markets and business models. There are also anticipated synergies with Clebus' new initiative, a marketplace for AI chatbots resistant to censorship. SEIL-X is poised to leverage Clebus' AI authentication technology within its own systems. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/alman-company-partners-with-seil-x-to-commercialize-ai-blockchain-authentication-for-defense-and-aerospace-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avwxpv/alman_company_partners_with_seilx_to_apply_ai/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avwxpv/alman_company_partners_with_seilx_to_apply_ai/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/20/mielQvfJ.webp)

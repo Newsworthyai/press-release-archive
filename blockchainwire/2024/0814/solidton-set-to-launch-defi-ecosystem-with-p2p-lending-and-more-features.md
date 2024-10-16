@@ -47,9 +47,17 @@ As the official launch approaches, learning more about Solidton through its offi
 
 [X (Twitter)](https://x.com/solidton) | [Instagram](https://www.instagram.com/solidton_official) | [Facebook](https://www.facebook.com/profile.php?id=61563661396720) | [Telegram](https://t.me/solidton_official)Disclaimer: This is a press release and does not contain any financial advice. Readers should do their own research before taking any actions related to the company mentioned. You are solely responsible, directly or indirectly, for any damage or loss caused or alleged to be caused by or in connection with the use of or reliance on any content, goods, or services mentioned in the press release. Cryptocurrency is volatile. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/solidton-set-to-launch-defi-ecosystem-with-p2p-lending-and-more-features)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1erv9z0/solidton_son_launches_innovative_defi_ecosystem/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1erv9z0/solidton_son_launches_innovative_defi_ecosystem/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/14/fern8_GS.webp)

@@ -26,9 +26,17 @@ Businesses and users are encouraged to explore the benefits of these new integra
 
 This press release is provided for informational purposes only and does not constitute financial advice, investment recommendation, or an offer or solicitation to buy or sell any securities. Readers should conduct their own research and consult with a professional financial advisor before making any investment decisions. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/nowpayments-expands-crypto-payment-options-with-layerzero-zro-and-zk-token-zk)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dz2ozv/nowpayments_expands_cryptocurrency_payment/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dz2ozv/nowpayments_expands_cryptocurrency_payment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/9/flax8hBm.webp)

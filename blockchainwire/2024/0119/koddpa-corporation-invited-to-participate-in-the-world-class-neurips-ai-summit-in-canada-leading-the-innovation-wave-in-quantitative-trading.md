@@ -26,9 +26,17 @@ KODDPA Corporation is a professional AI quantitative trading company that levera
 
 Website: https://koddpa.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/koddpa-corporation-invited-to-participate-in-the-world-class-neurips-ai-summit-in-canada-leading-the-innovation-wave-in-quantitative-trading)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1avxh37/koddpa_corporation_showcases_leading_ai/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1avxh37/koddpa_corporation_showcases_leading_ai/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/sage5ls7.webp)

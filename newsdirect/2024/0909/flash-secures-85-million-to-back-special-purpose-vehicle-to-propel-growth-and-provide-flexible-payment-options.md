@@ -32,9 +32,17 @@ Company Websitehttps://www.flashparking.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/flash-secures-85-million-to-back-special-purpose-vehicle-to-propel-growth-and-provide-flexible-payment-options-153937775 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/flash-secures-85-million-to-back-special-purpose-vehicle-to-propel-growth-and-provide-flexible-payment-options-153937775)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fcqcus/flash_secures_85_million_in_debt_financing_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fcqcus/flash_secures_85_million_in_debt_financing_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/9/glueOMYE.webp)

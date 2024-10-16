@@ -32,9 +32,17 @@ Nramos@readywise.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/introducing-the-new-72-hour-emergency-food-kit-from-wise-food-storage-368418862 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/introducing-the-new-72-hour-emergency-food-kit-from-wise-food-storage-368418862)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1co3f4f/wise_food_storage_launches_new_72_hour_emergency/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1co3f4f/wise_food_storage_launches_new_72_hour_emergency/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/noonIhKW.webp)

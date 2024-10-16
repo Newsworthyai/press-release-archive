@@ -16,9 +16,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/standard-uranium-on-track-to-begin-exploration-on-the-canary-project-in-athabasca-basin-373574597 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/standard-uranium-on-track-to-begin-exploration-on-the-canary-project-in-athabasca-basin-373574597)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bz4s44/standard_uranium_ceo_provides_update_on_canary/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bz4s44/standard_uranium_ceo_provides_update_on_canary/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/8/mossvPE5.webp)

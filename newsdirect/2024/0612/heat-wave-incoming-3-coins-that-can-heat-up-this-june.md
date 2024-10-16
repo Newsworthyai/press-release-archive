@@ -36,9 +36,17 @@ media@galaxyfox.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/heat-wave-incoming-3-coins-that-can-heat-up-this-june-704434928 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/heat-wave-incoming-3-coins-that-can-heat-up-this-june-704434928)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1deao9w/crypto_heat_wave_top_coins_to_watch_in_june/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1deao9w/crypto_heat_wave_top_coins_to_watch_in_june/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/12/lineBQXq.webp)

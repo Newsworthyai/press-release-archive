@@ -46,9 +46,17 @@ Company Websitehttps://symphony.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/symphony-showcases-its-community-innovations-at-flagship-conference-including-interoperability-with-microsoft-teams-445264665 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/symphony-showcases-its-community-innovations-at-flagship-conference-including-interoperability-with-microsoft-teams-445264665)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cfy0xt/symphony_showcases_interoperability_with/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cfy0xt/symphony_showcases_interoperability_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/29/cornWakw.webp)

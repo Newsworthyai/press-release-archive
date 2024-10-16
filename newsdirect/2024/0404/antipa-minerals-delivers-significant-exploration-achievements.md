@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/antipa-minerals-delivers-significant-exploration-achievements-317861478 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/antipa-minerals-delivers-significant-exploration-achievements-317861478)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bvsmz2/antipa_minerals_delivers_significant_exploration/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bvsmz2/antipa_minerals_delivers_significant_exploration/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/4/kite9zBx.webp)

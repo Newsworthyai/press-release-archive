@@ -22,9 +22,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 
 Media Contact: [girlsclub@transformgroup.com](mailto:girlsclub@transformgroup.com) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/girls-club-token-girls-is-here-to-break-up-cryptos-old-boy-network)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1erz75x/girls_club_token_girls_making_waves_in/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1erz75x/girls_club_token_girls_making_waves_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/14/voltQSmY.webp)

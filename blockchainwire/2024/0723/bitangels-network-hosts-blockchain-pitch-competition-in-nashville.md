@@ -62,9 +62,17 @@ About the Nashville Entrepreneur Center: Since 2010, the Nashville Entrepreneur 
 
 About The Bitcoin Startup Lab: The Bitcoin Startup Lab is a premier accelerator focused on fostering innovation in the web3 sector. Led by Albert Liang, BSL is dedicated to nurturing the best ideas and founders by providing comprehensive support through education, mentorship, and marketing. With a commitment to preparing startups for funding opportunities, the Bitcoin Startup Lab plays a pivotal role in advancing the financial technology ecosystem. Founders Apply Now: https://btcstartuplab.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitangels-network-hosts-blockchain-pitch-competition-in-nashville)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1eag7m0/bitangels_network_announces_bitcoin_2024_pitch/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1eag7m0/bitangels_network_announces_bitcoin_2024_pitch/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/23/hintDsO2.webp)

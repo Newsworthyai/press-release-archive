@@ -20,9 +20,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sovereign-metals-steps-up-operations-with-new-cto-and-industrial-equipment-442674343 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sovereign-metals-steps-up-operations-with-new-cto-and-industrial-equipment-442674343)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cho2ku/sovereign_metals_accelerates_operations_with_new/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cho2ku/sovereign_metals_accelerates_operations_with_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/oval9Vwl.webp)

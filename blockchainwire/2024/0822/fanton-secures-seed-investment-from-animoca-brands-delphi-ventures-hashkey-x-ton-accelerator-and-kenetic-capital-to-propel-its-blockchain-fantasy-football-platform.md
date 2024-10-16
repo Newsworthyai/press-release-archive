@@ -34,9 +34,17 @@ Website: https://www.fan-ton.com
 
 Telegram Channel: https://t.me/fantongamebot 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/fanton-secures-seed-investment-from-animoca-brands-delphi-ventures-hashkey-x-ton-accelerator-and-kenetic-capital-to-propel-its-blockchain-fantasy-football-platform)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1eyhsip/fanton_fantasy_football_secures_1m_seed_funding/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1eyhsip/fanton_fantasy_football_secures_1m_seed_funding/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/22/linecFfH.webp)

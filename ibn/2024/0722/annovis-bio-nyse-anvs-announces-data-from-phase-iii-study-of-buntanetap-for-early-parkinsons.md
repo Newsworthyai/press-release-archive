@@ -29,9 +29,17 @@
 
  BioMedWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-announces-data-from-phase-iii-study-of-buntanetap-for-early-parkinsons/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2fen6/annovis_bio_releases_positive_data_from_phase_iii/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2fen6/annovis_bio_releases_positive_data_from_phase_iii/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/kisspfCX.webp)

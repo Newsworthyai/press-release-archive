@@ -72,9 +72,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-kicks-off-11th-anniversary-celebration-with-over-10-million-usdt-in-rewards-for-users-808353656 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-kicks-off-11th-anniversary-celebration-with-over-10-million-usdt-in-rewards-for-users-808353656)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1enbqmg/htx_celebrates_11th_anniversary_with_over_10/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1enbqmg/htx_celebrates_11th_anniversary_with_over_10/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/8/rendGF2z.webp)

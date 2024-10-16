@@ -43,9 +43,17 @@ Visit Our Blog
 * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/ycommunicate/news_release/1456)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1cuarmd/trish_standley_and_walk_in_my_shoes_foundation/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1cuarmd/trish_standley_and_walk_in_my_shoes_foundation/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/245/17/pitapico81vQ.webp)

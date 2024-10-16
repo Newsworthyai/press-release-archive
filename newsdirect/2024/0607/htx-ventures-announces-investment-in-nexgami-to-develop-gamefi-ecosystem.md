@@ -42,9 +42,17 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-announces-investment-in-nexgami-to-develop-gamefi-ecosystem-608832793 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-ventures-announces-investment-in-nexgami-to-develop-gamefi-ecosystem-608832793)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvkx8s/htx_ventures_invests_in_nexgami_to_develop_gamefi/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvkx8s/htx_ventures_invests_in_nexgami_to_develop_gamefi/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/7/rubyle8o.webp)

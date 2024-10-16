@@ -24,9 +24,17 @@ Hamster Combat on the TON Blockchain
 
 The choice of the TON blockchain brings added security and scalability to Hamster Combat ($HMSTR), making it easier for users and businesses to conduct transactions quickly and affordably. As the TON blockchain continues to evolve, $HMSTR stands out as a meme token with real utility and growing popularity within the crypto community. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/nowpayments-lists-hamster-combat-hmstr)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fq0nw8/nowpayments_lists_hamster_combat_hmstr_on_ton/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fq0nw8/nowpayments_lists_hamster_combat_hmstr_on_ton/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/26/pitapicoA57R.webp)

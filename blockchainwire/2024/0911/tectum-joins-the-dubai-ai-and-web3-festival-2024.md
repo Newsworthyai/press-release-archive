@@ -46,9 +46,17 @@ Media Details:
 * Tectum Website URL: Tectum
 * SoftNote Website URL: SoftNote 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/tectum-joins-the-dubai-ai-and-web3-festival-2024)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1ffh3xa/dubai_ai_and_web3_festival_2024_tectum_to/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1ffh3xa/dubai_ai_and_web3_festival_2024_tectum_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/11/apexx0N9.webp)

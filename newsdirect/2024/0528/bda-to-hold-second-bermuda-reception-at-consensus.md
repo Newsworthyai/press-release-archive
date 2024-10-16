@@ -30,9 +30,17 @@ Company Websitehttps://bda.bm
 
 View source version on newsdirect.com: https://newsdirect.com/news/bda-to-hold-second-bermuda-reception-at-consensus-244613098 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bda-to-hold-second-bermuda-reception-at-consensus-244613098)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1d2iw4n/bda_to_host_second_bermuda_reception_at_consensus/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1d2iw4n/bda_to_host_second_bermuda_reception_at_consensus/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/28/zero3uHe.webp)

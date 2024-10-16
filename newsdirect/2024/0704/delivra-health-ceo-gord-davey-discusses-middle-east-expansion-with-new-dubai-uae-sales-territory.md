@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/delivra-health-ceo-gord-davey-discusses-middle-east-expansion-with-new-dubai-uae-sales-territory-490179364 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/delivra-health-ceo-gord-davey-discusses-middle-east-expansion-with-new-dubai-uae-sales-territory-490179364)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1dv9bge/delivra_health_ceo_gord_davey_discusses_middle/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1dv9bge/delivra_health_ceo_gord_davey_discusses_middle/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/4/lendgVBb.webp)

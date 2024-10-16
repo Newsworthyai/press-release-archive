@@ -74,9 +74,17 @@ Company Websitehttps://www.sectorspdrs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-diverse-holdings-of-the-industrial-etf-xli-633234056 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-diverse-holdings-of-the-industrial-etf-xli-633234056)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1de28fv/discover_the_diverse_holdings_of_the_industrial/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1de28fv/discover_the_diverse_holdings_of_the_industrial/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/12/fileTDWT.webp)

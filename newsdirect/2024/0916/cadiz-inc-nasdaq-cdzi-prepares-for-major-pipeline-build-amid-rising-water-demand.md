@@ -36,9 +36,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cadiz-inc-nasdaq-cdzi-prepares-for-major-pipeline-build-amid-rising-water-demand-807672665 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cadiz-inc-nasdaq-cdzi-prepares-for-major-pipeline-build-amid-rising-water-demand-807672665)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fi0vrh/cadiz_inc_prepares_for_major_pipeline_build_amid/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fi0vrh/cadiz_inc_prepares_for_major_pipeline_build_amid/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/16/barnayI0.webp)

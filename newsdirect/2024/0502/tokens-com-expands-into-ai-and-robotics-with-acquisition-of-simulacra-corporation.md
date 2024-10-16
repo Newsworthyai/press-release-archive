@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tokens-com-expands-into-ai-and-robotics-with-acquisition-of-simulacra-corporation-608089135 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tokens-com-expands-into-ai-and-robotics-with-acquisition-of-simulacra-corporation-608089135)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cijttp/tokenscom_expands_into_ai_and_robotics_with/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cijttp/tokenscom_expands_into_ai_and_robotics_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/2/smogrBaX.webp)

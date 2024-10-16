@@ -24,9 +24,17 @@ Company Websitehttp://www.promperu.gob.pe
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-magic-of-peru-paddingtons-latest-adventure-959755928 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-magic-of-peru-paddingtons-latest-adventure-959755928)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BookNews/comments/1dg05zk/paddington_returns_to_peru_in_34paddington_in/
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1dg05zk/paddington_returns_to_peru_in_34paddington_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/14/rainkNCm.webp)

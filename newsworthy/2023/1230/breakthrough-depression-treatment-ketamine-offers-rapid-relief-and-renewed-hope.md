@@ -14,9 +14,17 @@ RSF IV Therapy is dedicated to delivering top-notch care to our patients. Our pr
 
 We know that seeking treatment can be an arduous and stressful process, that’s why we emphasize empathy and compassion in our methods. Our goal is to ensure that you feel comfortable and supported every step of the way during your treatment. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231230968/breakthrough-depression-treatment-ketamine-offers-rapid-relief-and-renewed-hope)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdoho/ketamine_therapy_a_new_era_in_mental_health_care/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdoho/ketamine_therapy_a_new_era_in_mental_health_care/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/fineC_3i.webp)

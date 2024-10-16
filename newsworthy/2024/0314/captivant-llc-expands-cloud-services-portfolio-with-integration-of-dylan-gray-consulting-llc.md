@@ -22,9 +22,17 @@ About Captivant LLC:
 
 Captivant LLC is a conglomerate comprising White Label Group, Innovatis Solutions, and now Cloud Mammoth. With a decade-long track record in implementing and delivering projects within the SaaS space, including Salesforce, Pega, AWS, Oracle, and Microsoft Dynamics, Captivant LLC continues to redefine excellence in cloud services. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202403141119/captivant-llc-expands-cloud-services-portfolio-with-integration-of-dylan-gray-consulting-llc)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1beqnxc/captivant_llc_integrates_dylan_gray_consulting/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1beqnxc/captivant_llc_integrates_dylan_gray_consulting/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/243/14/odor_jPg.webp)

@@ -72,9 +72,17 @@ Lufina Social Media
 
 Twitter | Instagram | Youtube | Medium | LinkedinTelegram Discussion | Telegram Announcement 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/lufina----birth-of-the-first-play-to-win-rwa-real-world-asset-real-estate-project)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1eb3hv2/lufina_revolutionizes_real_estate_with_clickcity/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1eb3hv2/lufina_revolutionizes_real_estate_with_clickcity/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/23/filercX1.webp)

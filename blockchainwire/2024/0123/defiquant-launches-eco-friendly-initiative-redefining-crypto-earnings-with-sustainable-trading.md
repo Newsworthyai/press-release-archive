@@ -60,9 +60,17 @@ Email: AllenHeery@defiquant.netWebsite: [https://defiquant.net](https://www.def
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/defiquant-launches-eco-friendly-initiative-redefining-crypto-earnings-with-sustainable-trading)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avjsb4/defiquant_unveils_new_sustainable_trading_model/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avjsb4/defiquant_unveils_new_sustainable_trading_model/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/joltW31v.webp)

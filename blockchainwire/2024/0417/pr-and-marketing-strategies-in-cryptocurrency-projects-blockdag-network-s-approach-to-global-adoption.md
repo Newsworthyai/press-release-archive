@@ -36,9 +36,17 @@ Discord: https://discord.gg/Q7BxghMVyu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/pr-and-marketing-strategies-in-cryptocurrency-projects-blockdag-networks-approach-to-global-adoption)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c6bpt4/blockdag_networks_innovative_pr_and_marketing/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c6bpt4/blockdag_networks_innovative_pr_and_marketing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/17/zealhP4w.webp)

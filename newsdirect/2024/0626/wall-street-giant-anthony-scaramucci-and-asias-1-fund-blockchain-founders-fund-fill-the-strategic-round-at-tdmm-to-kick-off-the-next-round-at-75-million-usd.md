@@ -48,9 +48,17 @@ mb@tde.fi
 
 View source version on newsdirect.com: https://newsdirect.com/news/wall-street-giant-anthony-scaramucci-and-asias-1-fund-blockchain-founders-fund-fill-the-strategic-round-at-tdmm-to-kick-off-the-next-round-at-75-million-usd-934352053 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/wall-street-giant-anthony-scaramucci-and-asias-1-fund-blockchain-founders-fund-fill-the-strategic-round-at-tdmm-to-kick-off-the-next-round-at-75-million-usd-934352053)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1doxbwc/tradedog_market_management_secures_major/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1doxbwc/tradedog_market_management_secures_major/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/26/herbRYoZ.webp)

@@ -14,9 +14,17 @@ Conventions Psychiatry & Counseling is a comprehensive outpatient behavioral tre
 
 We believe that everyone should have access to quality mental health services and are committed to diversity, equity, and inclusion. We support healthier communities by providing care at community mental health agencies, chemical dependency programs, and skilled nursing facilities. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231230964/conventions-psychiatry-counseling-introduces-revolutionary-treatment-option-for-depression-tms-therapy)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdony/breakthrough_tms_therapy_shows_promise_in/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdony/breakthrough_tms_therapy_shows_promise_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/mark4lsr.webp)

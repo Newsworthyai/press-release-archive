@@ -54,9 +54,17 @@ Info@lucreway.us
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-lcr-lucre-waylisting-on-xt)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1d7mmbj/xt_announces_listing_of_lcr_token_for_defi/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1d7mmbj/xt_announces_listing_of_lcr_token_for_defi/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/linedk_l.webp)

@@ -45,9 +45,17 @@
 
  heart.org and stroke.org 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/former-georgia-miami-coach-mark-richt-named-2025-paul-bear-bryant-heart-of-a-champion-7076188)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1g0oe5a/mark_richt_receives_2025_paul_bear_bryant_heart/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1g0oe5a/mark_richt_receives_2025_paul_bear_bryant_heart/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/10/lendkWSI.webp)

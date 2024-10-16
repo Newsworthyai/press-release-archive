@@ -34,9 +34,17 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-vision-bp-llc-and-us-lbm-holdings-llc-460639534 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-vision-bp-llc-and-us-lbm-holdings-llc-460639534)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f9guh3/us_lbm_holdings_expands_through_acquisition_of/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f9guh3/us_lbm_holdings_expands_through_acquisition_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/5/knobvl0o.webp)

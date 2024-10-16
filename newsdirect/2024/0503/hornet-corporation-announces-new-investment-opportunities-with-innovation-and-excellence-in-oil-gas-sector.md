@@ -30,9 +30,17 @@ Company Websitehttps://www.hornetcorp.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/hornet-corporation-announces-new-investment-opportunities-with-innovation-and-excellence-in-oil-and-gas-sector-372981775 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/hornet-corporation-announces-new-investment-opportunities-with-innovation-and-excellence-in-oil-and-gas-sector-372981775)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cjhdmb/hornet_corporation_unveils_new_investment/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cjhdmb/hornet_corporation_unveils_new_investment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/3/urgeHdS2.webp)

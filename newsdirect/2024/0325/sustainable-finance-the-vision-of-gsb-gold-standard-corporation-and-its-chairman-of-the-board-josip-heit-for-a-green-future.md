@@ -48,9 +48,17 @@ Contact DetailsLE PAYS DE FRANCE
 
 View source version on newsdirect.com: https://newsdirect.com/news/sustainable-finance-the-vision-of-gsb-gold-standard-corporation-and-its-chairman-of-the-board-josip-heit-for-a-green-future-551455224 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sustainable-finance-the-vision-of-gsb-gold-standard-corporation-and-its-chairman-of-the-board-josip-heit-for-a-green-future-551455224)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1bnudej/gsb_gold_standard_corp_ag_chairmans_vision_for_a/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1bnudej/gsb_gold_standard_corp_ag_chairmans_vision_for_a/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/tilebldY.webp)

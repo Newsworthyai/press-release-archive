@@ -18,9 +18,17 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, i
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/mullen-automotive-nasdaq-muln-releases-financial-results-business-update/)
+---
+
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-releases-financial-results-business-update/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1f2fxy2/mullen_automotive_releases_positive_financial_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f2ryuw/mullen_automotive_reports_positive_financial_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/airyqIFr.webp)

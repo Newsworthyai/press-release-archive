@@ -28,9 +28,17 @@ Additional Details:
 * For a comprehensive breakdown of the Brioche Hard Fork, including the halving schedule, circulating supply calculations, and detailed tokenomics changes, please visit the WEMIX website.
 * For the detailed CertiK leaderboards, visit CertiK Skynet. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/wemix-dominates-1-spot-in-gaming-gamefi-play-to-earn-and-web3-categories-on-certiks-cryptocurrency-leaderboard)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dy8jux/wemix_tops_certiks_cryptocurrency_leaderboard/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dy8jux/wemix_tops_certiks_cryptocurrency_leaderboard/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/8/marktIcJ.webp)

@@ -44,9 +44,17 @@ aigoldofficial@aigold.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/aigold-goes-live-introducing-the-first-gold-backed-crypto-project-288708907 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/aigold-goes-live-introducing-the-first-gold-backed-crypto-project-288708907)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1co2yhx/aigold_launches_goldbacked_cryptocurrency_project/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1co2yhx/aigold_launches_goldbacked_cryptocurrency_project/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/lambAtJT.webp)

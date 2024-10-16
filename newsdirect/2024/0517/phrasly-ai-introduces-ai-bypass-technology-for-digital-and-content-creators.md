@@ -42,9 +42,17 @@ Company Websitehttps://phrasly.ai
 
 View source version on newsdirect.com: https://newsdirect.com/news/phrasly-ai-introduces-ai-bypass-technology-for-digital-and-content-creators-366278805 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/phrasly-ai-introduces-ai-bypass-technology-for-digital-and-content-creators-366278805)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1cu9rvq/phraslyai_introduces_ai_bypass_technology_for/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1cu9rvq/phraslyai_introduces_ai_bypass_technology_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/17/silkssbM.webp)

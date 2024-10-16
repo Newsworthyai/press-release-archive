@@ -58,9 +58,17 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/blackrock-indecisive-about-ethereum-etf-solana-staking-overview-bullish-kangamoon-kang-reaches-new-milestone-640450009 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/blackrock-indecisive-about-ethereum-etf-solana-staking-overview-bullish-kangamoon-kang-reaches-new-milestone-640450009)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bt87g9/kangamoon_kang_surges_blackrock_contemplates/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bt87g9/kangamoon_kang_surges_blackrock_contemplates/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/1/pitapico4mVJ.webp)

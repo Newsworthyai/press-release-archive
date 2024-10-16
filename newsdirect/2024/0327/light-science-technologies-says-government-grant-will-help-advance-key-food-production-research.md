@@ -18,9 +18,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/light-science-technologies-says-government-grant-will-help-advance-key-food-production-research-771529340 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/light-science-technologies-says-government-grant-will-help-advance-key-food-production-research-771529340)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bp0b01/light_science_technologies_secures_grant_for_food/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bp0b01/light_science_technologies_secures_grant_for_food/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/rubynRtn.webp)

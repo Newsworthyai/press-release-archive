@@ -42,9 +42,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/vuzix-nasdaq-vuzi-lands-20-million-investment-from-quanta-computer-as-the-two-expand-their-smart-glasses-collaboration-942202979 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/vuzix-nasdaq-vuzi-lands-20-million-investment-from-quanta-computer-as-the-two-expand-their-smart-glasses-collaboration-942202979)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fiy9zm/vuzix_receives_20_million_investment_from_quanta/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fiy9zm/vuzix_receives_20_million_investment_from_quanta/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/17/yawndoqV.webp)

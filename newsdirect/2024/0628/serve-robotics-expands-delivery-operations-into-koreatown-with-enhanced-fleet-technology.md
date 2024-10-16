@@ -14,9 +14,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/serve-robotics-expands-delivery-operations-into-koreatown-with-enhanced-fleet-technology-844154605 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/serve-robotics-expands-delivery-operations-into-koreatown-with-enhanced-fleet-technology-844154605)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dqt8wz/serve_robotics_expands_delivery_operations_into/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dqt8wz/serve_robotics_expands_delivery_operations_into/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/28/airyjDcu.webp)

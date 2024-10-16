@@ -40,9 +40,17 @@ Company Websitehttps://ctltrust.net/about/default.aspx
 
 View source version on newsdirect.com: https://newsdirect.com/news/copper-property-ctl-pass-through-trust-files-quarterly-report-for-the-period-ended-june-30-2024-322958241 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/copper-property-ctl-pass-through-trust-files-quarterly-report-for-the-period-ended-june-30-2024-322958241)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1engh5b/copper_property_ctl_pass_through_trust_files/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1engh5b/copper_property_ctl_pass_through_trust_files/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/8/lambMr_m.webp)

@@ -98,9 +98,17 @@ Dallas, TX (Newsworthy.ai) Tuesday Oct 1, 2024 @ 1:15 PM Central — SUCCESS®, 
 
  Media Contact for SUCCESS® Enterprises: Kerrie Lee Brown 303-493-1719 kerrie.brown@success.com 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202410011294/success-r-weekly-bestseller-lists-across-8-categories-for-week-ending-september-27-2024)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BookNews/comments/1fu1w6g/success_reveals_weekly_bestsellers_across_eight/
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1fu1w6g/success_reveals_weekly_bestsellers_across_eight/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2410/1/odorpMp8.webp)

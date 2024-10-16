@@ -20,9 +20,17 @@ For more information and updates about DHG, visit their website and socials:
 
 Website | Twitter | YouTube | Facebook | Discord | Instagram 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/digital-holdings-group-champions-renewable-energy-in-bitcoin-mining-sector-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1d9mkgg/digital_holdings_group_leads_the_way_in/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1d9mkgg/digital_holdings_group_leads_the_way_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/mailfBe0.webp)

@@ -26,9 +26,17 @@ Inception program open for application
 
 Those looking to build the next big thing with ChatDKG’s trusted AI solution or launch an Initial Paranet Offering are able to submit their application for the ChatDKG inception program to receive additional support by the OriginTrail team. Applications are open on the website. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/powered-by-origintrail-chatdkgai-is-unlocking-a-truly-open-artificial-intelligence)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1co3wmu/chatdkg_introduces_truly_open_ai_approach_and/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1co3wmu/chatdkg_introduces_truly_open_ai_approach_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/9/epic6hl7.webp)

@@ -20,9 +20,17 @@ Email: press@bitcr.orgContact: Cody Ellingham (GMT+13)
 
 Web: https://www.bit.cr/deep-dive 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcredit-protocol-raises-67m-pre-seed-for-bitcoin-m1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1g3lct5/bitcredit_protocol_aims_to_upgrade_bitcoin_as/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1g3lct5/bitcredit_protocol_aims_to_upgrade_bitcoin_as/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/14/jokeJRJT.webp)

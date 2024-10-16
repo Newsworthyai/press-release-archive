@@ -32,9 +32,17 @@ Website: https://ewyy.com/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ewyy-elevates-crypto-trading-experience-with-user-friendly-platform-and-strong-security----------)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1d9rrfk/ewyy_cryptocurrency_exchange_secure_diverse_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1d9rrfk/ewyy_cryptocurrency_exchange_secure_diverse_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/6/pondIQKG.webp)

@@ -26,9 +26,17 @@ Company Websitehttp://www.hondogo.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hondogo-continues-rapid-expansion-with-senior-tesla-hires-751197984 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/hondogo-continues-rapid-expansion-with-senior-tesla-hires-751197984)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eg4yyt/hondogo_continues_rapid_expansion_with_senior/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eg4yyt/hondogo_continues_rapid_expansion_with_senior/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/30/apexMLt2.webp)

@@ -22,9 +22,17 @@ Company Websitehttps://bettormetrics.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/top-u-s-sportsbooks-lost-out-on-160-7-million-in-handle-last-nfl-season-according-to-latest-report-from-sports-odds-intelligence-firm-bettormetrics-714116544 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/top-u-s-sportsbooks-lost-out-on-160-7-million-in-handle-last-nfl-season-according-to-latest-report-from-sports-odds-intelligence-firm-bettormetrics-714116544)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f9ri18/top_us_sportsbooks_lose_1607m_in_handle_last_nfl/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f9ri18/top_us_sportsbooks_lose_1607m_in_handle_last_nfl/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/5/nuke5whj.webp)

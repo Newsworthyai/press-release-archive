@@ -20,9 +20,17 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-advances-los-azules-project-with-comprehensive-drilling-program/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2q5oj/mcewen_copper_inc_advances_los_azules_project/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2q5oj/mcewen_copper_inc_advances_los_azules_project/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/irisd92m.webp)

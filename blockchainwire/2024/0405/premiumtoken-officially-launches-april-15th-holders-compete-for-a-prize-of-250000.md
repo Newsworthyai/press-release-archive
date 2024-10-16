@@ -30,9 +30,17 @@ For more details and to increase your chances of winning, visit https://presale.
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/premiumtoken-officially-launches-april-15th---holders-compete-for-a-prize-of-250000)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bwuuml/premiumtoken_launches_on_raydiumio_with_250000/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bwuuml/premiumtoken_launches_on_raydiumio_with_250000/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/5/poemoVxo.webp)

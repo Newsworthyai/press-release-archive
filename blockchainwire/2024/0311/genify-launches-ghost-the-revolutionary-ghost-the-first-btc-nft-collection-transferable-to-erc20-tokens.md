@@ -30,9 +30,17 @@ For further information about "Ghost" and Genify's contributions to the BTC ecos
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/genify-launches-ghost-the-revolutionary-ghost---the-first-btc-nft-collection-transferable-to-erc20-tokens)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bc1uk3/genify_launches_ghost_collection_of_bitcoin_nfts/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bc1uk3/genify_launches_ghost_collection_of_bitcoin_nfts/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/11/daven8Fe.webp)

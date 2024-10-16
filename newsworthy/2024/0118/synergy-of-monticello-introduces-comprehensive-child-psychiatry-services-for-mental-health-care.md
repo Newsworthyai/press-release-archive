@@ -8,9 +8,17 @@ These include the physical, genetic, developmental, emotional, cognitive, educat
 
 Also part of the many services The Synergy of Monticello offers to its clients includes child psychiatry, chemical dependency treatments, individual and family counseling, medication management, and even Transcranial Magnetic Stimulation (TMS) therapy for depression as well as Obsessive Compulsive Disorder (OCD). The practice also provides a patient portal, patient education resources, and evaluations for medical procedures. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20240118996/synergy-of-monticello-introduces-comprehensive-child-psychiatry-services-for-mental-health-care)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdpek/synergy_of_monticello_introduces_child_psychiatry/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdpek/synergy_of_monticello_introduces_child_psychiatry/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/larkvTjW.webp)

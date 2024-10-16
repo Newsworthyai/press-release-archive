@@ -36,9 +36,17 @@ Website: https://axlfin.com/
 
 Disclaimer: The artist Banksy is not officially involved and has not directly endorsed this project. The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/axl-finance-revolutionizing-trading-for-australian-clients-with-cutting-edge-ai)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1e7h63t/axl_finance_revolutionizes_trading_with_unique_ai/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1e7h63t/axl_finance_revolutionizes_trading_with_unique_ai/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/19/eachoSqd.webp)

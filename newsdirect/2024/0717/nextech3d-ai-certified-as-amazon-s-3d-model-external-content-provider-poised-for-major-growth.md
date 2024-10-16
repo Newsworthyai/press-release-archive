@@ -18,9 +18,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-certified-as-amazons-3d-model-external-content-provider-poised-for-major-growth-853291783 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-certified-as-amazons-3d-model-external-content-provider-poised-for-major-growth-853291783)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e5k804/nextech3dai_certified_as_amazons_3d_model/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e5k804/nextech3dai_certified_as_amazons_3d_model/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/17/epiceHZj.webp)

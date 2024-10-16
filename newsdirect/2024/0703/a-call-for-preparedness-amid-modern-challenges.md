@@ -22,9 +22,17 @@ Company Websitehttps://readywise.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/a-call-for-preparedness-amid-modern-challenges-862257646 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/a-call-for-preparedness-amid-modern-challenges-862257646)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dudwbi/readywise_urges_preparedness_amid_modern/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dudwbi/readywise_urges_preparedness_amid_modern/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/3/mintKBhV.webp)

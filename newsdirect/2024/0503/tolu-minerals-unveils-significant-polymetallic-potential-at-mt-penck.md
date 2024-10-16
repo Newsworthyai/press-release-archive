@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tolu-minerals-unveils-significant-polymetallic-potential-at-mt-penck-730307068 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tolu-minerals-unveils-significant-polymetallic-potential-at-mt-penck-730307068)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cjbrbb/tolu_minerals_unveils_significant_polymetallic/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cjbrbb/tolu_minerals_unveils_significant_polymetallic/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/3/oxenaCIm.webp)

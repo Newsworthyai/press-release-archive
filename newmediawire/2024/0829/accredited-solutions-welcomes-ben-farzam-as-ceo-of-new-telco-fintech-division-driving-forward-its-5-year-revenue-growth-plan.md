@@ -22,9 +22,17 @@ Follow Us on: X (Twitter): @asii_Inc
 
 Source: Accredited Solutions, Inc. https://www.diamondcreekwater.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/accredited-solutions-welcomes-ben-farzam-as-ceo-of-new-telco-fintech-division-driving-forward-its-5-year-revenue-growth-plan-7075977)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1f7lstv/accredited_solutions_inc_appoints_ben_farzam_as/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1f7lstv/accredited_solutions_inc_appoints_ben_farzam_as/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/2/milkGyDA.webp)

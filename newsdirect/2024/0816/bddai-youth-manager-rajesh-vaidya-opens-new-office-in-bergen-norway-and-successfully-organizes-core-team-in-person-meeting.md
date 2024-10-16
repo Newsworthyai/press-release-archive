@@ -54,9 +54,17 @@ Company Websitehttps://xbddai.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bddai-youth-manager-rajesh-vaidya-opens-new-office-in-bergen-norway-and-successfully-organizes-core-team-in-person-meeting-165935133 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bddai-youth-manager-rajesh-vaidya-opens-new-office-in-bergen-norway-and-successfully-organizes-core-team-in-person-meeting-165935133)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1f1r8p5/bddai_youth_manager_rajesh_vaidya_opens_new/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1f1r8p5/bddai_youth_manager_rajesh_vaidya_opens_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/16/boldLIvM.webp)

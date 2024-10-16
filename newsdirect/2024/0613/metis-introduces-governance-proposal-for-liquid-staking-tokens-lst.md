@@ -34,9 +34,17 @@ Company Websitehttps://www.metis.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/metis-introduces-governance-proposal-for-liquid-staking-tokens-lst-773249675 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/metis-introduces-governance-proposal-for-liquid-staking-tokens-lst-773249675)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fviu31/metis_introduces_governance_proposal_for_liquid/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fviu31/metis_introduces_governance_proposal_for_liquid/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/13/silkQoNJ.webp)

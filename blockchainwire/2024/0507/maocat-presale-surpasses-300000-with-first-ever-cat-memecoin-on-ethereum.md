@@ -40,9 +40,17 @@ As this project continues to grow and develop, users can expect even more exciti
 
 X (Twitter) | Telegram | Instagram | YouTube 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/maocat-presale-surpasses-300000-with-first-ever-cat-memecoin-on-ethereum)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1cm9e5r/maocat_project_surpasses_300000_in_presale_triumph/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1cm9e5r/maocat_project_surpasses_300000_in_presale_triumph/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/7/pale2j5h.webp)

@@ -62,9 +62,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/missed-bitcoins-run-up-to-75-000-heres-why-you-probably-shouldnt-worry-536743292 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/missed-bitcoins-run-up-to-75-000-heres-why-you-probably-shouldnt-worry-536743292)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1d4unaq/understanding_bitcoins_recent_surge_and_market/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1d4unaq/understanding_bitcoins_recent_surge_and_market/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/31/lushbeLK.webp)

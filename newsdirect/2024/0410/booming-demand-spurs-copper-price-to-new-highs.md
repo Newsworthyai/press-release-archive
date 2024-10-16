@@ -50,9 +50,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/booming-demand-spurs-copper-price-to-new-highs-936816355 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/booming-demand-spurs-copper-price-to-new-highs-936816355)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c0kpas/booming_demand_spurs_copper_price_to_new_highs/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c0kpas/booming_demand_spurs_copper_price_to_new_highs/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/10/lunaSvaU.webp)

@@ -24,9 +24,17 @@ Lexaria Bioscience (NASDAQ: LEXX, LEXXW), a global innovator in drug delivery pl
 
  CannabisNewsWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-nasdaq-lexx-announces-noteworthy-findings-from-interim-results-of-ongoing-diabetes-animal-study/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1f2fg0d/lexaria_bioscience_announces_interim_results_from/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f2fg0d/lexaria_bioscience_announces_interim_results_from/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/moonQKfQ.webp)

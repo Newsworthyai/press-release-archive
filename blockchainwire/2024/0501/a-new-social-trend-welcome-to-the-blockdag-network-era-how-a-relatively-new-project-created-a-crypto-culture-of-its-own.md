@@ -34,9 +34,17 @@ Overall, the surge in popularity underscores the project's upward trajectory and
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/a-new-social-trend-welcome-to-the-blockdag-network-era--how-a-relatively-new-project-created-a-crypto-culture-of-its-own-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1chpv1t/blockdag_network_the_emergence_of_a_new_social/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1chpv1t/blockdag_network_the_emergence_of_a_new_social/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/1/best1afT.webp)

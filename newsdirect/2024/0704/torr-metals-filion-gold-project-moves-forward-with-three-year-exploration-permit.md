@@ -16,9 +16,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/torr-metals-filion-gold-project-moves-forward-with-three-year-exploration-permit-871208091 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/torr-metals-filion-gold-project-moves-forward-with-three-year-exploration-permit-871208091)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dvapme/torr_metals_ceo_secures_threeyear_exploration/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dvapme/torr_metals_ceo_secures_threeyear_exploration/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/4/note1b2R.webp)

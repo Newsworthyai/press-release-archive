@@ -36,9 +36,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ais-promise-on-display-ben-collaborates-with-sail-of-weill-cornell-medical-center-to-explore-ai-for-training-doctors-improving-patient-outcomes-175714081 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ais-promise-on-display-ben-collaborates-with-sail-of-weill-cornell-medical-center-to-explore-ai-for-training-doctors-improving-patient-outcomes-175714081)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dckx60/brand_engagement_network_inc_raises_495_million/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dckx60/brand_engagement_network_inc_raises_495_million/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/10/yoga38iO.webp)

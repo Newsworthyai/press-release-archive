@@ -20,9 +20,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bioharvest-sciences-adds-key-hires-as-company-looks-to-ramp-up-cdmo-services-business-unit-357567576 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bioharvest-sciences-adds-key-hires-as-company-looks-to-ramp-up-cdmo-services-business-unit-357567576)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bp4y9d/bioharvest_sciences_adds_key_hires_to_ramp_up/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bp4y9d/bioharvest_sciences_adds_key_hires_to_ramp_up/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/vastbbV_.webp)

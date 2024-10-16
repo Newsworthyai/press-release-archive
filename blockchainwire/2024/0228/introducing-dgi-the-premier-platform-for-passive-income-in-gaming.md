@@ -34,9 +34,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-dgi-the-premier-platform-for-passive-income-in-gaming)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1b6rovq/dgi_introduces_revolutionary_gaming_income_token/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1b6rovq/dgi_introduces_revolutionary_gaming_income_token/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/28/keepYAMx.webp)

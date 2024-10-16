@@ -16,9 +16,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/itaconix-ceo-outlines-future-growth-despite-short-term-revenue-setback-748936061 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/itaconix-ceo-outlines-future-growth-despite-short-term-revenue-setback-748936061)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bu4mcm/itaconix_ceo_outlines_future_growth_despite/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bu4mcm/itaconix_ceo_outlines_future_growth_despite/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/2/bean8Yqk.webp)

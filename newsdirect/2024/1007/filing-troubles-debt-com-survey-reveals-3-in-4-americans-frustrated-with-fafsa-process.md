@@ -41,9 +41,17 @@ Company Websitehttps://www.debt.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/filing-troubles-debt-com-survey-reveals-3-in-4-americans-frustrated-with-fafsa-process-246129595 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/filing-troubles-debt-com-survey-reveals-3-in-4-americans-frustrated-with-fafsa-process-246129595)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fydje1/debtcom_survey_reveals_frustration_with_fafsa/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fydje1/debtcom_survey_reveals_frustration_with_fafsa/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/7/flaxNwOK.webp)

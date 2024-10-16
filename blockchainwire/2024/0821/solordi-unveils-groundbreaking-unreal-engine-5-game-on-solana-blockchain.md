@@ -34,9 +34,17 @@ To Learn More. Visit Solordi.com, immerse yourself in our Telegram and Discord c
 
 About Solordi: With a mission to revolutionize the gaming and cryptocurrency landscapes, Solordi melds AR NFTs with its native digital currency, $SOLO, to forge an unparalleled interactive experience. Driven by innovation and a commitment to community, Solordi is on a trajectory to redefine the boundaries of blockchain engagement. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/solordi-unveils-groundbreaking-unreal-engine-5-game-on-solana-blockchain)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1exjb92/solordi_launches_first_unreal_engine_5_game_on/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1exjb92/solordi_launches_first_unreal_engine_5_game_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/21/fileNXmF.webp)

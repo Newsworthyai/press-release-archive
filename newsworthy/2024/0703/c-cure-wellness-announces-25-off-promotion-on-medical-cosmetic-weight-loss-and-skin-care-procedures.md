@@ -10,9 +10,17 @@ Dr. Lesia Christen is a skilled clinician who utilizes evidence-based philosophi
 
 To take advantage of this limited-time offer, book an appointment by visiting www.ccurewellness.com or contact C-Cure Wellness directly at info@ccurewellness.com or 845-729-6965. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202407031205/c-cure-wellness-announces-25-off-promotion-on-medical-cosmetic-weight-loss-and-skin-care-procedures)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1duibay/get_25_off_any_service_at_ccure_wellness_in_new/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1duibay/get_25_off_any_service_at_ccure_wellness_in_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/247/3/beanrdpV.webp)

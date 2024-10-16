@@ -18,9 +18,17 @@ LinguisticsNews.com aims to be a frontrunner in sharing linguistics knowledge, c
 
 Stay updated with the latest in linguistics and language studies at www.LinguisticsNews.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231211838/introducing-linguisticsnews-com-a-premier-destination-for-linguistics-enthusiasts-and-experts)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avx384/new_platform_linguisticsnewscom_unveiled_for/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avx384/new_platform_linguisticsnewscom_unveiled_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/jadeFy8T.webp)

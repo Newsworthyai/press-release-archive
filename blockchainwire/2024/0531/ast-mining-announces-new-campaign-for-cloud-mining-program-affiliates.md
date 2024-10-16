@@ -69,9 +69,17 @@ $3000 + $292.5
 
 AST MINING APPDownload the app today to experience all the benefits and features of convenient mining order management. With access to real-time data and the ability to track your mining portfolio anywhere, anytime, the AST Mining app offers a convenient, simple solution for buying and managing mining plans and building your revenue.For additional information on AST Mining, please visit our website: [https://astmining.com](https://astmining.com/?src=AST7551)Disclaimer:The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ast-mining-announces-new-campaign-for-cloud-mining-program-affiliates)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fvecxc/ast_mining_launches_lucrative_affiliate_program/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fvecxc/ast_mining_launches_lucrative_affiliate_program/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/urgetoLm.webp)

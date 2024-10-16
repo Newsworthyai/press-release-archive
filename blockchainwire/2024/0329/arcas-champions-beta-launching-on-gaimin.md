@@ -40,9 +40,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/arcas-champions-beta-launching-on-gaimin)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1bqmshl/arcas_champions_to_launch_beta_featuring/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1bqmshl/arcas_champions_to_launch_beta_featuring/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/29/yogaRjXA.webp)

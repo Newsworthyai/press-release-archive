@@ -46,9 +46,17 @@ Company Websitehttps://money.ca/
 
 View source version on newsdirect.com: https://newsdirect.com/news/45-of-canadians-confess-that-rising-prices-impact-their-day-to-day-lives-432910278 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/45-of-canadians-confess-that-rising-prices-impact-their-day-to-day-lives-432910278)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1f386va/rising_prices_squeeze_45_of_canadians_reveals/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1f386va/rising_prices_squeeze_45_of_canadians_reveals/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/28/vastUwBK.webp)

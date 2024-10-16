@@ -20,9 +20,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/strip-tinning-reports-2023-results-eyes-major-growth-with-new-automotive-and-ev-technologies-934248362 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/strip-tinning-reports-2023-results-eyes-major-growth-with-new-automotive-and-ev-technologies-934248362)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cho2ht/strip_tinning_reports_2023_results_eyes_major/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cho2ht/strip_tinning_reports_2023_results_eyes_major/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/rainKwei.webp)

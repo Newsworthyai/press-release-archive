@@ -40,9 +40,17 @@ Company Websitehttps://pawfury.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pawfury-surpasses-1-5-million-milestone-in-groundbreaking-presale-688028434 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pawfury-surpasses-1-5-million-milestone-in-groundbreaking-presale-688028434)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c8uk0e/pawfury_surpasses_15_million_milestone_in/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c8uk0e/pawfury_surpasses_15_million_milestone_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/20/gain3pCt.webp)

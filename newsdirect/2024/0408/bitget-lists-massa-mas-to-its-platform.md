@@ -28,9 +28,17 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-lists-massa-mas-to-its-platform-348949138 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitget-lists-massa-mas-to-its-platform-348949138)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1byyhed/bitget_lists_massa_mas_to_its_platform_furthering/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1byyhed/bitget_lists_massa_mas_to_its_platform_furthering/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/8/tileWEd5.webp)

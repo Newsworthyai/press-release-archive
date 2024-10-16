@@ -26,9 +26,17 @@ Company Websitehttps://lizzieluluxury-treats.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lizzie-lu-luxury-treats-launches-on-amazon-celebrating-august-as-national-black-business-month-729425392 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/lizzie-lu-luxury-treats-launches-on-amazon-celebrating-august-as-national-black-business-month-729425392)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ehi4df/lizzie_lu_luxury_treats_launches_on_amazon/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ehi4df/lizzie_lu_luxury_treats_launches_on_amazon/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/1/nukewapV.webp)

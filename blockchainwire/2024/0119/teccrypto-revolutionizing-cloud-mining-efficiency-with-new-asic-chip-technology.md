@@ -46,9 +46,17 @@ Name: Pamundeep Bains
 
 Email:pr@teccrypto.comCompany: Crypto Technology LimitedWebsite: https://teccrypto.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/teccrypto-revolutionizing-cloud-mining-efficiency-with-new-asic-chip-technology)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avdszp/teccrypto_unveils_gamechanging_asic_chip/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avdszp/teccrypto_unveils_gamechanging_asic_chip/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/hikewqx3.webp)

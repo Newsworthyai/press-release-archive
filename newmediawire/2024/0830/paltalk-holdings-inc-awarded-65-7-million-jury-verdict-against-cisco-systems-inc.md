@@ -28,9 +28,17 @@ nyc@clearthink.capital
 
 917-658-7878 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/paltalk-holdings-inc-awarded-65-7-million-jury-verdict-against-cisco-systems-inc-7075984)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f7lpcc/paltalk_inc_awarded_657_million_in_patent/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f7lpcc/paltalk_inc_awarded_657_million_in_patent/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/2/meangaad.webp)

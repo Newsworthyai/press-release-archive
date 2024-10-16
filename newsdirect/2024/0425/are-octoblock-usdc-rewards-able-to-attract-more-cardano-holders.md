@@ -40,9 +40,17 @@ Company Websitehttps://octoblock.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/are-octoblock-usdc-rewards-able-to-attract-more-cardano-holders-510075672 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/are-octoblock-usdc-rewards-able-to-attract-more-cardano-holders-510075672)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1ccqwyx/octoblock_offers_50000_usdc_reward_amid_cardano/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ccqwyx/octoblock_offers_50000_usdc_reward_amid_cardano/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/25/numbRlGG.webp)

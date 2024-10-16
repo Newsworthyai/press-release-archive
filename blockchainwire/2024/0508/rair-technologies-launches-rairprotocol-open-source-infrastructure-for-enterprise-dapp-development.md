@@ -21,9 +21,17 @@ The RAIRprotocol has been in active development since 2019 as an investor-backed
 
 ABOUT RAIR TECH[RAIR Technologies](https://www.rair.info/) enables enterprises to seamlessly navigate asset creation, DRM security, royalty tracking, and marketplace trade and execution within a secure white-label environment. RAIR is driving innovation with its open-source RAIRprotocol. RAIRprotocol fosters scalability and innovation through a distinctive token licensing model that allows full access to the underlying RAIR Technologies source code. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/rair-technologies-launches-rairprotocol---open-source-infrastructure-for-enterprise-dapp-development)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cn071s/rair_technologies_launches_opensource/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cn071s/rair_technologies_launches_opensource/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/8/pond0NZa.webp)

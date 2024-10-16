@@ -25,9 +25,17 @@
 
  InvestorWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestechs-nasdaq-snes-evolvetm-offering-sustainable-and-humane-solution-to-nycs-rat-problem/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2fga7/senestechs_evolvetm_offers_sustainable_solution/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2fga7/senestechs_evolvetm_offers_sustainable_solution/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/meanCQqr.webp)

@@ -26,9 +26,17 @@ Company Websitehttps://justifi.tech/
 
 View source version on newsdirect.com: https://newsdirect.com/news/justifi-raises-new-capital-to-help-platforms-reach-their-fintech-potential-123105998 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/justifi-raises-new-capital-to-help-platforms-reach-their-fintech-potential-123105998)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1cxyvk1/justifi_raises_10_million_to_enhance_fintech/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1cxyvk1/justifi_raises_10_million_to_enhance_fintech/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/evenqJDg.webp)

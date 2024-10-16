@@ -78,9 +78,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/surf-air-mobility-beats-revenue-guidance-and-appoints-former-bombardier-flexjet-exec-as-new-interim-ceo-986940586 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/surf-air-mobility-beats-revenue-guidance-and-appoints-former-bombardier-flexjet-exec-as-new-interim-ceo-986940586)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1ctgy7h/surf_air_mobility_appoints_deanna_white_as/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1ctgy7h/surf_air_mobility_appoints_deanna_white_as/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/16/kitepjmd.webp)

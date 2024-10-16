@@ -29,9 +29,17 @@ Company Websitehttp://www.aprubrands.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/apple-rush-company-inc-secures-a-solid-future-with-long-awaited-agreement-for-the-acquisition-of-all-ip-from-corr-brands-inc-112299358 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/apple-rush-company-inc-secures-a-solid-future-with-long-awaited-agreement-for-the-acquisition-of-all-ip-from-corr-brands-inc-112299358)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1crx0z2/apple_rush_company_inc_secures_ownership_of_corr/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1crx0z2/apple_rush_company_inc_secures_ownership_of_corr/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/14/icyp7e5.webp)

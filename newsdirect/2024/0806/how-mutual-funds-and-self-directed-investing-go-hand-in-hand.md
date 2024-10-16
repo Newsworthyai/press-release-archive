@@ -62,9 +62,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-mutual-funds-and-self-directed-investing-go-hand-in-hand-367436841 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/how-mutual-funds-and-self-directed-investing-go-hand-in-hand-367436841)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1elh69r/the_rise_of_mutual_funds_a_guide_to_selfdirected/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1elh69r/the_rise_of_mutual_funds_a_guide_to_selfdirected/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/6/healui6h.webp)

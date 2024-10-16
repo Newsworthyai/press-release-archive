@@ -40,9 +40,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/gathering-of-teams-htx-boosts-liquid-restaking-rewards-with-an-additional-20-000-empowering-team-play-106302932 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/gathering-of-teams-htx-boosts-liquid-restaking-rewards-with-an-additional-20-000-empowering-team-play-106302932)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1bppskn/htx_liquid_restaking_boosts_staking_quota_to_100/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1bppskn/htx_liquid_restaking_boosts_staking_quota_to_100/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/numbnNXk.webp)

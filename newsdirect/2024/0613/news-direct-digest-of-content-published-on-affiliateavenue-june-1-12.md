@@ -31,9 +31,17 @@ Company Websitehttp://www.newsdirect.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/news-direct-digest-of-content-published-on-affiliateavenue-june-1-12-612230347 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/news-direct-digest-of-content-published-on-affiliateavenue-june-1-12-612230347)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BookNews/comments/1df5g24/insights_into_americans_retirement_savings_best/
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1df5g24/insights_into_americans_retirement_savings_best/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/13/lendDoaN.webp)

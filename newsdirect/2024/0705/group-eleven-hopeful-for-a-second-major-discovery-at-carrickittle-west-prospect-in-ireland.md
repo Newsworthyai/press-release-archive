@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/group-eleven-hopeful-for-a-second-major-discovery-at-carrickittle-west-prospect-in-ireland-682460405 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/group-eleven-hopeful-for-a-second-major-discovery-at-carrickittle-west-prospect-in-ireland-682460405)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dvytga/group_eleven_hopeful_for_second_major_zinc/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dvytga/group_eleven_hopeful_for_second_major_zinc/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/5/limeXfQI.webp)

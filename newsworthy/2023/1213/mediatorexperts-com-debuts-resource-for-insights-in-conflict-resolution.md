@@ -18,9 +18,17 @@ MediatorExperts.com is tailored for individuals seeking knowledge and expertise 
 
 Discover the depth of mediation expertise at www.MediatorExperts.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231213848/mediatorexperts-com-debuts-resource-for-insights-in-conflict-resolution)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1avxp75/new_platform_mediatorexpertscom_launches_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1avxp75/new_platform_mediatorexpertscom_launches_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/zealh7UV.webp)

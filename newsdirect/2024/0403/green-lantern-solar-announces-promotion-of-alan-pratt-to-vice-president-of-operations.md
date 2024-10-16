@@ -34,9 +34,17 @@ Company Websitehttps://www.greenlanternsolar.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/green-lantern-solar-announces-promotion-of-alan-pratt-to-vice-president-of-operations-377616139 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/green-lantern-solar-announces-promotion-of-alan-pratt-to-vice-president-of-operations-377616139)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1burw65/green_lantern_solar_promotes_alan_pratt_to_vice/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1burw65/green_lantern_solar_promotes_alan_pratt_to_vice/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/3/noteYP_b.webp)

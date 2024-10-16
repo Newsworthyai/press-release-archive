@@ -34,9 +34,17 @@ Company Websitehttps://overplay.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/is-gamification-the-future-of-advertising-heres-how-one-company-is-shaking-up-the-industry-840289131 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/is-gamification-the-future-of-advertising-heres-how-one-company-is-shaking-up-the-industry-840289131)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/MarketingNewsramp/comments/1d7wsu8/overplay_revolutionizes_advertising_with/
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1d7wsu8/overplay_revolutionizes_advertising_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/4/yogalHqH.webp)

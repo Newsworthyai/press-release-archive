@@ -32,9 +32,17 @@ Email: official@cwallet.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cwallet-lucky-box-now-available-on-telegram-empowering-users-to-unleash-luck)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cskjqe/cwallet_introduces_the_lucky_box_a_thrilling/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cskjqe/cwallet_introduces_the_lucky_box_a_thrilling/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/15/wallsCqj.webp)

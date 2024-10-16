@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/accelerate-resources-locks-in-heritage-surveys-ahead-of-drilling-at-prinsep-lithium-project-308104609 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/accelerate-resources-locks-in-heritage-surveys-ahead-of-drilling-at-prinsep-lithium-project-308104609)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bzty4r/accelerate_resources_locks_in_heritage_surveys/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bzty4r/accelerate_resources_locks_in_heritage_surveys/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/9/gleeVGVI.webp)

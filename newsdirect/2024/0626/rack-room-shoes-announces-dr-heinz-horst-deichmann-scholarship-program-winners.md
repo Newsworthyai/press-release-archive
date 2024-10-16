@@ -40,9 +40,17 @@ brenda.christmon@rackroom.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/rack-room-shoes-announces-dr-heinz-horst-deichmann-scholarship-program-winners-866473989 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/rack-room-shoes-announces-dr-heinz-horst-deichmann-scholarship-program-winners-866473989)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1doycyy/rack_room_shoes_announces_scholarship_program/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1doycyy/rack_room_shoes_announces_scholarship_program/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/26/pale7SIH.webp)

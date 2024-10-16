@@ -10,9 +10,17 @@ The procedure involves the application of magnetic pulses to specific brain regi
 
 Administered by a trained TMS technician under the close supervision of a TMS physician, the therapy offers personalized settings, ensuring the precise amount of energy required for optimal results. At Interventional Psychiatry of Arizona, our commitment is to provide a human-centric approach to mental health, offering hope and relief to those seeking alternatives in their journey toward well-being. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401221016/revolutionary-tms-therapy-provides-new-hope-for-depression-and-more-in-phoenix-az)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avldbk/innovative_noninvasive_depression_treatment/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avldbk/innovative_noninvasive_depression_treatment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/gaincEMS.webp)

@@ -46,9 +46,17 @@ campaign@rickwiles2024.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/rick-wiles-challenges-rep-brian-mast-in-floridas-house-district-21-388191158 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/rick-wiles-challenges-rep-brian-mast-in-floridas-house-district-21-388191158)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cr13ey/ft_pierce_businessman_rick_wiles_challenges_rep/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cr13ey/ft_pierce_businessman_rick_wiles_challenges_rep/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/tint9cXZ.webp)

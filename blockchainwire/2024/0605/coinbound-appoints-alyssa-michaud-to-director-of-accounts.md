@@ -24,9 +24,17 @@ Elizabeth Whiting
 
 Director, Earned MediaCoinboundliz@coinbound.iocoinbound.io 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinbound-appoints-alyssa-michaud-to-director-of-accounts)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d8tie0/coinbound_appoints_alyssa_michaud_as_director_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d8tie0/coinbound_appoints_alyssa_michaud_as_director_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/5/lambLNWm.webp)

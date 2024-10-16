@@ -32,9 +32,17 @@ Company Websitehttps://www.listenbitch.ca/
 
 View source version on newsdirect.com: https://newsdirect.com/news/listen-b-tch-tackles-toxic-bounce-back-culture-encouraging-new-moms-to-embrace-mom-puberty-instead-724387635 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/listen-b-tch-tackles-toxic-bounce-back-culture-encouraging-new-moms-to-embrace-mom-puberty-instead-724387635)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cifa28/listen_btch_challenges_toxic_bounceback_culture/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cifa28/listen_btch_challenges_toxic_bounceback_culture/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/2/vastp9HE.webp)

@@ -16,9 +16,17 @@ About HRO TODAY
 
 HRO Today is the go-to resource for top-level HR executives and leaders across industries and markets. Available online in a dynamic digital format. Renowned for our North American, EMEA, and APAC Forums, HRO Today events bring HR leaders and professionals together, whether they’re in-person, virtual, or a hybrid format. Our annual event schedule includes our Educational Conference Series, in-person and virtual learning, and networking events focused on key individual areas of talent management. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20240104972/hro-today-engage-2024-conference-combines-inclusion-wellness-and-culture-events-into-single-event-in-chicago-june-10-11)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avx5a8/engage_2024_transforming_workplace_culture_and/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avx5a8/engage_2024_transforming_workplace_culture_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/vibe8D7Z.webp)

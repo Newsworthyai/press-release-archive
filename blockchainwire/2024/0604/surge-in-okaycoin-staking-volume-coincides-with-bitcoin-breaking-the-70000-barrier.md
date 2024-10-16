@@ -41,9 +41,17 @@ Media Contact DetailsContact Name: William MillerContact Email: william@okaycoin
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/surge-in-okaycoin-staking-volume-coincides-with-bitcoin-breaking-the-70000-barrier)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1d88wek/okaycoin_reports_unprecedented_staking_volume/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1d88wek/okaycoin_reports_unprecedented_staking_volume/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/glueXSK2.webp)

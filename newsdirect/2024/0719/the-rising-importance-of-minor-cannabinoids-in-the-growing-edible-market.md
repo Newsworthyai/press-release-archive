@@ -72,9 +72,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-rising-importance-of-minor-cannabinoids-in-the-growing-edible-market-169639551 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-rising-importance-of-minor-cannabinoids-in-the-growing-edible-market-169639551)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1e72v2i/report_reveals_remarkable_growth_of_minor/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1e72v2i/report_reveals_remarkable_growth_of_minor/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/19/calmcNAN.webp)

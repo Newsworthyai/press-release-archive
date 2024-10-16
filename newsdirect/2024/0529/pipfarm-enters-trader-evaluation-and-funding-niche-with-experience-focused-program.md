@@ -58,9 +58,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pipfarm-enters-trader-evaluation-and-funding-niche-with-experience-focused-program-735307754 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pipfarm-enters-trader-evaluation-and-funding-niche-with-experience-focused-program-735307754)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/TravelAndLeisureNews/comments/1d3m28g/pipfarm_launches_as_a_solution_to_recent_trading/
+
+
+[Reddit Post](https://www.reddit.com/r/TravelAndLeisureNews/comments/1d3m28g/pipfarm_launches_as_a_solution_to_recent_trading/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/29/envyqwzA.webp)

@@ -40,9 +40,17 @@ Company Websitehttps://www.pathai.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/pathai-launches-met-predict-on-aisight-to-enhance-nsclc-assessments-427563234 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pathai-launches-met-predict-on-aisight-to-enhance-nsclc-assessments-427563234)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1fditlx/pathai_launches_met_predict_on_aisight_to_enhance/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1fditlx/pathai_launches_met_predict_on_aisight_to_enhance/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/10/taroETb0.webp)

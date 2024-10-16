@@ -34,9 +34,17 @@ For more information, contact: Charles Epstein, che@backboneinc.com
 
 Debbie McGrath, Chief Instigator, HR.com, dmcgrath@hr.com 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402291105/ai-exchange-aix-to-launch-at-hrwest-2024-in-partnership-with-hr-com)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1b6roh1/ai_exchange_aix_to_launch_at_hrwest_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1b6roh1/ai_exchange_aix_to_launch_at_hrwest_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/29/rain0aqd.webp)

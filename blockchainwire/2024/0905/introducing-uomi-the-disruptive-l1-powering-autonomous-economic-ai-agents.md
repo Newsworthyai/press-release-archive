@@ -52,9 +52,17 @@ name: Crypto Expert PR
 
 email: crypto.expert@gmail.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-uomi-the-disruptive-l1-powering-autonomous-economic-ai-agents)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvcdul/uomi_the_revolutionary_blockchain_empowering/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvcdul/uomi_the_revolutionary_blockchain_empowering/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/11/barnMOpy.webp)

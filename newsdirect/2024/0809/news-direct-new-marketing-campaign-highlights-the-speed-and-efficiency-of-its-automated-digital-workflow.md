@@ -12,9 +12,17 @@ Company Websitehttp://www.newsdirect.com
 
 View original content to download multimedia: https://newsdirect.com/news/news-direct-new-marketing-campaign-highlights-the-speed-and-efficiency-of-its-automated-digital-workflow-766592247 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/news-direct-new-marketing-campaign-highlights-the-speed-and-efficiency-of-its-automated-digital-workflow-766592247)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/MarketingNewsramp/comments/1enzbn3/news_direct_launches_new_marketing_campaign/
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1enzbn3/news_direct_launches_new_marketing_campaign/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/9/vibe1DJ2.webp)

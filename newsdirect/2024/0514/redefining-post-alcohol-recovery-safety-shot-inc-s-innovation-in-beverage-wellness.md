@@ -58,9 +58,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/redefining-post-alcohol-recovery-safety-shot-inc-s-innovation-in-beverage-wellness-500791686 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/redefining-post-alcohol-recovery-safety-shot-inc-s-innovation-in-beverage-wellness-500791686)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cron77/safety_shot_inc_nasdaq_shot_revolutionizes/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cron77/safety_shot_inc_nasdaq_shot_revolutionizes/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/14/take9QSs.webp)

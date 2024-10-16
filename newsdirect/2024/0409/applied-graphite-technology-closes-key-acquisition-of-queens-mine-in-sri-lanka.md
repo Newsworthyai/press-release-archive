@@ -18,9 +18,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/applied-graphite-technology-closes-key-acquisition-of-queens-mine-in-sri-lanka-156177307 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/applied-graphite-technology-closes-key-acquisition-of-queens-mine-in-sri-lanka-156177307)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c00169/applied_graphite_technology_acquires_queens_mine/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c00169/applied_graphite_technology_acquires_queens_mine/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/9/yogaCwvh.webp)

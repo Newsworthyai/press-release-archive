@@ -26,9 +26,17 @@ HoneycombQ LLC is a pioneering provider of blockchain-based data storage solutio
 
 Media Contact: Molly ElmoreEmail: melmore(at)ValhilAdvisors.io 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/storagechain-llc-and-honeycombq-llc-forge-strategic-partnership-to-transform-ediscovery-data-storage)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvj3q9/storagechain_llc_partners_with_honeycombq_llc_to/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvj3q9/storagechain_llc_partners_with_honeycombq_llc_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/13/lushBb3i.webp)

@@ -34,9 +34,17 @@ Company Websitehttps://www.agcbio.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/complecure-partners-with-agc-biologics-chiba-site-to-develop-advanced-anti-cancer-therapeutic-using-pioneering-amdc-technology-954514741 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/complecure-partners-with-agc-biologics-chiba-site-to-develop-advanced-anti-cancer-therapeutic-using-pioneering-amdc-technology-954514741)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fnzfp7/agc_biologics_partners_with_complecure_to_develop/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fnzfp7/agc_biologics_partners_with_complecure_to_develop/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/24/blurpxov.webp)

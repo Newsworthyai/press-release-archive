@@ -22,9 +22,17 @@ writers.australia@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bannerman-energy-ceo-discusses-progress-at-etango-uranium-project-and-market-dynamics-891300895 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bannerman-energy-ceo-discusses-progress-at-etango-uranium-project-and-market-dynamics-891300895)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c5duq6/bannerman_energy_ceo_discusses_progress_at_etango/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c5duq6/bannerman_energy_ceo_discusses_progress_at_etango/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/silk3Ex8.webp)

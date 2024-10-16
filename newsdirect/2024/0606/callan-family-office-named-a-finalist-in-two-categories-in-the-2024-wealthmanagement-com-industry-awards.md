@@ -30,9 +30,17 @@ Company Websitehttps://callanfamilyoffice.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/callan-family-office-named-a-finalist-in-two-categories-in-the-2024-wealthmanagement-com-industry-awards-298741425 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/callan-family-office-named-a-finalist-in-two-categories-in-the-2024-wealthmanagement-com-industry-awards-298741425)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d9ivhc/callan_family_office_named_finalist_in/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d9ivhc/callan_family_office_named_finalist_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/6/ablejWvN.webp)

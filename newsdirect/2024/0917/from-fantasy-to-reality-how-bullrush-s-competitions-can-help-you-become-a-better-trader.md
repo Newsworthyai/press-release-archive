@@ -46,9 +46,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/from-fantasy-to-reality-how-bullrushs-competitions-can-help-you-become-a-better-trader-496036957 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/from-fantasy-to-reality-how-bullrushs-competitions-can-help-you-become-a-better-trader-496036957)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fiyhon/bullrush_the_gamified_trading_platform_that_makes/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fiyhon/bullrush_the_gamified_trading_platform_that_makes/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/17/poemShl9.webp)

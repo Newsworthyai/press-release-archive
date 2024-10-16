@@ -18,9 +18,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pan-african-resources-ceo-provides-upbeat-outlook-amid-high-gold-prices-436689973 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pan-african-resources-ceo-provides-upbeat-outlook-amid-high-gold-prices-436689973)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1c5duo8/pan_african_resources_ceo_optimistic_amid_high/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1c5duo8/pan_african_resources_ceo_optimistic_amid_high/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/faceOboy.webp)

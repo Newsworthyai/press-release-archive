@@ -66,9 +66,17 @@ Info@TheNationalTimes.au
 
 View source version on newsdirect.com: https://newsdirect.com/news/josip-heit-in-an-interview-with-national-times-australia-about-wikipedia-and-the-revolution-in-news-consumption-in-the-digital-age-219898125 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/josip-heit-in-an-interview-with-national-times-australia-about-wikipedia-and-the-revolution-in-news-consumption-in-the-digital-age-219898125)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cxkk4g/josip_heit_revolutionizes_news_consumption_in_the/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cxkk4g/josip_heit_revolutionizes_news_consumption_in_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/21/markAa3v.webp)

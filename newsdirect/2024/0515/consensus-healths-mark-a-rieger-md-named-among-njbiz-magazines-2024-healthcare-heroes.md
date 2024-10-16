@@ -33,9 +33,17 @@ Company Websitehttps://www.consensushealth.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/consensus-healths-mark-a-rieger-md-named-among-njbiz-magazines-2024-healthcare-heroes-368590756 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/consensus-healths-mark-a-rieger-md-named-among-njbiz-magazines-2024-healthcare-heroes-368590756)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1csjcn6/pediatric_orthopedic_physician_named_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1csjcn6/pediatric_orthopedic_physician_named_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/jolt2IQQ.webp)

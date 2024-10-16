@@ -10,9 +10,17 @@ Ketamine infusion therapy offers a fast and highly effective treatment for depre
 
 Embarking on an unparalleled journey of mental health and pain management, ketamine infusion therapy is revolutionizing the way patients can regain control of their lives. Its potential to transform treatment outcomes and provide relief to those who have been previously resistant to other forms of therapy cannot be overlooked. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402251095/new-treatment-option-offers-hope-for-depression-and-chronic-pain-ketamine-infusion-therapy)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1b09pis/breakthrough_ketamine_therapy_showing_promise_for/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1b09pis/breakthrough_ketamine_therapy_showing_promise_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/26/leanIrGj.webp)

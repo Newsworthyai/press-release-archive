@@ -26,9 +26,17 @@ Company Websitehttps://www.greenlanternsolar.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/green-lantern-solar-promotes-kim-bowie-to-associate-vice-president-recognizing-her-pivotal-contribution-to-the-companys-success-329357535 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/green-lantern-solar-promotes-kim-bowie-to-associate-vice-president-recognizing-her-pivotal-contribution-to-the-companys-success-329357535)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fzqy7v/green_lantern_solar_promotes_kim_bowie_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fzqy7v/green_lantern_solar_promotes_kim_bowie_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/9/paleq9Bo.webp)

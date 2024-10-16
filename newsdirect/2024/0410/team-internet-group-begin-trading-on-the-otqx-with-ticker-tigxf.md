@@ -22,9 +22,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/team-internet-group-begin-trading-on-the-otqx-with-ticker-tigxf-875493856 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/team-internet-group-begin-trading-on-the-otqx-with-ticker-tigxf-875493856)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c0ucb9/team_internet_group_debuts_on_otcqx_as_tigxf/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c0ucb9/team_internet_group_debuts_on_otcqx_as_tigxf/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/10/kissRrU8.webp)

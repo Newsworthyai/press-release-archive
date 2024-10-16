@@ -50,9 +50,17 @@ Company Websitehttps://bravo.hprausa.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/hispanic-public-relations-association-announces-2024-bravo-awards-honorees-179331136 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/hispanic-public-relations-association-announces-2024-bravo-awards-honorees-179331136)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1ddcqxo/hispanic_public_relations_association_announces/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1ddcqxo/hispanic_public_relations_association_announces/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/11/mark4KFq.webp)

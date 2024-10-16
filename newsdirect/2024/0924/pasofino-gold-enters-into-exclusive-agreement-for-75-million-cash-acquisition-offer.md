@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pasofino-gold-enters-into-exclusive-agreement-for-75-million-cash-acquisition-offer-753098891 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pasofino-gold-enters-into-exclusive-agreement-for-75-million-cash-acquisition-offer-753098891)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fobown/pasofino_gold_enters_exclusive_agreement_for_75/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fobown/pasofino_gold_enters_exclusive_agreement_for_75/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/24/vibeHmjK.webp)

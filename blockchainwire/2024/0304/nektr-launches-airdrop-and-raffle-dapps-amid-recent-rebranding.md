@@ -28,9 +28,17 @@ You can learn more about Nektr by following these links:
 
 Official Website | Telegram | Twitter | Discord | YouTube 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/nektr-launches-airdrop-and-raffle-dapps-amid-recent-rebranding)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1b6rnd3/nektr_announces_new_web3_dapps_and_rebranding/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1b6rnd3/nektr_announces_new_web3_dapps_and_rebranding/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/4/jazz1C2m.webp)

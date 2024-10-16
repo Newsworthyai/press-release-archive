@@ -30,9 +30,17 @@ Roger Pondel, PondelWilkinson Inc.
 
 310-279-5965, rpondel@pondel.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/bridgecore-capital-finances-36-unit-apartment-complex-in-los-angeles-7076066)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fju3w2/bridgecore_capital_inc_closes_65m_refinance_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fju3w2/bridgecore_capital_inc_closes_65m_refinance_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/18/mildbQKY.webp)

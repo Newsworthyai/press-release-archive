@@ -72,9 +72,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/citi-remains-tactically-bullish-on-uranium-forecasts-price-rebound-in-2024-197424439 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/citi-remains-tactically-bullish-on-uranium-forecasts-price-rebound-in-2024-197424439)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1f2jfx5/citi_remains_tactically_bullish_on_uranium/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1f2jfx5/citi_remains_tactically_bullish_on_uranium/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/27/lunaDXlW.webp)

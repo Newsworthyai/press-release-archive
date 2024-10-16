@@ -20,9 +20,17 @@ Phone: 646-201-5242
 
 This press release contains forward-looking statements that reflect the Company's current beliefs, expectations or intentions regarding future events.  Any statements contained in this press release that are not statements of historical fact may be deemed forward-looking statements.  Words such as “will,” “will be”, “anticipate,” “predict,” “expect,” “continue,” “future,” and similar expressions are intended to identify such forward-looking statements. All forward-looking statements involve significant risks and uncertainties that could cause actual results to differ materially from those expressed or implied in the forward-looking statements, many of which are generally outside the control of the Company and are difficult to predict.  Examples of such risks and uncertainties include, but are not limited to: political unrest in countries we operate in, Covid-19 pandemic related disruptions, shipping constraints, expatriation of invested capital, defaults, future revenues, expenditures, capital, the adequacy of the Company's current cash and working capital to fund present and planned operations, investments and the growth through joint ventures. Additional factors that could cause actual results to differ materially from those expressed or implied in the forward-looking statements, can be found in our current Disclosure Statements at www.otcmarkets.com. The Company anticipates that subsequent events and developments may cause views and expectations to change. The Company assumes no obligation, and specifically disclaims any intention or obligation, to update any forward-looking statements, whether as a result of new information, future events or otherwise. 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/lifequest-s-wholly-owned-subsidiary-completes-installation-of-its-flagship-biological-sewage-wastewater-treatment-plant-with-a-30m3-day-capacity-in-a-resort-in-india-7076148)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1fx6hvu/lifequest_world_corp_announces_installation_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1fx6hvu/lifequest_world_corp_announces_installation_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/6/irisSTRr.webp)

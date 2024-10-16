@@ -54,9 +54,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ecoai-coin-prepares-for-token-pre-sale-pioneers-green-crypto-mining-717263514 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ecoai-coin-prepares-for-token-pre-sale-pioneers-green-crypto-mining-717263514)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1eknefv/ecoai_coin_prepares_for_token_presale_pioneers/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1eknefv/ecoai_coin_prepares_for_token_presale_pioneers/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/5/camczf9m.webp)

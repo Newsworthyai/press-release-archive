@@ -52,9 +52,17 @@ mark@razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/asia-broadband-inc-otc-aabb-a-precious-metals-and-digital-assets-play-poised-to-pop-666623007 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/asia-broadband-inc-otc-aabb-a-precious-metals-and-digital-assets-play-poised-to-pop-666623007)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1e67tzy/asia_broadband_inc_otc_aabb_a_precious_metals_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1e67tzy/asia_broadband_inc_otc_aabb_a_precious_metals_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/18/wallZc04.webp)

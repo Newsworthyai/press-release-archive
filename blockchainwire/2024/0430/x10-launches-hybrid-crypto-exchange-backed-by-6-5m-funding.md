@@ -30,9 +30,17 @@ X10 is building a fully-fledged self-custody exchange that provides the experien
 
 For more information, please visit https://x10.exchange/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/x10-launches-hybrid-crypto-exchange-backed-by-65m-funding)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cgqa6x/hybrid_crypto_exchange_x10_launches_outofstealth/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cgqa6x/hybrid_crypto_exchange_x10_launches_outofstealth/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/30/noteOxph.webp)

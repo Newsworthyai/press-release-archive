@@ -18,9 +18,17 @@ Serving as a nexus for the counseling community, CounselorBrief.com is dedicated
 
 Discover, connect, and elevate at www.CounselorBrief.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231214800/introducing-counselorbrief-com-a-premier-resource-for-the-counseling-and-therapeutic-community)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avx40j/new_interactive_platform_counselorbriefcom/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avx40j/new_interactive_platform_counselorbriefcom/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/silkIrrT.webp)

@@ -24,9 +24,17 @@ FanSeePR@gmail.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/fansee-embarks-on-a-revolutionary-path-under-the-leadership-of-visionary-ceo-jason-hung)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ay4qm3/fansee_integrates_blockchain_technology_to/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ay4qm3/fansee_integrates_blockchain_technology_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/22/epic1A86.webp)

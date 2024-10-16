@@ -12,9 +12,17 @@ BEDMINSTER, NJ - (NewMediaWire) - September 25, 2024 - Peapack-Gladstone Finan
 
  Contact:  Rosanne Schwab, Peapack-Gladstone Bank, Vice President, Public Relations and Corporate Communications Manager, 500 Hills Drive, Suite 300, Bedminster, NJ  07921 rschwab@pgbank.com, (908) 719-6543. 
 
+---
+
 [Original/Source Press Release](http://www.newmediawire.com/news/peapack-private-hires-vanessa-tortorice-as-senior-managing-director-7076087)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1frcb5j/vanessa_tortorice_joins_peapack_privates_new_york/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1frcb5j/vanessa_tortorice_joins_peapack_privates_new_york/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/28/knotTUTF.webp)

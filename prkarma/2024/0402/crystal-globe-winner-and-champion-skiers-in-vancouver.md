@@ -68,9 +68,17 @@ Visit Our Blog
 * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/bcalpine/news_release/1439)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1bztpni/olympic_champion_marielle_thompson_celebrates/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1bztpni/olympic_champion_marielle_thompson_celebrates/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/244/9/goldJQYi.webp)

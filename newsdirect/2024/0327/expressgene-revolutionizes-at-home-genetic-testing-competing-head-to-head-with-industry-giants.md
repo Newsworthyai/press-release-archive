@@ -57,9 +57,17 @@ Company Websitehttps://www.expressgene.me
 
 View source version on newsdirect.com: https://newsdirect.com/news/expressgene-revolutionizes-at-home-genetic-testing-competing-head-to-head-with-industry-giants-977517573 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/expressgene-revolutionizes-at-home-genetic-testing-competing-head-to-head-with-industry-giants-977517573)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1bp2thy/expressgene_revolutionizes_athome_genetic_testing/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1bp2thy/expressgene_revolutionizes_athome_genetic_testing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/maildEOP.webp)

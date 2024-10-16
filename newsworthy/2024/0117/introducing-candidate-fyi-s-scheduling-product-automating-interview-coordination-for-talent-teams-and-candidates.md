@@ -16,9 +16,17 @@ candidate.fyi's product is trusted by leading talent teams like Yext, Omnicell, 
 
 For more information about candidate.fyi's scheduling product, visit their website at https://www.candidate.fyi/candidate-scheduling. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20240117989/introducing-candidate-fyi-s-scheduling-product-streamlining-interview-coordination-for-talent-teams-and-candidates)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1avx5sd/revolutionary_scheduling_product_launched_by/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1avx5sd/revolutionary_scheduling_product_launched_by/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/faceBV51.webp)

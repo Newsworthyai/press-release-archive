@@ -24,9 +24,17 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-has-successfully-facilitated-the-transaction-between-landd-mail-masters-inc-and-ironmark-852117012 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-has-successfully-facilitated-the-transaction-between-landd-mail-masters-inc-and-ironmark-852117012)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1covh8i/ironmark_acquires_l_d_mail_masters_inc_to_enhance/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1covh8i/ironmark_acquires_l_d_mail_masters_inc_to_enhance/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/10/chef9iYY.webp)

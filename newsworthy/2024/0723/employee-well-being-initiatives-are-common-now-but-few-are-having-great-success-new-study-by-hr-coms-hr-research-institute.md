@@ -38,9 +38,17 @@ Become a part of HR.com’s HR Research Influencer panel today. Participate in s
 
 Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202407231215/employee-well-being-initiatives-are-common-now-but-few-are-having-great-success-new-study-by-hr-coms-hr-research-institute)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HRnews/comments/1eaa8ei/new_research_reveals_effectiveness_of_employee/
+
+
+[Reddit Post](https://www.reddit.com/r/HRnews/comments/1eaa8ei/new_research_reveals_effectiveness_of_employee/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/247/23/rainO8FA.webp)

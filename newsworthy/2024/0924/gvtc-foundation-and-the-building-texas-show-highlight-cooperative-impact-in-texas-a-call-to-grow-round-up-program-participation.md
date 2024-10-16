@@ -24,9 +24,17 @@ GVTC is a cooperative providing state-of-the-art fiber optics and high-speed int
 
 Media Contact:Justin McKenzieThe Building Texas Showwww.buildingtexasshow.com 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202409241275/gvtc-foundation-and-the-building-texas-show-highlight-cooperative-impact-in-texas-a-call-to-grow-round-up-program-participation)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1foaxov/sonia_aguillon_discusses_the_impact_of_gvtc/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1foaxov/sonia_aguillon_discusses_the_impact_of_gvtc/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/249/24/kisseIFu.webp)

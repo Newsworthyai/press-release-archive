@@ -22,9 +22,17 @@ About GDMining:
 
 GDMining is a premier cloud mining platform that enables users to mine cryptocurrencies without the need for costly hardware or in-depth technical knowledge. Offering a range of mining contracts, GDMining is dedicated to providing secure, transparent, and profitable cloud mining solutions. The platform has quickly become a trusted name in the industry, recognized for its commitment to user satisfaction and innovation. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-named-one-of-the-best-cloud-mining-platforms-of-2024-by-the-uk-cryptocurrency-enthusiasts-association)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f7byg5/gdmining_recognized_as_top_cloud_mining_platform/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f7byg5/gdmining_recognized_as_top_cloud_mining_platform/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/2/deep_Ltb.webp)

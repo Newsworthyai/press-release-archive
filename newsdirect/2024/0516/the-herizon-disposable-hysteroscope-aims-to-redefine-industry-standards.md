@@ -38,9 +38,17 @@ Company Websitehttps://minervasurgical.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-herizon-disposable-hysteroscope-aims-to-redefine-industry-standards-295518902 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-herizon-disposable-hysteroscope-aims-to-redefine-industry-standards-295518902)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1ctcnac/minerva_surgical_unveils_revolutionary_iheriizon/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1ctcnac/minerva_surgical_unveils_revolutionary_iheriizon/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/16/frogv66w.webp)

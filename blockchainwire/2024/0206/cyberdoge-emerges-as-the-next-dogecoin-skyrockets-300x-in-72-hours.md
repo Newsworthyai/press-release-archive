@@ -22,9 +22,17 @@ Website | X | Telegram
 
 Disclaimer: Cryptocurrency investments come with inherent risks. Potential investors are advised to conduct thorough research before making any financial decisions. Trade responsibly, and be aware of market volatility.The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cyberdoge-emerges-as-the-next-dogecoin--skyrockets-300x-in-72-hours)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avjxtx/soaring_to_new_heights_cyberdoges_unprecedented/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avjxtx/soaring_to_new_heights_cyberdoges_unprecedented/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/healBZPB.webp)

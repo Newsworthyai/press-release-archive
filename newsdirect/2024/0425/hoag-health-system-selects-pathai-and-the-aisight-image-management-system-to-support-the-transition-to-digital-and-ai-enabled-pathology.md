@@ -38,9 +38,17 @@ Company Websitehttps://www.pathai.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/hoag-health-system-selects-pathai-and-the-aisight-image-management-system-to-support-the-transition-to-digital-and-ai-enabled-pathology-751851189 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/hoag-health-system-selects-pathai-and-the-aisight-image-management-system-to-support-the-transition-to-digital-and-ai-enabled-pathology-751851189)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1ccsxvs/hoag_health_system_adopts_pathais_aisight_image/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1ccsxvs/hoag_health_system_adopts_pathais_aisight_image/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/25/mielLdKg.webp)

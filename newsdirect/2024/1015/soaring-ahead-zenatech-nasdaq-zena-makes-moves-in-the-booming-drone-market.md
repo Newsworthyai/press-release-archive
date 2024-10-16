@@ -44,9 +44,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/soaring-ahead-zenatech-nasdaq-zena-makes-moves-in-the-booming-drone-market-939815690 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/soaring-ahead-zenatech-nasdaq-zena-makes-moves-in-the-booming-drone-market-939815690)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1g449n2/zenatech_nasdaq_zena_making_moves_in_the_booming/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1g449n2/zenatech_nasdaq_zena_making_moves_in_the_booming/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/15/takegZR7.webp)

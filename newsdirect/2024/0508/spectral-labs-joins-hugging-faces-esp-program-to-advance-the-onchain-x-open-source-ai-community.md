@@ -50,9 +50,17 @@ contact@spectral.finance
 
 View source version on newsdirect.com: https://newsdirect.com/news/spectral-labs-joins-hugging-faces-esp-program-to-advance-the-onchain-x-open-source-ai-community-749176748 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/spectral-labs-joins-hugging-faces-esp-program-to-advance-the-onchain-x-open-source-ai-community-749176748)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cmyyf5/spectral_joins_hugging_faces_esp_program_to/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cmyyf5/spectral_joins_hugging_faces_esp_program_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/8/kiwiolkv.webp)

@@ -30,9 +30,17 @@ camryn@six-one.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/korean-beauty-brand-mixik-skin-launches-with-industry-first-all-mist-skincare-line-486813377 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/korean-beauty-brand-mixik-skin-launches-with-industry-first-all-mist-skincare-line-486813377)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1btxbdg/korean_beauty_brand_mixik_skin_launches/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1btxbdg/korean_beauty_brand_mixik_skin_launches/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/2/vibe0kGh.webp)

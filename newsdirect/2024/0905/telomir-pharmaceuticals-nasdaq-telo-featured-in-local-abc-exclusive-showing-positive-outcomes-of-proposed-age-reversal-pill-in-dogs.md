@@ -36,9 +36,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/telomir-pharmaceuticals-nasdaq-telo-featured-in-local-abc-exclusive-showing-positive-outcomes-of-proposed-age-reversal-pill-in-dogs-994455558 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/telomir-pharmaceuticals-nasdaq-telo-featured-in-local-abc-exclusive-showing-positive-outcomes-of-proposed-age-reversal-pill-in-dogs-994455558)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f9rhl5/telomir_pharmaceuticals_inc_making_strides_in_age/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f9rhl5/telomir_pharmaceuticals_inc_making_strides_in_age/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/5/fileFBdO.webp)

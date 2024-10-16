@@ -20,9 +20,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/european-green-transition-encouraged-by-channel-sampling-at-olserums-djupedal-prospect-460549779 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/european-green-transition-encouraged-by-channel-sampling-at-olserums-djupedal-prospect-460549779)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cshrq5/european_green_transition_encouraged_by_channel/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cshrq5/european_green_transition_encouraged_by_channel/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/waitT3y_.webp)

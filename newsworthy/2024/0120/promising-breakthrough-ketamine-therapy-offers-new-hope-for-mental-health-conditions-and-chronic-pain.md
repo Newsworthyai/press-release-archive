@@ -10,9 +10,17 @@ While higher doses of ketamine have been known to cause hallucinations, particul
 
 Ketamine therapy is gaining recognition as a potential breakthrough in the treatment of mental health conditions and chronic pain. By targeting multiple mechanisms in the brain, this innovative approach offers renewed hope to individuals grappling with these challenges. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401201003/promising-breakthrough-ketamine-therapy-offers-new-hope-for-mental-health-conditions-and-chronic-pain)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1avdpiz/potential_breakthrough_ketamine_therapy_emerges/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1avdpiz/potential_breakthrough_ketamine_therapy_emerges/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/dualp9B2.webp)

@@ -26,9 +26,17 @@ Telegram: www.t.me/retikfinance
 
 Media Contact:Team Retik[bd@retik.com](mailto:bd@retik.com)[https://retik.com/](https://retik.com/) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/retik-finance-retik-schedules-launch-for-21st-may-closed-presale-with-32050000-raised)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ctfblv/retik_finance_retik_revolutionizing_global/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ctfblv/retik_finance_retik_revolutionizing_global/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/16/mielLRkU.webp)

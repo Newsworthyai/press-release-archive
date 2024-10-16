@@ -30,9 +30,17 @@ Company Websitehttp://www.nuggmd.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nuggmd-to-again-offer-cannabis-support-line-the-too-high-hotline-on-4-20-396393194 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nuggmd-to-again-offer-cannabis-support-line-the-too-high-hotline-on-4-20-396393194)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1c4xba2/nuggmd_offers_toohigh_hotline_for_420_support/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1c4xba2/nuggmd_offers_toohigh_hotline_for_420_support/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/15/warpeSsf.webp)

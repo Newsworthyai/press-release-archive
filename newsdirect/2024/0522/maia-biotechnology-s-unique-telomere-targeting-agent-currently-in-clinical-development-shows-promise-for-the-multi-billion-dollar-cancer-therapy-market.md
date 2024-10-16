@@ -46,9 +46,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/maia-biotechnologys-unique-telomere-targeting-agent-currently-in-clinical-development-shows-promise-for-the-multi-billion-dollar-cancer-therapy-market-993929137 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/maia-biotechnologys-unique-telomere-targeting-agent-currently-in-clinical-development-shows-promise-for-the-multi-billion-dollar-cancer-therapy-market-993929137)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cxz8z0/maia_biotechnologys_thio_shows_promise_in_cancer/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cxz8z0/maia_biotechnologys_thio_shows_promise_in_cancer/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/barnhz37.webp)

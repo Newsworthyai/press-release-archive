@@ -43,9 +43,17 @@ Company Websitehttps://www.debt.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/more-americans-are-living-paycheck-to-paycheck-despite-increased-budgeting-669973436 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/more-americans-are-living-paycheck-to-paycheck-despite-increased-budgeting-669973436)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1g0izlf/more_americans_living_paycheck_to_paycheck/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1g0izlf/more_americans_living_paycheck_to_paycheck/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/10/jazzwqEU.webp)

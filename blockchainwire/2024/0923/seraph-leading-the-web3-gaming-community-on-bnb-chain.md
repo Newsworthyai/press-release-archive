@@ -18,9 +18,17 @@ As BNB Chain continues to drive the development of GameFi, Seraph, with its soli
 
 4 Hero Classes：Boss Fight:Official linksOfficial website: [https://seraph.game](https://seraph.game)Twitter @Seraph_global  [https://twitter.com/Seraph_global](https://twitter.com/Seraph_global)Linktree: [https://linktr.ee/seraph_crypto](https://linktr.ee/seraph_crypto)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/seraph-leading-the-web3-gaming-community-on-bnb-chain)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fnu3sh/seraph_emerges_as_leading_project_in_bnb_chain/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fnu3sh/seraph_emerges_as_leading_project_in_bnb_chain/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/23/dive14Da.webp)

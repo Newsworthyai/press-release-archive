@@ -20,9 +20,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/core-nickel-announces-successful-completion-of-2024-winter-drill-program-at-halfway-lake-project-673710183 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/core-nickel-announces-successful-completion-of-2024-winter-drill-program-at-halfway-lake-project-673710183)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cy4so9/core_nickel_ceo_announces_successful_completion/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cy4so9/core_nickel_ceo_announces_successful_completion/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/lambpJDk.webp)

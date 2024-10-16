@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/brunswick-exploration-sees-positive-results-from-mirage-drilling-and-plans-for-summer-exploration-778918328 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/brunswick-exploration-sees-positive-results-from-mirage-drilling-and-plans-for-summer-exploration-778918328)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dcqiav/brunswick_exploration_sees_positive_results_from/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dcqiav/brunswick_exploration_sees_positive_results_from/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/10/davehpTN.webp)

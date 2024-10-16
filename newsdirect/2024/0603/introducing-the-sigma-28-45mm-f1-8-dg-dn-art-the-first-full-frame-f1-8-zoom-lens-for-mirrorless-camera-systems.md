@@ -254,9 +254,17 @@ Company Websitehttps://www.sigmaphoto.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/introducing-the-sigma-28-45mm-f1-8-dg-dn-art-the-first-full-frame-f1-8-zoom-lens-for-mirrorless-camera-systems-395010328 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/introducing-the-sigma-28-45mm-f1-8-dg-dn-art-the-first-full-frame-f1-8-zoom-lens-for-mirrorless-camera-systems-395010328)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1d7lyoz/introducing_the_sigma_2845mm_f18_dg_dn_art_the/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1d7lyoz/introducing_the_sigma_2845mm_f18_dg_dn_art_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/3/moss1Ade.webp)

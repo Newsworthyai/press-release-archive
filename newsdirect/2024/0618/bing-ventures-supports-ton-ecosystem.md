@@ -36,9 +36,17 @@ Company Websitehttps://www.bing-ventures.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bing-ventures-supports-ton-ecosystem-571617386 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bing-ventures-supports-ton-ecosystem-571617386)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvhl64/bing_ventures_announces_comprehensive_support_for/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvhl64/bing_ventures_announces_comprehensive_support_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/18/fileiKKf.webp)

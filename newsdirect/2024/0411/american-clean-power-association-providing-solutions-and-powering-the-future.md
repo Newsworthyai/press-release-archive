@@ -32,9 +32,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/american-clean-power-association-providing-solutions-and-powering-the-future-219017955 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/american-clean-power-association-providing-solutions-and-powering-the-future-219017955)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c1miq6/american_clean_power_association_leading_the_way/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c1miq6/american_clean_power_association_leading_the_way/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/healhgZq.webp)

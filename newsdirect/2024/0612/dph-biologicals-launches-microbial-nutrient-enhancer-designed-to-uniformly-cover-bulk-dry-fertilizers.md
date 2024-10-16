@@ -37,9 +37,17 @@ Company Websitehttp://www.dphbio.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/dph-biologicals-launches-microbial-nutrient-enhancer-designed-to-uniformly-cover-bulk-dry-fertilizers-249275499 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/dph-biologicals-launches-microbial-nutrient-enhancer-designed-to-uniformly-cover-bulk-dry-fertilizers-249275499)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1de5rpx/dph_biologicals_launches_envelix_prime_a/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1de5rpx/dph_biologicals_launches_envelix_prime_a/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/12/hintbMR5.webp)

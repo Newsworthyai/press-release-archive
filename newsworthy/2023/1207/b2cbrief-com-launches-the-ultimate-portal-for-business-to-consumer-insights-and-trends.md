@@ -18,9 +18,17 @@ With a commitment to propel the B2C sector forward, B2CBrief.com emerges as the 
 
 Explore the ever-evolving B2C landscape at www.B2CBrief.com. Dive deep, discover more, and define the future of consumer business. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231207777/b2cbrief-com-launches-the-ultimate-portal-for-business-to-consumer-insights-and-trends)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1avx23s/new_b2cbriefcom_launches_shaping_the_future_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1avx23s/new_b2cbriefcom_launches_shaping_the_future_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/nora8MKQ.webp)

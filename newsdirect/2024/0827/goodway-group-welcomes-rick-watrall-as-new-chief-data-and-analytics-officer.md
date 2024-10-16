@@ -28,9 +28,17 @@ Company Websitehttps://www.goodwaygroup.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/goodway-group-welcomes-rick-watrall-as-new-chief-data-and-analytics-officer-415352769 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/goodway-group-welcomes-rick-watrall-as-new-chief-data-and-analytics-officer-415352769)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1f386qw/goodway_group_appoints_rick_watrall_as_chief_data/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1f386qw/goodway_group_appoints_rick_watrall_as_chief_data/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/28/ulnafPgh.webp)

@@ -18,9 +18,17 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, a
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-bollinger-partner-with-envirocharge-to-create-mobile-charging-solution/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1f2pw02/mullen_automotive_nasdaq_muln_partners_with/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1f2pw02/mullen_automotive_nasdaq_muln_partners_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/gaineDuI.webp)

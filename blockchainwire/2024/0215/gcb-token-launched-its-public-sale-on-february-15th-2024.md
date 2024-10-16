@@ -18,9 +18,17 @@ From the first day, the public sale marked a huge success and captivated the att
 
 Disclaimer:The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gcb-token-launched-its-public-sale-on-february-15th-2024)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avcaba/gcb_token_launches_after_project_completion/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avcaba/gcb_token_launches_after_project_completion/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/16/deepxHpw.webp)

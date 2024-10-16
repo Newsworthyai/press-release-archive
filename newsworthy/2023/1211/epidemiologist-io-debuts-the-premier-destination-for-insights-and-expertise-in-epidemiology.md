@@ -18,9 +18,17 @@ Epidemiologist.io stands as a beacon for all seeking to explore, understand, and
 
 Navigate the intricate world of epidemiology with www.Epidemiologist.io. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231211816/epidemiologist-io-debuts-the-premier-destination-for-insights-and-expertise-in-epidemiology)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avctp3/introducing_epidemiologistio_a_new_platform_for/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avctp3/introducing_epidemiologistio_a_new_platform_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/pearnvd0.webp)

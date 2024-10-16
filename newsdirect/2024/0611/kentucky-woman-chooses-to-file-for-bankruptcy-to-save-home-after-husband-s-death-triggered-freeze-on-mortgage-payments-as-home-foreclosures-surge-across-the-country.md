@@ -60,9 +60,17 @@ Company Websitehttps://moneywise.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/kentucky-woman-chooses-to-file-for-bankruptcy-to-save-home-after-husbands-death-triggered-freeze-on-mortgage-payments-as-home-foreclosures-surge-across-the-country-351951990 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kentucky-woman-chooses-to-file-for-bankruptcy-to-save-home-after-husbands-death-triggered-freeze-on-mortgage-payments-as-home-foreclosures-surge-across-the-country-351951990)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ddbifc/kentucky_woman_files_for_bankruptcy_to_save_home/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ddbifc/kentucky_woman_files_for_bankruptcy_to_save_home/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/11/rainm4hW.webp)

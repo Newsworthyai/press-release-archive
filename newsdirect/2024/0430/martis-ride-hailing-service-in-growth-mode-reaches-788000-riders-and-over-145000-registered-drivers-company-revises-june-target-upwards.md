@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/martis-ride-hailing-service-in-growth-mode-reaches-788-000-riders-and-over-145-000-registered-drivers-company-revises-june-target-upwards-107965622 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/martis-ride-hailing-service-in-growth-mode-reaches-788-000-riders-and-over-145-000-registered-drivers-company-revises-june-target-upwards-107965622)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cgrr4e/martis_ridehailing_service_hits_major_milestone/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cgrr4e/martis_ridehailing_service_hits_major_milestone/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/30/filob0HJ.webp)

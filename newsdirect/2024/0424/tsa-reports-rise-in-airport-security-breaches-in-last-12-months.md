@@ -74,9 +74,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tsa-reports-rise-in-airport-security-breaches-in-last-12-months-144220094 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tsa-reports-rise-in-airport-security-breaches-in-last-12-months-144220094)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cbx5cp/tsa_reports_rise_in_airport_security_breaches/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cbx5cp/tsa_reports_rise_in_airport_security_breaches/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/24/poemegvm.webp)

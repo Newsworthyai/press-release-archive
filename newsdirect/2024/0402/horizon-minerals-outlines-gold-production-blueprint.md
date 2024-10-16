@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/horizon-minerals-outlines-gold-production-blueprint-406971063 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/horizon-minerals-outlines-gold-production-blueprint-406971063)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1bu6y4l/horizon_minerals_outlines_strategic_blueprint_for/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1bu6y4l/horizon_minerals_outlines_strategic_blueprint_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/2/wolfHIpK.webp)

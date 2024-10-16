@@ -60,9 +60,17 @@ Coinstore Social Media
 
 Twitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Telegram Announcement 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/dasia---your-preferred-ai-based-marketing-ecology)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dujroh/dasia_project_creating_a_sustainable_ai_media/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dujroh/dasia_project_creating_a_sustainable_ai_media/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/3/coolyq_O.webp)

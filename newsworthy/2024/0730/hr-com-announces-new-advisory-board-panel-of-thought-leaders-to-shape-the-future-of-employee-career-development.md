@@ -45,9 +45,17 @@ Participate in surveys, share your insights, and earn rewards.
 
 Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202407301219/hr-com-announces-new-advisory-board-panel-of-thought-leaders-to-shape-the-future-of-employee-career-development)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eg47wt/industry_experts_unite_for_hrcoms_future_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eg47wt/industry_experts_unite_for_hrcoms_future_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/247/30/limefaWv.webp)

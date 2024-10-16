@@ -42,9 +42,17 @@ The ongoing $SCAR airdrop is just one of the many opportunities that will become
 
 X (Twitter) | Telegram | YouTube 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/girrona-announces-ongoing-scar-airdrop-opportunity-on-its-future-proof-blockchain)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ca9a9e/exciting_scar_airdrop_opportunity_for_girrona/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ca9a9e/exciting_scar_airdrop_opportunity_for_girrona/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/22/ruby1ZYC.webp)

@@ -63,9 +63,17 @@ Company Websitehttps://www.platinumlearningce.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/platinum-learning-nursing-ce-announces-continuing-education-programs-for-healthcare-professionals-237354071 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/platinum-learning-nursing-ce-announces-continuing-education-programs-for-healthcare-professionals-237354071)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1bvzxtd/platinum_learning_nursing_ce_announces_new/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1bvzxtd/platinum_learning_nursing_ce_announces_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/4/quip__Cf.webp)

@@ -54,9 +54,17 @@ Company Websitehttps://www.tempopay.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/texicare-partners-with-tempopay-to-make-paying-for-health-care-simpler-and-more-accessible-for-small-business-groups-in-texas-475755536 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/texicare-partners-with-tempopay-to-make-paying-for-health-care-simpler-and-more-accessible-for-small-business-groups-in-texas-475755536)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1fp2ujp/texicare_partners_with_tempopay_to_make_paying/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1fp2ujp/texicare_partners_with_tempopay_to_make_paying/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/25/moonmEL_.webp)

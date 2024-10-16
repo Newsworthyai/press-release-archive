@@ -18,9 +18,17 @@ As MetaCene continues to push the boundaries of Web3 gaming, the MAK token launc
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/metacene-launches-mak-token-following-17m-total-funding)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1fhyla3/metacene_launches_mak_token_on_major/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1fhyla3/metacene_launches_mak_token_on_major/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/11/bendXDcI.webp)

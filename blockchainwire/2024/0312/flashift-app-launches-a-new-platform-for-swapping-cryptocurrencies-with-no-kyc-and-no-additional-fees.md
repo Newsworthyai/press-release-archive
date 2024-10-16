@@ -48,9 +48,17 @@ Is Flashift trustable?
 
 Yes, Flashift partners exclusively with reputable cryptocurrency swap exchanges. Using Flashift entails no difference compared to using these partner services. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/flashiftapp-launches-a-new-platform-for-swapping-cryptocurrencies-with-no-kyc-and-no-additional-fees)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bdd8kg/flashift_transforming_cryptocurrency_exchanges/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bdd8kg/flashift_transforming_cryptocurrency_exchanges/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/13/pinez1jK.webp)

@@ -46,9 +46,17 @@ Company Websitehttps://playactivate.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/activate-brings-high-tech-gaming-experience-to-dallas-southlake-828656195 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/activate-brings-high-tech-gaming-experience-to-dallas-southlake-828656195)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1bp1pcd/activate_to_open_second_location_in_dallasfort/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1bp1pcd/activate_to_open_second_location_in_dallasfort/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/herbAoJ_.webp)

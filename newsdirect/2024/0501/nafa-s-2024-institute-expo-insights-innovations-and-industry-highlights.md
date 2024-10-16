@@ -37,9 +37,17 @@ Company Websitehttps://www.nafa.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/nafas-2024-institute-and-expo-insights-innovations-and-industry-highlights-891069232 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nafas-2024-institute-and-expo-insights-innovations-and-industry-highlights-891069232)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1chpqdl/nafas_2024_institute_and_expo_insights/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1chpqdl/nafas_2024_institute_and_expo_insights/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/dashLELm.webp)

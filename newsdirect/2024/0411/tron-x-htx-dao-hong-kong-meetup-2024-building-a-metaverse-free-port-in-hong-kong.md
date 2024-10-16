@@ -34,9 +34,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tron-x-htx-dao-hong-kong-meetup-2024-building-a-metaverse-free-port-in-hong-kong-853551573 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tron-x-htx-dao-hong-kong-meetup-2024-building-a-metaverse-free-port-in-hong-kong-853551573)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c14747/tron_x_htx_dao_hong_kong_meetup_2024_building_a/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c14747/tron_x_htx_dao_hong_kong_meetup_2024_building_a/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/quip_BvK.webp)

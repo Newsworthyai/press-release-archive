@@ -34,9 +34,17 @@ Company Websitehttps://financialgravity.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/open-sans-469514940 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/open-sans-469514940)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1c5cj1j/financial_gravity_companies_inc_welcomes_kaili/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1c5cj1j/financial_gravity_companies_inc_welcomes_kaili/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/fileJzNn.webp)

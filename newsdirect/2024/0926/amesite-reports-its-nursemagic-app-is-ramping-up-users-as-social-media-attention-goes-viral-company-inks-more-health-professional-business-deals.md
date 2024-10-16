@@ -46,9 +46,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/amesite-reports-its-nursemagic-app-is-ramping-up-users-as-social-media-attention-goes-viral-company-inks-more-health-professional-business-deals-813587970 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/amesite-reports-its-nursemagic-app-is-ramping-up-users-as-social-media-attention-goes-viral-company-inks-more-health-professional-business-deals-813587970)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1fpvlpo/amesites_nursemagictrade_app_addresses_nursing/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1fpvlpo/amesites_nursemagictrade_app_addresses_nursing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/26/mailpqSf.webp)

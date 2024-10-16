@@ -14,9 +14,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/xigem-technologies-sees-blue-sky-ahead-with-growth-in-used-car-market-570827030 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/xigem-technologies-sees-blue-sky-ahead-with-growth-in-used-car-market-570827030)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cdn4mq/xigem_technologies_sees_blue_sky_ahead_with/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cdn4mq/xigem_technologies_sees_blue_sky_ahead_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/26/lush53tb.webp)

@@ -48,9 +48,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/a-new-era-for-on-chain-airdrops-htx-liquid-restaking-your-gateway-to-effortless-airdrop-rewards-997081417 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/a-new-era-for-on-chain-airdrops-htx-liquid-restaking-your-gateway-to-effortless-airdrop-rewards-997081417)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ctynap/htx_liquid_restaking_your_gateway_to_effortless/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ctynap/htx_liquid_restaking_your_gateway_to_effortless/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/17/ninaZU2P.webp)

@@ -50,9 +50,17 @@ Company Websitehttps://meta-force.space/
 
 View source version on newsdirect.com: https://newsdirect.com/news/lado-okhotnikov-ceo-of-meta-force-presented-a-pilot-release-of-the-superhero-comic-and-talked-about-further-developments-857355938 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/lado-okhotnikov-ceo-of-meta-force-presented-a-pilot-release-of-the-superhero-comic-and-talked-about-further-developments-857355938)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1f2jff9/meta_force_unveils_superhero_comic_and_plans_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f2jff9/meta_force_unveils_superhero_comic_and_plans_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/27/rush5Cht.webp)

@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/na-editorialatproactiveinvestors-com-502065999 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/na-editorialatproactiveinvestors-com-502065999)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cry0d9/europacific_metals_ceo_announces_major/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cry0d9/europacific_metals_ceo_announces_major/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/14/daveItGy.webp)

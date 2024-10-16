@@ -14,9 +14,17 @@ About the Indoor Football League
 
 The IFL is entering its 16th season of play, making it the longest-running indoor football league in the country. The league features a national footprint of 16 teams from coast to coast. In 2023, the IFL partnered with CBS Sports, Simplebet, the XFL and more to grow the accessibility of its indoor football sports entertainment experience. Keep up with the latest news and scores of games each week at GoIFL.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202405081159/fargo-ifl-gridiron-classic-sets-stage-for-possible-bucks-return-2025-season-hinges-on-secure-partners)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cn33eq/dakota_bucks_future_in_professional_indoor/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cn33eq/dakota_bucks_future_in_professional_indoor/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/245/8/ideaFH7K.webp)

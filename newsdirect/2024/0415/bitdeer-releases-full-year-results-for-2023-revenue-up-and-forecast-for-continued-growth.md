@@ -45,9 +45,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitdeer-releases-full-year-results-for-2023-revenue-up-and-forecast-for-continued-growth-887396442 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitdeer-releases-full-year-results-for-2023-revenue-up-and-forecast-for-continued-growth-887396442)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1c4lifo/bitdeer_reports_strong_financial_results_for_2023/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1c4lifo/bitdeer_reports_strong_financial_results_for_2023/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/15/hinteSPu.webp)

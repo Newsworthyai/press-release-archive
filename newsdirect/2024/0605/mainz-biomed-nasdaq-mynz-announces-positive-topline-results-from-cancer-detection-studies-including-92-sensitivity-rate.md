@@ -48,9 +48,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mainz-biomed-nasdaq-mynz-announces-positive-topline-results-from-cancer-detection-studies-including-92-sensitivity-rate-211982546 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/mainz-biomed-nasdaq-mynz-announces-positive-topline-results-from-cancer-detection-studies-including-92-sensitivity-rate-211982546)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1d8oxoz/mainz_biomed_announces_positive_results_for/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1d8oxoz/mainz_biomed_announces_positive_results_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/5/pintstvB.webp)

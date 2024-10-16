@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/legendary-music-exec-jerry-greenberg-says-working-with-diamond-lake-minerals-otcpk-dlmi-ceo-brian-j-esposito-on-launching-autobiography-was-like-discovering-incredible-new-rock-star-talent-875203500 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/legendary-music-exec-jerry-greenberg-says-working-with-diamond-lake-minerals-otcpk-dlmi-ceo-brian-j-esposito-on-launching-autobiography-was-like-discovering-incredible-new-rock-star-talent-875203500)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1d2j4b3/jerry_greenberg_partners_with_diamond_lake/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1d2j4b3/jerry_greenberg_partners_with_diamond_lake/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/28/zeroOIYj.webp)

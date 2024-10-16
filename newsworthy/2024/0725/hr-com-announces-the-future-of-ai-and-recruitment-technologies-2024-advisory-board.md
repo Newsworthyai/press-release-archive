@@ -42,9 +42,17 @@ Participate in surveys, share your insights, and earn rewards.
 
 Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202407251217/hr-com-announces-the-future-of-ai-and-recruitment-technologies-2024-advisory-board)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1ech346/hrcom_forms_future_of_ai_and_recruitment/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1ech346/hrcom_forms_future_of_ai_and_recruitment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/247/26/mintQfJW.webp)

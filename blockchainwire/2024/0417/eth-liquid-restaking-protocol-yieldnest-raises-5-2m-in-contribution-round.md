@@ -38,9 +38,17 @@ Led by a team of industry veterans, YieldNest aims to become EigenLayer’s top 
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/eth-liquid-restaking-protocol-yieldnest-raises-52m-in-contribution-round)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c69khi/yieldnest_set_to_launch_yneth_after_52m/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c69khi/yieldnest_set_to_launch_yneth_after_52m/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/17/arch3f0e.webp)

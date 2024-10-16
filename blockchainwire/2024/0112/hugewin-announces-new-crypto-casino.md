@@ -24,9 +24,17 @@ It is possible to learn more about HugeWin by visiting its website and explori
 
 Telegram | X (Twitter) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/hugewin-announces-new-crypto-casino)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avx62i/hugewin_introduces_new_crypto_casino_with/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avx62i/hugewin_introduces_new_crypto_casino_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/pintU55y.webp)

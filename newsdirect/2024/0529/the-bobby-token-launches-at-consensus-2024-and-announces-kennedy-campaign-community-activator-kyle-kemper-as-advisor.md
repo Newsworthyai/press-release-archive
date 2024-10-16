@@ -48,9 +48,17 @@ claire@weareblueparrot.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-bobby-token-launches-at-consensus-2024-and-announces-kennedy-campaign-community-activator-kyle-kemper-as-advisor-998606554 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-bobby-token-launches-at-consensus-2024-and-announces-kennedy-campaign-community-activator-kyle-kemper-as-advisor-998606554)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1d3ng1x/the_bobby_token_relaunches_at_consensus_2024_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1d3ng1x/the_bobby_token_relaunches_at_consensus_2024_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/29/veilJpBn.webp)

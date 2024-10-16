@@ -26,9 +26,17 @@ For investor relations, please contact Laurie Argall: laurie@bytefederal.com
 
 Byte Federal Inc. is excited about Byte Federal Australia's launch and partnership with Ultra Petroleum, reinforcing our commitment to digital asset accessibility. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231204903/byte-federal-expands-global-presence-with-the-launch-of-byte-federal-australia)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avcta6/byte_federal_inc_launches_byte_federal_australia/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avcta6/byte_federal_inc_launches_byte_federal_australia/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/iris7jL7.webp)

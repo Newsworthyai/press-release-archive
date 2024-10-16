@@ -34,9 +34,17 @@ Company Websitehttps://midwest.comcast.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/comcast-expands-into-chanhassen-with-major-fiber-network-475250160 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/comcast-expands-into-chanhassen-with-major-fiber-network-475250160)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d42j2g/comcast_expands_nextgeneration_xfinity_network/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d42j2g/comcast_expands_nextgeneration_xfinity_network/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/30/dive3Wyz.webp)

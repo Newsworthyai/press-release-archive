@@ -8,9 +8,17 @@ The compassionate and supportive approach of Ketamine Therapy sets it apart from
 
 The positive impact of Ketamine Therapy is resoundingly clear, with a significant decrease in suicidal thoughts reported by many patients. Those struggling with mental health conditions who have not found success with other treatments are now finding hope with Ketamine Therapy. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402261097/breakthrough-mental-health-treatment-ketamine-therapy-offers-hope-for-a-better-life_1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1b6rqyk/groundbreaking_ketamine_therapy_now_available_in/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1b6rqyk/groundbreaking_ketamine_therapy_now_available_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/26/gulfmJK4.webp)

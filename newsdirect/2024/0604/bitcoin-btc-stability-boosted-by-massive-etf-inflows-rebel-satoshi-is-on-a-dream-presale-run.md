@@ -32,9 +32,17 @@ marketing@rebelsatoshi.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitcoin-btc-stability-boosted-by-massive-etf-inflows-rebel-satoshi-is-on-a-dream-presale-run-798089522 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitcoin-btc-stability-boosted-by-massive-etf-inflows-rebel-satoshi-is-on-a-dream-presale-run-798089522)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1d7w93b/bitcoin_stability_boosted_by_massive_etf_inflows/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1d7w93b/bitcoin_stability_boosted_by_massive_etf_inflows/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/4/mailCldj.webp)

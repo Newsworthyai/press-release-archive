@@ -18,9 +18,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/atrato-capital-cio-discusses-strategic-french-market-expansion-with-carrefour-acquisition-549911940 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/atrato-capital-cio-discusses-strategic-french-market-expansion-with-carrefour-acquisition-549911940)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1chmwfv/supermarket_income_reit_plc_acquires_17/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1chmwfv/supermarket_income_reit_plc_acquires_17/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/silkYPFa.webp)

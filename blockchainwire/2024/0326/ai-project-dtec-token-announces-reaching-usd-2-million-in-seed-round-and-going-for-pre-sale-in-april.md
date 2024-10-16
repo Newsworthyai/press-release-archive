@@ -20,9 +20,17 @@ Telegram : https://t.me/DtecTokenChat
 
 Website Main: https://dtec.space 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ai-project-dtec-token-announces-reaching-usd-2-million-in-seed-round-and-going-for-pre-sale-in-april)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bo8drl/dtec_token_project_secures_usd_2_million_in_seed/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bo8drl/dtec_token_project_secures_usd_2_million_in_seed/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/26/loss2NmB.webp)

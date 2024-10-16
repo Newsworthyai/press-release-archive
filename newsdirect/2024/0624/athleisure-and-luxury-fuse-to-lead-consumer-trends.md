@@ -18,9 +18,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/athleisure-and-luxury-fuse-to-lead-consumer-trends-873914598 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/athleisure-and-luxury-fuse-to-lead-consumer-trends-873914598)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1dna247/athleisure_and_luxury_trend_lululemon_dominates/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1dna247/athleisure_and_luxury_trend_lululemon_dominates/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/24/yarn4EJ9.webp)

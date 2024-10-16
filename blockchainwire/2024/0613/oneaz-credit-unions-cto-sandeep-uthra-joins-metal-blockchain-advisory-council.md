@@ -18,9 +18,17 @@ About Metal Blockchain
 
 Metal Blockchain, developed by Metallicus, is an innovative Layer 0 blockchain technology dedicated to tackling global finance challenges with its scalable, secure, and decentralized infrastructure built on the foundation of BSA Compliance. The versatile nature of Metal Blockchain's infrastructure enables developers to craft customized solutions for a wide range of financial applications, promoting innovation and growth within the global financial sector. Guided by the vision of CEO Marshall Hayner, Metal Blockchain aims to transform the financial industry by embracing compliance-driven innovation. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/oneaz-credit-unions-cto-sandeep-uthra-joins-metal-blockchain-advisory-council)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1df49xq/metallicus_appoints_sandeep_uthra_as_chief/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1df49xq/metallicus_appoints_sandeep_uthra_as_chief/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/13/lendsMdQ.webp)

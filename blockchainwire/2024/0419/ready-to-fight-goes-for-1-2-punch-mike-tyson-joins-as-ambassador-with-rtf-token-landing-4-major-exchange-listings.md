@@ -26,9 +26,17 @@ https://rtfight.com/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ready-to-fight-goes-for-1-2-punch-mike-tyson-joins-as-ambassador-with-rtf-token-landing-4-major-exchange-listings)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1c876z1/mike_tyson_joins_ready_to_fight_as_ambassador_rtf/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1c876z1/mike_tyson_joins_ready_to_fight_as_ambassador_rtf/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/19/epicWEal.webp)

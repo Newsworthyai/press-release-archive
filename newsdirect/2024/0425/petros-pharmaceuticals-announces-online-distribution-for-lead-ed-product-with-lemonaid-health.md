@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/petros-pharmaceuticals-announces-online-distribution-for-lead-ed-product-with-lemonaid-health-731646501 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/petros-pharmaceuticals-announces-online-distribution-for-lead-ed-product-with-lemonaid-health-731646501)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cctowk/petros_pharmaceuticals_partners_with_lemonaid/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cctowk/petros_pharmaceuticals_partners_with_lemonaid/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/25/quizTzFK.webp)

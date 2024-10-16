@@ -36,9 +36,17 @@ Mark@razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-iveda-solutions-nasdaq-ivda-is-redefining-industry-norms-with-advanced-ai-applications-786291374 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/how-iveda-solutions-nasdaq-ivda-is-redefining-industry-norms-with-advanced-ai-applications-786291374)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1f9rhas/iveda_solutions_nasdaq_ivda_leading_the_ai/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1f9rhas/iveda_solutions_nasdaq_ivda_leading_the_ai/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/5/rendIKrK.webp)

@@ -36,9 +36,17 @@ Company Websitehttps://www.alvarezandmarsal.com/industries/retail/retail
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-alvarez-and-marsal-spring-2024-consumer-sentiment-report-highlights-impact-of-ongoing-consumer-skepticism-on-spring-and-summer-spending-plans-765606271 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/new-alvarez-and-marsal-spring-2024-consumer-sentiment-report-highlights-impact-of-ongoing-consumer-skepticism-on-spring-and-summer-spending-plans-765606271)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1c0oqko/alvarez_marsals_consumer_report_reveals_consumer/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1c0oqko/alvarez_marsals_consumer_report_reveals_consumer/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/10/gainGFol.webp)

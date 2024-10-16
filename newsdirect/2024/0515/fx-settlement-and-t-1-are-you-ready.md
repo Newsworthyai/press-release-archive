@@ -66,9 +66,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fx-settlement-and-t-1-are-you-ready-378427920 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/fx-settlement-and-t-1-are-you-ready-378427920)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1cskjkq/fx_settlement_and_t1_are_you_ready/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1cskjkq/fx_settlement_and_t1_are_you_ready/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/luna6ntG.webp)

@@ -16,9 +16,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nevis-brands-expands-major-distribution-with-exclusive-licensing-agreement-in-mississippi-143106983 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nevis-brands-expands-major-distribution-with-exclusive-licensing-agreement-in-mississippi-143106983)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1cgx18v/nevis_brands_expands_major_distribution_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1cgx18v/nevis_brands_expands_major_distribution_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/30/riceqydD.webp)

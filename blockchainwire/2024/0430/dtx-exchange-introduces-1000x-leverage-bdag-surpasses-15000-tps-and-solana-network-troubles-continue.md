@@ -14,9 +14,17 @@ DTX is currently in its first presale stage. To learn more about DTX, visit the 
 
 Media Contact:Robert SmithDTX Exchangesupport@dtxexchange.com[https://dtxexchange.com](https://dtxexchange.com)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/-dtx-exchange-introduces-1000x-leverage-bdag-surpasses-15000-tps-and-solana-network-troubles-continue)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cgumcx/dtx_exchange_dtx_introduces_1000x_leverage_and/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cgumcx/dtx_exchange_dtx_introduces_1000x_leverage_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/30/keepWAkR.webp)

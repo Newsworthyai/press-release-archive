@@ -32,9 +32,17 @@ info@americanapr.com
 
 www.americanapr.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/ck-distribution-launches-sticky-premium-flower-celebrates-with-tesla-cybertruck-raffle-7076063)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1fjridb/ck_distribution_unveils_new_cannabis_flower_brand/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1fjridb/ck_distribution_unveils_new_cannabis_flower_brand/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/18/urgedK7o.webp)

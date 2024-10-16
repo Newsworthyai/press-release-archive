@@ -34,9 +34,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-and-needham-initiate-coverage-on-bitdeer-technologies-nasdaq-btdr-and-apply-buy-recommendations-789575905 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-and-needham-initiate-coverage-on-bitdeer-technologies-nasdaq-btdr-and-apply-buy-recommendations-789575905)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ddlh7h/leading_investment_banks_initiate_bullish/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ddlh7h/leading_investment_banks_initiate_bullish/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/11/healjuWC.webp)

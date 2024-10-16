@@ -32,9 +32,17 @@ Company Websitehttps://velocityglobal.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/velocity-global-continues-to-expand-global-footprint-176780854 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/velocity-global-continues-to-expand-global-footprint-176780854)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dzy67j/velocity_global_expands_global_footprint_with_new/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dzy67j/velocity_global_expands_global_footprint_with_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/10/dunemFI5.webp)

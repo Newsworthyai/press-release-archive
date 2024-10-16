@@ -42,9 +42,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cadiz-inc-nasdaq-cdzi-sets-the-stage-for-expansion-with-new-50-year-water-delivery-partnership-426137868 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cadiz-inc-nasdaq-cdzi-sets-the-stage-for-expansion-with-new-50-year-water-delivery-partnership-426137868)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1dlakce/cadiz_inc_nasdaq_cdzi_sets_the_stage_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1dlakce/cadiz_inc_nasdaq_cdzi_sets_the_stage_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/21/markFE5e.webp)

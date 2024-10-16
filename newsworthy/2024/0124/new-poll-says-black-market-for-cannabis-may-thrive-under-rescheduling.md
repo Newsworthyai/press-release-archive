@@ -32,9 +32,17 @@ About NuggMD
 
 NuggMD is the nation's leading medical marijuana technology platform, serving patients in Arizona, California, Connecticut, Delaware, Florida, Georgia, Illinois, Iowa, Louisiana, Maine, Maryland, Massachusetts, Michigan, Minnesota, Missouri, Montana, Nevada, New Jersey, New Mexico, New York, Ohio, Oklahoma, Pennsylvania, Texas, Vermont, Virginia, Washington, and West Virginia. They've connected over 1,000,000 patients face-to-face with their new medical marijuana doctors via their state-of-the-art telemedicine platform. They believe every human being has the right to explore the potential benefits of medical cannabis and are fully committed to helping each patient explore every option in their journey to wellness. For further information, visit https://www.nuggmd.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401241042/new-poll-says-black-market-for-cannabis-may-thrive-under-rescheduling)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1avlejm/consumer_poll_reveals_concerns_32_of_cannabis/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1avlejm/consumer_poll_reveals_concerns_32_of_cannabis/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/noraE2Hw.webp)

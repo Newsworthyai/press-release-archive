@@ -34,9 +34,17 @@ Address: 401 E. Jackson St., 22nd Floor, Tampa, FL 33602
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/--blockchain-asset-management-llc-launches-exclusive-blockchain-fund-for-accredited-investors)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cjirc1/blockchain_asset_management_launches_exclusive/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cjirc1/blockchain_asset_management_launches_exclusive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/3/moonM4yG.webp)

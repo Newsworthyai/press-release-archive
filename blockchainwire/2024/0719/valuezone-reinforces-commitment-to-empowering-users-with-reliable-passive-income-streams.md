@@ -22,9 +22,17 @@ Media Contact DetailsContact Name: Siodina EdgarContact Email: siodinaedgar@valu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/valuezone-reinforces-commitment-to-empowering-users-with-reliable-passive-income-streams)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1e7ex6m/valuezone_commits_to_supporting_passive_income/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1e7ex6m/valuezone_commits_to_supporting_passive_income/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/19/quizz7xk.webp)

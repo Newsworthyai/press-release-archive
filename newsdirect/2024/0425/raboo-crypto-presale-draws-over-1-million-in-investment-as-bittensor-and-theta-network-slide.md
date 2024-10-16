@@ -40,9 +40,17 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/raboo-crypto-presale-draws-over-1-million-in-investment-as-bittensor-and-theta-network-slide-183768023 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/raboo-crypto-presale-draws-over-1-million-in-investment-as-bittensor-and-theta-network-slide-183768023)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cd350m/raboo_rockets_to_crypto_stardom_with_over_1/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cd350m/raboo_rockets_to_crypto_stardom_with_over_1/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/25/riftkqtq.webp)

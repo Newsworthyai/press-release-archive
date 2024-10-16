@@ -34,9 +34,17 @@ Company Websitehttps://financialgravity.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/financial-gravity-welcomes-kaili-winters-back-to-financial-gravity-as-our-chief-compliance-officer-and-strategy-implementation-lead-407737170 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/financial-gravity-welcomes-kaili-winters-back-to-financial-gravity-as-our-chief-compliance-officer-and-strategy-implementation-lead-407737170)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c5ghjg/financial_gravity_appoints_kaili_winters_as_chief/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c5ghjg/financial_gravity_appoints_kaili_winters_as_chief/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/tallQ0nr.webp)

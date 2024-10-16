@@ -24,9 +24,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/orcadian-energys-new-partnerships-and-licences-poised-to-enhance-uk-energy-security-163585289 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/orcadian-energys-new-partnerships-and-licences-poised-to-enhance-uk-energy-security-163585289)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cb4x4v/orcadian_energys_new_partnerships_and_licenses/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cb4x4v/orcadian_energys_new_partnerships_and_licenses/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/23/jokecoSl.webp)

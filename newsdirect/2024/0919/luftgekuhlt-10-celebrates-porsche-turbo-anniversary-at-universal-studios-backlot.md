@@ -58,9 +58,17 @@ Company Websitehttps://luftgekuhlt.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/luftgekuhlt-10-celebrates-porsche-turbo-anniversary-at-universal-studios-backlot-950641992 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/luftgekuhlt-10-celebrates-porsche-turbo-anniversary-at-universal-studios-backlot-950641992)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1fkl83k/luftgekühlt_10_celebrates_50th_anniversary_of/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1fkl83k/luftgekühlt_10_celebrates_50th_anniversary_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/19/gulfiigK.webp)

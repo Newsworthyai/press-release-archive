@@ -34,9 +34,17 @@ YieldNest is backed by Faculty Capital, Backed VC, Proof Capital, and others, al
 
 For more information, please visit https://www.yieldnest.finance/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/yieldnest-launches-the-first-bnb-liquid-restaking-token-ynbnb-on-bnb-chain)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ffabu3/yieldnest_launches_ynbnb_the_first_bnb_liquid/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ffabu3/yieldnest_launches_ynbnb_the_first_bnb_liquid/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/12/corn13Wx.webp)

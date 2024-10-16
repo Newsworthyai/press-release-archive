@@ -26,9 +26,17 @@ Learn more: https://linktr.ee/Hypeloot
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/after-crossing-100000-active-users-hypelootcom-announces-the-launch-of-its-utility-token-hplt-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avxgwl/hypeloot_hits_50_million_bets_milestone_and/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avxgwl/hypeloot_hits_50_million_bets_milestone_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/norahmr_.webp)

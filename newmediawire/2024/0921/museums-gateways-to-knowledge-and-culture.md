@@ -34,9 +34,17 @@
 
  The museum is located at 201 N. Brand Blvd., B100, Glendale, Ca 91203. Info: MAmuseum.com, info@mamuseum.com. 
 
+---
+
 [Original/Source Press Release](http://www.newmediawire.com/news/museums-gateways-to-knowledge-and-culture-7076078)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1frcaq1/the_vital_role_of_museums_a_closer_look_at_the/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1frcaq1/the_vital_role_of_museums_a_closer_look_at_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/28/jinxpcuv.webp)

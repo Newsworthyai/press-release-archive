@@ -18,9 +18,17 @@ To learn more and get started, visit: https://bomib.com/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bomib-transforms-cryptocurrency-investing-with-cutting-edge-features-and-superior-security)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ew2wl5/bomibcom_the_innovative_cryptocurrency_exchange/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ew2wl5/bomibcom_the_innovative_cryptocurrency_exchange/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/19/keep8Xf9.webp)

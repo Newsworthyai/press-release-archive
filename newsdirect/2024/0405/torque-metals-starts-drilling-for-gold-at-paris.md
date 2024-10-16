@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/torque-metals-starts-drilling-for-gold-at-paris-899280685 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/torque-metals-starts-drilling-for-gold-at-paris-899280685)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1bwkkst/torque_metals_launches_extensive_drilling/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1bwkkst/torque_metals_launches_extensive_drilling/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/5/pear0Cr_.webp)

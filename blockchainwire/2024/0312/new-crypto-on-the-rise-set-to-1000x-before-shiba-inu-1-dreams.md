@@ -40,9 +40,17 @@ https://twitter.com/Option2Trade
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/new-crypto-on-the-rise-set-to-1000x-before-shiba-inu-1-dreams)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bd1nyk/option2trade_o2t_a_gamechanger_in_the_crypto/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bd1nyk/option2trade_o2t_a_gamechanger_in_the_crypto/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/12/noon6Z1e.webp)

@@ -38,9 +38,17 @@ Company Websitehttps://www.otaa.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/otaa-launches-groundbreaking-new-collection-of-mens-accessories-redefining-elegance-with-a-modern-twist-349048417 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/otaa-launches-groundbreaking-new-collection-of-mens-accessories-redefining-elegance-with-a-modern-twist-349048417)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BookNews/comments/1ded2n9/otaa_launches_groundbreaking_new_collection_of/
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1ded2n9/otaa_launches_groundbreaking_new_collection_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/12/peariBYH.webp)

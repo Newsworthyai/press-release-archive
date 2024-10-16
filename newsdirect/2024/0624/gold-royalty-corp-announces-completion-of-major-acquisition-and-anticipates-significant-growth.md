@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gold-royalty-corp-announces-completion-of-major-acquisition-and-anticipates-significant-growth-674777363 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/gold-royalty-corp-announces-completion-of-major-acquisition-and-anticipates-significant-growth-674777363)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1dnejh6/gold_royalty_corp_ceo_david_garofalo_announces/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1dnejh6/gold_royalty_corp_ceo_david_garofalo_announces/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/24/mintsXu0.webp)

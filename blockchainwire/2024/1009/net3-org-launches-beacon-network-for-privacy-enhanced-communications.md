@@ -30,9 +30,17 @@ Global Market Opportunities and Future Potential: With the booming privacy commu
 
 Disclaimer: This press release may contain forward-looking statements. Forward-looking statements describe future expectations, plans, results, or strategies (including product offerings, regulatory plans and business plans) and may change without notice. You are cautioned that such statements are subject to a multitude of risks and uncertainties that could cause future circumstances, events, or results to differ materially from those projected in the forward-looking statements, including the risks that actual results may differ materially from those projected in the forward-looking statements. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/net3org-launches-beacon-network-for-privacy-enhanced-communications)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fzowrw/net3org_launches_beacon_network_for_global/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fzowrw/net3org_launches_beacon_network_for_global/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/9/faceviBP.webp)

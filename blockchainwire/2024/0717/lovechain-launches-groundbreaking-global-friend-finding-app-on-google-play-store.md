@@ -52,9 +52,17 @@ https://bscscan.com/token/0xfbfb799bb84b8793d17ac3d013c2cf18a37893a8
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/lovechain-launches-groundbreaking-global-friend-finding-app-on-google-play-store)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ehheua/lovechain_revolutionizes_online_dating_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ehheua/lovechain_revolutionizes_online_dating_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/18/jokerK6n.webp)

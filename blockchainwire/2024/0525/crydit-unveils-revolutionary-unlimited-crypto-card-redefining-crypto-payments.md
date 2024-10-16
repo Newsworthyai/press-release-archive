@@ -65,9 +65,17 @@ Youtube:
 
 https://www.youtube.com/channel/UCuhDgAan7HQhvdftRb-DnfA 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/crydit-unveils-revolutionary-unlimited-crypto-card-redefining-crypto-payments)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1emzkjm/crydit_launches_first_unlimited_crypto_card_to/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1emzkjm/crydit_launches_first_unlimited_crypto_card_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/limeG3DS.webp)

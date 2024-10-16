@@ -42,9 +42,17 @@ Company Websitehttps://invest.frontieras.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/frontieras-launches-investment-opportunity-in-a-rockefeller-moment-for-coal-803480562 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/frontieras-launches-investment-opportunity-in-a-rockefeller-moment-for-coal-803480562)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1fkkkvy/frontieras_launches_investment_opportunity_in_a/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1fkkkvy/frontieras_launches_investment_opportunity_in_a/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/19/pitapico2YZQ.webp)

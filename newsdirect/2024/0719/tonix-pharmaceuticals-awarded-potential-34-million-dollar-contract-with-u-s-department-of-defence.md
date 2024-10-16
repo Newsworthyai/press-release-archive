@@ -20,9 +20,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tonix-pharmaceuticals-awarded-potential-34-million-dollar-contract-with-u-s-department-of-defence-309772027 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tonix-pharmaceuticals-awarded-potential-34-million-dollar-contract-with-u-s-department-of-defence-309772027)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e78t06/tonix_pharmaceuticals_awarded_34_million_contract/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e78t06/tonix_pharmaceuticals_awarded_34_million_contract/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/19/gleeUWsd.webp)

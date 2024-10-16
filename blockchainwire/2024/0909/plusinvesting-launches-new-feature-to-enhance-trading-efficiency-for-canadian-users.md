@@ -30,9 +30,17 @@ Experience the New Feature TodayCanadian traders who are ready to take their tra
 
 To learn more about this new feature and to start trading with enhanced efficiency, visit PlusInvesting today. Join the growing community of Canadian traders who trust PlusInvesting to provide the tools they need to achieve their financial goals. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/plusinvesting-launches-new-feature-to-enhance-trading-efficiency-for-canadian-users)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fqrn51/plusinvesting_launches_advanced_efficiency_tools/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fqrn51/plusinvesting_launches_advanced_efficiency_tools/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/11/rainL9wf.webp)

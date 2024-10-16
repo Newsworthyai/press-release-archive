@@ -14,9 +14,17 @@ While there is potential for ketamine misuse when used recreationally or chronic
 
 Ketamine is revolutionizing the field of psychiatric treatment, offering a new frontier of hope for those who have struggled with traditional medications. With its unique mechanism of action and remarkable success rates, this promising drug is reshaping the lives of individuals suffering from a range of mental health conditions. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231229951/ketamine-a-breakthrough-in-psychiatric-treatment-offers-hope-for-patients)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1avdoe9/ketamine_revolutionizing_psychiatric_treatment/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1avdoe9/ketamine_revolutionizing_psychiatric_treatment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/limedW5J.webp)

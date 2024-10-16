@@ -22,9 +22,17 @@ https://osl.com/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/osl-first-to-be-granted-amlo-licence)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cad9uz/osl_group_863hk_granted_amlo_license_by_sfc_in/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cad9uz/osl_group_863hk_granted_amlo_license_by_sfc_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/22/nukeGk5d.webp)

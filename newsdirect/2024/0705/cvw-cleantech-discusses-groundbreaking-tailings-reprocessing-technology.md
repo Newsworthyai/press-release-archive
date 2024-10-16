@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cvw-cleantech-discusses-groundbreaking-tailings-reprocessing-technology-378515498 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cvw-cleantech-discusses-groundbreaking-tailings-reprocessing-technology-378515498)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dvywpn/cvw_cleantech_innovates_tailings_reprocessing/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dvywpn/cvw_cleantech_innovates_tailings_reprocessing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/5/markB5Br.webp)

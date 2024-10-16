@@ -38,9 +38,17 @@ Company Websitehttps://www.busygoddess.au/
 
 View source version on newsdirect.com: https://newsdirect.com/news/natasha-panetta-announced-as-silver-winner-at-the-ausmumpreneur-awards-797932125 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/natasha-panetta-announced-as-silver-winner-at-the-ausmumpreneur-awards-797932125)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eyilz0/natasha_panetta_wins_silver_at_ausmumpreneur/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eyilz0/natasha_panetta_wins_silver_at_ausmumpreneur/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/22/ovalVnZK.webp)

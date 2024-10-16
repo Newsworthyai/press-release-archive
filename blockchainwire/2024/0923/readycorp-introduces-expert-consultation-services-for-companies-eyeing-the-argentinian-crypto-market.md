@@ -31,9 +31,17 @@ For guidance on international business ownership, visit ReadyCorp's website.
 
 You can learn more about ReadyCorp and stay up-to-date with its developments on its social media channels: X (Twitter) | Telegram (Chat) | Telegram (Channel) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/readycorp-introduces-expert-consultation-services-for-companies-eyeing-the-argentinian-crypto-market)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fneml5/readycorp_offers_expert_regulatory_and_compliance/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fneml5/readycorp_offers_expert_regulatory_and_compliance/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/23/knotTniE.webp)

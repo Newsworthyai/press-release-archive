@@ -32,9 +32,17 @@ Contact DetailsBryan Feinberg
 
 View source version on newsdirect.com: https://newsdirect.com/news/exploring-the-influential-leadership-legacy-of-wilbert-t-lee-a-philippine-congressional-force-205242654 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/exploring-the-influential-leadership-legacy-of-wilbert-t-lee-a-philippine-congressional-force-205242654)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1cho2nw/philippine_congressman_wilbert_t_lees_legacy_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1cho2nw/philippine_congressman_wilbert_t_lees_legacy_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/pendKQxq.webp)

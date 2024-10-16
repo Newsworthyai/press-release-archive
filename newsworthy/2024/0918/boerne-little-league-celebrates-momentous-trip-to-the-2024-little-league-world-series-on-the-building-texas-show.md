@@ -23,9 +23,17 @@ Contact Information: For more information, interviews, or to get involved, pleas
 
 Justin McKenziejustin@buildingtexasshow.comwww.buildingtexasshow.com 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202409181264/boerne-little-league-celebrates-momentous-trip-to-the-2024-little-league-world-series-on-the-building-texas-show)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fjrbo8/building_texas_show_spotlights_boerne_little/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fjrbo8/building_texas_show_spotlights_boerne_little/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/249/18/ellaJCY5.webp)

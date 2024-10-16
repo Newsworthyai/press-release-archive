@@ -22,9 +22,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/europa-oil-and-gas-chief-executive-highlights-entry-to-equatorial-guinea-in-half-year-results-689228349 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/europa-oil-and-gas-chief-executive-highlights-entry-to-equatorial-guinea-in-half-year-results-689228349)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c72mxk/europa_oil_gas_ceo_highlights_entry_into/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c72mxk/europa_oil_gas_ceo_highlights_entry_into/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/18/rendtyuU.webp)

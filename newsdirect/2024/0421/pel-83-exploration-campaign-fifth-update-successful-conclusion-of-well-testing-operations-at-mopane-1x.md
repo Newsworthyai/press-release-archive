@@ -23,9 +23,17 @@ Contact DetailsKnowledge R Katti
 
 View source version on newsdirect.com: https://newsdirect.com/news/pel-83-exploration-campaign-fifth-update-successful-conclusion-of-well-testing-operations-at-mopane-1x-349298717 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pel-83-exploration-campaign-fifth-update-successful-conclusion-of-well-testing-operations-at-mopane-1x-349298717)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c9k73v/custos_energy_announces_successful_conclusion_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c9k73v/custos_energy_announces_successful_conclusion_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/21/frog9QFh.webp)

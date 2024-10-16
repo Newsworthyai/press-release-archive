@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/greenwave-technology-solutions-could-be-emerging-as-recycling-leader-by-increasing-metal-processing-capabilities-in-eastern-u-s-951411191 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/greenwave-technology-solutions-could-be-emerging-as-recycling-leader-by-increasing-metal-processing-capabilities-in-eastern-u-s-951411191)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bpumzf/greenwave_technology_solutions_driving_growth_in/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bpumzf/greenwave_technology_solutions_driving_growth_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/quipVSKD.webp)

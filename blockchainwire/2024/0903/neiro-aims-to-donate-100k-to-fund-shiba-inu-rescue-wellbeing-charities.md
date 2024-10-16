@@ -26,9 +26,17 @@ NEIRO is a community-driven cryptocurrency on the Ethereum blockchain, inspired 
 
 Disclaimer: This press release is for informational purposes only and does not constitute investment advice or an offer to invest. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/neiro-aims-to-donate-100k-to-fund-shiba-inu-rescue--wellbeing-charities)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fe6i4q/neiro_announces_100000_initiative_to_support/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fe6i4q/neiro_announces_100000_initiative_to_support/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/11/waitdEjR.webp)

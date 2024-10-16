@@ -26,9 +26,17 @@ Annovis Bio (NYSE: ANVS), a late-stage, drug-platform company developing novel 
 
  BioMedWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-receives-us-patent-for-methods-of-treating-acute-traumatic-brain-injury/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2fjmt/annovis_bio_receives_us_patent_for_lead_drug/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2fjmt/annovis_bio_receives_us_patent_for_lead_drug/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/cornkOt1.webp)

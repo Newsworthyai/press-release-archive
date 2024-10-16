@@ -28,9 +28,17 @@ Company Websitehttps://blackunicornfactory.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/black-unicorn-factory-achieves-500-million-milestone-in-alternative-funding-signaling-a-new-era-in-venture-capital-106574343 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/black-unicorn-factory-achieves-500-million-milestone-in-alternative-funding-signaling-a-new-era-in-venture-capital-106574343)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eqapbx/black_unicorn_factory_achieves_500_million/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eqapbx/black_unicorn_factory_achieves_500_million/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/12/quipGVT1.webp)

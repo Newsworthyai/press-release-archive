@@ -20,9 +20,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gold-basin-resources-secures-property-option-agreement-for-new-pass-gold-property-in-nevada-377106162 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/gold-basin-resources-secures-property-option-agreement-for-new-pass-gold-property-in-nevada-377106162)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cmj21t/gold_basin_resources_secures_property_option/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cmj21t/gold_basin_resources_secures_property_option/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/airyPMfX.webp)

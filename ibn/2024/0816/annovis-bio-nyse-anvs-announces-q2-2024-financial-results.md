@@ -30,9 +30,17 @@ Annovis Bio (NYSE: ANVS), a late-stage, drug-platform company developing novel 
 
  BioMedWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-announces-q2-2024-financial-results/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2go8h/annovis_bio_releases_encouraging_results_from/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2go8h/annovis_bio_releases_encouraging_results_from/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/fasto2mu.webp)

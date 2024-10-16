@@ -18,9 +18,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/caledonia-mining-reports-strong-q1-2024-performance-as-production-and-gold-prices-improve-590310780 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/caledonia-mining-reports-strong-q1-2024-performance-as-production-and-gold-prices-improve-590310780)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1ctzcwl/caledonia_mining_reports_strong_q1_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1ctzcwl/caledonia_mining_reports_strong_q1_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/17/wamcb6LG.webp)

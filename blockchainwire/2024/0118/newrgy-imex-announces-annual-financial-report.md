@@ -24,9 +24,17 @@ Website: https://newrgyintlme.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/newrgy-imex-announces-annual-financial-report)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1avxgtg/newrgy_imex_achieves_significant_performance_in/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1avxgtg/newrgy_imex_achieves_significant_performance_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/tileeYOs.webp)

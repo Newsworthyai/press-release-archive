@@ -52,9 +52,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/brand-engagement-network-brings-ai-assistants-to-medical-coaching-and-the-6-7-billion-concierge-medicine-market-following-the-expansion-of-its-board-480809323 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/brand-engagement-network-brings-ai-assistants-to-medical-coaching-and-the-6-7-billion-concierge-medicine-market-following-the-expansion-of-its-board-480809323)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1fkjyng/bens_ai_assistants_revolutionizing_healthcare/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1fkjyng/bens_ai_assistants_revolutionizing_healthcare/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/19/daveo87j.webp)

@@ -20,9 +20,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/condor-resources-names-chris-buncic-as-companys-new-president-and-ceo-804118315 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/condor-resources-names-chris-buncic-as-companys-new-president-and-ceo-804118315)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cb6cai/condor_resources_names_chris_buncic_as_companys/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cb6cai/condor_resources_names_chris_buncic_as_companys/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/23/rainCInV.webp)

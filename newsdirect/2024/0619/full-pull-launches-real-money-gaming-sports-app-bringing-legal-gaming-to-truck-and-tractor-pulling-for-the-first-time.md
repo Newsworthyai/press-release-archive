@@ -30,9 +30,17 @@ Company Websitehttps://www.fullpull.us
 
 View source version on newsdirect.com: https://newsdirect.com/news/full-pull-launches-real-money-gaming-sports-app-bringing-legal-gaming-to-truck-and-tractor-pulling-for-the-first-time-957909827 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/full-pull-launches-real-money-gaming-sports-app-bringing-legal-gaming-to-truck-and-tractor-pulling-for-the-first-time-957909827)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1djj0df/full_pull_entertainment_launches_legal_gaming_app/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1djj0df/full_pull_entertainment_launches_legal_gaming_app/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/19/pearrx7u.webp)

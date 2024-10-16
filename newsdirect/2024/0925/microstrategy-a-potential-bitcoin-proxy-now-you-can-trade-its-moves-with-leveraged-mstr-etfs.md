@@ -50,9 +50,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/microstrategy-a-potential-bitcoin-proxy-now-you-can-trade-its-moves-with-leveraged-mstr-etfs-181330780 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/microstrategy-a-potential-bitcoin-proxy-now-you-can-trade-its-moves-with-leveraged-mstr-etfs-181330780)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fp3g8p/rex_shares_releases_trex_2x_long_and_short_mstr/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fp3g8p/rex_shares_releases_trex_2x_long_and_short_mstr/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/25/numbKOPB.webp)

@@ -16,9 +16,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/midnight-sun-mining-secures-10-million-financing-round-expands-partnerships-and-projects-357762352 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/midnight-sun-mining-secures-10-million-financing-round-expands-partnerships-and-projects-357762352)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cyz7xp/midnight_sun_mining_secures_10m_financing_expands/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cyz7xp/midnight_sun_mining_secures_10m_financing_expands/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/23/urgenzut.webp)

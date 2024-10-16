@@ -10,9 +10,17 @@ Pacific Mind Health's range of services extends beyond TMS Therapy. They provide
 
 Individuals seeking mental health services can benefit from Pacific Mind Health's expertise. Along with its diverse treatments, Pacific Mind Health accepts most major insurance plans and offers medication refills for added convenience. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20240118993/pacific-mind-health-offering-hope-and-relief-through-transcranial-magnetic-stimulation-tms-therapy)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdp75/pacific_mind_health_introduces_innovative_mental/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdp75/pacific_mind_health_introduces_innovative_mental/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/jadesT9H.webp)

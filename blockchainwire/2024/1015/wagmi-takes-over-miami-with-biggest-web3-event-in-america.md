@@ -24,9 +24,17 @@ About WAGMI:WAGMI, short for “We’re All Gonna Make It,” represents optimis
 
 About Cointelegraph:Founded in 2013, Cointelegraph is the leading independent digital media resource covering blockchain, web3, and emerging technology. Reaching 193 countries and 12.5 million readers monthly, Cointelegraph delivers trusted, unbiased news, in-depth analysis, and insights into the rapidly expanding world of digital assets, DeFi, and fintech. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/wagmi-takes-over-miami-with-biggest-web3-event-in-america)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1g4hwbt/wagmi_2025_miami_conference_partners_with/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1g4hwbt/wagmi_2025_miami_conference_partners_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/15/taroaU7Y.webp)

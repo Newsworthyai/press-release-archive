@@ -38,9 +38,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/elon-trump-et-where-meme-culture-meets-cutting-edge-cryptocurrency)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fvd39r/elon_trump_et_revolutionizes_meme_coin_landscape/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fvd39r/elon_trump_et_revolutionizes_meme_coin_landscape/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/zerov8L2.webp)

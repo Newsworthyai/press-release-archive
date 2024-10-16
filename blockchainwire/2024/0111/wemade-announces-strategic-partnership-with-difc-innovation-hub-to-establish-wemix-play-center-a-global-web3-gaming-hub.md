@@ -35,9 +35,17 @@ Comprising a variety of world-renowned retail and dining venues, a dynamic art a
 
 For further information, please visit our website: difc.ae, or follow us on LinkedIn and Twitter @DIFC. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/wemade-announces-strategic-partnership-with-difc-innovation-hub-to-establish-wemix-play-center-a-global-web3-gaming-hub-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1avdqd4/wemade_and_difc_innovation_hub_partner_to_build/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1avdqd4/wemade_and_difc_innovation_hub_partner_to_build/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/takeoFpG.webp)

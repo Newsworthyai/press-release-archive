@@ -54,9 +54,17 @@ deddy213@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/british-ambassador-scottish-government-and-the-keepers-of-the-quaich-host-rare-scotch-tasting-to-raise-scholarship-funds-291624081 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/british-ambassador-scottish-government-and-the-keepers-of-the-quaich-host-rare-scotch-tasting-to-raise-scholarship-funds-291624081)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cu4nsf/british_ambassador_and_scottish_government_host/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cu4nsf/british_ambassador_and_scottish_government_host/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/17/fernKdZT.webp)

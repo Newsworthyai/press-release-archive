@@ -52,9 +52,17 @@ internationalmedia@bahrainedb.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/as-it-celebrates-two-decades-of-success-rcsi-medical-university-of-bahrain-announces-a-usd-45-million-campus-expansion-423045730 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/as-it-celebrates-two-decades-of-success-rcsi-medical-university-of-bahrain-announces-a-usd-45-million-campus-expansion-423045730)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1dmpeoi/rcsi_medical_university_of_bahrain_announces_usd/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1dmpeoi/rcsi_medical_university_of_bahrain_announces_usd/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/20/pintI3V1.webp)

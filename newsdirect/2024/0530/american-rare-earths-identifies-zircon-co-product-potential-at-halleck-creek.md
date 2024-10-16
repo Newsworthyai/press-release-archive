@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/american-rare-earths-identifies-zircon-co-product-potential-at-halleck-creek-175854589 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/american-rare-earths-identifies-zircon-co-product-potential-at-halleck-creek-175854589)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1d4aena/american_rare_earths_identifies_zircon_coproduct/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1d4aena/american_rare_earths_identifies_zircon_coproduct/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/30/seekKxTs.webp)

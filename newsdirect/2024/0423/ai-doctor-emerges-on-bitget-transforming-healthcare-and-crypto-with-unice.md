@@ -46,9 +46,17 @@ Company Websitehttps://unicelab.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/ai-doctor-emerges-on-bitget-transforming-healthcare-and-crypto-with-unice-737378882 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ai-doctor-emerges-on-bitget-transforming-healthcare-and-crypto-with-unice-737378882)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cb9j0b/new_ai_healthcare_token_unice_emerges_on_bitget/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cb9j0b/new_ai_healthcare_token_unice_emerges_on_bitget/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/23/jinxKQ09.webp)

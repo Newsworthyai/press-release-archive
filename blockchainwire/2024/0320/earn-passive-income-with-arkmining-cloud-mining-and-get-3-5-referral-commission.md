@@ -96,9 +96,17 @@ If you want to learn more about ARKMining, please visit its official website htt
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/earn-passive-income-with-arkmining-cloud-mining-and-get-35-referral-commission)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bjlpgh/the_rise_of_cloud_mining_how_to_earn_passive/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bjlpgh/the_rise_of_cloud_mining_how_to_earn_passive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/20/mielrEQV.webp)

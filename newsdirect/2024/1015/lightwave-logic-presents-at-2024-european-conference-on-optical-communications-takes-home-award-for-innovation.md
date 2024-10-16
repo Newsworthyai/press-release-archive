@@ -42,9 +42,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lightwave-logic-presents-at-2024-european-conference-on-optical-communications-takes-home-award-for-innovation-338779978 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/lightwave-logic-presents-at-2024-european-conference-on-optical-communications-takes-home-award-for-innovation-338779978)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1g4938t/lightwave_logic_innovates_to_tackle_network/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1g4938t/lightwave_logic_innovates_to_tackle_network/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/15/lendIY6S.webp)

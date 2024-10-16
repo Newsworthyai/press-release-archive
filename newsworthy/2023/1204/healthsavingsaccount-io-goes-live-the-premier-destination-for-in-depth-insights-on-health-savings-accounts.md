@@ -18,9 +18,17 @@ HealthSavingsAccount.io strives to be the guiding light for those navigating the
 
 For unparalleled insights on Health Savings Accounts, visit www.HealthSavingsAccount.io. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231204823/healthsavingsaccount-io-goes-live-the-premier-destination-for-in-depth-insights-on-health-savings-accounts)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avct7e/healthsavingsaccountio_your_ultimate_guide_to/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avct7e/healthsavingsaccountio_your_ultimate_guide_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/seekwTfr.webp)

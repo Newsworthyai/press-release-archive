@@ -32,9 +32,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-wisa-technologies-nasdaq-wisa-latest-product-wisa-e-is-revolutionizing-the-audio-industry-435808740 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/how-wisa-technologies-nasdaq-wisa-latest-product-wisa-e-is-revolutionizing-the-audio-industry-435808740)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1cu41dh/wisa_technologies_revolutionizes_audio_industry/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1cu41dh/wisa_technologies_revolutionizes_audio_industry/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/17/notenrgz.webp)

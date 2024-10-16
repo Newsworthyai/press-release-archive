@@ -52,9 +52,17 @@ Discord: https://discord.gg/Q7BxghMVyu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoins-next-move-could-be-100000-but-this-is-still-altcoin-season-analysts-predict-ethereum-and-blockdag-network-takeover)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ddhgr0/bitcoins_future_price_predictions_and_altcoin/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ddhgr0/bitcoins_future_price_predictions_and_altcoin/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/11/plumr2gb.webp)

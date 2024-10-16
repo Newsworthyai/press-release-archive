@@ -24,9 +24,17 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-quantum-nyse-qbts-adds-new-chief-human-resources-officer-to-management-team/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fz2qiz/dwave_quantum_nyse_qbts_appoints_new_chief_human/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fz2qiz/dwave_quantum_nyse_qbts_appoints_new_chief_human/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/2410/8/keepHJBe.webp)

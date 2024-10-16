@@ -34,9 +34,17 @@ Company Websitehttps://velocityglobal.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/francoise-brougher-appointed-ceo-of-velocity-global-401296015 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/francoise-brougher-appointed-ceo-of-velocity-global-401296015)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ewzyup/francoise_brougher_appointed_ceo_of_velocity/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ewzyup/francoise_brougher_appointed_ceo_of_velocity/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/20/mildO9Je.webp)

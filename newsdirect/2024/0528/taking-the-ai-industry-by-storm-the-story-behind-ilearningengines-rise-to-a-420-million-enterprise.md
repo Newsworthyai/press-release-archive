@@ -32,9 +32,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/taking-the-ai-industry-by-storm-the-story-behind-ilearningengines-rise-to-a-420-million-enterprise-221536244 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/taking-the-ai-industry-by-storm-the-story-behind-ilearningengines-rise-to-a-420-million-enterprise-221536244)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1d2iify/ilearning_engines_ai_platform_goes_public_after/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1d2iify/ilearning_engines_ai_platform_goes_public_after/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/28/mildFQwR.webp)

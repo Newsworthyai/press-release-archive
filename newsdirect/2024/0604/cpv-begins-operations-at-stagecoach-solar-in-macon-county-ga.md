@@ -36,9 +36,17 @@ Company Websitehttp://www.cpv.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cpv-begins-operations-at-stagecoach-solar-in-macon-county-ga-389023782 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cpv-begins-operations-at-stagecoach-solar-in-macon-county-ga-389023782)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1d7y4dt/cpv_stagecoach_solar_commences_operations_in/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1d7y4dt/cpv_stagecoach_solar_commences_operations_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/4/barn9Ld0.webp)

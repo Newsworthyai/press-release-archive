@@ -44,9 +44,17 @@ Website：https://bmars.io/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/web3-game-turkey-tycoon-a-blockchain-game-for-the-masses)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvhqam/elon_musk_and_turkey_tycoon_team_up_to_build/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvhqam/elon_musk_and_turkey_tycoon_team_up_to_build/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/18/zeroJdf2.webp)

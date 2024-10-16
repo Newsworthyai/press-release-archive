@@ -16,9 +16,17 @@ DMaaST aims to enhance manufacturing ecosystem resilience and adaptability by em
 
 Trace Labs will lead the data working group to develop and validate technologies aimed at facilitating data understanding, interoperability, and secure cross-organization integration. With integration of OriginTrail DKG for the electronic and aeronautical sector, creating a new powerful knowledge base with artificial intelligence capabilities. The DKG will establish a decentralized database accessible to all participants in a manufacturing value chain, including manufacturers, suppliers, distributors, retailers, regulatory bodies, research institutes, and others. This will enhance the manufacturing ecosystem's ability to autonomously withstand and adapt to external events.OriginTrail DKG has been widely utilized to foster trust and transparency in enterprise knowledge exchange across various industries. Now, it is evolving to facilitate global knowledge connectivity, powering the [Decentralized Retrieval Augmented Generation (dRAG) framework](https://origintrail.io/documents/Verifiable_Internet_for_Artificial_Intelligence_whitepaper_v3_pre_publication.pdf) for more precise and inclusive AI. Given the challenges of verifying AI-generated results, OriginTrail DKG, with Knowledge Assets as its primary resource, represents a pivotal innovation in this context. It offers a robust framework for ensuring the ownership, discoverability, and verifiability of information utilized by AI systems for the manufacturing industry.Project information available here: [DMaaST Project](https://ec.europa.eu/info/funding-tenders/opportunities/portal/screen/how-to-participate/org-details/999999999/project/101138648/program/43108390/details) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/origintrail-decentralized-knowledge-graph-for-trusted-cross-organization-real-time-data-integration-in-eu-funded-dmaast)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cjhr9n/trace_labs_joins_eu_initiative_for_manufacturing/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cjhr9n/trace_labs_joins_eu_initiative_for_manufacturing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/3/wamcgOYO.webp)

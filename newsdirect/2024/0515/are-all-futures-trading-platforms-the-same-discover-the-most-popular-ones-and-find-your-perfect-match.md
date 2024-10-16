@@ -46,9 +46,17 @@ max@edgeclear.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/are-all-futures-trading-platforms-the-same-discover-the-most-popular-ones-and-find-your-perfect-match-121669363 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/are-all-futures-trading-platforms-the-same-discover-the-most-popular-ones-and-find-your-perfect-match-121669363)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1csjq8o/discover_the_most_popular_futures_trading/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1csjq8o/discover_the_most_popular_futures_trading/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/cornX1fK.webp)

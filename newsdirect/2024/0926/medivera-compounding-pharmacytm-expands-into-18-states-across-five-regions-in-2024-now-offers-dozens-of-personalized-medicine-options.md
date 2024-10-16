@@ -32,9 +32,17 @@ Company Websitehttps://mediverarx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/medivera-compounding-pharmacy-expands-into-18-states-across-five-regions-in-2024-now-offers-dozens-of-personalized-medicine-options-452792132 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/medivera-compounding-pharmacy-expands-into-18-states-across-five-regions-in-2024-now-offers-dozens-of-personalized-medicine-options-452792132)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fpvt5g/medivera_compounding_pharmacy_expands_into_18/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fpvt5g/medivera_compounding_pharmacy_expands_into_18/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/26/fast7ORf.webp)

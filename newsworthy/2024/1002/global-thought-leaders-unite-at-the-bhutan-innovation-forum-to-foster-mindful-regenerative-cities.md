@@ -31,9 +31,17 @@ For further information and media inquiries, please contact:
 * Email: bhutan.coordinator@bhutan-innovation-forum.org
 * Phone: +975 17655310 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202410021299/global-thought-leaders-unite-at-the-bhutan-innovation-forum-to-foster-mindful-regenerative-cities)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1fuh4g4/bhutan_innovation_forum_to_host_inaugural_event/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1fuh4g4/bhutan_innovation_forum_to_host_inaugural_event/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2410/2/apexB_Ev.webp)

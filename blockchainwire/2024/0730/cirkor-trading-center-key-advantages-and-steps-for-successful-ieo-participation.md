@@ -34,8 +34,15 @@ Purchase Tokens: Wait for the IEO to commence and buy the tokens.
 
 Note: IEOs can sell out rapidly, so it's crucial to act quickly once the IEO starts. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cirkor-trading-center-key-advantages-and-steps-for-successful-ieo-participation)
                     
 
 [Newsramp.com TLDR](None) 
 
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/30/odormyS8.webp)

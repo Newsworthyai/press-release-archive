@@ -32,9 +32,17 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-onboards-alchemy-pay-and-geo-pay-unlocking-five-key-southeast-asian-currencies-for-crypto-conversions-789605873 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitget-onboards-alchemy-pay-and-geo-pay-unlocking-five-key-southeast-asian-currencies-for-crypto-conversions-789605873)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cg2w7e/bitget_partners_with_alchemy_pay_and_geo_pay_to/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cg2w7e/bitget_partners_with_alchemy_pay_and_geo_pay_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/29/meanW5u1.webp)

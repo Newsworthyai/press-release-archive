@@ -30,9 +30,17 @@ leodus@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/deutsche-glucksspielindustrie-regulierter-markt-226279106 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/deutsche-glucksspielindustrie-regulierter-markt-226279106)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cs9wyq/challenges_and_potential_the_state_of_german/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cs9wyq/challenges_and_potential_the_state_of_german/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/veil88Kz.webp)

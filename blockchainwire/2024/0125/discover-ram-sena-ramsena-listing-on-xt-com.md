@@ -48,9 +48,17 @@ Contact Details:XT ExchangeBella WeiEmail address: Listing@xt.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-ram-sena-ramsena-listing-on-xtcom)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avjtb0/xtcom_announces_listing_of_ramsena_token/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avjtb0/xtcom_announces_listing_of_ramsena_token/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/daveFq3Q.webp)

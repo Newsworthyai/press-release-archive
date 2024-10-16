@@ -39,9 +39,17 @@ Discord: https://discord.gg/Q7BxghMVyu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/buy-with-bitcoin-and-more--blockdag-network-amplifies-reach-with-added-payment-methods)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cieump/blockdag_network_expands_payment_options_for_bdag/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cieump/blockdag_network_expands_payment_options_for_bdag/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/2/maskA_9Y.webp)

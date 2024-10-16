@@ -47,9 +47,17 @@ Company Websitehttps://investmentsandwealth.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/investments-and-wealth-institute-reinstates-cpwa-r-accelerator-program-808032047 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-institute-reinstates-cpwa-r-accelerator-program-808032047)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1e9qlv4/investments_wealth_institute_reinstates_cpwa/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1e9qlv4/investments_wealth_institute_reinstates_cpwa/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/22/chefXeY7.webp)

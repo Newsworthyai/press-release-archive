@@ -32,9 +32,17 @@ camryn@six-one.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/leading-brand-in-inclusive-beauty-black-radiance-adds-all-new-products-to-melanin-minded-line-156696643 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/leading-brand-in-inclusive-beauty-black-radiance-adds-all-new-products-to-melanin-minded-line-156696643)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cfxm4d/black_radiance_launches_inclusive_beauty/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cfxm4d/black_radiance_launches_inclusive_beauty/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/29/harpOAa7.webp)

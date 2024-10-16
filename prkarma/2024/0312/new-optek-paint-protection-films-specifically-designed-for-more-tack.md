@@ -28,9 +28,17 @@ United States
 
 Visit Our Website 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/counterflowmarketing/news_release/1425)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bko97n/optek_films_unveils_revolutionary_paint/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bko97n/optek_films_unveils_revolutionary_paint/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/243/22/odoriLuk.webp)

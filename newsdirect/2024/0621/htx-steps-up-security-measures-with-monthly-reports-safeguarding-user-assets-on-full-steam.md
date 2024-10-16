@@ -22,9 +22,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-steps-up-security-measures-with-monthly-reports-safeguarding-user-assets-on-full-steam-679316220 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-steps-up-security-measures-with-monthly-reports-safeguarding-user-assets-on-full-steam-679316220)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dlb1c0/htx_strengthens_security_measures_to_safeguard/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dlb1c0/htx_strengthens_security_measures_to_safeguard/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/21/taroHtLj.webp)

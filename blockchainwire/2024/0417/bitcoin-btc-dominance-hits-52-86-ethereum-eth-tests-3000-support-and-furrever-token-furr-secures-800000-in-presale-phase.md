@@ -46,9 +46,17 @@ Secure the Most Exclusive Presale Opportunity of 2024 Today!Furrever Token Offic
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-btc-dominance-hits-5286-ethereum-eth-tests-3000-support-and-furrever-token-furr-secures-800000-in-presale-phase-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1c6k7hi/bitcoin_ethereum_and_furrever_token_navigate/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1c6k7hi/bitcoin_ethereum_and_furrever_token_navigate/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/17/taro6peh.webp)

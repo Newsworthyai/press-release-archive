@@ -26,9 +26,17 @@ Waterfall Network Media Contact: bluewave@transformgroup.com
 
 Portal Company Contact: [media@portaldefi.com](mailto:media@portaldefi.com) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/waterfall-network-integrates-with-portal-to-enable-faster-cross-chain-transactions-with-virtually-unlimited-scalability)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1avxi17/waterfall_network_integrates_with_portal_defi_for/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1avxi17/waterfall_network_integrates_with_portal_defi_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/nukeUbLX.webp)

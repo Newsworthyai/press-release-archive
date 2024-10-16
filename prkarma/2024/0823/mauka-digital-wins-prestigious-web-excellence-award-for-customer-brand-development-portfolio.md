@@ -27,9 +27,17 @@ United States
 
 808-485-9908 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/maukadigital_newsroom/news_release/1537)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1f6i5z2/mauka_digital_honored_with_web_excellence_award/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1f6i5z2/mauka_digital_honored_with_web_excellence_award/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/249/1/hikez5Ji.webp)

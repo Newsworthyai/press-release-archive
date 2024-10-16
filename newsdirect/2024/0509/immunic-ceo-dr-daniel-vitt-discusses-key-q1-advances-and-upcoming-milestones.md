@@ -22,9 +22,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/immunic-ceo-dr-daniel-vitt-discusses-key-q1-advances-and-upcoming-milestones-254073444 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/immunic-ceo-dr-daniel-vitt-discusses-key-q1-advances-and-upcoming-milestones-254073444)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cnuq0e/immunic_inc_ceo_dr_daniel_vitt_discusses_q1/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cnuq0e/immunic_inc_ceo_dr_daniel_vitt_discusses_q1/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/lilyGd8o.webp)

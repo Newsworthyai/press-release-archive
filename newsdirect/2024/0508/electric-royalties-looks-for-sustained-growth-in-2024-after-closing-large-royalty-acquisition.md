@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/electric-royalties-looks-for-sustained-growth-in-2024-after-closing-large-royalty-acquisition-927051561 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/electric-royalties-looks-for-sustained-growth-in-2024-after-closing-large-royalty-acquisition-927051561)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cncssp/electric_royalties_acquires_comprehensive_lithium/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cncssp/electric_royalties_acquires_comprehensive_lithium/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/8/quiz23HX.webp)

@@ -32,9 +32,17 @@ Company Websitehttps://clarifiedprecisionmedicine.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/clarified-precision-medicine-and-xcures-form-strategic-partnership-to-transform-patient-outcomes-through-precision-oncology-200090672 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/clarified-precision-medicine-and-xcures-form-strategic-partnership-to-transform-patient-outcomes-through-precision-oncology-200090672)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1d85crs/clarified_precision_medicine_and_xcures_partner/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1d85crs/clarified_precision_medicine_and_xcures_partner/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/4/loft6efC.webp)

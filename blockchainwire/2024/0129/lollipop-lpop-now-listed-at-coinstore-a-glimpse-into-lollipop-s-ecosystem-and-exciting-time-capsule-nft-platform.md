@@ -40,9 +40,17 @@ Coinstore Social Media
 
 Twitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Telegram Announcement 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/lollipop-lpop-now-listed-at-coinstore-a-glimpse-into-lollipops-ecosystem-and-exciting-time-capsule-nft-platform)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avjuon/lollipops_lpop_token_listed_on_coinstore/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avjuon/lollipops_lpop_token_listed_on_coinstore/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/airycCBh.webp)

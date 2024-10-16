@@ -24,9 +24,17 @@ Company Websitehttps://navex.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/navex-announces-global-whistleblower-regulatory-compliance-management-621508665 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/navex-announces-global-whistleblower-regulatory-compliance-management-621508665)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1crrvqf/navex_launches_regulatory_compliance_management/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1crrvqf/navex_launches_regulatory_compliance_management/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/14/flaxuS5H.webp)

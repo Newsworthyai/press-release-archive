@@ -12,9 +12,17 @@ The solution does not just enhance consumer engagement - it nurtures trust and t
 
 The "Chat with chickens" app by Perutnina Ptuj is more than just a clever piece of tech—it's a pioneering effort to reinvent customer engagement for the betterment of all stakeholders within the ecosystem. It's proof that when AI meets authenticity, every conversation can lead to a deeper connection. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/trace-labs-and-perutnina-ptuj-release-an-innovative-crypto-and-ai-based-app-to-drive-consumer-interaction)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bv62wh/perutnina_ptuj_introduces_chat_with_chickens_ai/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bv62wh/perutnina_ptuj_introduces_chat_with_chickens_ai/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/3/faceOcbN.webp)

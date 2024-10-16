@@ -24,9 +24,17 @@ silexion@arxadvisory.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/silexion-therapeutics-to-present-at-2024-maxim-healthcare-virtual-summit-798280148 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/silexion-therapeutics-to-present-at-2024-maxim-healthcare-virtual-summit-798280148)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1g01lvj/silexion_therapeutics_to_present_at_2024_maxim/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1g01lvj/silexion_therapeutics_to_present_at_2024_maxim/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/9/pinejHte.webp)

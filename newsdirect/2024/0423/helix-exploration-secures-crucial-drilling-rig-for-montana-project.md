@@ -20,9 +20,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/helix-exploration-secures-crucial-drilling-rig-for-montana-project-734808987 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/helix-exploration-secures-crucial-drilling-rig-for-montana-project-734808987)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cb4x7t/helix_exploration_secures_crucial_drilling_rig/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cb4x7t/helix_exploration_secures_crucial_drilling_rig/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/23/palerluD.webp)

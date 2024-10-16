@@ -18,9 +18,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pegasus-resources-engages-dahrouge-geological-for-comprehensive-geological-model-exploration-791985838 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pegasus-resources-engages-dahrouge-geological-for-comprehensive-geological-model-exploration-791985838)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d8tz6d/pegasus_resources_engages_dahrouge_geological_for/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d8tz6d/pegasus_resources_engages_dahrouge_geological_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/5/notetmBM.webp)

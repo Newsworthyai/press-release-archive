@@ -52,9 +52,17 @@ Company Websitehttps://www.tennr.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tennr-puts-fax-machines-back-in-vogue-for-healthcare-organizations-using-ai-as-it-secures-18m-from-a16z-450162029 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tennr-puts-fax-machines-back-in-vogue-for-healthcare-organizations-using-ai-as-it-secures-18m-from-a16z-450162029)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1bo7jbx/tennr_raises_18m_to_revolutionize_healthcare/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1bo7jbx/tennr_raises_18m_to_revolutionize_healthcare/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/nukey5nS.webp)

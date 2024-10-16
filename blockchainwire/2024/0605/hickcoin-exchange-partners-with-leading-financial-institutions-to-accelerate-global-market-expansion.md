@@ -16,9 +16,17 @@ Looking ahead, Hickcoin Exchange will continue to advance its global market expa
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/hickcoin-exchange-partners-with-leading-financial-institutions-to-accelerate-global-market-expansion)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1d8wnlu/hickcoin_exchange_signs_strategic_partnership/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1d8wnlu/hickcoin_exchange_signs_strategic_partnership/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/5/keepzfsU.webp)

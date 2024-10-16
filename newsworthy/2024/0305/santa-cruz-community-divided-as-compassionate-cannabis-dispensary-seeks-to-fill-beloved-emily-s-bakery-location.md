@@ -38,9 +38,17 @@ WAMM Phytotherapies is a non-profit organization dedicated to providing free or 
 
 Contact: Bayley Logan bayley@hookoutlet.com 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202403051108/santa-cruz-community-divided-as-compassionate-cannabis-dispensary-seeks-to-fill-beloved-emily-s-bakery-location)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1b7ksnq/new_cannabis_dispensary_faces_local_resistance_in/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1b7ksnq/new_cannabis_dispensary_faces_local_resistance_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/243/5/bakegQqi.webp)

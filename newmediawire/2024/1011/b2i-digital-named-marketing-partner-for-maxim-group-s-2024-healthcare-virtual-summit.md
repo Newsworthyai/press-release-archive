@@ -20,9 +20,17 @@ NEW YORK, NY - (NewMediaWire) - October 11, 2024 - B2i Digital, Inc. continues t
 
  [https://cdn.filestackcontent.com/tlNBljztSv6vrSTwpjnr](https://cdn.filestackcontent.com/tlNBljztSv6vrSTwpjnr) 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/b2i-digital-named-marketing-partner-for-maxim-group-s-2024-healthcare-virtual-summit-7076199)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1g1jlfl/b2i_digital_inc_supports_maxim_groups_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1g1jlfl/b2i_digital_inc_supports_maxim_groups_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/11/roam7vMX.webp)

@@ -34,9 +34,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pasofino-gold-unlocking-liberias-untapped-gold-potential-416929991 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pasofino-gold-unlocking-liberias-untapped-gold-potential-416929991)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1f3gzt0/pasofino_gold_unlocking_liberias_untapped_gold/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1f3gzt0/pasofino_gold_unlocking_liberias_untapped_gold/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/28/riceGMFk.webp)

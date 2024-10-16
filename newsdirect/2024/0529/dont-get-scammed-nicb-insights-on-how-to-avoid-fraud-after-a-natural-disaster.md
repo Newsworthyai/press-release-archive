@@ -64,9 +64,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/dont-get-scammed-nicb-insights-on-how-to-avoid-fraud-after-a-natural-disaster-341745413 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/dont-get-scammed-nicb-insights-on-how-to-avoid-fraud-after-a-natural-disaster-341745413)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d3mxsg/nicb_warns_homeowners_to_avoid_fraud_after/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d3mxsg/nicb_warns_homeowners_to_avoid_fraud_after/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/29/filonJBn.webp)

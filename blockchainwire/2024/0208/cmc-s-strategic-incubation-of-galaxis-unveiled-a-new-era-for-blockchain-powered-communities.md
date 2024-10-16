@@ -16,9 +16,17 @@ As the Web3 landscape evolves, the alliance between CMC and Galaxis marks a defi
 
 For more information and updates follow to the Galaxis official Twitter. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cmcs-strategic-incubation-of-galaxis-unveiled-a-new-era-for-blockchain-powered-communities)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avjyci/coinmarketcap_incubates_galaxisxyz_in/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avjyci/coinmarketcap_incubates_galaxisxyz_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/airy3cAb.webp)

@@ -40,9 +40,17 @@ Unless otherwise provided in a separate agreement, Alpha Sigma Capital does not 
 
 Crypto and/or digital currencies involve substantial risk, are speculative in nature, and may not perform as expected. Many digital currency platforms are not subject to regulatory supervision, unlike regulated exchanges. Some platforms may commingle customer assets in shared accounts and provide inadequate custody, which may affect whether or how investors can withdraw their currency and/or subject them to money laundering. Digital currencies may be vulnerable to hacks and cyber fraud as well as significant volatility and price swings. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cloudbench-and-arhasi-have-announced-a-mutual-investment-in-each-other-deepening-their-ai-partnership)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cm9e7s/cloudbench_and_arhasi_announce_mutual_investment/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cm9e7s/cloudbench_and_arhasi_announce_mutual_investment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/7/chipT3WQ.webp)

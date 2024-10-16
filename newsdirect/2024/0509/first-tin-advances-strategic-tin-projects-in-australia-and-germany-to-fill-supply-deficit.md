@@ -22,9 +22,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/first-tin-advances-strategic-tin-projects-in-australia-and-germany-to-fill-supply-deficit-638681539 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/first-tin-advances-strategic-tin-projects-in-australia-and-germany-to-fill-supply-deficit-638681539)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cnvfq3/first_tin_plc_advances_strategic_tin_projects_in/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cnvfq3/first_tin_plc_advances_strategic_tin_projects_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/boldtI2K.webp)

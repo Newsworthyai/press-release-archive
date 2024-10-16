@@ -50,9 +50,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/unlocking-elite-financial-strategies-with-arta-finance-544250510 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/unlocking-elite-financial-strategies-with-arta-finance-544250510)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1g0i4fh/arta_finance_broadens_access_to_elite_financial/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1g0i4fh/arta_finance_broadens_access_to_elite_financial/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/10/bend_nD2.webp)

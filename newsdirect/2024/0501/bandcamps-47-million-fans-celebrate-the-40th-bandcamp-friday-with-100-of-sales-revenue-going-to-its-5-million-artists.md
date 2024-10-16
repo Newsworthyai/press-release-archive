@@ -41,9 +41,17 @@ jalila@jiveprdigital.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bandcamps-47-million-fans-celebrate-the-40th-bandcamp-friday-with-100-of-sales-revenue-going-to-its-5-million-artists-856260889 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bandcamps-47-million-fans-celebrate-the-40th-bandcamp-friday-with-100-of-sales-revenue-going-to-its-5-million-artists-856260889)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1chm8a6/bandcamp_celebrates_40th_bandcamp_friday_with_100/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1chm8a6/bandcamp_celebrates_40th_bandcamp_friday_with_100/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/goldT84S.webp)

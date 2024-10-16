@@ -40,9 +40,17 @@ Company Websitehttps://fsl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/makers-of-stepn-take-major-leap-with-stepn-go-a-social-lifestyle-app-with-new-gaming-token-ggt-211325390 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/makers-of-stepn-take-major-leap-with-stepn-go-a-social-lifestyle-app-with-new-gaming-token-ggt-211325390)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1cysese/fsl_launches_stepn_go_a_social_lifestyle_app_with/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1cysese/fsl_launches_stepn_go_a_social_lifestyle_app_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/23/joltaFqI.webp)

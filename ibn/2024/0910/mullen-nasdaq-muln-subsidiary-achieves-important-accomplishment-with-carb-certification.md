@@ -20,9 +20,17 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-subsidiary-achieves-important-accomplishment-with-carb-certification/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fdhx66/bollinger_motors_receives_carb_certification_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fdhx66/bollinger_motors_receives_carb_certification_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/249/10/bossAGzl.webp)

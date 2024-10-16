@@ -12,9 +12,17 @@ Ketamine therapy has shown immense promise as a powerful tool in managing mental
 
 For more information on The Infusionist provided at Tyler Wellness Center, please visit The Infusionist IV Ketamine Therapy in Tyler, Texas 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402221084/the-infusionist-offers-ketamine-therapy-in-tyler-tx-a-promising-approach-to-mental-health-treatment)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1ay4r9x/ketamine_therapy_gains_recognition_for_mental/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1ay4r9x/ketamine_therapy_gains_recognition_for_mental/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/22/ideairOH.webp)

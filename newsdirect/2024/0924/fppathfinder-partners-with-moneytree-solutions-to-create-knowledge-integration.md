@@ -30,9 +30,17 @@ Company Websitehttps://moneytree.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/fppathfinder-partners-with-moneytree-solutions-to-create-knowledge-integration-878741000 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/fppathfinder-partners-with-moneytree-solutions-to-create-knowledge-integration-878741000)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fodfpp/fppathfinder_and_moneytree_solutions_partner_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fodfpp/fppathfinder_and_moneytree_solutions_partner_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/24/dashyRw1.webp)

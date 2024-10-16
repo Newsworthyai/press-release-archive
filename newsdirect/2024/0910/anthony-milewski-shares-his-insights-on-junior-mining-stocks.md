@@ -80,9 +80,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/anthony-milewski-shares-his-insights-on-junior-mining-stocks-998512733 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/anthony-milewski-shares-his-insights-on-junior-mining-stocks-998512733)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fditj7/anthony_milewski_shares_his_insights_on_junior/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fditj7/anthony_milewski_shares_his_insights_on_junior/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/10/mendxgKm.webp)

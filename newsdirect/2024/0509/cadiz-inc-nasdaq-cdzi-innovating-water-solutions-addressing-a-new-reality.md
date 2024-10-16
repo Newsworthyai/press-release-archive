@@ -46,9 +46,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cadiz-inc-nasdaq-cdzi-innovating-water-solutions-addressing-a-new-reality-436650848 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cadiz-inc-nasdaq-cdzi-innovating-water-solutions-addressing-a-new-reality-436650848)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cnxnq4/cadiz_inc_nasdaq_cdzi_innovating_water_solutions/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cnxnq4/cadiz_inc_nasdaq_cdzi_innovating_water_solutions/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/oxenhqDU.webp)

@@ -42,9 +42,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mstu-and-mstz-the-only-2x-etfs-on-microstrategy-and-one-of-the-most-volatile-ways-to-play-bitcoin-440154561 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/mstu-and-mstz-the-only-2x-etfs-on-microstrategy-and-one-of-the-most-volatile-ways-to-play-bitcoin-440154561)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1g3fgno/rexs_etf_appeals_to_bulls_and_bears/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1g3fgno/rexs_etf_appeals_to_bulls_and_bears/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/14/lineL9r0.webp)

@@ -10,9 +10,17 @@ To determine if patients qualify for TMS therapy or Spravato treatment, Optimum 
 
 "At Optimum TMS, our priority is to provide comprehensive care for individuals suffering from depression and OCD," says Dr. Jane Smith, founder of Optimum TMS. "We understand the impact these conditions can have on one's life and believe in offering personalized treatments designed to improve mental health and quality of life." 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231221922/optimum-tms-providing-cutting-edge-tms-therapy-and-spravato-treatment-for-depression-and-ocd)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcvqg/new_hope_for_depression_optimum_tms_offers/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcvqg/new_hope_for_depression_optimum_tms_offers/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/rushET_e.webp)

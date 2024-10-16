@@ -10,9 +10,17 @@ Additionally, Ketamine therapy has shown effectiveness against OCD, characterize
 
 Ketamine Haven Clinic offers transformative Ketamine infusion therapy for individuals struggling with severe anxiety, PTSD, or OCD. Our team of empathetic professionals is committed to guiding and supporting patients through these challenges. We invite you to contact us to discover more about this innovative treatment and its potential to change lives. Experience newfound freedom from anxiety, PTSD, and OCD with our low-dose Ketamine infusion therapy. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401211007/ketamine-haven-clinic-offers-revolutionary-ketamine-infusion-therapy-for-anxiety-treatment)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1avldlb/ketamine_infusion_therapy_offers_hope_for_severe/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1avldlb/ketamine_infusion_therapy_offers_hope_for_severe/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/zeroBDpp.webp)

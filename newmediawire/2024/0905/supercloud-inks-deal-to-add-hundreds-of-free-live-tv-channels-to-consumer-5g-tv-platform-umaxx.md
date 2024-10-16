@@ -30,9 +30,17 @@ Virgo PR
 
 supercloud@virgo-pr.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/supercloud-inks-deal-to-add-hundreds-of-free-live-tv-channels-to-consumer-5g-tv-platform-umaxx-7076007)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f9rlc1/supercloud_international_inc_expands_umaxx/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f9rlc1/supercloud_international_inc_expands_umaxx/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/5/dashwVKH.webp)

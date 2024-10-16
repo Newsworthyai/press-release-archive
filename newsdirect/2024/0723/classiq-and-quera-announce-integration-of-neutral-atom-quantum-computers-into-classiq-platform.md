@@ -38,9 +38,17 @@ Company Websitehttp://www.classiq.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/classiq-and-quera-announce-integration-of-neutral-atom-quantum-computers-into-classiq-platform-666386692 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/classiq-and-quera-announce-integration-of-neutral-atom-quantum-computers-into-classiq-platform-666386692)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1eaacye/classiq_and_quera_collaborate_to_integrate/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1eaacye/classiq_and_quera_collaborate_to_integrate/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/23/lendrAYE.webp)

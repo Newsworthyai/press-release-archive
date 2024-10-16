@@ -66,9 +66,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/generation-shift-why-millennials-and-gen-z-might-ditch-old-school-investment-firms-830856126 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/generation-shift-why-millennials-and-gen-z-might-ditch-old-school-investment-firms-830856126)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1cnwell/millennials_and_gen_z_set_to_ditch_traditional/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1cnwell/millennials_and_gen_z_set_to_ditch_traditional/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/goldkWTA.webp)

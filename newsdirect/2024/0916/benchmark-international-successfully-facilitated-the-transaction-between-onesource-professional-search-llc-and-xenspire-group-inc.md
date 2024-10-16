@@ -28,9 +28,17 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-onesource-professional-search-llc-and-xenspire-group-inc-621207272 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-onesource-professional-search-llc-and-xenspire-group-inc-621207272)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1fi48s4/benchmark_international_facilitates_transaction/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1fi48s4/benchmark_international_facilitates_transaction/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/16/airyQ8Ff.webp)

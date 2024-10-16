@@ -14,9 +14,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-technologies-ceo-philipp-stratmann-announces-contract-for-ai-enhanced-powerbuoy-659383815 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-ceo-philipp-stratmann-announces-contract-for-ai-enhanced-powerbuoy-659383815)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e5k43w/ocean_power_technologies_secures_contract_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e5k43w/ocean_power_technologies_secures_contract_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/17/roamDzwj.webp)

@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/vettafi-head-of-energy-research-stacey-morris-discusses-strong-performance-for-midstream-sector-341250489 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/vettafi-head-of-energy-research-stacey-morris-discusses-strong-performance-for-midstream-sector-341250489)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d45ne4/vettafi_head_of_energy_research_stacey_morris/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d45ne4/vettafi_head_of_energy_research_stacey_morris/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/30/pint8S_B.webp)

@@ -32,9 +32,17 @@ In addition, Bit Treasury Exchange adopts a threshold signature scheme to ensure
 
 In addition to depositing funds at centralized cryptocurrency exchanges, users can also choose to transfer funds to reputable wallets. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bit-treasury-exchange-pioneering-decentralized-trading-platforms)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ecs2va/bit_treasury_exchange_shifting_to_remote_work/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ecs2va/bit_treasury_exchange_shifting_to_remote_work/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/26/chefNsT6.webp)

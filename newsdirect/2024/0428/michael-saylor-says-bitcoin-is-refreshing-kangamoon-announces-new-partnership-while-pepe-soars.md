@@ -40,9 +40,17 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/michael-saylor-says-bitcoin-is-refreshing-kangamoon-announces-new-partnership-while-pepe-soars-157468847 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/michael-saylor-says-bitcoin-is-refreshing-kangamoon-announces-new-partnership-while-pepe-soars-157468847)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cfesd8/crypto_news_saylors_bitcoin_tweet_kangamoons/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cfesd8/crypto_news_saylors_bitcoin_tweet_kangamoons/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/28/milkGdfw.webp)

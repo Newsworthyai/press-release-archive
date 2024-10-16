@@ -18,9 +18,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/condor-gold-ceo-mark-child-provides-comprehensive-update-on-la-india-project-in-nicaragua-448262199 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/condor-gold-ceo-mark-child-provides-comprehensive-update-on-la-india-project-in-nicaragua-448262199)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cu9rzd/condor_gold_ceo_mark_child_provides_detailed/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cu9rzd/condor_gold_ceo_mark_child_provides_detailed/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/17/bendgPWl.webp)

@@ -50,9 +50,17 @@ Medium
 
 https://medium.com/@vanitis_crypto 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/beauty-of-blockchain-next-smart-investment-in-vato-from-vanitis)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fmbq6t/vanitis_revolutionizes_beauty_industry_with/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fmbq6t/vanitis_revolutionizes_beauty_industry_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/20/healUr1P.webp)

@@ -48,9 +48,17 @@ Company Websitehttps://playactivate.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/activate-introduces-innovative-gaming-experience-featuring-state-of-the-art-technology-to-cincinnatians-501769983 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/activate-introduces-innovative-gaming-experience-featuring-state-of-the-art-technology-to-cincinnatians-501769983)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1ctcuf2/activate_unveils_innovative_gaming_experience_in/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1ctcuf2/activate_unveils_innovative_gaming_experience_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/16/mark7Z3y.webp)

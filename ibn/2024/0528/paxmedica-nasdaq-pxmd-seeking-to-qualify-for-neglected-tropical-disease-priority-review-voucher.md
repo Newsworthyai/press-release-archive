@@ -20,9 +20,17 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/paxmedica-nasdaq-pxmd-seeking-to-qualify-for-neglected-tropical-disease-priority-review-voucher/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2px71/paxmedica_receives_urgent_plea_from_malawi/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2px71/paxmedica_receives_urgent_plea_from_malawi/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/zero0m_N.webp)

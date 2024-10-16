@@ -20,9 +20,17 @@ Looking ahead, PACKS Weed Dispensary is committed to maintaining its high standa
 
 For more information about PACKS Weed Dispensary and their diverse product offerings, please visit https://packsclub.com/. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231128900/packs-weed-dispensary-san-gabriel-valley-celebrates-a-decade-of-excellence)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1avcspv/packs_weed_dispensary_leading_the_way_in_san/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1avcspv/packs_weed_dispensary_leading_the_way_in_san/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/healHA96.webp)

@@ -28,9 +28,17 @@ Erica Perez
 
 eperez@wytecintl.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/wytec-announces-filing-of-u-s-and-international-patent-applications-for-ai-gunshot-sensor-technology-7076160)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fx6l8x/wytec_international_inc_submits_five_new_patent/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fx6l8x/wytec_international_inc_submits_five_new_patent/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/6/taroneuD.webp)

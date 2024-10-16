@@ -46,9 +46,17 @@ dina@dinawhitepr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nuestro-stories-and-latination-media-announce-first-look-co-production-partnership-spanning-original-ip-digital-properties-films-and-podcasts-704858423 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nuestro-stories-and-latination-media-announce-first-look-co-production-partnership-spanning-original-ip-digital-properties-films-and-podcasts-704858423)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1co0maw/nuestro_stories_and_latination_media_join_forces/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1co0maw/nuestro_stories_and_latination_media_join_forces/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/lilyYprp.webp)

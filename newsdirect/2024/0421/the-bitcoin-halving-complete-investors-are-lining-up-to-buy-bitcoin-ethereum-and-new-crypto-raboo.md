@@ -26,9 +26,17 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-bitcoin-halving-complete-investors-are-lining-up-to-buy-bitcoin-ethereum-and-new-crypto-raboo-364888365 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-bitcoin-halving-complete-investors-are-lining-up-to-buy-bitcoin-ethereum-and-new-crypto-raboo-364888365)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c9veq9/bitcoin_halving_impact_on_btc_eth_and_new_crypto/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c9veq9/bitcoin_halving_impact_on_btc_eth_and_new_crypto/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/21/smogp53d.webp)

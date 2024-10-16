@@ -26,9 +26,17 @@
 
  InvestorWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestech-nasdaq-snes-building-quickly-across-multiple-channels/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1f2gcm1/senestech_reports_50_revenue_growth_in_q2_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1f2gcm1/senestech_reports_50_revenue_growth_in_q2_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/meanqZmt.webp)

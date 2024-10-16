@@ -20,9 +20,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/avation-advances-its-fleet-with-low-emission-aircraft-and-strategic-financial-moves-932471978 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/avation-advances-its-fleet-with-low-emission-aircraft-and-strategic-financial-moves-932471978)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1csevf7/avation_plc_advances_fleet_with_lowemission/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1csevf7/avation_plc_advances_fleet_with_lowemission/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/elleiMc1.webp)

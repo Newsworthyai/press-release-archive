@@ -24,9 +24,17 @@ Advancing the Wisdom of the Crowds
 
 The traditional wisdom of the crowds concept eliminates idiosyncratic noise associated with individual judgment by averaging a large number of responses. Social Intelligence takes this concept further by unlocking actionable information through high-quality, curated knowledge enhanced with specific domain expertise. The rise of AI introduces the potential for another leap forward in extracting wisdom from a vast body of knowledge. Incentivized crowdsourcing to collect superior social content provides an ideal foundation for AI services to uncover wisdom that is not immediately apparent. While a conversational tool is the initial step, subsequent developments will include AI agents performing comprehensive tasks such as market analysis and prediction market suggestions. As the Social Intelligence Paranet expands beyond the crypto field, it promises to support enhanced decision-making powered by the wisdom of the crowds across various topics. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/growing-the-buz-economy-announcing-the-social-intelligence-paranet-launch)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f5v1fi/lunarcrush_and_origintrail_launch_social/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f5v1fi/lunarcrush_and_origintrail_launch_social/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/31/kiteaZ7B.webp)

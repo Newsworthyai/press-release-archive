@@ -66,9 +66,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/6-unique-benefits-of-having-an-axos-invest-margin-trading-account-814794479 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/6-unique-benefits-of-having-an-axos-invest-margin-trading-account-814794479)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1eg4mnz/take_your_portfolio_to_the_next_level_with_axos/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1eg4mnz/take_your_portfolio_to_the_next_level_with_axos/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/30/facevD6s.webp)

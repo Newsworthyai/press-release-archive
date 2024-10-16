@@ -39,9 +39,17 @@ Become a part of HR.com’s HR research influencer panel today. Participate in 
 
 Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202409031252/hr-com-announces-2025-future-of-learning-technologies-advisory-board-to-lead-groundbreaking-research-and-virtual-event)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f80k1b/hrcom_announces_future_of_learning_technologies/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f80k1b/hrcom_announces_future_of_learning_technologies/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/249/3/quizcpiW.webp)

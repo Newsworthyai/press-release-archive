@@ -20,9 +20,17 @@ As the ETMeta platform continues to grow and expand, it will become a shining ex
 
 Disclaimer: This press release may contain forward-looking statements. Forward-looking statements describe future expectations, plans, results, or strategies (including product offerings, regulatory plans and business plans) and may change without notice. You are cautioned that such statements are subject to a multitude of risks and uncertainties that could cause future circumstances, events, or results to differ materially from those projected in the forward-looking statements, including the risks that actual results may differ materially from those projected in the forward-looking statements. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/etmeta-platform-version-10-is-officially-launched)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d7mmep/etmeta_platform_10_launched_revolutionizing/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d7mmep/etmeta_platform_10_launched_revolutionizing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/zeroPFa7.webp)

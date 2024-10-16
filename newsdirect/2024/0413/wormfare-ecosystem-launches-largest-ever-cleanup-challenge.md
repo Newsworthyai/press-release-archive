@@ -46,9 +46,17 @@ Company Websitehttps://wormfare.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/wormfare-ecosystem-launches-largest-ever-cleanup-challenge-730173790 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/wormfare-ecosystem-launches-largest-ever-cleanup-challenge-730173790)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1c32iwu/wormfare_launches_largestever_cleanup_challenge/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1c32iwu/wormfare_launches_largestever_cleanup_challenge/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/13/barn_I6_.webp)

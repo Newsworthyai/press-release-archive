@@ -12,9 +12,17 @@ Tido Capital represents a significant milestone in the company's mission to supp
 
 For media inquiries or further information, please contact evan@tidocapital.comWebsite: www.tidocapital.comLinkedin: https://www.linkedin.com/company/tido-capital/about/Twitter: https://twitter.com/tidocapital 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/tido-capital-announces-its-official-establishment)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1btw0i0/tido_capital_officially_established_as_a/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1btw0i0/tido_capital_officially_established_as_a/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/2/keepW51j.webp)

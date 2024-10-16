@@ -71,8 +71,15 @@ Company Websitehttps://www.zoomex.com/en/UEFA
 
 View source version on newsdirect.com: https://newsdirect.com/news/zoomex-receives-comprehensive-security-audit-from-hacken-718353926 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/zoomex-receives-comprehensive-security-audit-from-hacken-718353926)
                     
 
 [Newsramp.com TLDR](None) 
 
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/17/lunaXorg.webp)

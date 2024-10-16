@@ -28,9 +28,17 @@ Follow Us on:X (Twitter): @asii_Inc
 
 Source:Accredited Solutions, Inc.https://www.diamondcreekwater.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/accredited-solutions-executes-indication-of-interest-ioi-to-acquire-a-leading-fintech-company-focused-on-b2b-distribution-of-e-gift-cards-7076013)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fag0zn/accredited_solutions_inc_announces_acquisition_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fag0zn/accredited_solutions_inc_announces_acquisition_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/6/kisswX2s.webp)

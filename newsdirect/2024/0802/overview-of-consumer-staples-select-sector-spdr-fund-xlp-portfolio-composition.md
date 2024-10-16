@@ -88,9 +88,17 @@ Company Websitehttps://www.sectorspdrs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/overview-of-consumer-staples-select-sector-spdr-fund-xlp-portfolio-composition-111782409 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/overview-of-consumer-staples-select-sector-spdr-fund-xlp-portfolio-composition-111782409)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eift15/consumer_staples_select_sector_spdr_fund_xlp/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eift15/consumer_staples_select_sector_spdr_fund_xlp/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/2/meanpP0b.webp)

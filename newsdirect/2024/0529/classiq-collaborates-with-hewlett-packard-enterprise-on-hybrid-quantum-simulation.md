@@ -34,9 +34,17 @@ Company Websitehttp://www.classiq.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/classiq-collaborates-with-hewlett-packard-enterprise-on-hybrid-quantum-simulation-451407201 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/classiq-collaborates-with-hewlett-packard-enterprise-on-hybrid-quantum-simulation-451407201)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d3md6x/classiq_develops_rapid_quantum_computing_solution/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d3md6x/classiq_develops_rapid_quantum_computing_solution/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/29/zeroEKph.webp)

@@ -46,9 +46,17 @@ Note: GroveToken(GVR) has rebranded to GroveCoin(GRV) and the old contract has b
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/grovecoin-announces-comprehensive-grants-program-to-foster-innovation-and-development-on-groveblockchain)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cywb9w/grovecoin_launches_grants_program_to_support/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cywb9w/grovecoin_launches_grants_program_to_support/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/23/fondt0jZ.webp)

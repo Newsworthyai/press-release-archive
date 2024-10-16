@@ -34,9 +34,17 @@ Company Websitehttps://emotionsevents.net/
 
 View source version on newsdirect.com: https://newsdirect.com/news/emotions-events-unveils-latest-marriage-proposal-trends-for-dubais-elite-786833798 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/emotions-events-unveils-latest-marriage-proposal-trends-for-dubais-elite-786833798)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1cg85e3/emotions_events_unveils_latest_marriage_proposal/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1cg85e3/emotions_events_unveils_latest_marriage_proposal/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/29/boldQhXD.webp)

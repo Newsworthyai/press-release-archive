@@ -14,9 +14,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/first-phosphate-corp-reports-positive-drill-results-at-begin-lamarche-project-964015861 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/first-phosphate-corp-reports-positive-drill-results-at-begin-lamarche-project-964015861)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1e1o6f0/first_phosphate_corp_reports_positive_drill/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1e1o6f0/first_phosphate_corp_reports_positive_drill/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/12/isleeVl5.webp)

@@ -38,9 +38,17 @@ sturkell@pairelations.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/consensus-health-wins-two-stevie-r-awards-in-2024-american-business-awards-r-699438803 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/consensus-health-wins-two-stevie-r-awards-in-2024-american-business-awards-r-699438803)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1chkhpt/consensus_health_wins_two_stevie_awards_in_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1chkhpt/consensus_health_wins_two_stevie_awards_in_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/quizDsYa.webp)

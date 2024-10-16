@@ -16,9 +16,17 @@ X; https://x.com/MetaBeatOffl
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/metabeat-raises-3m-in-funding-from-fzf-ventures-layer-otc-and-dubai-labs)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1eb6fvc/metabeat_secures_3m_investment_and_strategic/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1eb6fvc/metabeat_secures_3m_investment_and_strategic/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/22/airy4Syr.webp)

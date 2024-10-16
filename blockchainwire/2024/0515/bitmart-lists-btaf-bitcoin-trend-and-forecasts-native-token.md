@@ -12,9 +12,17 @@ As BTAFtoken.io prepares to debut its token on the BitMart exchange, crypto enth
 
 For media inquiries, please contact:The BTAF token teamBTAFtoken.io[BTAFtoken@bitcointaf.com](mailto:BTAFtoken@bitcointaf.com)Follow Us:Website: BTAFtoken.ioLinktree: [https://linktr.ee/btaftoken](https://linktr.ee/btaftoken)BitMart Exchangemarketing@bitmart.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-lists-btaf-bitcoin-trend-and-forecasts-native-token-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cslvar/btaftokenio_and_bitmart_announce_launch_of_btaf/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cslvar/btaftokenio_and_bitmart_announce_launch_of_btaf/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/15/quizXWMb.webp)

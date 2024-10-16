@@ -38,9 +38,17 @@ ksmith@pcgadvisory.com
 
 www.pcgadvisory.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/auddia-announces-integration-of-faidr-into-apple-carplay-and-android-auto-7075989)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1f7y4cd/auddia_launches_apple_carplay_and_android_auto/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1f7y4cd/auddia_launches_apple_carplay_and_android_auto/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/3/kiwiLi1n.webp)

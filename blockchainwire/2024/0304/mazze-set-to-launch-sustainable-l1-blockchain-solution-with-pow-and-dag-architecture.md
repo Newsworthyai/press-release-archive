@@ -29,9 +29,17 @@ Its advanced cryptographic techniques and innovative consensus mechanisms ensure
 
 X (Twitter) | Telegram | Discord | Medium 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/mazze-set-to-launch-sustainable-l1-blockchain-solution-with-pow-and-dag-architecture)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1b6rnih/mazze_unveils_groundbreaking_l1_blockchain/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1b6rnih/mazze_unveils_groundbreaking_l1_blockchain/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/4/envyH1RD.webp)

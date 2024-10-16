@@ -38,9 +38,17 @@ Contact DetailsBryan Feinberg
 
 View source version on newsdirect.com: https://newsdirect.com/news/chirpley-forges-a-game-changing-partnership-with-n3mus-to-revolutionize-web3-gaming-promotion-914112779 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/chirpley-forges-a-game-changing-partnership-with-n3mus-to-revolutionize-web3-gaming-promotion-914112779)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1czkd0h/chirpley_and_n3mus_forge_gamechanging_partnership/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1czkd0h/chirpley_and_n3mus_forge_gamechanging_partnership/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/24/ninoo5dw.webp)

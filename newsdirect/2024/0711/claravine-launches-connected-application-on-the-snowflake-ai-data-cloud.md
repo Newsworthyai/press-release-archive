@@ -26,9 +26,17 @@ Company Websitehttps://www.claravine.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/claravine-launches-connected-application-on-the-snowflake-ai-data-cloud-848689203 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/claravine-launches-connected-application-on-the-snowflake-ai-data-cloud-848689203)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/MarketingNewsramp/comments/1e0ollb/claravine_launches_connected_application_on/
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1e0ollb/claravine_launches_connected_application_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/11/kite8P_0.webp)

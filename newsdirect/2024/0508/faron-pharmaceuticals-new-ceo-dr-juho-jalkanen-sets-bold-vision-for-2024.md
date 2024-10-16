@@ -22,9 +22,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/faron-pharmaceuticals-new-ceo-dr-juho-jalkanen-sets-bold-vision-for-2024-941503623 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/faron-pharmaceuticals-new-ceo-dr-juho-jalkanen-sets-bold-vision-for-2024-941503623)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cn3hd4/faron_pharmaceuticals_new_ceo_sets_bold_vision/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cn3hd4/faron_pharmaceuticals_new_ceo_sets_bold_vision/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/8/pitapico8nrJ.webp)

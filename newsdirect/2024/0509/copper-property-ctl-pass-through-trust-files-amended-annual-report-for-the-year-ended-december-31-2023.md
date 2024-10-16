@@ -24,9 +24,17 @@ Company Websitehttps://ctltrust.net/about/default.aspx
 
 View source version on newsdirect.com: https://newsdirect.com/news/copper-property-ctl-pass-through-trust-files-amended-annual-report-for-the-year-ended-december-31-2023-212776573 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/copper-property-ctl-pass-through-trust-files-amended-annual-report-for-the-year-ended-december-31-2023-212776573)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1co79yn/copper_property_ctl_pass_through_trust_files/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1co79yn/copper_property_ctl_pass_through_trust_files/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/airyhmY8.webp)

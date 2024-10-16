@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cufe-ramps-up-exploration-with-positive-soil-results-and-heritage-agreement-316116733 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cufe-ramps-up-exploration-with-positive-soil-results-and-heritage-agreement-316116733)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c0qoc0/cufe_ramps_up_exploration_with_positive_soil/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c0qoc0/cufe_ramps_up_exploration_with_positive_soil/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/10/wolfBTmR.webp)

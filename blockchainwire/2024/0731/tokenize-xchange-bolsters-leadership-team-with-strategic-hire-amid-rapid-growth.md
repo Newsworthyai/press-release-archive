@@ -24,9 +24,17 @@ Headquartered in Singapore with branches in key Asian markets, Tokenize Xchange 
 
 For more information, visit https://tokenize.exchange/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/tokenize-xchange-bolsters-leadership-team-with-strategic-hire-amid-rapid-growth)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1egmt9e/tokenize_xchange_appoints_carney_mak_as_chief/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1egmt9e/tokenize_xchange_appoints_carney_mak_as_chief/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/31/icym5Qm.webp)

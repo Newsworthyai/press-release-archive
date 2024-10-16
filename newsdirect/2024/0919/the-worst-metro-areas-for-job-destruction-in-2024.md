@@ -36,9 +36,17 @@ Company Websitehttps://www.profitduel.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-worst-metro-areas-for-job-destruction-in-2024-163822452 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-worst-metro-areas-for-job-destruction-in-2024-163822452)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fkl02g/job_destruction_analysis_reveals_worst_metro_areas/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fkl02g/job_destruction_analysis_reveals_worst_metro_areas/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/19/mintijGG.webp)

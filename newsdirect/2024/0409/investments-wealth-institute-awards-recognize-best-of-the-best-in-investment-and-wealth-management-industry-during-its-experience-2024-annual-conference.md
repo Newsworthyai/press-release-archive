@@ -47,9 +47,17 @@ Company Websitehttps://investmentsandwealth.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/investments-and-wealth-institute-awards-recognize-best-of-the-best-in-investment-and-wealth-management-industry-during-its-experience-2024-annual-conference-763025170 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-institute-awards-recognize-best-of-the-best-in-investment-and-wealth-management-industry-during-its-experience-2024-annual-conference-763025170)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1c01zs1/investments_wealth_institute_awards_recognize/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1c01zs1/investments_wealth_institute_awards_recognize/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/9/loft_iDG.webp)

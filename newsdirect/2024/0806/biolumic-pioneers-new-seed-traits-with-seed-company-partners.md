@@ -32,9 +32,17 @@ Company Websitehttps://www.biolumic.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/biolumic-pioneers-new-seed-traits-with-seed-company-partners-685929663 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/biolumic-pioneers-new-seed-traits-with-seed-company-partners-685929663)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1elgq3d/biolumic_pioneers_new_seed_traits_with_seed/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1elgq3d/biolumic_pioneers_new_seed_traits_with_seed/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/6/duneztp0.webp)

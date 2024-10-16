@@ -42,9 +42,17 @@ Telegram: https://t.me/i3dangelinvestors/1
 
 X:[https://x.com/i3D_Angels](https://x.com/i3D_Angels) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/invluencer---bullish-on-i3d-protocol-as-bitmart-listing-approaches-16-september-2024)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f1qtxi/i3d_protocol_set_to_revolutionize_earlystage/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f1qtxi/i3d_protocol_set_to_revolutionize_earlystage/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/26/plum8vCw.webp)

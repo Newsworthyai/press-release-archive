@@ -18,9 +18,17 @@ Catering to inquisitive minds in the realm of statistics, StatisticianZone.com i
 
 Stay informed and explore the world of statistics at www.StatisticianZone.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231128879/statisticianzone-com-debuts-a-destination-for-data-enthusiasts-and-statistical-minds)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avx0et/statisticianzonecom_your_goto_platform_for/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avx0et/statisticianzonecom_your_goto_platform_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/milkGseY.webp)

@@ -30,9 +30,17 @@ Company Websitehttps://www.divitiaerewards.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/divitiae-introduces-comprehensive-membership-program-offering-affluent-lifestyle-and-exclusive-services-391013661 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/divitiae-introduces-comprehensive-membership-program-offering-affluent-lifestyle-and-exclusive-services-391013661)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/TravelAndLeisureNews/comments/1eg4n2l/divitiae_launches_exclusive_membership_program/
+
+
+[Reddit Post](https://www.reddit.com/r/TravelAndLeisureNews/comments/1eg4n2l/divitiae_launches_exclusive_membership_program/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/30/wallJhRp.webp)

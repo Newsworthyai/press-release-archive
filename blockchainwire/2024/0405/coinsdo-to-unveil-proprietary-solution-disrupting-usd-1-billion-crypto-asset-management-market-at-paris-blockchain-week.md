@@ -16,9 +16,17 @@ CoinsDo is a leading Wallet-as-a-Service (WaaS) provider for institutional crypt
 
 Website: [https://www.coinsdo.com](https://www.coinsdo.com/)Twitter: [https://twitter.com/CoinsDogroup](https://twitter.com/CoinsDogroup)LinkedIn: [https://www.linkedin.com/company/coinsdo/about/](https://www.linkedin.com/company/coinsdo/about/) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinsdo-to-unveil-proprietary-solution-disrupting-usd1-billion-crypto-asset-management-market-at-paris-blockchain-week-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bwgj0p/coinsdo_to_showcase_revolutionary_solutions_at/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bwgj0p/coinsdo_to_showcase_revolutionary_solutions_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/5/tilezpYB.webp)

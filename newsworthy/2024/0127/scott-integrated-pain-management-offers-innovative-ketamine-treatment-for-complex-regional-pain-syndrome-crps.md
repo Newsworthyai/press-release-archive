@@ -8,9 +8,17 @@ Recent research has highlighted Ketamine's effectiveness in managing chronic pai
 
 Patients undergoing Ketamine therapy at Scott Integrated Pain Management can anticipate a comprehensive evaluation to determine their eligibility. Treatment plans are tailored to individual requirements, ensuring the most effective and safe outcomes. Scott Integrated Pain Management accepts various insurance plans, including Medicare, United Healthcare, Independence Blue Cross Blue Shield, Cigna, and Highmark BlueShield, making this groundbreaking treatment accessible to a wide range of patients. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401271038/scott-integrated-pain-management-offers-innovative-ketamine-treatment-for-complex-regional-pain-syndrome-crps)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlg64/scott_integrated_pain_management_introduces/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlg64/scott_integrated_pain_management_introduces/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/deepxjcX.webp)

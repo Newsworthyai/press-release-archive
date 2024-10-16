@@ -14,9 +14,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/southern-silver-exploration-corp-hits-major-milestone-with-updated-pea-on-cerro-las-minitas-project-636602330 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/southern-silver-exploration-corp-hits-major-milestone-with-updated-pea-on-cerro-las-minitas-project-636602330)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dneje7/southern_silver_exploration_corp_president_larry/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dneje7/southern_silver_exploration_corp_president_larry/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/24/hushy5Zu.webp)

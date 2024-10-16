@@ -38,9 +38,17 @@ Company Websitehttps://www.riacircle.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/ria-circle-launches-providing-a-membership-environment-to-share-best-practices-across-the-wealth-management-ecosystem-712666890 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ria-circle-launches-providing-a-membership-environment-to-share-best-practices-across-the-wealth-management-ecosystem-712666890)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fdgdoe/ria_circle_launches_providing_a_membership/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fdgdoe/ria_circle_launches_providing_a_membership/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/10/club4j2M.webp)

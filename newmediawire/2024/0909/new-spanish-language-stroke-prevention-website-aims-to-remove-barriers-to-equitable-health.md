@@ -61,9 +61,17 @@
 
 [2] CDC. Vital Signs: Hispanic Health. https://archive.cdc.gov/#/details?url=https://www.cdc.gov/vitalsigns/hispanic-health/index.html 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/new-spanish-language-stroke-prevention-website-aims-to-remove-barriers-to-equitable-health-7076025)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fcph6q/american_stroke_association_launches_culturally/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fcph6q/american_stroke_association_launches_culturally/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/9/voltiJ8O.webp)

@@ -38,9 +38,17 @@ sturkell@pairelations.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mj-attache-launches-business-with-debut-of-first-of-its-kind-luxury-cache-and-carry-bag-for-cannabis-connoisseurs-in-time-for-april-20-cannabis-celebration-day-682715954 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/mj-attache-launches-business-with-debut-of-first-of-its-kind-luxury-cache-and-carry-bag-for-cannabis-connoisseurs-in-time-for-april-20-cannabis-celebration-day-682715954)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1c6azp2/mj_attaché_launches_luxury_cacheandcarry_bag_for/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1c6azp2/mj_attaché_launches_luxury_cacheandcarry_bag_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/17/palejOCT.webp)

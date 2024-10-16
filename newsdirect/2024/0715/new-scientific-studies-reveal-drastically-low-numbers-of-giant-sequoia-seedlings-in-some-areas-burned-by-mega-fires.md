@@ -56,9 +56,17 @@ Company Websitehttps://www.savetheredwoods.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-scientific-studies-reveal-drastically-low-numbers-of-giant-sequoia-seedlings-in-some-areas-burned-by-mega-fires-909574922 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/new-scientific-studies-reveal-drastically-low-numbers-of-giant-sequoia-seedlings-in-some-areas-burned-by-mega-fires-909574922)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e3yp1k/recent_studies_uncover_drastically_low_numbers_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e3yp1k/recent_studies_uncover_drastically_low_numbers_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/15/faceNHwK.webp)

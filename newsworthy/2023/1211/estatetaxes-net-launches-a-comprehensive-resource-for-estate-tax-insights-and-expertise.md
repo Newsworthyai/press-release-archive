@@ -18,9 +18,17 @@ EstateTaxes.net emerges as a pivotal resource for those seeking in-depth underst
 
 Discover the intricacies of estate taxes with www.EstateTaxes.net. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231211817/estatetaxes-net-launches-a-comprehensive-resource-for-estate-tax-insights-and-expertise)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1avx31b/estatetaxesnet_launches_as_a_goto_source_for/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1avx31b/estatetaxesnet_launches_as_a_goto_source_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/frogFcGZ.webp)

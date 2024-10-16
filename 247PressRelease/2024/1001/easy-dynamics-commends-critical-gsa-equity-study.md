@@ -2,9 +2,17 @@
 
 MCLEAN, VA, October 01, 2024 /24-7PressRelease/ -- Easy Dynamics commends the General Service Administration (GSA) on its Equity Study of Remote Identity Proofing publication. Easy Dynamics developed the Identity Verification API (IDVA), which served as the central platform for the groundbreaking study. The IDVA provided a secure platform to evaluate identity technology, ensuring privacy and enhancing security. GSA utilized the IDVA to examine the impacts of ethnicity, race, gender, and income on the identity-proofing process.  The study, part of the Biden-Harris President's Management Agenda (PMA), focuses on prioritizing customer experience and equity. Understanding the current landscape of remote identity proofing can address potential barriers to ensuring fair access to government services. In partnership with the Center for Identification and Technology Research (CITER), a National Science Foundation (NSF) Industry/University Cooperative Research Center, GSA designed a rigorous framework for evaluating equitability in biometric vendors. GSA selected five vendors, assessing a range of identity proofing tools including facial matching, as well as non-biometric methods such as phone-account ownership, personal information validation, and security. Easy Dynamics was tasked with designing and developing the IDVA to integrate these technologies while safeguarding user privacy. This work directly reflects Easy Dynamics' mission to design, build, and secure systems that protect people, places, and way of life.  Poupak Afshar, CEO of Easy Dynamics, said she expects the study to positively impact the continuing efforts to make digital transactions more accessible. "The Identity Verification API is an integral part of the GSA's Equity Study," Afshar said. "Our work reflects Easy Dynamics' commitment to serving the federal government with our digital identity expertise in privacy-enhancing technologies."   The findings highlight the need for ongoing scrutiny of identity technologies to ensure fairness and equitable access. These insights align with the forthcoming NIST 800-63 rev 4 Digital Identity Guidelines and contribute significantly to the Executive Order on Racial Equity. The GSA Equity Study on Remote Identity Proofing will define gaps in existing technologies, helping GSA deliver an innovative and unbiased user experience to everyone.  This work strengthens Easy Dynamics' position as a leader in digital identity and privacy-enhancing technologies and reinforces its commitment to creating equitable solutions for federal clients and the people they serve.  About Easy Dynamics Corporation Easy Dynamics Corporation is a leading technology services provider with a core focus in Cybersecurity, Cloud Computing, and Information Sharing. We are builders, problem solvers, and trusted advisors who bring well-architected solutions and management consulting to our clients to align them with the best practices their missions demand. As industry leaders, we are committed to delivering unparalleled quality and service in all aspects of our organization and providing our customers with outstanding technical excellence and the business acumen to advise them on both tactical and strategic initiatives. 
 
+---
+
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514832/easy-dynamics-commends-critical-gsa-equity-study)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fti7p3/gsa_commended_for_equity_study_of_remote_identity/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fti7p3/gsa_commended_for_equity_study_of_remote_identity/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/1/vastNSrd.webp)

@@ -30,9 +30,17 @@ About EcS+
 
 EcS+ is a women-owned advisory firm specializing in cost savings and efficiency for corporations, non-profit organizations, and municipalities.With EcS+, clients can achieve aggressive double-digit savings while improving service quality, all at no direct cost to them. EcS+ specializes in optimizing and reducing expenses in seven critical areas: Merchant Card Services, Telecom and Technology, Logistics and Freight, Energy, Commercial Insurance, Payroll/HR/PEO Services, and Financial Services. Leveraging over 20 years of experience and a unique vendor-based compensation model, EcS+ delivers significant operational cost reductions without compromising service quality. For more information on how EcS+ can help your organization reduce expenses, contact EcS+ today. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202408131235/quintet-partners-completes-reorganization-and-rebrands-as-ecs-a-women-owned-expense-reduction-services-firm)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ercna1/ecs_completes_restructuring_and_rebranding_angela/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ercna1/ecs_completes_restructuring_and_rebranding_angela/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/248/13/filo0fof.webp)

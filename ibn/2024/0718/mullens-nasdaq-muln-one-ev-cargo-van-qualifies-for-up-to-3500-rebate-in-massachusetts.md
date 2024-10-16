@@ -18,9 +18,17 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullens-nasdaq-muln-one-ev-cargo-van-qualifies-for-up-to-3500-rebate-in-massachusetts/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1f2rdd6/mullen_automotives_2024_mullen_one_cargo_van/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1f2rdd6/mullen_automotives_2024_mullen_one_cargo_van/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/zestv0sP.webp)

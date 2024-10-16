@@ -52,9 +52,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/restaking-sector-speeds-up-amid-miner-surrender-966987135 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/restaking-sector-speeds-up-amid-miner-surrender-966987135)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dydht6/restaking_sector_sees_tremendous_growth_amid/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dydht6/restaking_sector_sees_tremendous_growth_amid/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/8/riftjykE.webp)

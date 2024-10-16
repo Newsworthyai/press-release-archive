@@ -50,9 +50,17 @@ iMD Companies, Inc.
 
 info@imdcompaniesinc.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/imd-companies-and-its-subsidiary-riize-open-and-launch-telemedicine-platform-in-canada-7076130)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ftnhtm/imd_companies_inc_completes_expansion_into/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ftnhtm/imd_companies_inc_completes_expansion_into/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/1/waitG1MX.webp)

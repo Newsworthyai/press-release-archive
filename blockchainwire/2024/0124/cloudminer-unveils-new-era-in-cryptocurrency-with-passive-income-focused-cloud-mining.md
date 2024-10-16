@@ -30,9 +30,17 @@ Email:alanmarlowe@cloudminer.netCompany: Cryptonian Mining LLCWebsite: https://
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cloudminer-unveils-new-era-in-cryptocurrency-with-passive-income-focused-cloud-mining)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avjsec/cloudminer_launches_stateoftheart_cloud_mining/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avjsec/cloudminer_launches_stateoftheart_cloud_mining/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/zerozrHp.webp)

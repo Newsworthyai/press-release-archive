@@ -20,9 +20,17 @@ About MEXCMEXC is a leading centralized cryptocurrency exchange platform, offeri
 
 DisclaimerThis press release contains forward-looking statements that are subject to certain risks and uncertainties. Actual results may differ materially from those projected in the forward-looking statements. Readers are cautioned not to place undue reliance on these forward-looking statements, which reflect management's analysis only as of the date hereof. MEXC undertakes no obligation to publicly revise these forward-looking statements to reflect events or circumstances that arise after the date hereof. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/mexc-mx-token-surges-27-in-7-days-following-bitcoins-rally-beyond-73k)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bfrhhm/mexcs_mx_token_surges_amid_bitcoin_rally/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bfrhhm/mexcs_mx_token_surges_amid_bitcoin_rally/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/15/bestfEUy.webp)

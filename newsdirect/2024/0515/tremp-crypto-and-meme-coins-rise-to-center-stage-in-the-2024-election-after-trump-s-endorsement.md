@@ -38,9 +38,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tremp-crypto-and-meme-coins-rise-to-center-stage-in-the-2024-election-after-trumps-endorsement-820140324 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tremp-crypto-and-meme-coins-rise-to-center-stage-in-the-2024-election-after-trumps-endorsement-820140324)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1csjx34/trumps_procrypto_stance_sends_meme_coins_soaring/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1csjx34/trumps_procrypto_stance_sends_meme_coins_soaring/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/quitW2UX.webp)

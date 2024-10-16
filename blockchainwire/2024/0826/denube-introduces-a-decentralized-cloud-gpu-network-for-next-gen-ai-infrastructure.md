@@ -41,9 +41,17 @@ To learn more about DeNube and stay up-to-date on their latest developments, vis
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/denube-introduces-a-decentralized-cloud-gpu-network-for-next-gen-ai-infrastructure)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f1y33h/denube_introduces_decentralized_cloud_gpu_network/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f1y33h/denube_introduces_decentralized_cloud_gpu_network/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/26/moonW9h_.webp)

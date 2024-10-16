@@ -22,9 +22,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/dive-into-summer-travel-bliss-st-kitts-could-be-your-ultimate-vacation-destination-525307111 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/dive-into-summer-travel-bliss-st-kitts-could-be-your-ultimate-vacation-destination-525307111)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1dp0d9z/st_kitts_offers_authentic_summer_of_fun/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1dp0d9z/st_kitts_offers_authentic_summer_of_fun/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/26/deep1sfY.webp)

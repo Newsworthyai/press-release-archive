@@ -26,9 +26,17 @@ Contact person: Messaoud Boukoufallah
 
 Email: messaoud@millionero.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/millionero-redefines-crypto-trading-norms-with-unprecedented-volume-and-distinctive-features-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avjxa7/millionero_a_trailblazer_in_cryptocurrency/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avjxa7/millionero_a_trailblazer_in_cryptocurrency/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/tileBekD.webp)

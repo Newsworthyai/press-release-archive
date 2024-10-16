@@ -26,9 +26,17 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-presents-kcgi-2024-the-ultimate-crypto-trading-tournament-with-a-prize-pool-of-ferrari-messi-signed-merch-and-5-million-usdt-714474131 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitget-presents-kcgi-2024-the-ultimate-crypto-trading-tournament-with-a-prize-pool-of-ferrari-messi-signed-merch-and-5-million-usdt-714474131)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1csk493/bitget_launches_kings_cup_global_invitational_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1csk493/bitget_launches_kings_cup_global_invitational_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/ulnaR611.webp)

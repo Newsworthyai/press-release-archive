@@ -26,9 +26,17 @@ Moreover, Nemeb has expanded its cryptocurrency offerings to provide users with 
 
 Website: https://Nemeb.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/nemebcom-best-cryptocurrency-exchange-important-updates)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ft85d3/nemebcom_pioneers_innovations_to_elevate/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ft85d3/nemebcom_pioneers_innovations_to_elevate/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/30/joinxV4t.webp)

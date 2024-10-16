@@ -36,9 +36,17 @@ carlosp@trevinoenterprises.net
 
 View source version on newsdirect.com: https://newsdirect.com/news/celebrity-dog-swaggy-wolfdog-offers-cash-reward-after-losing-100k-995891912 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/celebrity-dog-swaggy-wolfdog-offers-cash-reward-after-losing-100k-995891912)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1fp62o2/celebrity_dog_swaggy_wolfdog_offers_cash_reward/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1fp62o2/celebrity_dog_swaggy_wolfdog_offers_cash_reward/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/25/yogaefj6.webp)

@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/latrobe-magnesium-achieves-world-first-magnesium-oxide-production-from-fly-ash-555091662 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/latrobe-magnesium-achieves-world-first-magnesium-oxide-production-from-fly-ash-555091662)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cr38u7/latrobe_magnesium_achieves_worldfirst_magnesium/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cr38u7/latrobe_magnesium_achieves_worldfirst_magnesium/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/nino3v9r.webp)

@@ -22,9 +22,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tharisa-plc-ceo-discusses-solid-q2-performance-and-innovative-energy-storage-solution-332273819 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tharisa-plc-ceo-discusses-solid-q2-performance-and-innovative-energy-storage-solution-332273819)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c5dhnl/tharisa_plc_ceo_discusses_solid_q2_performance/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c5dhnl/tharisa_plc_ceo_discusses_solid_q2_performance/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/voltuslX.webp)

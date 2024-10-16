@@ -42,9 +42,17 @@ luciana@msgimprensa.com.br
 
 View source version on newsdirect.com: https://newsdirect.com/news/official-reports-on-multiple-ufo-sightings-suggest-a-new-chapter-in-history-992592746 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/official-reports-on-multiple-ufo-sightings-suggest-a-new-chapter-in-history-992592746)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f9rh5n/official_reports_on_multiple_ufo_sightings/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f9rh5n/official_reports_on_multiple_ufo_sightings/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/5/keepyZTQ.webp)

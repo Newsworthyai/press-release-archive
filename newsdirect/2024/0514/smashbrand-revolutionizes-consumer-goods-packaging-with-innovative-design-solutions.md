@@ -28,9 +28,17 @@ Company Websitehttps://www.smashbrand.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/smashbrand-revolutionizes-consumer-goods-packaging-with-innovative-design-solutions-467160652 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/smashbrand-revolutionizes-consumer-goods-packaging-with-innovative-design-solutions-467160652)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1crp3fb/smashbrand_revolutionizes_consumer_goods/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1crp3fb/smashbrand_revolutionizes_consumer_goods/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/14/pondTL79.webp)

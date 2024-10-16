@@ -48,9 +48,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-issues-security-alert-regarding-exchange-accounts-amid-rising-cyber-treats-320435323 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-issues-security-alert-regarding-exchange-accounts-amid-rising-cyber-treats-320435323)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1d84d53/htx_issues_urgent_security_alert_amid_rising/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1d84d53/htx_issues_urgent_security_alert_amid_rising/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/4/kissp3SD.webp)

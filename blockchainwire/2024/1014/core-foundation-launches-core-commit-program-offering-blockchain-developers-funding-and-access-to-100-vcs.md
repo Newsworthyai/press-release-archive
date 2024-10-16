@@ -16,9 +16,17 @@ About CoreCore serves as the Proof of Stake layer for Bitcoin as the first enabl
 
 Core is the most Bitcoin-aligned EVM blockchain with ~55% of Bitcoin mining hash power contributing to the network’s security. This breakthrough has amassed millions of Core adopters - over 21M unique addresses, 279M+ transactions, and over 420M TVL since its mainnet launch in January 2023. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/core-foundation-launches-core-commit-program-offering-blockchain-developers-funding-and-access-to-100-vcs)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1g3jvdg/core_foundation_launches_core_commit_program_to/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1g3jvdg/core_foundation_launches_core_commit_program_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/14/oxenIwAZ.webp)

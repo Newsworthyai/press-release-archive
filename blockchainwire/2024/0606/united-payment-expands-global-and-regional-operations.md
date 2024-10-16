@@ -38,9 +38,17 @@ Website: https://unitedpayment.com
 
 SOURCE: United Payment 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/united-payment-expands-global-and-regional-operations)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1d9lydo/united_payment_achieves_milestone_with_1_million/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1d9lydo/united_payment_achieves_milestone_with_1_million/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/6/swimXJCc.webp)

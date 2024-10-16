@@ -40,9 +40,17 @@ Website: https://lunardragon.site/Telegram: https://t.me/LunarDragonGlobal
 
 Disclaimer: This press release may contain forward-looking statements. Forward-looking statements describe future expectations, plans, results, or strategies (including product offerings, regulatory plans and business plans) and may change without notice. You are cautioned that such statements are subject to a multitude of risks and uncertainties that could cause future circumstances, events, or results to differ materially from those projected in the forward-looking statements, including the risks that actual results may differ materially from those projected in the forward-looking statements. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/lunar-dragon-soars-to-new-heights-anticipated-launch-marks-a-turning-point-in-crypto)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avcbk0/lunar_dragon_prepares_for_launch_in_volatile/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avcbk0/lunar_dragon_prepares_for_launch_in_volatile/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/markmUpI.webp)

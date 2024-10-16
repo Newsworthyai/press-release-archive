@@ -50,9 +50,17 @@ Company Websitehttps://noblemarriage.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/noblemarriage-launches-advanced-matrimonial-app-for-muslims-seeking-life-partners-105236603 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/noblemarriage-launches-advanced-matrimonial-app-for-muslims-seeking-life-partners-105236603)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d7loea/noblemarriage_launches_advanced_matrimonial_app/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d7loea/noblemarriage_launches_advanced_matrimonial_app/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/3/mailO627.webp)

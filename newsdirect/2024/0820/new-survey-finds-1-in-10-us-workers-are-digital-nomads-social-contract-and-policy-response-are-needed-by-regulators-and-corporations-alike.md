@@ -37,9 +37,17 @@ Company Websitehttps://mbopartners.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-survey-finds-1-in-10-us-workers-are-digital-nomads-social-contract-and-policy-response-are-needed-by-regulators-and-corporations-alike-620043512 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/new-survey-finds-1-in-10-us-workers-are-digital-nomads-social-contract-and-policy-response-are-needed-by-regulators-and-corporations-alike-620043512)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1ewvtkl/new_research_shows_1_in_10_us_workers_are_digital/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ewvtkl/new_research_shows_1_in_10_us_workers_are_digital/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/20/roamivwi.webp)

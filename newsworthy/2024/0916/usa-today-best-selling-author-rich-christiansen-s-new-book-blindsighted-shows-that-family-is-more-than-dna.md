@@ -12,9 +12,17 @@ Salt Lake City, UT (Newsworthy.ai) Monday Sep 16, 2024 @ 8:00 PM Asia/Manila —
 
 About [Rich Christiansen](https://www.richchristiansen.com)Rich founded the Entrepreneur Leadership Center and served as the Chairman of the Board of Trustees at Southern Utah University. He alsoserved on the Utah State Board of Higher Education. He has founded or co-founded 51 businesses, of which 16 have become multimillion-dollar successes. He and his wife are the parents of five amazing sons and ten grandchildren as well as a daughter who came from Nepal.Rich is currently available for interviews. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202409161263/usa-today-best-selling-author-rich-christiansen-s-new-book-blindsighted-shows-that-family-is-more-than-dna)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1fi2yxy/author_rich_christiansen_to_discuss_new_book/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1fi2yxy/author_rich_christiansen_to_discuss_new_book/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/249/16/plumWLnO.webp)

@@ -38,9 +38,17 @@ jchoo@kevel.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kevel-named-to-newsweeks-list-of-the-top-100-global-most-loved-workplaces-for-2024-252662032 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kevel-named-to-newsweeks-list-of-the-top-100-global-most-loved-workplaces-for-2024-252662032)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d9j4an/kevel_ranks_13_on_newsweeks_top_100_global_most/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d9j4an/kevel_ranks_13_on_newsweeks_top_100_global_most/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/6/fond7gya.webp)

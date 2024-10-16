@@ -36,9 +36,17 @@ https://twitter.com/Option2Trade (O2T)
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/o2ts-social-trading-exchange-token-becomes-biggest-alternative-to-bitcoin-btc-and-ethereum-eth)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bp487d/option2trade_o2t_the_rising_challenger_to_bitcoin/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bp487d/option2trade_o2t_the_rising_challenger_to_bitcoin/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/27/roamZSHi.webp)

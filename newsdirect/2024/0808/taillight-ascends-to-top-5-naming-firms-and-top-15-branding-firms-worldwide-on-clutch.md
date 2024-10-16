@@ -28,9 +28,17 @@ Company Websitehttps://taillight.agency/
 
 View source version on newsdirect.com: https://newsdirect.com/news/taillight-ascends-to-top-5-naming-firms-and-top-15-branding-firms-worldwide-on-clutch-865252855 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/taillight-ascends-to-top-5-naming-firms-and-top-15-branding-firms-worldwide-on-clutch-865252855)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1en2ock/taillight_ranks_among_top_5_naming_firms_and_top/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1en2ock/taillight_ranks_among_top_5_naming_firms_and_top/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/8/chipbcCR.webp)

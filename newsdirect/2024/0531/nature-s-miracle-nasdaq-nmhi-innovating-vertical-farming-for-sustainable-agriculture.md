@@ -50,9 +50,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/natures-miracle-nasdaq-nmhi-innovating-vertical-farming-for-sustainable-agriculture-635257981 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/natures-miracle-nasdaq-nmhi-innovating-vertical-farming-for-sustainable-agriculture-635257981)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d4s5al/natures_miracle_nasdaq_nmhi_leading_the_charge_in/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d4s5al/natures_miracle_nasdaq_nmhi_leading_the_charge_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/31/gluebZ2s.webp)

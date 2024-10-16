@@ -10,9 +10,17 @@ Covered by most insurances, Conventions TMS Therapy offers an accessible solutio
 
 In collaboration with Apollo and NeuroStar TMS, Conventions Psychiatry & Counseling is dedicated to transforming the lives of individuals suffering from treatment-resistant depression through effective and non-invasive TMS therapy. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401261033/revolutionizing-relief-conventions-psychiatry-counseling-partners-with-apollo-and-neurostar-tms)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlfxe/conventions_psychiatry_counseling_partners_with/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlfxe/conventions_psychiatry_counseling_partners_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/notezZLE.webp)

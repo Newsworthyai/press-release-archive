@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fathom-nickel-expands-portfolio-with-acquisition-of-friesen-lake-property-261922367 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/fathom-nickel-expands-portfolio-with-acquisition-of-friesen-lake-property-261922367)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1dpukhl/fathom_nickel_expands_portfolio_with_acquisition/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1dpukhl/fathom_nickel_expands_portfolio_with_acquisition/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/27/mail4u6T.webp)

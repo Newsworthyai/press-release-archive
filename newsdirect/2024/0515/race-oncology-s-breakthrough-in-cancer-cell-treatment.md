@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/race-oncologys-breakthrough-in-cancer-cell-treatment-258482483 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/race-oncologys-breakthrough-in-cancer-cell-treatment-258482483)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1csohll/race_oncologys_breakthrough_in_cancer_cell/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1csohll/race_oncologys_breakthrough_in_cancer_cell/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/clubIR6p.webp)

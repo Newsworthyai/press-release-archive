@@ -28,9 +28,17 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-pre-market-trading-lists-renzo-rez-the-trending-liquid-restaking-token-261370663 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitget-pre-market-trading-lists-renzo-rez-the-trending-liquid-restaking-token-261370663)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cc7hdz/bitget_lists_renzo_rez_token_on_premarket_platform/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cc7hdz/bitget_lists_renzo_rez_token_on_premarket_platform/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/24/daveP4nQ.webp)

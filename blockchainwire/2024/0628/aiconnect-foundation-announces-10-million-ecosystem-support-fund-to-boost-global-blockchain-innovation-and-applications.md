@@ -46,9 +46,17 @@ Disclaimer: This article contains forward-looking statements based on current ex
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/aiconnect-foundation-announces-10-million-ecosystem-support-fund-to-boost-global-blockchain-innovation-and-applications)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dqoopo/aiconnect_foundation_announces_10_million/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dqoopo/aiconnect_foundation_announces_10_million/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/28/echo_hrl.webp)

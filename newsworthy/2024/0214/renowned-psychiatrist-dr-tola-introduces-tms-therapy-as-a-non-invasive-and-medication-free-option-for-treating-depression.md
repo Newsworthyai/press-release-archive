@@ -12,9 +12,17 @@ For those interested in booking an appointment or learning more about TMS Therap
 
 Dr. Tola is committed to offering innovative and effective treatment options for mental health and wellness. By introducing TMS Therapy as a non-invasive and medication-free solution for depression, Dr. Tola aims to provide individuals with long-lasting relief from their symptoms. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402141062/renowned-psychiatrist-dr-tola-introduces-tms-therapy-as-a-non-invasive-and-medication-free-option-for-treating-depression)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcawl/distinguished_psychiatrist_dr_tola_offers/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcawl/distinguished_psychiatrist_dr_tola_offers/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/16/kiteIo_r.webp)

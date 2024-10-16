@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cerro-de-pasco-resources-granted-land-easement-for-major-exploration-campaign-371310269 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cerro-de-pasco-resources-granted-land-easement-for-major-exploration-campaign-371310269)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/StartupBusinessNews/comments/1d4bl8f/cerro_de_pasco_resources_granted_land_easement/
+
+
+[Reddit Post](https://www.reddit.com/r/StartupBusinessNews/comments/1d4bl8f/cerro_de_pasco_resources_granted_land_easement/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/30/divewCco.webp)

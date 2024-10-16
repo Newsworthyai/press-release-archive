@@ -18,9 +18,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bioharvest-sciences-hits-major-sales-milestone-with-vinia-seeing-sales-records-133242608 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bioharvest-sciences-hits-major-sales-milestone-with-vinia-seeing-sales-records-133242608)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d9m72k/bioharvest_sciences_achieves_record_sales_with/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d9m72k/bioharvest_sciences_achieves_record_sales_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/6/zestcsOc.webp)

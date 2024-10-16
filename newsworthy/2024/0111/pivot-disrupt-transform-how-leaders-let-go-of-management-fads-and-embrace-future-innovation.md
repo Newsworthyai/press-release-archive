@@ -38,9 +38,17 @@ md@mdaszko.com
 
 https://www.linkedin.com/in/marciadaszko/ 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20240111976/pivot-disrupt-transform-how-leaders-let-go-of-management-fads-and-embrace-future-innovation)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1avdopv/renowned_author_marcia_daszko_releases/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1avdopv/renowned_author_marcia_daszko_releases/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/epicLzFT.webp)

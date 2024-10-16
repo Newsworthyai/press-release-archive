@@ -38,9 +38,17 @@ Instagram - https://www.instagram.com/fuzukiinu/
 
 Facebook - https://www.facebook.com/fuzuki.inu/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/announcing-fuzuki-inu---the-shiba-kanji-pre-sale-dont-miss-the-opportunity-be-an-early-investor)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bvspnd/get_ready_for_the_fuzuki_inu_token_your_ticket_to/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bvspnd/get_ready_for_the_fuzuki_inu_token_your_ticket_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/4/silk6eaw.webp)

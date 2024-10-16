@@ -28,9 +28,17 @@ Become a part of HR.com’s HR Research Influencer panel today. Participate in s
 
 Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202405161169/expensive-healthcare-and-specialty-drugs-are-putting-the-pressure-on-new-study-by-aimed-alliance-and-hr-coms-hr-research-institute)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1ctbhlu/new_study_reveals_hr_concerns_about_rising/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1ctbhlu/new_study_reveals_hr_concerns_about_rising/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/245/16/kissJPAU.webp)

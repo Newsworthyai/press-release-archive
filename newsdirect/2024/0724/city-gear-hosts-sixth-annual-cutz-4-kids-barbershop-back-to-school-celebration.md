@@ -34,9 +34,17 @@ Company Websitehttps://www.Hibbett.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/city-gear-hosts-sixth-annual-cutz-4-kids-barbershop-and-back-to-school-celebration-656187180 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/city-gear-hosts-sixth-annual-cutz-4-kids-barbershop-and-back-to-school-celebration-656187180)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1eb2jsa/city_gear_announces_6th_annual_cutz_4_kids/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1eb2jsa/city_gear_announces_6th_annual_cutz_4_kids/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/24/kiteeuCP.webp)

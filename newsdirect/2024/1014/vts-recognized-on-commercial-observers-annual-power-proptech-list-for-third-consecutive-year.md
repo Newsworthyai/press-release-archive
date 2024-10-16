@@ -30,9 +30,17 @@ Company Websitehttps://www.vts.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/vts-recognized-on-commercial-observers-annual-power-proptech-list-for-third-consecutive-year-424022452 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/vts-recognized-on-commercial-observers-annual-power-proptech-list-for-third-consecutive-year-424022452)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1g3fgiy/vts_recognized_on_commercial_observers_power/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1g3fgiy/vts_recognized_on_commercial_observers_power/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/14/maskwhe2.webp)

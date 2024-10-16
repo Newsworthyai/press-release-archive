@@ -12,9 +12,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/doubleview-gold-corp-resumes-drilling-at-hat-project-in-northern-british-columbia-501581347 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/doubleview-gold-corp-resumes-drilling-at-hat-project-in-northern-british-columbia-501581347)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ef2h2r/doubleview_gold_corp_resumes_drilling_at_hat/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ef2h2r/doubleview_gold_corp_resumes_drilling_at_hat/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/29/daveTIkU.webp)

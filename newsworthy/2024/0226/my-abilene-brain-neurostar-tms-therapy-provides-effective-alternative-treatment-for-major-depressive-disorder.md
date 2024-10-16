@@ -14,9 +14,17 @@ NeuroStar TMS Therapy is supported by strong data and testimonials from patients
 
 For individuals struggling with Major Depressive Disorder, NeuroStar TMS Therapy provides renewed hope and an alternative approach to treatment. Covered by insurance plans and backed by patient testimonials, this innovative therapy is available at the Abilene Brain Center. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402261096/my-abilene-brain-neurostar-tms-therapy-provides-effective-alternative-treatment-for-major-depressive-disorder)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1b09peh/abilene_brain_center_offers_innovative_therapy/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1b09peh/abilene_brain_center_offers_innovative_therapy/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/26/tileYNd2.webp)

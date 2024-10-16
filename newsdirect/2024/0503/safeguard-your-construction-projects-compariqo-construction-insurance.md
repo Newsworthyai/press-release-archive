@@ -40,9 +40,17 @@ Company Websitehttps://compariqo.com/contact-us/
 
 View source version on newsdirect.com: https://newsdirect.com/news/safeguard-your-construction-projects-compariqo-construction-insurance-830513179 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/safeguard-your-construction-projects-compariqo-construction-insurance-830513179)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cmlprm/protect_your_construction_projects_with_latent/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cmlprm/protect_your_construction_projects_with_latent/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/3/hintqgaz.webp)

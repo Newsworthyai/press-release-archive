@@ -34,9 +34,17 @@ Participate in surveys, share your insights, and earn rewards.
 
 Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202409241274/new-advisory-board-announced-for-hr-com-s-state-of-employer-branding-2025-study-and-event)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HRnews/comments/1foaxrb/hrcom_announces_2025_advisory_board_for_state_of/
+
+
+[Reddit Post](https://www.reddit.com/r/HRnews/comments/1foaxrb/hrcom_announces_2025_advisory_board_for_state_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/249/24/ulnavEUY.webp)

@@ -30,9 +30,17 @@ Company Websitehttps://firstandlastpr.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/first-and-last-pr-supports-beauty-lifestyle-and-wellness-brands-introducing-new-pr-services-at-beauty-independents-uplink-expo-conference-875907564 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/first-and-last-pr-supports-beauty-lifestyle-and-wellness-brands-introducing-new-pr-services-at-beauty-independents-uplink-expo-conference-875907564)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1doxr2f/first_and_last_pr_introduces_new_pr_services_for/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1doxr2f/first_and_last_pr_introduces_new_pr_services_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/26/boldRYXu.webp)

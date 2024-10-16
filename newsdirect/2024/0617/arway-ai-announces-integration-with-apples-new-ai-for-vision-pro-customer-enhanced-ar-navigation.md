@@ -20,9 +20,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/arway-ai-announces-integration-with-apples-new-ai-for-vision-pro-customer-enhanced-ar-navigation-428692603 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/arway-ai-announces-integration-with-apples-new-ai-for-vision-pro-customer-enhanced-ar-navigation-428692603)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1dqooy7/arwayai_integrates_apples_enterprise_apis_for/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1dqooy7/arwayai_integrates_apples_enterprise_apis_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/17/lossQf07.webp)

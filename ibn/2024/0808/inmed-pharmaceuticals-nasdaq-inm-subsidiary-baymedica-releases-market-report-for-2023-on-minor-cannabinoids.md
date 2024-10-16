@@ -26,9 +26,17 @@
 
  CannabisNewsWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/inmed-pharmaceuticals-nasdaq-inm-subsidiary-baymedica-releases-market-report-for-2023-on-minor-cannabinoids/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1f2fgh7/baymedica_report_reveals_major_growth_in_lesser/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1f2fgh7/baymedica_report_reveals_major_growth_in_lesser/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/beancgbm.webp)

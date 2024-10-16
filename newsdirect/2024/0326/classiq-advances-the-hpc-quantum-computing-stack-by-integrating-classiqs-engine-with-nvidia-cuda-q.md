@@ -36,9 +36,17 @@ Company Websitehttp://www.classiq.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/classiq-advances-the-hpc-quantum-computing-stack-by-integrating-classiqs-engine-with-nvidia-cuda-q-245793209 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/classiq-advances-the-hpc-quantum-computing-stack-by-integrating-classiqs-engine-with-nvidia-cuda-q-245793209)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bo6bp9/classiq_integrates_quantum_computing_software/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bo6bp9/classiq_integrates_quantum_computing_software/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/eachgryJ.webp)

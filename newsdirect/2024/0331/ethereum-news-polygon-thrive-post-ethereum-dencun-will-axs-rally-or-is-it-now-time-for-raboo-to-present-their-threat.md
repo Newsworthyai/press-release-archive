@@ -34,9 +34,17 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/ethereum-news-polygon-thrive-post-ethereum-dencun-will-axs-rally-or-is-it-now-time-for-raboo-to-present-their-threat-853121130 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ethereum-news-polygon-thrive-post-ethereum-dencun-will-axs-rally-or-is-it-now-time-for-raboo-to-present-their-threat-853121130)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bsfr1s/ethereum_news_polygons_success_axs_rally_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bsfr1s/ethereum_news_polygons_success_axs_rally_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/31/pondIwrI.webp)

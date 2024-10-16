@@ -24,9 +24,17 @@ SHIB is a world-leading ecosystem of decentralized finance (DeFi) cryptocurrenci
 
 To learn more about SHIB, please visit the official website and home of the Shiba Ecosystem: https://www.shib.io. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/shibarium-based-restaurateur-welly-adds-second-franchise-location-plans-to-expand-emerging-fast-food-empire-to-us)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dyacjv/shibbacked_welly_restaurant_expands_with_second/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dyacjv/shibbacked_welly_restaurant_expands_with_second/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/20/open6mCZ.webp)

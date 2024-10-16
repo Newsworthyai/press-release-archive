@@ -10,9 +10,17 @@ Moreover, ketamine has shown potential benefits for individuals struggling with 
 
 As the scope of applications widens, ketamine offers hope to individuals enduring various mental health conditions. With its proven safety record, this treatment option is becoming increasingly relied upon by healthcare professionals as a viable alternative to traditional methods. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20240119997/new-ketamine-treatment-offers-hope-for-mental-health-conditions)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1avdp8x/ketamine_emerges_as_a_promising_treatment_for/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1avdp8x/ketamine_emerges_as_a_promising_treatment_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/paveX_7l.webp)

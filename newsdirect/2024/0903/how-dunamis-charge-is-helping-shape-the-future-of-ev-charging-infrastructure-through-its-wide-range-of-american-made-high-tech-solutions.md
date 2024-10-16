@@ -48,9 +48,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-dunamis-charge-is-helping-shape-the-future-of-ev-charging-infrastructure-through-its-wide-range-of-american-made-high-tech-solutions-350761784 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/how-dunamis-charge-is-helping-shape-the-future-of-ev-charging-infrastructure-through-its-wide-range-of-american-made-high-tech-solutions-350761784)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1f80jpq/dunamis_charge_leading_the_revolution_in_ev/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1f80jpq/dunamis_charge_leading_the_revolution_in_ev/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/3/lark0eoQ.webp)

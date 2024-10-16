@@ -20,9 +20,17 @@ SX Network blockchain combines smart contracts with an on-chain treasury and pre
 
 X (Twitter) | Discord | YouTube 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/sx-network-closes-successful-strategic-funding-round)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bhomub/sx_network_secures_strategic_funding_round_plans/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bhomub/sx_network_secures_strategic_funding_round_plans/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/18/boss8iRX.webp)

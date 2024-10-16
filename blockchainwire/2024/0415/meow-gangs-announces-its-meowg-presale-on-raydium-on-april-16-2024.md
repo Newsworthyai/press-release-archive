@@ -24,9 +24,17 @@ https://www.pinksale.finance/solana/launchpad/9cUXubaDQukuadJSakbEUbG3oiPsKm7RC1
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/meow-gangs-announces-its-meowg-presale-on-raydium-on-april-16-2024)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c4t7xr/meow_gangs_announces_meowg_presale_on_raydium_for/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c4t7xr/meow_gangs_announces_meowg_presale_on_raydium_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/15/jinxmKHx.webp)

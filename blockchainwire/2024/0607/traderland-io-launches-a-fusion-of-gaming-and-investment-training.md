@@ -30,9 +30,17 @@ Instagram: https://www.instagram.com/traderland.io/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/traderlandio-launches-a-fusion-of-gaming-and-investment-training-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1damljx/traderlandio_launches_innovative_interactive/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1damljx/traderlandio_launches_innovative_interactive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/7/numb_qCr.webp)

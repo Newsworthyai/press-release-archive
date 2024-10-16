@@ -18,9 +18,17 @@ COOInsider.com is more than a website; it's a movement for operational excellenc
 
 Embark on a journey to operational brilliance. Discover more at www.COOInsider.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231219797/cooinsider-com-launches-as-the-go-to-resource-for-chief-operating-officers-worldwide)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1avx4fh/introducing_cooinsidercom_the_new_hub_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1avx4fh/introducing_cooinsidercom_the_new_hub_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/moonFxe0.webp)

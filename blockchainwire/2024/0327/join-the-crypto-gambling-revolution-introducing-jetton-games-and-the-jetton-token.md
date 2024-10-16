@@ -39,9 +39,17 @@ Email - biz@jetton.games
 
 Telegram - https://t.me/jettontoken_en 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/join-the-crypto-gambling-revolution-introducing-jetton-games-and-the-jetton-token)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1bp2tog/jetton_games_revolutionizing_crypto_gambling_with/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1bp2tog/jetton_games_revolutionizing_crypto_gambling_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/27/jinxMX9W.webp)

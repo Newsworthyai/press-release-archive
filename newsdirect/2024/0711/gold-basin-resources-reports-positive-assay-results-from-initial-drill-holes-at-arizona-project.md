@@ -14,9 +14,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gold-basin-resources-reports-positive-assay-results-from-initial-drill-holes-at-arizona-project-422581076 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/gold-basin-resources-reports-positive-assay-results-from-initial-drill-holes-at-arizona-project-422581076)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e0q7uz/gold_basin_resources_announces_positive_assay/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e0q7uz/gold_basin_resources_announces_positive_assay/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/11/rubyou4L.webp)

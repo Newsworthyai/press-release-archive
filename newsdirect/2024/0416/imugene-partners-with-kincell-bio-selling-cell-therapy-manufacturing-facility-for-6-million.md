@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/imugene-partners-with-kincell-bio-selling-cell-therapy-manufacturing-facility-for-6-million-218972158 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/imugene-partners-with-kincell-bio-selling-cell-therapy-manufacturing-facility-for-6-million-218972158)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c5k40z/imugene_partners_with_kincell_bio_selling_cell/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c5k40z/imugene_partners_with_kincell_bio_selling_cell/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/limeEWXN.webp)

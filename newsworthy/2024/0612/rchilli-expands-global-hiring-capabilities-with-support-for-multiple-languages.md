@@ -24,9 +24,17 @@ RChilli is the trusted partner for parsing, matching, and data enrichment, provi
 
 RChilli also has its multilingual resume parsing app available on Oracle Cloud Marketplace and Salesforce AppExchange. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202406121194/rchilli-expands-global-hiring-capabilities-with-support-for-multiple-languages)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1de41q2/rchilli_expands_language_support_for_resume/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1de41q2/rchilli_expands_language_support_for_resume/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/246/12/mendL6ZM.webp)

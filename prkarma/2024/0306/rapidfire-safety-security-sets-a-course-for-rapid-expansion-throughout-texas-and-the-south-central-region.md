@@ -65,9 +65,17 @@ Visit Our Blog
  * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/rapidfire/news_release/1420)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bko92l/rapidfire_safety_security_enters_texas_market/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bko92l/rapidfire_safety_security_enters_texas_market/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/243/22/swimkPrw.webp)

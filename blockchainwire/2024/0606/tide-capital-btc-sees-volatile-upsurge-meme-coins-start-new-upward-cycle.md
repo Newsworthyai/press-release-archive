@@ -54,9 +54,17 @@ Disclaimer
 
 The information and data presented in this article are obtained from public sources. Any advice and opinions in this article are for reference purposes only and do not constitute investment advice. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/tide-capital-btc-sees-volatile-upsurge-meme-coins-start-new-upward-cycle)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1d9gnjh/btc_and_eth_etfs_boost_crypto_assets_us_election/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1d9gnjh/btc_and_eth_etfs_boost_crypto_assets_us_election/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/6/voltz1Xo.webp)

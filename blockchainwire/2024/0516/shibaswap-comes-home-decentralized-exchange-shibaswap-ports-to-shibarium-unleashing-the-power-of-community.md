@@ -20,9 +20,17 @@ SHIB is a world-leading ecosystem of decentralized finance (DeFi) cryptocurrenci
 
 To learn more about SHIB, please visit the official website: https://www.shib.io. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/shibaswap-comes-home-decentralized-exchange-shibaswap-ports-to-shibarium-unleashing-the-power-of-community)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1ct7yn9/shib_announces_porting_of_shibaswap_to_shibarium/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1ct7yn9/shib_announces_porting_of_shibaswap_to_shibarium/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/16/wamc80XW.webp)

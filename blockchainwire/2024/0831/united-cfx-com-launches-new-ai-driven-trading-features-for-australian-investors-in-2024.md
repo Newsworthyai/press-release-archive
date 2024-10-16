@@ -30,9 +30,17 @@ United-CFX.com is a leading online trading platform that empowers users worldwi
 
 For more details, visit United-CFX.com or contact our customer support team for assistance. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/united-cfxcom-launches-new-ai-driven-trading-features-for-australian-investors-in-2024)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f74hcx/unitedcfxcom_launches_gamechanging_ai_features/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f74hcx/unitedcfxcom_launches_gamechanging_ai_features/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/2/cornyym0.webp)

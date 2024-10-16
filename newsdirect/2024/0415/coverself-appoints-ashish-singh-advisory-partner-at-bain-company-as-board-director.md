@@ -40,9 +40,17 @@ Company Websitehttps://www.coverself.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/coverself-appoints-ashish-singh-advisory-partner-at-bain-and-company-as-board-director-849622080 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/coverself-appoints-ashish-singh-advisory-partner-at-bain-and-company-as-board-director-849622080)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c4rp0i/coverself_appoints_ashish_singh_from_bain_company/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c4rp0i/coverself_appoints_ashish_singh_from_bain_company/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/15/leanOl0j.webp)

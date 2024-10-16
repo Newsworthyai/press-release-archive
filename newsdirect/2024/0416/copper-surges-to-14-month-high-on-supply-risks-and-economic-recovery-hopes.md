@@ -80,9 +80,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/copper-surges-to-14-month-high-on-supply-risks-and-economic-recovery-hopes-578185945 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/copper-surges-to-14-month-high-on-supply-risks-and-economic-recovery-hopes-578185945)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c5f79x/copper_prices_surge_to_14month_high_as_abitibi/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c5f79x/copper_prices_surge_to_14month_high_as_abitibi/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/frog6Ve0.webp)

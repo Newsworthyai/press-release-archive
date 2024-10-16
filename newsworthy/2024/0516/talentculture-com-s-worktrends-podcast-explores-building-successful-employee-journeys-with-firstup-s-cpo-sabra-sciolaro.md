@@ -29,9 +29,17 @@ Since 2010, TalentCulture has been connecting and engaging professionals to shap
 
 TalentCulture is regarded as a renowned authority in HR and HR Technology promotions, marketing, and influence dedicated to providing cutting-edge insights, resources, and solutions that empower HR and HR Tech Marketing professionals worldwide. Through a blend of expertise, technology, influence and thought leadership, TalentCulture aims to revolutionize the HR industry and HR Technology space to drive positive change. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202405161170/talentculture-com-s-worktrends-podcast-explores-building-successful-employee-journeys-with-firstup-s-cpo-sabra-sciolaro)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1ctcnhr/firstups_cpo_sabra_sciolaro_talks_employee/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1ctcnhr/firstups_cpo_sabra_sciolaro_talks_employee/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/245/16/wolfBmn6.webp)

@@ -26,9 +26,17 @@ Company Websitehttps://novidea.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/novidea-appoints-jeff-heine-as-chief-revenue-officer-386593965 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/novidea-appoints-jeff-heine-as-chief-revenue-officer-386593965)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bur3al/novidea_appoints_jeff_heine_as_chief_revenue/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bur3al/novidea_appoints_jeff_heine_as_chief_revenue/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/3/blurrRe0.webp)

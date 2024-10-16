@@ -44,9 +44,17 @@ Anna Benson
 
 anna@picklejar.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/picklejar-announces-integration-with-optculture-to-deliver-holistic-fan-experiences-at-venue-point-of-sale-7076057)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fjpv6m/picklejar_adds_omnichannel_retail_marketing_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fjpv6m/picklejar_adds_omnichannel_retail_marketing_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/18/vastc9bP.webp)

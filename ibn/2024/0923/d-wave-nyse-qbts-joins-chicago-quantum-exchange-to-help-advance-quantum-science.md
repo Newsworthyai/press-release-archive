@@ -24,9 +24,17 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-joins-chicago-quantum-exchange-to-help-advance-quantum-science/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fnkx92/dwave_quantum_joins_chicago_quantum_exchange_to/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fnkx92/dwave_quantum_joins_chicago_quantum_exchange_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/249/23/dualqIF2.webp)

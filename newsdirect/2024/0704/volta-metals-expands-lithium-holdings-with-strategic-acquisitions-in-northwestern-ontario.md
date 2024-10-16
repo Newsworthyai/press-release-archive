@@ -14,9 +14,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/volta-metals-expands-lithium-holdings-with-strategic-acquisitions-in-northwestern-ontario-589974504 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/volta-metals-expands-lithium-holdings-with-strategic-acquisitions-in-northwestern-ontario-589974504)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dv9bka/volta_metals_expands_lithium_holdings_in/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dv9bka/volta_metals_expands_lithium_holdings_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/4/harpOVhV.webp)

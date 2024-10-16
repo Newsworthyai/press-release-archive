@@ -60,9 +60,17 @@ Eventbrite https://www.eventbrite.com/e/822170382747?aff=oddtdtcreator
 
 Official Website https://www.web3techweek.hk/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcoming-hong-kong-web-30-spring-summit-exclusive-reveal-of-guest-speakers-conference-agenda-and-partnerships)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bem6oo/hong_kong_web30_spring_summit_industry_leaders/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bem6oo/hong_kong_web30_spring_summit_industry_leaders/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/14/barnWYK4.webp)

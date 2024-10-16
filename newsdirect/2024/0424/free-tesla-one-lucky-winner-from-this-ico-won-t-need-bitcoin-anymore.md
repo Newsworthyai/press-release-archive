@@ -42,9 +42,17 @@ Company Websitehttps://octoblock.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/free-tesla-one-lucky-winner-from-this-ico-wont-need-bitcoin-anymore-892751451 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/free-tesla-one-lucky-winner-from-this-ico-wont-need-bitcoin-anymore-892751451)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cbxklu/exciting_ico_offers_chance_to_win_a_tesla_model_3/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cbxklu/exciting_ico_offers_chance_to_win_a_tesla_model_3/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/24/odor3tZ8.webp)

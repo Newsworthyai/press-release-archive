@@ -18,9 +18,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/light-science-technologies-secures-first-distribution-agreement-with-south-africas-agrilogiq-259900043 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/light-science-technologies-secures-first-distribution-agreement-with-south-africas-agrilogiq-259900043)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cr1bit/light_science_technologies_secures_first/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cr1bit/light_science_technologies_secures_first/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/beanXc5E.webp)

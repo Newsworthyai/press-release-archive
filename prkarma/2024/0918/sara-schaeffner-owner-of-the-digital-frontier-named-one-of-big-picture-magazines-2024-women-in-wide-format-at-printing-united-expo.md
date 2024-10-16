@@ -37,9 +37,17 @@ Visit Our Blog
 * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1565)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1fjy2xb/the_digital_frontier_owner_sara_schaeffner_wins/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1fjy2xb/the_digital_frontier_owner_sara_schaeffner_wins/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/249/18/lilyLqST.webp)

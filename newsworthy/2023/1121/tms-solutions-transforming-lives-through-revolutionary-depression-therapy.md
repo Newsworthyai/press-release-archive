@@ -14,9 +14,17 @@ Motivated by a desire to provide an affordable and proven effective treatment op
 
 Patient testimonials offer a glimpse into the profound impact of TMS therapy. Individuals have expressed their gratitude for the life-altering benefits they have experienced after undergoing TMS treatment. TMS Solutions aims to continue spreading awareness and transforming lives, one magnetic pulse at a time. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231121886/tms-solutions-transforming-lives-through-revolutionary-depression-therapy)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcruc/tms_solutions_redefines_depression_treatment/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcruc/tms_solutions_redefines_depression_treatment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/take7T5G.webp)

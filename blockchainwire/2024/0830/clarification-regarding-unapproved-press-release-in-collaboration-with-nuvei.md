@@ -8,9 +8,17 @@ We understand the importance of maintaining a positive business reputation and a
 
 We apologize once again and thank Nuvei for their understanding and ongoing partnership. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/clarification-regarding-unapproved-press-release-in-collaboration-with-nuvei)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1f4wllo/fintech360_issues_press_release_without_final/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1f4wllo/fintech360_issues_press_release_without_final/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/30/zerojAKi.webp)

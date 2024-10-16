@@ -58,9 +58,17 @@ Company Websitehttps://meta-force.space/
 
 View source version on newsdirect.com: https://newsdirect.com/news/lado-okhotnikov-ceo-of-meta-force-gave-an-interview-to-forbes-france-regarding-new-business-areas-541509756 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/lado-okhotnikov-ceo-of-meta-force-gave-an-interview-to-forbes-france-regarding-new-business-areas-541509756)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AlternativeHealthNews/comments/1f3h3xx/meta_force_diversifies_into_biology_and_medicine/
+
+
+[Reddit Post](https://www.reddit.com/r/AlternativeHealthNews/comments/1f3h3xx/meta_force_diversifies_into_biology_and_medicine/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/28/swimvO4b.webp)

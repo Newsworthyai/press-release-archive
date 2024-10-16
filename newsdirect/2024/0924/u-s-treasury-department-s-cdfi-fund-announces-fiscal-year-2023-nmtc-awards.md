@@ -30,8 +30,15 @@ Company Websitehttps://nmtccoalition.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/u-s-treasury-departments-cdfi-fund-announces-fiscal-year-2023-nmtc-awards-923161287 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/u-s-treasury-departments-cdfi-fund-announces-fiscal-year-2023-nmtc-awards-923161287)
                     
 
 [Newsramp.com TLDR](None) 
 
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/24/quitzKXQ.webp)

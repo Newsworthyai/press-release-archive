@@ -22,9 +22,17 @@ NOTO Protocol is Freename's technology that represents the top-layer infrastruct
 
 press@noto.network 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/freename-launches-noto-the-protocol-that-makes-web3-internet-accessible-and-interoperable-to-all-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1b6rrqh/freename_ag_launches_noto_protocol_to_transform/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1b6rrqh/freename_ag_launches_noto_protocol_to_transform/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/26/zealobUs.webp)

@@ -60,9 +60,17 @@ OTC Markets Group
 
 johnv@otcmarkets.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/defi-technologies-to-present-at-the-blockchain--digital-asset-virtual-investor-conference-april-25th-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ca9xph/defi_technologies_to_present_at_blockchain/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ca9xph/defi_technologies_to_present_at_blockchain/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/22/noravM0v.webp)

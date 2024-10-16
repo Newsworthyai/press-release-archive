@@ -30,9 +30,17 @@ Website
 * www.egtoken.io
 * www.egswap.exchange 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202403121115/eg-token-redefines-the-future-of-crypto-with-a-new-defi-ecosystem-and-3-7-million-donation-to-global-causes)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bddx0t/eg_token_launches_innovative_defi_ecosystem_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bddx0t/eg_token_launches_innovative_defi_ecosystem_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/243/13/heallTNn.webp)

@@ -24,9 +24,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/accelerating-new-molecule-discovery-rakovina-therapeutics-ai-integration-452410836 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/accelerating-new-molecule-discovery-rakovina-therapeutics-ai-integration-452410836)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bu3qkj/rakovina_therapeutics_partners_with_dr_artem/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bu3qkj/rakovina_therapeutics_partners_with_dr_artem/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/2/fastmR5G.webp)

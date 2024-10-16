@@ -22,9 +22,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/norsk-titanium-secures-direct-supply-agreement-with-boeing-achieves-strong-growth-milestones-128003144 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/norsk-titanium-secures-direct-supply-agreement-with-boeing-achieves-strong-growth-milestones-128003144)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cmjakl/norsk_titanium_secures_direct_supply_agreement/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cmjakl/norsk_titanium_secures_direct_supply_agreement/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/keep1MbI.webp)

@@ -54,9 +54,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/monogram-orthopedics-nasdaq-mgrm-lands-key-clinical-trial-partnership-with-indias-leading-orthopedic-hospital-group-to-advance-its-surgical-robot-tech-131470443 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/monogram-orthopedics-nasdaq-mgrm-lands-key-clinical-trial-partnership-with-indias-leading-orthopedic-hospital-group-to-advance-its-surgical-robot-tech-131470443)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1f3gzq5/monogram_technologies_and_shalby_limited_partner/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1f3gzq5/monogram_technologies_and_shalby_limited_partner/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/28/xenotziI.webp)

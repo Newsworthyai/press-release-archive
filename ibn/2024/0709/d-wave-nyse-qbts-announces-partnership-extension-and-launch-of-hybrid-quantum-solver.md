@@ -24,9 +24,17 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-announces-partnership-extension-and-launch-of-hybrid-quantum-solver/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2qwb6/dwave_quantum_extends_partnership_with_aramco/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2qwb6/dwave_quantum_extends_partnership_with_aramco/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/fastaUSb.webp)

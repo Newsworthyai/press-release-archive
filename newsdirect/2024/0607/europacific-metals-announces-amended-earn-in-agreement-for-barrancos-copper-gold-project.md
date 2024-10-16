@@ -14,9 +14,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/europacific-metals-announces-amended-earn-in-agreement-for-barrancos-copper-gold-project-875012860 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/europacific-metals-announces-amended-earn-in-agreement-for-barrancos-copper-gold-project-875012860)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1daeu4m/europacific_metals_amends_partnership_agreement/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1daeu4m/europacific_metals_amends_partnership_agreement/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/7/milkkH3g.webp)

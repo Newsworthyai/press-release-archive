@@ -37,9 +37,17 @@ Company Websitehttp://iicspa.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/iicspa-welcomes-fourteen-new-fellows-for-2024-247865508 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/iicspa-welcomes-fourteen-new-fellows-for-2024-247865508)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1fssgvu/international_institute_of_computer_science/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1fssgvu/international_institute_of_computer_science/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/30/rubyvyxs.webp)

@@ -28,9 +28,17 @@ sauce@americanapr.com
 
 www.americanapr.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/sauce-essentials-transitions-to-1-25g-all-in-one-vapes-in-california-bringing-consumers-more-value-for-the-same-price-7076022)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1fco9i4/sauce_essentials_upgrades_aio_vape_products_in/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1fco9i4/sauce_essentials_upgrades_aio_vape_products_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/9/ideazDBD.webp)

@@ -16,9 +16,17 @@ SHIB is a world-leading ecosystem of decentralized finance (DeFi) cryptocurrenci
 
 To learn more about SHIB, please visit the official website: https://www.shib.io. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/-welly-updates-nft-collection-with-elevated-individual-design)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1cw9kee/shib_announces_refresh_of_welly_friends_nft/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1cw9kee/shib_announces_refresh_of_welly_friends_nft/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/20/glowFlOh.webp)

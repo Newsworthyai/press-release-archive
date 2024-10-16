@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/emyria-opens-empax-centre-to-target-care-gaps-in-resistant-ptsd-164998635 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/emyria-opens-empax-centre-to-target-care-gaps-in-resistant-ptsd-164998635)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1c0sd75/emyria_opens_empax_centre_to_target_care_gaps_in/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1c0sd75/emyria_opens_empax_centre_to_target_care_gaps_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/10/lambcdov.webp)

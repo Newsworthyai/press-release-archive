@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/altiplano-metals-ceo-discusses-expansion-plans-amid-strong-copper-and-gold-markets-365432950 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/altiplano-metals-ceo-discusses-expansion-plans-amid-strong-copper-and-gold-markets-365432950)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1d3m3oh/altiplano_metals_ceo_discusses_expansion_plans/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1d3m3oh/altiplano_metals_ceo_discusses_expansion_plans/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/29/marky_yG.webp)

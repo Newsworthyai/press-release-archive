@@ -49,9 +49,17 @@
 
  heart.org and stroke.org 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/nearly-10m-investment-will-expand-and-enhance-stroke-care-in-minnesota-south-dakota-7076179)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1g0hs95/american_heart_association_and_helmsley/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1g0hs95/american_heart_association_and_helmsley/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/10/mintNb8T.webp)

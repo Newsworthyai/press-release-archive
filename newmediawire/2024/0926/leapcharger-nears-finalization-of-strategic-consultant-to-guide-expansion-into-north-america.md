@@ -42,9 +42,17 @@ CARSON CITY, NV - (NewMediaWire) - September 26, 2024 - LeapCharger Corporation
 
  praveen@leapcharger.com 
 
+---
+
 [Original/Source Press Release](http://www.newmediawire.com/news/leapcharger-nears-finalization-of-strategic-consultant-to-guide-expansion-into-north-america-7076093)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1frcbaz/leapcharger_corporation_expanding_into_north/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1frcbaz/leapcharger_corporation_expanding_into_north/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/28/openOolD.webp)

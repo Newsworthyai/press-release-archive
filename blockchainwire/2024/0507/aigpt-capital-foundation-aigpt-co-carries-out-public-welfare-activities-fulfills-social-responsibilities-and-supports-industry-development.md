@@ -40,9 +40,17 @@ Email: support@aigpt.co
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/aigpt-capital-foundation-aigptco-carries-out-public-welfare-activities-fulfills-social-responsibilities-and-supports-industry-development)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cmebs1/aigpt_announces_public_welfare_activities_to/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cmebs1/aigpt_announces_public_welfare_activities_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/7/glue0cln.webp)

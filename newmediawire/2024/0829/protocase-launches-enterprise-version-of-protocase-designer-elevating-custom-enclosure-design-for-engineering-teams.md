@@ -38,9 +38,17 @@ SYDNEY, Nova Scotia - (NewMediaWire) - August 29, 2024 -  Protocase, the leade
 
  Protocase@phillcomm.global 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/protocase-launches-enterprise-version-of-protocase-designer-elevating-custom-enclosure-design-for-engineering-teams-7075979)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f7lswh/protocase_launches_enhanced_protocase_designer/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f7lswh/protocase_launches_enhanced_protocase_designer/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/2/davedMPV.webp)

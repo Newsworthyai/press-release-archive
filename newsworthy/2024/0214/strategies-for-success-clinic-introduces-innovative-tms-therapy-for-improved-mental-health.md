@@ -10,9 +10,17 @@ Recent studies and patient testimonials support the remarkable results of TMS th
 
 Strategies for Success Clinic is dedicated to providing cutting-edge treatment options tailored to individuals' specific needs. Through the introduction of TMS therapy, the clinic aims to offer renewed hope and relief to patients who have been grappling with mental health conditions. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20240214966/transcranial-magnetic-stimulation-tms-therapy-an-effective-and-non-invasive-treatment-option-for-mental-health-conditions)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcar7/revolutionary_tms_therapy_announced_by_strategies/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcar7/revolutionary_tms_therapy_announced_by_strategies/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/16/glowCHXJ.webp)

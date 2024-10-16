@@ -24,9 +24,17 @@ alessandra@fullscopepr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/introducing-brick-media-a-new-force-in-media-management-and-innovation-402676689 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/introducing-brick-media-a-new-force-in-media-management-and-innovation-402676689)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1f9rhrb/brick_media_redefines_media_landscape_with/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1f9rhrb/brick_media_redefines_media_landscape_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/5/ninoOWog.webp)

@@ -18,9 +18,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/benevolentai-and-astrazeneca-collaborate-on-new-lupus-target-365737729 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benevolentai-and-astrazeneca-collaborate-on-new-lupus-target-365737729)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1dox514/benevolentai_and_astrazeneca_collaborate_on_new/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1dox514/benevolentai_and_astrazeneca_collaborate_on_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/26/ableLMwM.webp)

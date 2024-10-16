@@ -58,9 +58,17 @@ Company Websitehttps://nmtccoalition.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/impact-of-new-markets-tax-credit-program-highlighted-during-senate-finance-committee-hearing-266012299 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/impact-of-new-markets-tax-credit-program-highlighted-during-senate-finance-committee-hearing-266012299)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1eg4ql2/senate_committee_highlights_impact_of_new_markets/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1eg4ql2/senate_committee_highlights_impact_of_new_markets/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/30/wolfQFGS.webp)

@@ -30,9 +30,17 @@ Company Websitehttps://www.futuremarketsresearch.com/global-markets-news
 
 View source version on newsdirect.com: https://newsdirect.com/news/morning-brief-actelis-networks-asns-achieves-positive-ebitda-and-major-revenue-growth-q2-2024-803530985 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/morning-brief-actelis-networks-asns-achieves-positive-ebitda-and-major-revenue-growth-q2-2024-803530985)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1espxi2/actelis_networks_achieves_positive_ebitda_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1espxi2/actelis_networks_achieves_positive_ebitda_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/15/take4isQ.webp)

@@ -20,9 +20,17 @@ About Energia Foundation Inc.
 
 Energia Foundation is focused on solving the "coordination challenge", the ability of humans to coordinate to solve the world's largest existential threats. Through a combination of scientific research, finance, and government consultancy, the organization has built an ecosystem capable of studying important questions concerning human flourishing and group coordination, implementing those findings in both private and public sectors. Visit https://www.energiafoundation.org/ for more information. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202403061110/the-uae-is-exploring-the-rollout-of-psychedelic-assisted-therapies)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1b9vnw4/energia_foundation_and_tabula_rasa_ventures/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1b9vnw4/energia_foundation_and_tabula_rasa_ventures/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/243/6/mielTxlt.webp)

@@ -48,9 +48,17 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-announces-strategic-investment-in-figment-capital-to-enhance-global-innovation-support-369678442 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-ventures-announces-strategic-investment-in-figment-capital-to-enhance-global-innovation-support-369678442)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1d46bpw/htx_ventures_announces_strategic_investment_in/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1d46bpw/htx_ventures_announces_strategic_investment_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/30/loftiYkp.webp)

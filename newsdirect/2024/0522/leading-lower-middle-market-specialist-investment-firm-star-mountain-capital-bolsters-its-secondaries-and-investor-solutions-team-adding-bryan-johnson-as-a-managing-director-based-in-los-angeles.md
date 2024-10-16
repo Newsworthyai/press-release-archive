@@ -52,9 +52,17 @@ Company Websitehttps://starmountaincapital.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/leading-lower-middle-market-specialist-investment-firm-star-mountain-capital-bolsters-its-secondaries-and-investor-solutions-team-adding-bryan-johnson-as-a-managing-director-based-in-los-angeles-588923069 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/leading-lower-middle-market-specialist-investment-firm-star-mountain-capital-bolsters-its-secondaries-and-investor-solutions-team-adding-bryan-johnson-as-a-managing-director-based-in-los-angeles-588923069)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cy8ja2/star_mountain_capital_adds_bryan_johnson_as/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cy8ja2/star_mountain_capital_adds_bryan_johnson_as/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/silkXhZt.webp)

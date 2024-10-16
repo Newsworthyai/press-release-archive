@@ -30,9 +30,17 @@ Company Websitehttps://www.goodwaygroup.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/goodway-group-earns-fourth-nod-on-adexchangers-programmatic-power-player-list-483701182 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/goodway-group-earns-fourth-nod-on-adexchangers-programmatic-power-player-list-483701182)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/MarketingNewsramp/comments/1cjb1q5/goodway_group_recognized_as_adexchangers_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1cjb1q5/goodway_group_recognized_as_adexchangers_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/3/pavedSq1.webp)

@@ -36,9 +36,17 @@ eclypses@racepointglobal.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/eclypses-ushers-in-new-era-of-cybersecurity-assurance-with-fips-140-3-validation-of-its-cryptographic-library-525410658 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/eclypses-ushers-in-new-era-of-cybersecurity-assurance-with-fips-140-3-validation-of-its-cryptographic-library-525410658)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1ccrrtl/eclypses_achieves_fips_1403_validation_for/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1ccrrtl/eclypses_achieves_fips_1403_validation_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/25/hinte_cw.webp)

@@ -28,9 +28,17 @@ For more information about Spectrum and Kroma, visit the official website alongs
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/-kroma-announces-spectrums-launch-alongside-expansion-plans)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1crq3vn/kroma_unveils_spectrum_advanced_staking_service/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1crq3vn/kroma_unveils_spectrum_advanced_staking_service/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/14/kiwir8bt.webp)

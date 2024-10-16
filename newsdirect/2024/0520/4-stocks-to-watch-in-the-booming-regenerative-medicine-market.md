@@ -72,9 +72,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/4-stocks-to-watch-in-the-booming-regenerative-medicine-market-529269620 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/4-stocks-to-watch-in-the-booming-regenerative-medicine-market-529269620)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cwc2me/revolutionizing_healthcare_key_players_in_booming/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cwc2me/revolutionizing_healthcare_key_players_in_booming/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/20/ovalDhEx.webp)

@@ -40,9 +40,17 @@ Company Websitehttps://www.pawfury.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/crypto-whale-invests-11-695-in-pawfury-paw-presale-685714608 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/crypto-whale-invests-11-695-in-pawfury-paw-presale-685714608)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1chsxme/cryptocurrency_whale_makes_substantial_investment/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1chsxme/cryptocurrency_whale_makes_substantial_investment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/silkeQmf.webp)

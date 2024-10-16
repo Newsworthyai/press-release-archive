@@ -38,9 +38,17 @@ Company Websitehttps://numberstory.org/together/
 
 View source version on newsdirect.com: https://newsdirect.com/news/together-in-healing-supporting-resilience-and-uplifting-community-534071535 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/together-in-healing-supporting-resilience-and-uplifting-community-534071535)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1bv6pb2/ace_resource_network_launches_together_in_healing/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1bv6pb2/ace_resource_network_launches_together_in_healing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/3/filo9Ys9.webp)

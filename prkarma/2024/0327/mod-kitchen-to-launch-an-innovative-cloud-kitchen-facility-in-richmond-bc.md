@@ -32,9 +32,17 @@ Visit Our Website
 * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/modkitchen/news_release/1433)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1btd8tq/mod_kitchen_to_launch_10_stateoftheart_cloud/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1btd8tq/mod_kitchen_to_launch_10_stateoftheart_cloud/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/244/1/joltQrHd.webp)

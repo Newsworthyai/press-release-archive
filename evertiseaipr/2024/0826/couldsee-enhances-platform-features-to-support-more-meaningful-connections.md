@@ -43,9 +43,17 @@ CouldSee, a prominent social networking platform, has announced significant enha
 
  This article has been amplified by NewsRamp in collaboration with Evertise Studios. 
 
+---
+
 [Original/Source Press Release](https://evertise.net/couldsee-enhances-platform-features-to-support-more-meaningful-connections/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f7ev7d/couldsee_announces_enhancements_to_deepen_user/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f7ev7d/couldsee_announces_enhancements_to_deepen_user/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/249/2/pondaJqT.webp)

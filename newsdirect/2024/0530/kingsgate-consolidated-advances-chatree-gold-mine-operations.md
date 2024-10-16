@@ -12,9 +12,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kingsgate-consolidated-advances-chatree-gold-mine-operations-991673559 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kingsgate-consolidated-advances-chatree-gold-mine-operations-991673559)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d47hdx/kingsgate_consolidated_advances_chatree_gold_mine/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d47hdx/kingsgate_consolidated_advances_chatree_gold_mine/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/30/glowElNG.webp)

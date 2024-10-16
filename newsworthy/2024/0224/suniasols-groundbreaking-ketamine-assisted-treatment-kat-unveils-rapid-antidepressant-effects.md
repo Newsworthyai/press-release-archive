@@ -10,9 +10,17 @@ While KAT holds tremendous promise, it is important to recognize that it is stil
 
 Individuals considering KAT should consult with healthcare professionals to assess suitability for treatment. It's critical to have a comprehensive evaluation to determine whether KAT is the most appropriate course of action. Healthcare professionals can also provide valuable guidance and answer any questions to alleviate any concerns patients may have. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402241089/suniasols-groundbreaking-ketamine-assisted-treatment-kat-unveils-rapid-antidepressant-effects)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1az59zj/groundbreaking_therapy_ketamine_assisted/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1az59zj/groundbreaking_therapy_ketamine_assisted/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/24/warpgV2y.webp)

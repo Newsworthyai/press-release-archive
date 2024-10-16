@@ -26,9 +26,17 @@ Company Websitehttps://advicepay.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/advicepay-earns-third-consecutive-spot-on-inc-magazines-list-of-5000-fastest-growing-private-companies-106170115 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/advicepay-earns-third-consecutive-spot-on-inc-magazines-list-of-5000-fastest-growing-private-companies-106170115)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1eyj9fq/advicepay_earns_third_consecutive_spot_on_inc/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1eyj9fq/advicepay_earns_third_consecutive_spot_on_inc/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/22/cake5HTB.webp)

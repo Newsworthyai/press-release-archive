@@ -42,9 +42,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-growing-market-demand-for-waste-energy-solutions-and-how-sky-quarry-has-prepared-itself-to-meet-it-477430228 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-growing-market-demand-for-waste-energy-solutions-and-how-sky-quarry-has-prepared-itself-to-meet-it-477430228)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c4uvv2/sky_quarry_inc_leading_in_wastetoenergy_solutions/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c4uvv2/sky_quarry_inc_leading_in_wastetoenergy_solutions/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/15/ovalX6TM.webp)

@@ -28,9 +28,17 @@ Company Websitehttps://midwest.comcast.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/comcast-opens-new-xfinity-store-in-crystal-minn-618655957 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/comcast-opens-new-xfinity-store-in-crystal-minn-618655957)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1g19gob/comcast_opens_new_xfinity_store_in_crystal_minn/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1g19gob/comcast_opens_new_xfinity_store_in_crystal_minn/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/11/neonP1GJ.webp)

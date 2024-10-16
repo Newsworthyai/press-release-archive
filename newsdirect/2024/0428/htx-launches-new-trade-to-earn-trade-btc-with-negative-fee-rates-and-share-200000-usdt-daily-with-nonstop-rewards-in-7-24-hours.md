@@ -34,9 +34,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-launches-new-trade-to-earn-trade-btc-with-negative-fee-rates-and-share-200-000-usdt-daily-with-nonstop-rewards-in-7-24-hours-891177631 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-launches-new-trade-to-earn-trade-btc-with-negative-fee-rates-and-share-200-000-usdt-daily-with-nonstop-rewards-in-7-24-hours-891177631)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cf7q2m/htx_launches_new_trade_to_earn_trade_btc_with/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cf7q2m/htx_launches_new_trade_to_earn_trade_btc_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/28/wall9UtH.webp)

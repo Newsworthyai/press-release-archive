@@ -58,9 +58,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/you-may-be-spending-more-on-property-taxes-than-you-need-to-save-on-taxes-with-ownwell-and-only-pay-out-of-what-you-save-697570541 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/you-may-be-spending-more-on-property-taxes-than-you-need-to-save-on-taxes-with-ownwell-and-only-pay-out-of-what-you-save-697570541)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1dz1tdj/property_taxes_balloon_after_pandemic_home_price/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1dz1tdj/property_taxes_balloon_after_pandemic_home_price/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/9/harp9A01.webp)

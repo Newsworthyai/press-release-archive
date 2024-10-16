@@ -34,9 +34,17 @@ Company Websitehttps://prometheumprodigy.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/prometheum-prodigys-prodigy-flip-to-offer-security-with-decentralized-multi-chain-exchange-411381465 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/prometheum-prodigys-prodigy-flip-to-offer-security-with-decentralized-multi-chain-exchange-411381465)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bz5a2c/prodigy_flip_ai_mobile_crypto_trading_app/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bz5a2c/prodigy_flip_ai_mobile_crypto_trading_app/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/8/loftQkkA.webp)

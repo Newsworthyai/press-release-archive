@@ -24,9 +24,17 @@ SAN ANTONIO, TX - (NewMediaWire) - September 5, 2024 - Wytec International, Inc
 
  eperez@wytecintl.com 888-284-4531 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/wytec-international-inc-announces-private-offering-in-preparation-for-completing-its-patented-gunshot-sensor-detection-technology-while-uplisting-to-the-nasdaq-capital-market-under-ticker-wytc-7076010)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1f9z8op/wytec_international_inc_announces_10m_note/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1f9z8op/wytec_international_inc_announces_10m_note/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/5/quipuGl2.webp)

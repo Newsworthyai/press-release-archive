@@ -18,9 +18,17 @@ The BTC EVM is the primary vision of BEVM, building a decentralized BTC Layer2 c
 
 To find out more about BEVM visit www.bevm.io or contact business@bevm.io 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bevm-bitcoin-layer2-closes-seed-round-with-rocktree-capital-sathoshi-lab--20-others)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bp2tll/bevm_completes_seed_and_series_a_rounds_valuation/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bp2tll/bevm_completes_seed_and_series_a_rounds_valuation/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/27/wallOysk.webp)

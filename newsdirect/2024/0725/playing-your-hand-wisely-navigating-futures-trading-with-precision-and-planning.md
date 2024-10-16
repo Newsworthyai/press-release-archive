@@ -54,9 +54,17 @@ max@edgeclear.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/playing-your-hand-wisely-navigating-futures-trading-with-precision-and-planning-828356290 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/playing-your-hand-wisely-navigating-futures-trading-with-precision-and-planning-828356290)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ebu2po/navigating_futures_trading_building_a_successful/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ebu2po/navigating_futures_trading_building_a_successful/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/25/kiteJy4w.webp)

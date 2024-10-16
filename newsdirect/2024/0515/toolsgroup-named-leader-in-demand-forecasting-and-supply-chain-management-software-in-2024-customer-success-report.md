@@ -46,9 +46,17 @@ Company Websitehttps://www.toolsgroup.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/toolsgroup-named-leader-in-demand-forecasting-and-supply-chain-management-software-in-2024-customer-success-report-813471487 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/toolsgroup-named-leader-in-demand-forecasting-and-supply-chain-management-software-in-2024-customer-success-report-813471487)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1csjx5l/toolsgroup_recognized_as_market_leader_in_spring/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1csjx5l/toolsgroup_recognized_as_market_leader_in_spring/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/yawnGGrw.webp)

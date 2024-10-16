@@ -30,9 +30,17 @@ Company Websitehttps://payomatix.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/payomatix-announces-major-global-expansion-and-new-product-launches-amidst-industry-recognition-709610132 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/payomatix-announces-major-global-expansion-and-new-product-launches-amidst-industry-recognition-709610132)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fi4gd8/payomatix_unveils_global_expansion_and_new/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fi4gd8/payomatix_unveils_global_expansion_and_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/16/icygpqm.webp)

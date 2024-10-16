@@ -50,9 +50,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/poster-presentations-upcoming-human-trials-recently-secured-funding-and-more-glucotracks-plans-to-transform-the-continuous-glucose-monitoring-market-334170130 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/poster-presentations-upcoming-human-trials-recently-secured-funding-and-more-glucotracks-plans-to-transform-the-continuous-glucose-monitoring-market-334170130)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1f1n73w/glucotracks_innovative_cbgm_device_set_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f1n73w/glucotracks_innovative_cbgm_device_set_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/26/blurwfuf.webp)

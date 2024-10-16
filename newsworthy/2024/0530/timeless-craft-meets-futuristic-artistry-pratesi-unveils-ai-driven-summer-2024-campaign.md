@@ -18,9 +18,17 @@ About Hajar Ali: Singapore-born artist Hajar Ali, currently based in Dubai, foun
 
 Pratesi x Reverse Orientalism Images: [View Here](https://sferra.app.box.com/s/2qrk20it4ngzrnbhbou86rnmkck6ue0k)Media Contact:Jaime Jimenezjjimenez@sferra.com877-772-8374 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202405301184/timeless-craft-meets-futuristic-artistry-pratesi-unveils-ai-driven-summer-2024-campaign)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d4cqmv/pratesi_collaborates_with_ai_visionary_hajar_ali/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d4cqmv/pratesi_collaborates_with_ai_visionary_hajar_ali/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/245/30/joinNlta.webp)

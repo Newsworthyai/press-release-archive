@@ -8,9 +8,17 @@ During a TMS session at Bright Horizons Psychiatry, individuals can comfortably 
 
 The standard TMS treatment plan at Bright Horizons Psychiatry typically involves five sessions per week for six weeks, followed by a tapering period with reduced frequency. The effects of the treatment generally last between 6 to 12 months or even longer. Should symptoms reappear, additional TMS treatments can be safely administered. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401241028/bright-horizons-psychiatry-introduces-transcranial-magnetic-stimulation-tms-for-improved-mental-health)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlfjy/bright_horizons_psychiatry_introduces_noninvasive/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlfjy/bright_horizons_psychiatry_introduces_noninvasive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/sageHlxl.webp)

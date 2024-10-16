@@ -86,9 +86,17 @@ Company Websitehttps://www.sigmaphoto.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/sigma-launches-interchangeable-lenses-for-canon-rf-mount-system-554594419 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sigma-launches-interchangeable-lenses-for-canon-rf-mount-system-554594419)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1cavegw/sigma_corporation_launches_interchangeable_lenses/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1cavegw/sigma_corporation_launches_interchangeable_lenses/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/23/ulnakSEW.webp)

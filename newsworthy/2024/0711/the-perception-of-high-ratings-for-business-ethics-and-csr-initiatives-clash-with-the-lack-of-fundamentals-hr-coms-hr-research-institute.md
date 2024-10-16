@@ -32,9 +32,17 @@ Become a part of HR.com’s HR Research Influencer panel today. Participate in s
 
 Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202407111209/the-perception-of-high-ratings-for-business-ethics-and-csr-initiatives-clash-with-the-lack-of-fundamentals-hr-coms-hr-research-institute)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e0uc8b/new_study_reveals_discrepancy_in_companies/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e0uc8b/new_study_reveals_discrepancy_in_companies/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/247/11/bosscYNE.webp)

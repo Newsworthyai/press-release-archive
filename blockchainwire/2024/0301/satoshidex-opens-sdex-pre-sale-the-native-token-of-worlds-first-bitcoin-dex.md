@@ -18,9 +18,17 @@ About:
 
 SatoshiDEX, operating on the Stacks Layer 2 chain, is a groundbreaking DeFi protocol revolutionizing the Bitcoin blockchain ecosystem. As a decentralized exchange, SatoshiDEX facilitates seamless asset swaps and liquidity provision, eliminating the need for wrapped assets and costly Ethereum fees.     With its platform at satoshidex.ai, users can directly trade tokens on Bitcoin, enhancing accessibility and reducing transaction costs. Leveraging the Stacks Layer 2 chain ensures swift transaction processing while maintaining the security and decentralization. SatoshiDEX leads a new era of decentralized finance, where innovation meets with utility on the Bitcoin blockchain. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/satoshidex-opens-sdex-pre-sale-the-native-token-of-worlds-first-bitcoin-dex)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1b6rnwg/satoshidexai_announces_2nd_round_of_sdex_presale/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1b6rnwg/satoshidexai_announces_2nd_round_of_sdex_presale/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/1/ninaoCxX.webp)

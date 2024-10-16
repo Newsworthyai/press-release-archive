@@ -20,9 +20,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-technologies-looks-to-expand-growth-teaming-with-major-defense-contractor-554064198 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-looks-to-expand-growth-teaming-with-major-defense-contractor-554064198)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c6i7i7/ocean_power_technologies_and_defense_contractor/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c6i7i7/ocean_power_technologies_and_defense_contractor/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/17/nukeiqEP.webp)

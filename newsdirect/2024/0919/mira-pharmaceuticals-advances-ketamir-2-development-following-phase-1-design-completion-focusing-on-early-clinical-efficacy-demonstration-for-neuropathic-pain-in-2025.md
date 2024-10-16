@@ -42,9 +42,17 @@ Company Websitehttp://www.mirapharmaceuticals.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/mira-pharmaceuticals-advances-ketamir-2-development-following-phase-1-design-completion-focusing-on-early-clinical-efficacy-demonstration-for-neuropathic-pain-in-2025-661808209 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/mira-pharmaceuticals-advances-ketamir-2-development-following-phase-1-design-completion-focusing-on-early-clinical-efficacy-demonstration-for-neuropathic-pain-in-2025-661808209)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fkkkta/mira_pharmaceuticals_advances_ketamir2/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fkkkta/mira_pharmaceuticals_advances_ketamir2/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/19/chipchAj.webp)

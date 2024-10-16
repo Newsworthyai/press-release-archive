@@ -16,9 +16,17 @@ About candidate.fyi:
 
 candidate.fyi is dedicated to enhancing the candidate experience by providing innovative solutions. Our platform offers unique tools, such as interview scheduling automation, helping companies automate some of the most mundane tasks in recruiting. With a focus on improving the hiring journey, candidate.fyi is at the forefront of HR tech innovation. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202406201196/candidate-fyi-welcomes-colin-day-founder-of-icims-as-new-advisor)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1dki8m6/hr_tech_pioneer_colin_day_joins_candidatefyi_as/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1dki8m6/hr_tech_pioneer_colin_day_joins_candidatefyi_as/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/246/20/rainqkb0.webp)

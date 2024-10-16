@@ -22,9 +22,17 @@ Future Outlook
 
 Howard, TON’s Dev Rel Asia Lead, highlighted the potential of TON & Telegram in DeFi and social integration. Capverse aims to leverage these platforms for broader user reach and deeper interaction, enriching the TON ecosystem with innovative gameplay and rewards, and promoting the growth of Web3 gaming. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/capverse-expands-into-the-ton-ecosystem-exploring-new-opportunities-in-web3-gaming)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1efsy4x/capverse_expands_to_ton_blockchain_with/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1efsy4x/capverse_expands_to_ton_blockchain_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/30/vibejsmc.webp)

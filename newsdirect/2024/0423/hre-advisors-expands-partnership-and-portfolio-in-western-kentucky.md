@@ -34,9 +34,17 @@ Company Websitehttps://hawkinsrea.net/
 
 View source version on newsdirect.com: https://newsdirect.com/news/hre-advisors-expands-partnership-and-portfolio-in-western-kentucky-751582430 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/hre-advisors-expands-partnership-and-portfolio-in-western-kentucky-751582430)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cb7ipf/hre_advisors_expands_partnership_and_portfolio_in/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cb7ipf/hre_advisors_expands_partnership_and_portfolio_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/23/lambXPUQ.webp)

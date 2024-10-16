@@ -64,9 +64,17 @@ Company Websitehttps://www.sectorspdrs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/capturing-consumer-spending-on-health-care-with-xlv-892419463 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/capturing-consumer-spending-on-health-care-with-xlv-892419463)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1ca64vt/health_care_select_sector_spdr_fund_xlv_offers/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1ca64vt/health_care_select_sector_spdr_fund_xlv_offers/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/22/bestY64R.webp)

@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/silver-north-resources-secures-option-agreement-for-gdr-project-in-southern-yukon-977100315 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/silver-north-resources-secures-option-agreement-for-gdr-project-in-southern-yukon-977100315)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1csqf2l/silver_north_resources_ceo_announces_completion/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1csqf2l/silver_north_resources_ceo_announces_completion/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/voltPnt4.webp)

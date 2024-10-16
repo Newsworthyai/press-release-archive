@@ -32,9 +32,17 @@ Previous press releases and news articles have consistently highlighted the disp
 
 As a trailblazer in the Washington cannabis industry, Monko continues to set high standards in product quality and customer service, making it a must-visit location for cannabis connoisseurs. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231122894/monko-weed-dispensary-blending-cannabis-culture-and-convenience-in-dc)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1avcrys/monko_weed_dispensary_redefines_cannabis_shopping/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1avcrys/monko_weed_dispensary_redefines_cannabis_shopping/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/yogaAatn.webp)

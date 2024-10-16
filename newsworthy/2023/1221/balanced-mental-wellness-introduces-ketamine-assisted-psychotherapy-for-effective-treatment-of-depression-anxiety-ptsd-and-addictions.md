@@ -10,9 +10,17 @@ Sessions typically last for 2 hours and encompass the administration of Ketamine
 
 "At Balanced Mental Wellness, we firmly believe that each individual possesses their own internal healer," explains Dr. Smith. "Our role as psychedelic guides is to provide the necessary space for that inner healer to surface. By incorporating indigenous practices with psychedelic medicines, we aim to help individuals reconnect and come home to themselves, enabling the healing of wounds and fostering a lasting connection to their true selves." 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231221926/balanced-mental-wellness-introduces-ketamine-assisted-psychotherapy-for-effective-treatment-of-depression-anxiety-ptsd-and-addictions)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1avcvh8/kap_offers_revolutionary_therapy_approach_with/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1avcvh8/kap_offers_revolutionary_therapy_approach_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/jadebrE_.webp)

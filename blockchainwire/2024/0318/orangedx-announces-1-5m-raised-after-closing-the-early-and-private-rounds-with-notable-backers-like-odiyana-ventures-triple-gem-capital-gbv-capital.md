@@ -46,9 +46,17 @@ Telegram Official Chat: https://t.me/OrangeDx_Official_Chat
 
 Telegram Official Announcement: https://t.me/Orangedx_Official 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/orangedx-announces-15m-raised-after-closing-the-early-and-private-rounds-with-notable-backers-like-odiyana-ventures-triple-gem-capital-gbv-capital-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bht2mn/orangedx_secures_15m_funding_for_groundbreaking/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bht2mn/orangedx_secures_15m_funding_for_groundbreaking/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/18/joke5YPk.webp)

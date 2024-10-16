@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/anson-resources-taps-into-high-grade-lithium-brine-at-green-river-854447139 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/anson-resources-taps-into-high-grade-lithium-brine-at-green-river-854447139)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1chug6j/anson_resources_taps_into_highgrade_lithium_brine/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1chug6j/anson_resources_taps_into_highgrade_lithium_brine/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/ellaw0zX.webp)

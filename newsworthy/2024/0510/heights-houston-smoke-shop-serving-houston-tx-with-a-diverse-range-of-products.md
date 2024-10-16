@@ -18,9 +18,17 @@ For additional information or inquiries, contact the shop at +1-713-497-5756.
 
 Heights Houston Smoke Shop invites all to discover the unique and quality-driven selection available in the heart of Houston, TX. As regulations continue to shape the landscape, the shop remains a trusted provider, committed to excellence and customer satisfaction. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202405101166/heights-houston-smoke-shop-serving-houston-tx-with-a-diverse-range-of-products)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1cp36i0/heights_houston_smoke_shop_navigating_houstons/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1cp36i0/heights_houston_smoke_shop_navigating_houstons/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/245/10/mielQdWr.webp)

@@ -20,9 +20,17 @@ The monthly burning event of WBS tokens not only showcases Websea's meticulous d
 
 This strategy effectively addresses the high volatility of the crypto market, demonstrating Websea's high professionalism in risk management and market positioning, proving its potential and foresight as a leader in the blockchain industry to the market. With the further implementation of future strategies, Websea is expected to continue playing a significant role in the global crypto economy, driving the entire industry towards greater maturity and sustainability. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/wbs-conducts-monthly-token-burning-exploring-the-ecosystem-layout-and-potential-of-websea)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1chkhtz/websea_exchange_completes_token_buyback_and_burn/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1chkhtz/websea_exchange_completes_token_buyback_and_burn/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/1/odorppZv.webp)

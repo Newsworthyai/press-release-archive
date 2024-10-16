@@ -48,9 +48,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/helping-redefine-medicine-ajna-biosciences-path-for-fda-approved-plant-medicines-677259803 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/helping-redefine-medicine-ajna-biosciences-path-for-fda-approved-plant-medicines-677259803)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AlternativeHealthNews/comments/1f9gt61/ajna_biosciences_working_to_bring_natural/
+
+
+[Reddit Post](https://www.reddit.com/r/AlternativeHealthNews/comments/1f9gt61/ajna_biosciences_working_to_bring_natural/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/5/kissLF1k.webp)

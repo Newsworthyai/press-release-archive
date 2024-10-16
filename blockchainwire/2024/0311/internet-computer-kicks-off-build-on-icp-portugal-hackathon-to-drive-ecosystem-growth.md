@@ -18,9 +18,17 @@ Internet Protocol (ICP)The Internet Computer Protocol (ICP) is a blockchain netw
 
 ICP Hub PortugalWaves3 Hub Portugal is one of the latest additions to ICP’s global developer community, led by Tim Haldorsson, Founder and CEO of Lunar Strategy. Their mission is to enable builders and developers to bring their ideas to life, using IC Protocol. From networking events and builder workshops to hackathons and other activations, Waves3 aims to create a community of like-minded and forward-thinking founders and builders, and support them in contributing to an open and autonomous internet. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/internet-computer-kicks-off-build-on-icp-portugal-hackathon-to-drive-ecosystem-growth)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bc8d1i/icp_launches_8220build_on_icp8221_hackathon_in/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bc8d1i/icp_launches_8220build_on_icp8221_hackathon_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/11/rendNiD3.webp)

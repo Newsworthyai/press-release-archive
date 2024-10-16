@@ -22,9 +22,17 @@ pr@axonfinance.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-3-trillion-market-disruption-is-here-axons-groundbreaking-decentralized-fiat-crypto-exchange-is-set-to-revolutionize-fintech-528170325 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-3-trillion-market-disruption-is-here-axons-groundbreaking-decentralized-fiat-crypto-exchange-is-set-to-revolutionize-fintech-528170325)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1feoq21/axon_launches_worlds_first_decentralised/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1feoq21/axon_launches_worlds_first_decentralised/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/11/clubZpl7.webp)

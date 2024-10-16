@@ -18,9 +18,17 @@ Consultant Magazine is conceived as a beacon for the global consulting community
 
 Empower your consultancy journey. Dive in at www.ConsultantMagazine.co. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231221795/consultant-magazine-launches-becoming-the-definitive-resource-for-consulting-professionals-worldwide)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1avx50y/consultant_magazine_the_new_hub_for_consulting/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1avx50y/consultant_magazine_the_new_hub_for_consulting/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/airyFbzF.webp)

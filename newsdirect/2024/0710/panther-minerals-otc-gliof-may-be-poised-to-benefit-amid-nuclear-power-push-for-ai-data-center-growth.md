@@ -48,9 +48,17 @@ Company Websitehttps://pantherminerals.ca/
 
 View source version on newsdirect.com: https://newsdirect.com/news/panther-minerals-otc-gliof-may-be-poised-to-benefit-amid-nuclear-power-push-for-ai-data-center-growth-535106357 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/panther-minerals-otc-gliof-may-be-poised-to-benefit-amid-nuclear-power-push-for-ai-data-center-growth-535106357)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dzurs9/ai_revolution_sparks_demand_for_nuclear_power_in/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dzurs9/ai_revolution_sparks_demand_for_nuclear_power_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/10/numbXcR1.webp)

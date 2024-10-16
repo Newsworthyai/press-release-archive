@@ -34,9 +34,17 @@ gregg.schwartz@americandream.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/american-dream-debuts-paw-patrol-hero-academy-228832891 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/american-dream-debuts-paw-patrol-hero-academy-228832891)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1fqr5z4/american_dream_debuts_paw_patrol_hero_academy/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1fqr5z4/american_dream_debuts_paw_patrol_hero_academy/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/27/zeroB4d1.webp)

@@ -24,9 +24,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tribe-property-technologies-sees-record-revenue-as-company-posts-4th-quarter-and-year-end-results-747023662 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tribe-property-technologies-sees-record-revenue-as-company-posts-4th-quarter-and-year-end-results-747023662)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cncbgd/tribe_property_technologies_ceo_announces_record/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cncbgd/tribe_property_technologies_ceo_announces_record/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/8/chefvZ6E.webp)

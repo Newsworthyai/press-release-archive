@@ -40,9 +40,17 @@ About Das Green HausDas Green Haus is a non-profit business incubator dedicated 
 
 About Toss It DumpstersToss It Dumpsters, LLC is a family-owned business based in Kerrville, Texas, providing reliable dumpster rental services for residential and commercial clients throughout the Hill Country region. With a fleet of over 175 dumpsters, they specialize in efficient waste management solutions for projects of all sizes​. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202410011298/locoal-partners-with-das-greenhaus-and-toss-it-dumpsters-to-establish-a-new-headquarters-in-the-texas-hill-country)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1fu1vxq/venture_fest_2024_showcases_innovation_in/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1fu1vxq/venture_fest_2024_showcases_innovation_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2410/1/quizfB5p.webp)

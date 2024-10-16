@@ -46,9 +46,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/deals-with-automotive-companies-top-national-security-organization-and-more-what-aeva-technologies-has-been-up-to-this-year-to-become-a-market-leader-645275338 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/deals-with-automotive-companies-top-national-security-organization-and-more-what-aeva-technologies-has-been-up-to-this-year-to-become-a-market-leader-645275338)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1er7218/aeva_technologies_inc_leading_the_charge_in/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1er7218/aeva_technologies_inc_leading_the_charge_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/13/pondV_De.webp)

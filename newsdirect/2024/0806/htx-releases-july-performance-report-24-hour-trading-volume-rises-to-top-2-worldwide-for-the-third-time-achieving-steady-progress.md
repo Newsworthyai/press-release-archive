@@ -34,9 +34,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-releases-july-performance-report-24-hour-trading-volume-rises-to-top-2-worldwide-for-the-third-time-achieving-steady-progress-496453172 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-releases-july-performance-report-24-hour-trading-volume-rises-to-top-2-worldwide-for-the-third-time-achieving-steady-progress-496453172)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1elpbmn/htx_releases_july_performance_report_24hour/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1elpbmn/htx_releases_july_performance_report_24hour/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/6/beanl9ja.webp)

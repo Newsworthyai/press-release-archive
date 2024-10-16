@@ -24,9 +24,17 @@ Become a part of HR.com’s HR Research Influencer panel today. Participate in s
 
 Contact: info@hr.com HR.com Newsroom 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202406241201/key-improvements-needed-for-employee-mental-well-being-programs-new-study-by-hr-coms-hr-research-institute)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1dnc1ie/new_research_reveals_promising_trends_in/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1dnc1ie/new_research_reveals_promising_trends_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/246/24/herbJDLs.webp)

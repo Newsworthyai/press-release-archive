@@ -58,9 +58,17 @@ Katrina.graue@paw-pro.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/paw-pro-gmbh-announces-1-5m-partnership-with-health-reasoning-to-launch-innovative-web3-platform-672235370 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/paw-pro-gmbh-announces-1-5m-partnership-with-health-reasoning-to-launch-innovative-web3-platform-672235370)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cw8ki8/paw_pro_gmbh_announces_15m_partnership_with/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cw8ki8/paw_pro_gmbh_announces_15m_partnership_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/20/daveMkOB.webp)

@@ -38,9 +38,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/snapchat-releases-new-teen-safety-measures-503097429 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/snapchat-releases-new-teen-safety-measures-503097429)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dsyk14/snapchat_expands_safety_features_for_teen_users/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dsyk14/snapchat_expands_safety_features_for_teen_users/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/1/tileoq3y.webp)

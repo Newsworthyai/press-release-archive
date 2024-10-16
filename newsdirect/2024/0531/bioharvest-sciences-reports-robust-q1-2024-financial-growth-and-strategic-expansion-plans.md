@@ -18,9 +18,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bioharvest-sciences-reports-robust-q1-2024-financial-growth-and-strategic-expansion-plans-690540132 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bioharvest-sciences-reports-robust-q1-2024-financial-growth-and-strategic-expansion-plans-690540132)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d4ugph/bioharvest_sciences_reports_robust_q1_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d4ugph/bioharvest_sciences_reports_robust_q1_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/31/lily3IFo.webp)

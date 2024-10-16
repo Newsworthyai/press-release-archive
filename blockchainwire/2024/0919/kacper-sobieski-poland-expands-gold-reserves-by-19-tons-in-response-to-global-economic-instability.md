@@ -28,9 +28,17 @@ ConclusionAs the global economy faces heightened uncertainty, Poland’s strateg
 
 For investors, Poland’s actions provide a timely reminder of the benefits of diversification and the role that gold can play in a well-balanced portfolio. Kacper Sobieski's analysis further highlights the ongoing importance of monitoring central bank strategies in the face of economic uncertainty. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/kacper-sobieski-poland-expands-gold-reserves-by-19-tons-in-response-to-global-economic-instability)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fkon5c/national_bank_of_poland_increases_gold_reserves/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fkon5c/national_bank_of_poland_increases_gold_reserves/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/19/glow2M78.webp)

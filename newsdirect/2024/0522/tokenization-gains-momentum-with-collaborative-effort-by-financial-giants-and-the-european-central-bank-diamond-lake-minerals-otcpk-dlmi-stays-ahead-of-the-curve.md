@@ -56,9 +56,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tokenization-gains-momentum-with-collaborative-effort-by-financial-giants-and-the-european-central-bank-diamond-lake-minerals-otcpk-dlmi-stays-ahead-of-the-curve-107445282 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tokenization-gains-momentum-with-collaborative-effort-by-financial-giants-and-the-european-central-bank-diamond-lake-minerals-otcpk-dlmi-stays-ahead-of-the-curve-107445282)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1cxzne4/tokenization_gains_momentum_as_diamond_lake/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1cxzne4/tokenization_gains_momentum_as_diamond_lake/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/milkE5VJ.webp)

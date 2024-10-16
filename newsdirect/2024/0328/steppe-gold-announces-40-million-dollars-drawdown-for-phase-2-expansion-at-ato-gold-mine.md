@@ -22,9 +22,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/steppe-gold-announces-40-million-dollars-drawdown-for-phase-2-expansion-at-ato-gold-mine-186457950 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/steppe-gold-announces-40-million-dollars-drawdown-for-phase-2-expansion-at-ato-gold-mine-186457950)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1bpuu6k/steppe_gold_achieves_financing_milestone_for/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1bpuu6k/steppe_gold_achieves_financing_milestone_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/lossiasT.webp)

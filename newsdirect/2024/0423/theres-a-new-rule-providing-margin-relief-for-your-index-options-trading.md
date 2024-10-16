@@ -48,9 +48,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/theres-a-new-rule-providing-margin-relief-for-your-index-options-trading-538817085 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/theres-a-new-rule-providing-margin-relief-for-your-index-options-trading-538817085)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1cb3lcs/new_rule_provides_margin_relief_for_index_options/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1cb3lcs/new_rule_provides_margin_relief_for_index_options/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/23/rendU_O2.webp)

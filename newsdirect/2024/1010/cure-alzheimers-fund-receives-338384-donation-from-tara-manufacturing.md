@@ -27,9 +27,17 @@ Company Websitehttps://curealz.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/cure-alzheimers-fund-receives-338-384-donation-from-tara-manufacturing-395480246 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cure-alzheimers-fund-receives-338-384-donation-from-tara-manufacturing-395480246)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1g0fg8l/tara_manufacturing_donates_33838401_to_cure/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1g0fg8l/tara_manufacturing_donates_33838401_to_cure/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/10/zestJzpG.webp)

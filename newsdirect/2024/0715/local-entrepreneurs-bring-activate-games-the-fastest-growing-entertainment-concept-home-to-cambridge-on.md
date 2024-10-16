@@ -63,9 +63,17 @@ Company Websitehttps://playactivate.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/local-entrepreneurs-bring-activate-games-the-fastest-growing-entertainment-concept-home-to-cambridge-on-159880990 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/local-entrepreneurs-bring-activate-games-the-fastest-growing-entertainment-concept-home-to-cambridge-on-159880990)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1e3uf4v/activate_games_inc_announces_grand_opening_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1e3uf4v/activate_games_inc_announces_grand_opening_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/15/plumVozY.webp)

@@ -32,9 +32,17 @@ ray@razorsharppr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/husqvarna-r-viking-r-introduces-epic-quilt-97-590738036 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/husqvarna-r-viking-r-introduces-epic-quilt-97-590738036)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1g0l3b4/husqvarna_viking_introduces_epic_quilt_97_the/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1g0l3b4/husqvarna_viking_introduces_epic_quilt_97_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/10/lossGFO2.webp)

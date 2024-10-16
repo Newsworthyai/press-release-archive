@@ -84,9 +84,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/4-stocks-with-exposure-to-the-growing-asian-and-middle-eastern-ev-markets-631508913 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/4-stocks-with-exposure-to-the-growing-asian-and-middle-eastern-ev-markets-631508913)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bt86w0/global_ev_market_rebound_expected_as_interest/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bt86w0/global_ev_market_rebound_expected_as_interest/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/1/chef8ME_.webp)

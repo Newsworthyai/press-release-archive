@@ -60,9 +60,17 @@ Investor Relations
 
 IR@ImageProtectCorporation.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/image-protect-inc-otc-imtl-offers-open-letter-to-shareholders-from-new-incoming-ceo-7076074)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1flca3y/image_protect_inc_announces_debt_retirement_and/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1flca3y/image_protect_inc_announces_debt_retirement_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/20/frogL63K.webp)

@@ -24,9 +24,17 @@ Founded in 2021, Primex Finance is a decentralized protocol for spot margin trad
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/primex-finance-announces-community-rewards-campaign-with-coinlist)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bz5rpe/primex_finance_and_coinlist_launch_contribute_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bz5rpe/primex_finance_and_coinlist_launch_contribute_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/8/rubyPzex.webp)

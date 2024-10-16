@@ -48,9 +48,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitdeer-nasdaq-btdr-scores-bullish-rating-from-top-wall-street-firm-cantor-fitzgerald-519044951 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitdeer-nasdaq-btdr-scores-bullish-rating-from-top-wall-street-firm-cantor-fitzgerald-519044951)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1do5jor/bitdeer_on_the_precipice_of_a_breakout/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1do5jor/bitdeer_on_the_precipice_of_a_breakout/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/25/noraxCYV.webp)

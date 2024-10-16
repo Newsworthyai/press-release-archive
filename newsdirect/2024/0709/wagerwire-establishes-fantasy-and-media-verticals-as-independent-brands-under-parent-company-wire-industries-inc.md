@@ -27,9 +27,17 @@ Company Websitehttps://wire.industries/
 
 View source version on newsdirect.com: https://newsdirect.com/news/wagerwire-establishes-fantasy-and-media-verticals-as-independent-brands-under-parent-company-wire-industries-inc-470851829 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/wagerwire-establishes-fantasy-and-media-verticals-as-independent-brands-under-parent-company-wire-industries-inc-470851829)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dza8q2/wire_industries_inc_expands_with_fantasywire_and/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dza8q2/wire_industries_inc_expands_with_fantasywire_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/9/file7kll.webp)

@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cooper-metals-makes-substantial-progress-at-brumby-ridge-assays-due-shortly-603545038 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cooper-metals-makes-substantial-progress-at-brumby-ridge-assays-due-shortly-603545038)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bzty7g/cooper_metals_makes_substantial_progress_at/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bzty7g/cooper_metals_makes_substantial_progress_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/9/milkHTqc.webp)

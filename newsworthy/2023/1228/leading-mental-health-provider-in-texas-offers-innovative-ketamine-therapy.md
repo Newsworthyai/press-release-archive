@@ -12,9 +12,17 @@ About The Infusionist
 
 The Infusionist is a trailblazing destination for transformative healing in Tyler, Texas. Since its establishment in 2021, The Infusionist has been at the forefront of providing innovative solutions to enhance mental well-being through exceptional in-office ketamine therapy. With a team of highly trained medical professionals and a dedicated medical doctor, The Infusionist is committed to guiding patients on a path to profound healing and personal growth. The Infusionist recognizes that mental health is as crucial as physical health, and believes in the power of ketamine therapy to address a wide range of conditions. The Infusionist's compassionate and experienced staff is here to support patients every step of the way, offering a safe and nurturing environment where they can embark on their journey towards emotional wellness. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231228946/leading-mental-health-provider-in-texas-offers-innovative-ketamine-therapy)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcwdy/the_infusionist_revolutionizes_mental_health/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcwdy/the_infusionist_revolutionizes_mental_health/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/gleev2Ij.webp)

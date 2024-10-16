@@ -34,9 +34,17 @@ The Blockchain Center in Abu Dhabi is at the forefront of the blockchain and dig
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gate-ventures-and-the-blockchain-center-in-abu-dhabi-to-launch-falcon-gate-ventures-a-100-million-fund-to-propel-global-blockchain-innovation)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvd892/gate_ventures_and_blockchain_center_launch_100m/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvd892/gate_ventures_and_blockchain_center_launch_100m/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/19/silklR3Z.webp)

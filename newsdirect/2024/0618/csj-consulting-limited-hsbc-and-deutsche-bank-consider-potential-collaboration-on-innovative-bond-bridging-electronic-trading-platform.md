@@ -28,9 +28,17 @@ Company Websitehttps://csj-consulting.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/csj-consulting-limited-hsbc-and-deutsche-bank-consider-potential-collaboration-on-innovative-bond-bridging-electronic-trading-platform-941714770 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/csj-consulting-limited-hsbc-and-deutsche-bank-consider-potential-collaboration-on-innovative-bond-bridging-electronic-trading-platform-941714770)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dip7o8/csj_consulting_limited_hsbc_and_deutsche_bank_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dip7o8/csj_consulting_limited_hsbc_and_deutsche_bank_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/18/keepsAzZ.webp)

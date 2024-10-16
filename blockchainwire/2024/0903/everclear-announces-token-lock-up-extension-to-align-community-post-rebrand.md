@@ -16,9 +16,17 @@ About Everclear
 
 Everclear is building the first Clearing Layer for Web3. Everclear solves fragmentation for modular blockchains by coordinating the global liquidity settlement between chains. Everclear aims to build an open and accessible future where users can reap the benefits of blockchains without specialized knowledge or exposure to unnecessary risk. For more information, please visit https://everclear.org 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/everclear-announces-token-lock-up-extension-to-align-community-post-rebrand)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvc3m4/everclear_extends_next_token_unlock_schedule/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvc3m4/everclear_extends_next_token_unlock_schedule/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/11/fernDfqu.webp)

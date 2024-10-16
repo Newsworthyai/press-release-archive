@@ -42,9 +42,17 @@ About Ledger WorksLedger Works partners with DeFi companies to operationalize ne
 
 About SceptreSceptre’s liquid staking enables users to stake assets and receive liquid tokens, like sFLR for wFLR/FLR, thus maintaining asset liquidity while earning rewards. Sceptre enhances this process by offering seamless integration with leading networks, allowing stakers to amplify returns and engage in a wider ecosystem of decentralized finance (DeFi) services. For more information, visit: https://sceptre.fi | Contact sceptre@romeblockchain.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/sceptre--ledger-works-partner-to-re-invent-risk-management-for-liquid-staking)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvnkkl/sceptre_38_ledger_works_partner_to_revolutionize/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvnkkl/sceptre_38_ledger_works_partner_to_revolutionize/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/lambdbVk.webp)

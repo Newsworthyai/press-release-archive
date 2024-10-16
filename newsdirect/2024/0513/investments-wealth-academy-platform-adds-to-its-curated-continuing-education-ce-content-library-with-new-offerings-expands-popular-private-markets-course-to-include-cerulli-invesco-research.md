@@ -68,9 +68,17 @@ Company Websitehttps://investmentsandwealth.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/investments-and-wealth-academy-platform-adds-to-its-curated-continuing-education-ce-content-library-with-new-offerings-expands-popular-private-markets-course-to-include-cerulli-invesco-research-278213620 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-academy-platform-adds-to-its-curated-continuing-education-ce-content-library-with-new-offerings-expands-popular-private-markets-course-to-include-cerulli-invesco-research-278213620)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cr5gdq/investments_wealth_institute_unveils_new_academy/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cr5gdq/investments_wealth_institute_unveils_new_academy/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/airyaxxK.webp)

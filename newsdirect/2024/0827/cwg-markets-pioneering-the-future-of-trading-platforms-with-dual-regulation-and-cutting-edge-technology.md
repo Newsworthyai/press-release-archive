@@ -46,9 +46,17 @@ Company Websitehttps://cwgmarkets.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/cwg-markets-pioneering-the-future-of-trading-platforms-with-dual-regulation-and-cutting-edge-technology-603061405 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cwg-markets-pioneering-the-future-of-trading-platforms-with-dual-regulation-and-cutting-edge-technology-603061405)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1f386oa/cwg_markets_revolutionizing_trading_industry_with/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1f386oa/cwg_markets_revolutionizing_trading_industry_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/28/diveZVrQ.webp)

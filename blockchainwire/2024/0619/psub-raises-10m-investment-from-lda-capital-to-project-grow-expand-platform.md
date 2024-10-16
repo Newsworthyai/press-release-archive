@@ -6,9 +6,17 @@ The investment contract signed between the PsuB Foundation and the LDA capital i
 
 About LDALDA Capital is a global alternative investment group with expertise in cross-border transactions worldwide. Our team has dedicated their careers to international & cross-border opportunities having collectively executed over 250 transactions in both the public and private middle markets across 43 countries with aggregate transaction values of over US$11 billion.Official Webpage: [https://psub.io/](https://psub.io/)CoinMarketCap: [https://coinmarketcap.com/currencies/psub/](https://coinmarketcap.com/currencies/psub/)Telegram: [https://t.me/PsuBOfficialChat](https://t.me/PsuBOfficialChat)X: [https://x.com/PsuBOfficial](https://x.com/PsuBOfficial)LDA Capital  Details:Website: [https://www.ldacap.com/](https://www.ldacap.com/)CONTACT: Kafu Durán info@ldacap.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/psub-raises-10m-investment-from-lda-capital-to-project-grow-expand-platform)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1djh5am/psub_project_receives_10_million_investment_from/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1djh5am/psub_project_receives_10_million_investment_from/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/19/pine8ruX.webp)

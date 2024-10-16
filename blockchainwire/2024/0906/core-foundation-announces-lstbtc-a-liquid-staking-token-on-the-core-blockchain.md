@@ -30,9 +30,17 @@ Core is the most Bitcoin-aligned EVM blockchain with ~55% of Bitcoin mining hash
 
 Disclaimer: This press release is for informational purposes only and does not constitute investment advice or an offer to invest. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/core-foundation-announces-lstbtc-a-liquid-staking-token-on-the-core-blockchain)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1foykla/core_foundation_announces_lstbtc_a_gamechanger/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1foykla/core_foundation_announces_lstbtc_a_gamechanger/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/11/chipWHmR.webp)

@@ -22,9 +22,17 @@ Company Websitehttps://srportables.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/just-in-time-for-fathers-day-258393314 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/just-in-time-for-fathers-day-258393314)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1d41ysc/sunpower_renewables_launches_cuttingedge_solar/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1d41ysc/sunpower_renewables_launches_cuttingedge_solar/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/30/lushbjIQ.webp)

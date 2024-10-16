@@ -10,9 +10,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ascend-wellness-ceo-outlines-companys-growth-strategy-and-market-expansion-plans-182332556 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ascend-wellness-ceo-outlines-companys-growth-strategy-and-market-expansion-plans-182332556)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1e5kcrl/ascend_wellness_ceo_outlines_growth_strategy_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1e5kcrl/ascend_wellness_ceo_outlines_growth_strategy_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/17/mend5UIP.webp)

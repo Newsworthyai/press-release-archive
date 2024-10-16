@@ -54,9 +54,17 @@ Company Websitehttps://octoblock.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/learn-the-key-differences-between-octoblock-and-xrp-140715277 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/learn-the-key-differences-between-octoblock-and-xrp-140715277)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c2d7kg/exploring_the_key_differences_between_octoblock/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c2d7kg/exploring_the_key_differences_between_octoblock/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/12/herbGTcT.webp)

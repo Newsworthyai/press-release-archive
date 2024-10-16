@@ -51,9 +51,17 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tron-tether-and-trm-labs-establish-first-ever-private-sector-financial-crime-unit-to-combat-crypto-crime-101910198 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tron-tether-and-trm-labs-establish-first-ever-private-sector-financial-crime-unit-to-combat-crypto-crime-101910198)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fdj9m4/tron_tether_and_trm_labs_join_forces_to_combat/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fdj9m4/tron_tether_and_trm_labs_join_forces_to_combat/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/10/lily5dAC.webp)

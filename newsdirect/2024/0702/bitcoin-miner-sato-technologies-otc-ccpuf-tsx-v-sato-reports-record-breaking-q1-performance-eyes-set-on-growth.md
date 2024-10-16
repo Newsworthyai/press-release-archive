@@ -48,9 +48,17 @@ Company Websitehttps://www.bysato.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitcoin-miner-sato-technologies-otc-ccpuf-tsx-v-sato-reports-record-breaking-q1-performance-eyes-set-on-growth-738903681 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitcoin-miner-sato-technologies-otc-ccpuf-tsx-v-sato-reports-record-breaking-q1-performance-eyes-set-on-growth-738903681)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dtl9gm/bitcoin_miner_sato_technologies_reports/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dtl9gm/bitcoin_miner_sato_technologies_reports/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/2/wolf8IX2.webp)

@@ -38,9 +38,17 @@ About Newsworthy.ai:
 
 Newsworthy.ai is a news distribution platform that prioritizes engagement and visibility in an evolving media landscape. Newsworthy.ai's syndication and news marketing services help businesses maximize the impact of their press releases by getting the news in front of the right audiences in multiple curated formats, driving meaningful connections and engagement. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202405071162/redballoon-teams-up-with-newsworthy-ai-for-media-communications)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cmmbym/redballoonwork_partners_with_newsworthyai_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cmmbym/redballoonwork_partners_with_newsworthyai_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/245/7/paleWLQR.webp)

@@ -26,9 +26,17 @@ Overall, Furrever Token (FURR) represents a refreshing and innovative approach t
 
 Media Contact:Robert Smith[https://furrevertoken.com/](https://furrevertoken.com/)[support@furrevertoken.com](mailto:support@furrevertoken.com)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/furrever-token-furr-shines-with-10000-reward-competition-amid-bitcoin-btc-and-ethereum-eth-recovery-efforts)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ciju65/bitcoin_and_ethereum_strive_for_recovery_as/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ciju65/bitcoin_and_ethereum_strive_for_recovery_as/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/2/ovalE2LB.webp)

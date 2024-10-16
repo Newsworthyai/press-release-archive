@@ -80,9 +80,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitcoin-price-could-surpass-150k-by-the-end-of-the-year-171128465 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitcoin-price-could-surpass-150k-by-the-end-of-the-year-171128465)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bpun23/bitcoin_bull_run_experts_predict_price_surge_to/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bpun23/bitcoin_bull_run_experts_predict_price_surge_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/gleeB9cO.webp)

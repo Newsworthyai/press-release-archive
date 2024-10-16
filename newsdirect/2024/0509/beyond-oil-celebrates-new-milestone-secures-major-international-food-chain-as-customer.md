@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/beyond-oil-celebrates-new-milestone-secures-major-international-food-chain-as-customer-982660772 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/beyond-oil-celebrates-new-milestone-secures-major-international-food-chain-as-customer-982660772)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1co29fe/beyond_oil_celebrates_new_milestone_secures_major/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1co29fe/beyond_oil_celebrates_new_milestone_secures_major/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/rain4bzt.webp)

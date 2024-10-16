@@ -32,9 +32,17 @@ Company Websitehttps://filter-experience.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/introducing-filter-experience-revolutionizing-ar-filters-for-tiktok-instagram-and-snapchat-769157938 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/introducing-filter-experience-revolutionizing-ar-filters-for-tiktok-instagram-and-snapchat-769157938)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1btfpdh/filter_experience_revolutionizes_ar_filters_for/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1btfpdh/filter_experience_revolutionizes_ar_filters_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/1/zerovReO.webp)

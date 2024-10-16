@@ -54,9 +54,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/helping-build-a-sustainable-future-for-construction-materials-sky-quarrys-innovative-approach-to-recycling-shingles-recovering-oil-784690608 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/helping-build-a-sustainable-future-for-construction-materials-sky-quarrys-innovative-approach-to-recycling-shingles-recovering-oil-784690608)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bty4pc/sky_quarry_inc_leads_the_charge_in_recycling/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bty4pc/sky_quarry_inc_leads_the_charge_in_recycling/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/2/jazz9zY2.webp)

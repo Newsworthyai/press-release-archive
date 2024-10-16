@@ -40,9 +40,17 @@ Twitter: SHIBA BUDZ "$BUDZ" (@ShibaBudz) / X
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/shib-vs-budz-shiba-showdown-this-2024-bull-run-shiba-inu-holders-watch-new-rival-closely)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1bko8ag/the_battle_of_the_shibas/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1bko8ag/the_battle_of_the_shibas/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/22/lark38eQ.webp)

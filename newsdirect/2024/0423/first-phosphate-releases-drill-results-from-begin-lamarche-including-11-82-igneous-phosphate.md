@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/first-phosphate-releases-drill-results-from-begin-lamarche-including-11-82-igneous-phosphate-573364994 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/first-phosphate-releases-drill-results-from-begin-lamarche-including-11-82-igneous-phosphate-573364994)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cb6c7d/first_phosphate_releases_positive_drill_results/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cb6c7d/first_phosphate_releases_positive_drill_results/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/23/hikeyLzn.webp)

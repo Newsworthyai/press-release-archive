@@ -31,9 +31,17 @@ Co Founder & Managing Partner
 
 todd@amphibiancapital.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/amphibian-capital-to-present-at-the-blockchain--digital-asset-virtual-investor-conference-april-25-th-at-930a-est)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ca9xm7/amphibian_capital_cofounder_and_coo_to_present_at/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ca9xm7/amphibian_capital_cofounder_and_coo_to_present_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/22/nukeW9hL.webp)

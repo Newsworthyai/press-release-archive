@@ -55,9 +55,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/proven-leadership-team-with-a-history-of-unlocking-shareholder-value-could-drive-railtown-ai-higher-177367897 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/proven-leadership-team-with-a-history-of-unlocking-shareholder-value-could-drive-railtown-ai-higher-177367897)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1f9rh30/railtown_ai_emerges_as_solution_to_prevent_future/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1f9rh30/railtown_ai_emerges_as_solution_to_prevent_future/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/5/icyC7iu.webp)

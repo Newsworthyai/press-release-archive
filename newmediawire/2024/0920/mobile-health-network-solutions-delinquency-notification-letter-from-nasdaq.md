@@ -20,9 +20,17 @@ Mobile-health Network Solutions Investor Relations Contact:2 Venture Drive, #07-
 
 Investor Relations Inquiries:Skyline Corporate Communications Group, LLCScott Powell, President1177 Avenue of the Americas, 5th FloorNew York, New York 10036Office: (646) 893-5835Email: info@skylineccg.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/mobile-health-network-solutions-delinquency-notification-letter-from-nasdaq-7076075)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1flou98/manadr_receives_notice_from_nasdaq_regarding/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1flou98/manadr_receives_notice_from_nasdaq_regarding/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/20/boldYEJA.webp)

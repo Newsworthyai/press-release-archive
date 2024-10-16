@@ -42,9 +42,17 @@ Email: touch@newscoverage.agency
 
 Telegram: @Arpita_nca 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-xedoai-revolutionizing-market-analysis-with-ai-powered-insights)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cbd16x/xedoai_launches_market_data_analyzer_powered_by_ai/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cbd16x/xedoai_launches_market_data_analyzer_powered_by_ai/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/23/mild8erG.webp)

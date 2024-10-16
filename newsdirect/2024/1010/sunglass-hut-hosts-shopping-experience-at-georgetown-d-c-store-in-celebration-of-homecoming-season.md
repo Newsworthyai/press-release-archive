@@ -26,9 +26,17 @@ Company Websitehttps://www.sunglasshut.com/us
 
 View source version on newsdirect.com: https://newsdirect.com/news/sunglass-hut-hosts-shopping-experience-at-georgetown-d-c-store-in-celebration-of-homecoming-season-853658734 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sunglass-hut-hosts-shopping-experience-at-georgetown-d-c-store-in-celebration-of-homecoming-season-853658734)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1g0hd2h/sunglass_hut_hosts_exclusive_shopping_event_in/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1g0hd2h/sunglass_hut_hosts_exclusive_shopping_event_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/10/markqGTx.webp)

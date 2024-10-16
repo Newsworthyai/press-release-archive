@@ -20,9 +20,17 @@ Sameer Group LLC Corporate Site
 
 Syed Sameer, Sameer Group CEO’s official X / Twitter 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ansem-who-rose-to-fame-with-wif-success-leads-community-takeover-of-solanas-michi)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fy8qva/trader_ansem_spearheads_community_takeover_of/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fy8qva/trader_ansem_spearheads_community_takeover_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/7/wamc6gLx.webp)

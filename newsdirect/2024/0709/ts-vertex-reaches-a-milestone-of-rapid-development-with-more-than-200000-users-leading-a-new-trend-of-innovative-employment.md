@@ -68,9 +68,17 @@ Company Websitehttps://tscsu.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/ts-vertex-reaches-a-milestone-of-rapid-development-with-more-than-200-000-users-leading-a-new-trend-of-innovative-employment-825750476 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ts-vertex-reaches-a-milestone-of-rapid-development-with-more-than-200-000-users-leading-a-new-trend-of-innovative-employment-825750476)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dzd5v6/ts_vertex_reaches_milestone_with_200000_users/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dzd5v6/ts_vertex_reaches_milestone_with_200000_users/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/9/sagess9b.webp)

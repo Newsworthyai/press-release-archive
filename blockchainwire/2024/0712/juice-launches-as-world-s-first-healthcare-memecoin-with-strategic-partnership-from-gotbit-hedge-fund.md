@@ -44,9 +44,17 @@ X (Twitter) | Telegram
 
 Disclaimer: This is a press release and does not contain any financial advice. Readers should do their own research before taking any actions related to the company mentioned. You are solely responsible, directly or indirectly, for any damage or loss caused or alleged to be caused by or in connection with the use of or reliance on any content, goods, or services mentioned in the press release. Cryptocurrency is volatile. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/juice-launches-as-worlds-first-healthcare-memecoin-with-strategic-partnership-from-gotbit-hedge-fund)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1e1bfhg/innovative_healthcare_memecoin_juice_launching/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1e1bfhg/innovative_healthcare_memecoin_juice_launching/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/12/iconZvhJ.webp)

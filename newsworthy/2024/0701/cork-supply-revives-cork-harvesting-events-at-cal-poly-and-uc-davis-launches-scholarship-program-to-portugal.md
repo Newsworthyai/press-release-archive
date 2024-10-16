@@ -43,9 +43,17 @@ Cork Supply’s operations in North America are based in Benicia, CA in the hear
 
 With continuous learning and R&D key priorities, together with social responsibility and sustainability, Cork Supply continues to demonstrate its promise: trusted from forest to bottle. corksupply.com/us 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202407011203/cork-supply-revives-cork-harvesting-events-at-cal-poly-and-uc-davis-launches-scholarship-program-to-portugal)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dtpx88/cork_supply_hosts_successful_cork_harvesting/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dtpx88/cork_supply_hosts_successful_cork_harvesting/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/247/2/mendn6TI.webp)

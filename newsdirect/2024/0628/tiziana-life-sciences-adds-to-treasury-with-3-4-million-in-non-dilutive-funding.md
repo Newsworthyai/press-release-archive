@@ -24,9 +24,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tiziana-life-sciences-adds-to-treasury-with-3-4-million-in-non-dilutive-funding-823880375 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tiziana-life-sciences-adds-to-treasury-with-3-4-million-in-non-dilutive-funding-823880375)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dqi546/tiziana_life_sciences_ceo_discusses_advancements/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dqi546/tiziana_life_sciences_ceo_discusses_advancements/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/28/gainSZ_t.webp)

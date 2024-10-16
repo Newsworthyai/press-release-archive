@@ -64,9 +64,17 @@ MIAMI, FL - (NewMediaWire) - September 03, 2024 - Luminar Media Group, Inc. (OT
 
  Follow us on X @FortunCorp 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/fortun-reports-exponential-asset-growth-and-impressive-month-over-month-metrics-appoints-industry-banking-veteran-juan-m-sese-as-vice-president-of-finance-7075991)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1f80jyk/luminar_media_group_inc_proudly_announces/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1f80jyk/luminar_media_group_inc_proudly_announces/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/3/flax0NTe.webp)

@@ -28,9 +28,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-shines-at-gm-vietnam-2024-and-hosts-web3-future-night-spotlighting-crypto-trends-advancing-global-expansion-570996528 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-shines-at-gm-vietnam-2024-and-hosts-web3-future-night-spotlighting-crypto-trends-advancing-global-expansion-570996528)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvkjfq/htx_shines_at_gm_vietnam_2024_and_hosts_web3/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvkjfq/htx_shines_at_gm_vietnam_2024_and_hosts_web3/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/7/fasto3KT.webp)

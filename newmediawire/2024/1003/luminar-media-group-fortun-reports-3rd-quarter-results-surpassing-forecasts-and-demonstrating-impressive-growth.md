@@ -72,9 +72,17 @@ MIAMI - (NewMediaWire) - October 03, 2024 - Luminar Media Group, Inc. (OTCMARKE
 
  For more information, please contact: Robert Rico Investor Relations Phone: 305-283-9237 Email: Robert@Fortunco.com Follow us on X: @FortunCorp 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/luminar-media-group-fortun-reports-3rd-quarter-results-surpassing-forecasts-and-demonstrating-impressive-growth-7076155)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fx6i4r/luminar_media_group_releases_strong_q3_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fx6i4r/luminar_media_group_releases_strong_q3_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/6/tints74_.webp)

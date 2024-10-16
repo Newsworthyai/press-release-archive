@@ -74,9 +74,17 @@ markrmckelvie@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/4-stocks-to-watch-as-ev-demand-rebounds-489899707 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/4-stocks-to-watch-as-ev-demand-rebounds-489899707)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1c6yvy8/ev_market_shows_signs_of_recovery_four_stocks_to/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1c6yvy8/ev_market_shows_signs_of_recovery_four_stocks_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/18/isletd8I.webp)

@@ -30,9 +30,17 @@ HeartBeam (NASDAQ: BEAT), a medical technology company focused on transforming 
 
  BioMedWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/heartbeam-nasdaq-beat-releases-q2-2024-financial-report-operational-update/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1f2go64/heartbeam_reports_q2_2024_financial_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f2go64/heartbeam_reports_q2_2024_financial_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/dual603p.webp)

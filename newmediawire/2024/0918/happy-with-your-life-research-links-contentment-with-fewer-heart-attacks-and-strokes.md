@@ -74,9 +74,17 @@ Research Highlights:
 
  heart.org and stroke.org 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/happy-with-your-life-research-links-contentment-with-fewer-heart-attacks-and-strokes-7076061)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1fjpva1/feeling_content_may_lower_risk_of_heart_disease/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1fjpva1/feeling_content_may_lower_risk_of_heart_disease/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/18/nukecnBa.webp)

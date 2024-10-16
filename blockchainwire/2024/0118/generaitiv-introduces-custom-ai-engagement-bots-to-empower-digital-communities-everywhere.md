@@ -26,9 +26,17 @@ The Generaitiv Custom AI Bots are available directly through Generaitiv and Gen
 
 Get a custom trained AI image generation bot for your community today. Reach them a info@generaitiv.xyz or via social media. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/generaitiv-introduces-custom-ai-engagement-bots-to-empower-digital-communities-everywhere)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avds8f/generaitiv_introduces_custom_ai_engagement_bots/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avds8f/generaitiv_introduces_custom_ai_engagement_bots/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/chipNqmF.webp)

@@ -10,9 +10,17 @@ Starting from February 2024, the BMX ecosystem will enter a new phase of develop
 
 BitMart will also hold exclusive platform activities for BMX and an AMA event with a 20,000 BMX reward on social media. Follow BitMart's official website and social media to stay updated on the latest BMX developments. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmarts-platform-token-bmx-ecosystem-upgrade-bmx-has-been-listed-on-kucoin)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1avxhui/bitmart_lists_bmx_token_on_kucoin_expanding/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1avxhui/bitmart_lists_bmx_token_on_kucoin_expanding/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/gleeEQJU.webp)

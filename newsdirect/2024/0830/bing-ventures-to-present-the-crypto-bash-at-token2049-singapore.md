@@ -57,9 +57,17 @@ Company Websitehttps://www.bing-ventures.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bing-ventures-to-present-the-crypto-bash-at-token2049-singapore-866496986 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bing-ventures-to-present-the-crypto-bash-at-token2049-singapore-866496986)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f4wlz3/bing_ventures_to_present_the_crypto_bash_at/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f4wlz3/bing_ventures_to_present_the_crypto_bash_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/30/barnY960.webp)

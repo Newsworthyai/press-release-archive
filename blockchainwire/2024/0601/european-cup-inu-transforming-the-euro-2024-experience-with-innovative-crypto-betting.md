@@ -34,9 +34,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/european-cup-inu-transforming-the-euro-2024-experience-with-innovative-crypto-betting)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fvfi40/european_cup_inu_eci_the_future_of_football_fandom/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fvfi40/european_cup_inu_eci_the_future_of_football_fandom/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/envy3HZ0.webp)

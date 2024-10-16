@@ -18,9 +18,17 @@ About BitMart
 
 BitMart Exchange is a premier global digital assets trading platform. With millions of users worldwide and ranked among the top crypto exchanges on CoinGecko, BitMart currently offers 1,400+ trading pairs with one of the lowest trading fees in the industry. Constantly evolving and growing, BitMart is interested in crypto's potential to drive innovation and promote financial inclusion. To learn more about BitMart, visit their Website, follow their X (Twitter), or join their Telegram for updates, news, and promotions. Download the BitMart App to trade anytime, anywhere. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-celebrates-blast-tge-and-launches-exclusive-event-with-spherex)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dlaobt/bitmart_and_spherex_collaborate_to_celebrate/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dlaobt/bitmart_and_spherex_collaborate_to_celebrate/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/21/join9qTT.webp)

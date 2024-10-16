@@ -38,9 +38,17 @@ By embracing the unpredictable nature of the crypto world, ArixDEX takes a quirk
 
 Website: [https://arix.exchange/](https://arix.exchange/)Twitter X: [https://x.com/arixdexofficial/](https://x.com/arixdexofficial/)Telegram: [https://t.me/ArixDex](https://t.me/ArixDex)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/arixdex-empowering-cross-chain-swaps-and-community-governance-with-innovative-telegram-mining-bot)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvik8g/arixdex_unveils_crosschain_solution_telegram/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvik8g/arixdex_unveils_crosschain_solution_telegram/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/14/archHgDn.webp)

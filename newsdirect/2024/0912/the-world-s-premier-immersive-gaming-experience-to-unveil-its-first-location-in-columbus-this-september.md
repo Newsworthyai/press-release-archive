@@ -49,9 +49,17 @@ Company Websitehttps://playactivate.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-worlds-premier-immersive-gaming-experience-to-unveil-its-first-location-in-columbus-this-september-614067230 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-worlds-premier-immersive-gaming-experience-to-unveil-its-first-location-in-columbus-this-september-614067230)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1ff1416/activate_unveils_new_columbus_location_in/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1ff1416/activate_unveils_new_columbus_location_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/12/kiwiAiiv.webp)

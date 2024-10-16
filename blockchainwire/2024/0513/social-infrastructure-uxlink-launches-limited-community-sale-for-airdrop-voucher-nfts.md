@@ -31,9 +31,17 @@ PR Contact:
 
 Rachita ChettriMediaX Agencycontact@mediax.agency 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/social-infrastructure-uxlink-launches-limited-community-sale-for-airdrop-voucher-nfts)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cr8g5l/uxlink_initiates_season_1_airdrop_campaign_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cr8g5l/uxlink_initiates_season_1_airdrop_campaign_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/13/swimwLBg.webp)

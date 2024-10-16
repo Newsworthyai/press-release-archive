@@ -66,9 +66,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/calibre-mining-otc-cxbmf-uses-artificial-intelligence-to-push-gold-mining-operations-forward-563852895 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/calibre-mining-otc-cxbmf-uses-artificial-intelligence-to-push-gold-mining-operations-forward-563852895)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dzvug6/calibre_mining_corp_utilizes_ai_to_transform_gold/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dzvug6/calibre_mining_corp_utilizes_ai_to_transform_gold/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/10/chipXTy1.webp)

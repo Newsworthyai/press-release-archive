@@ -30,9 +30,17 @@ Company Websitehttps://deepsales.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/deepsales-2-5-released-discover-and-ai-driven-prospecting-features-revolutionize-sales-intelligence-615828946 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/deepsales-2-5-released-discover-and-ai-driven-prospecting-features-revolutionize-sales-intelligence-615828946)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fcshct/deepsales_25_revolutionizes_sales_intelligence/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fcshct/deepsales_25_revolutionizes_sales_intelligence/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/9/poemXwcN.webp)

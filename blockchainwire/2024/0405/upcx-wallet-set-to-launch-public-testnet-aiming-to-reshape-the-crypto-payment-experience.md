@@ -62,9 +62,17 @@ Website: www.upcx.io
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcx-wallet-set-to-launch-public-testnet-aiming-to-reshape-the-crypto-payment-experience)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bwtc3g/upcx_wallet_announces_new_features_and_upcoming/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bwtc3g/upcx_wallet_announces_new_features_and_upcoming/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/5/tileICdm.webp)

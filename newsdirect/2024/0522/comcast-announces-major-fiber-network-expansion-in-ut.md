@@ -44,9 +44,17 @@ Company Websitehttps://utah.comcast.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/comcast-announces-major-fiber-network-expansion-in-ut-374369822 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/comcast-announces-major-fiber-network-expansion-in-ut-374369822)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1cybf8p/comcast_invests_138m_to_expand_xfinity_network_in/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1cybf8p/comcast_invests_138m_to_expand_xfinity_network_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/pend0nje.webp)

@@ -22,9 +22,17 @@ About CyberscopeCyberscope is a leading blockchain security firm with the vision
 
 Visit: https://www.cyberscope.io/ | Contact: contact@cyberscope.io 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cyberscoope--ledger-works-partner-to-deliver-full-life-cycle-risk-management-for-web3)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvoxox/cyberscope_ledger_works_partner_for_full/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvoxox/cyberscope_ledger_works_partner_for_full/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/mildCxUP.webp)

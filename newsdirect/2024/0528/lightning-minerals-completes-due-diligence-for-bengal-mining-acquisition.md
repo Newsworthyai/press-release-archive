@@ -12,9 +12,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lightning-minerals-completes-due-diligence-for-bengal-mining-acquisition-955462822 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/lightning-minerals-completes-due-diligence-for-bengal-mining-acquisition-955462822)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1d2qvp4/lightning_minerals_completes_due_diligence_for/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1d2qvp4/lightning_minerals_completes_due_diligence_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/28/noonx_vH.webp)

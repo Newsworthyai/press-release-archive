@@ -24,9 +24,17 @@ About Everest Group
 
 Everest Group is an international research company that specializes in strategic IT, business services, engineering services, and sourcing. They work with a wide range of clients, including major global businesses, service providers, technology companies, and investors. Their goal is to help their clients achieve optimal operational and financial performance, enhance experiences, and achieve significant business results. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202408261245/3-story-software-3ss-recognized-as-a-major-contender-in-everest-groups-2024-vms-peak-matrix-r-assessment)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1f1rnnr/3_story_software_recognized_as_major_contender_in/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1f1rnnr/3_story_software_recognized_as_major_contender_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/248/26/yogauC5W.webp)

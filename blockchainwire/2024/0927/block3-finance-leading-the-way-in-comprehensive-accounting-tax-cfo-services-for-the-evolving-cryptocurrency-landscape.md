@@ -46,9 +46,17 @@ For more information about Block3 Finance and its services, please visit https:
 
 Social Media: 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/block3-finance-leading-the-way-in-comprehensive-accounting-tax--cfo-services-for-the-evolving-cryptocurrency-landscape)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1g3kwk4/block3_finance_premier_crypto_accounting_firm/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1g3kwk4/block3_finance_premier_crypto_accounting_firm/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/14/pinesgHf.webp)

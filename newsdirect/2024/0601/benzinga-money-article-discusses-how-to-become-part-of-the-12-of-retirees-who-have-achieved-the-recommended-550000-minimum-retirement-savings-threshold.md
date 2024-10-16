@@ -14,9 +14,17 @@ Company Websitehttps://newsdirect.com/affiliate-avenue
 
 View source version on newsdirect.com: https://newsdirect.com/news/benzinga-money-article-discusses-how-to-become-part-of-the-12-of-retirees-who-have-achieved-the-recommended-550-000-minimum-retirement-savings-threshold-244408969 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benzinga-money-article-discusses-how-to-become-part-of-the-12-of-retirees-who-have-achieved-the-recommended-550-000-minimum-retirement-savings-threshold-244408969)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d5tp8e/shocking_statistics_on_american_retirement/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d5tp8e/shocking_statistics_on_american_retirement/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/1/blurftYz.webp)

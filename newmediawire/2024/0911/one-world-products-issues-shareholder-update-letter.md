@@ -46,9 +46,17 @@ Investor Contact:
 
 ClearThink IRbloper@clearthink.capital602-785-4120 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/one-world-products-issues-shareholder-update-letter-7076033)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1fe831k/one_world_products_inc_accelerates_revenue_growth/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1fe831k/one_world_products_inc_accelerates_revenue_growth/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/11/lushhwb6.webp)

@@ -16,9 +16,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/standard-uranium-reports-promising-results-from-winter-2024-drill-program-at-atlantic-project-976268002 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/standard-uranium-reports-promising-results-from-winter-2024-drill-program-at-atlantic-project-976268002)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1dki377/standard_uranium_reports_promising_results_from/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1dki377/standard_uranium_reports_promising_results_from/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/20/lushbmLE.webp)

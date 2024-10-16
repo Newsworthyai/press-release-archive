@@ -42,9 +42,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/on-the-horizon-how-one-company-plans-to-use-its-innovative-aircraft-design-to-revolutionize-regional-air-travel-928444024 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/on-the-horizon-how-one-company-plans-to-use-its-innovative-aircraft-design-to-revolutionize-regional-air-travel-928444024)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1d9hlat/rising_investment_and_innovation_in_regional_air/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1d9hlat/rising_investment_and_innovation_in_regional_air/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/6/milde8Ii.webp)

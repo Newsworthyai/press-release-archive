@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/intra-energy-corp-further-improves-maggie-hay-hills-lithium-prospectivity-348760032 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/intra-energy-corp-further-improves-maggie-hay-hills-lithium-prospectivity-348760032)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c4sfup/intra_energy_corp_makes_strides_in_maggie_hays/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c4sfup/intra_energy_corp_makes_strides_in_maggie_hays/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/15/xenoLdQK.webp)

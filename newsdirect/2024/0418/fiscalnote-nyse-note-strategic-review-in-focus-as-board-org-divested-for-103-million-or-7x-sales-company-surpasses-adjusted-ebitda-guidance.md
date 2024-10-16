@@ -46,9 +46,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fiscalnote-nyse-note-strategic-review-in-focus-as-board-org-divested-for-103-million-or-7x-sales-company-surpasses-adjusted-ebitda-guidance-706733309 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/fiscalnote-nyse-note-strategic-review-in-focus-as-board-org-divested-for-103-million-or-7x-sales-company-surpasses-adjusted-ebitda-guidance-706733309)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c728ea/fiscalnote_exceeds_expectations_with_financial/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c728ea/fiscalnote_exceeds_expectations_with_financial/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/18/filor0fQ.webp)

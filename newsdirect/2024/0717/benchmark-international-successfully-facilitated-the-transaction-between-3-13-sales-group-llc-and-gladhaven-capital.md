@@ -34,9 +34,17 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-3-13-sales-group-llc-and-gladhaven-capital-630987950 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-3-13-sales-group-llc-and-gladhaven-capital-630987950)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e5ejkf/benchmark_international_successfully_facilitated/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e5ejkf/benchmark_international_successfully_facilitated/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/17/rushi12i.webp)

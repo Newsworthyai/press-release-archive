@@ -44,9 +44,17 @@ All players will find that this is their kingdom, playing under their rules. Pot
 
 X (Twitter) | Telegram | Discord 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/kingdom-of-ants-will-launch-solana-powered-platform-making-defi-easy-and-fun-for-all)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1avdtbu/kingdom_of_ants_koa_to_revolutionize_defi_with/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1avdtbu/kingdom_of_ants_koa_to_revolutionize_defi_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/healEFZ_.webp)

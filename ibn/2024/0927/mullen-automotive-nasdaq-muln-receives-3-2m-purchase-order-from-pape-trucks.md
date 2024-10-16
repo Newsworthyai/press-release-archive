@@ -20,9 +20,17 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-receives-3-2m-purchase-order-from-pape-trucks/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fqq085/mullen_automotive_secures_32m_ev_order_from_papé/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fqq085/mullen_automotive_secures_32m_ev_order_from_papé/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/249/27/vastDftr.webp)

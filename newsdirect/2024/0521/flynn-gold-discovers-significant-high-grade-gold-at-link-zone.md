@@ -12,9 +12,17 @@ writers.australia@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/flynn-gold-discovers-significant-high-grade-gold-at-link-zone-809921962 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/flynn-gold-discovers-significant-high-grade-gold-at-link-zone-809921962)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cxm2sw/flynn_gold_discovers_highgrade_gold_at_link_zone/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cxm2sw/flynn_gold_discovers_highgrade_gold_at_link_zone/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/21/pitapicofYRT.webp)

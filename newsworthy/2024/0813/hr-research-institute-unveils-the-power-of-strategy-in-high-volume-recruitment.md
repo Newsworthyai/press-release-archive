@@ -30,9 +30,17 @@ Become a part of HR.com’s HR Research Influencer panel today. Participate in s
 
 Contact: info@hr.com HR.com Newsroom 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202408131234/hr-research-institute-unveils-the-power-of-strategy-in-high-volume-recruitment)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HRnews/comments/1er7jcp/new_research_reveals_the_key_to_effective/
+
+
+[Reddit Post](https://www.reddit.com/r/HRnews/comments/1er7jcp/new_research_reveals_the_key_to_effective/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/248/13/club5g2N.webp)

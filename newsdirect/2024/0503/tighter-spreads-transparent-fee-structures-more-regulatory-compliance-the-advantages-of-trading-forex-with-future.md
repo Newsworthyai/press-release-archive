@@ -34,9 +34,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tighter-spreads-transparent-fee-structures-more-regulatory-compliance-the-advantages-of-trading-forex-with-future-383789908 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tighter-spreads-transparent-fee-structures-more-regulatory-compliance-the-advantages-of-trading-forex-with-future-383789908)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1cj7hnc/advantages_of_forex_futures_trading_with_blusky/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1cj7hnc/advantages_of_forex_futures_trading_with_blusky/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/3/chipeLm2.webp)

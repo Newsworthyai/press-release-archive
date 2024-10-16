@@ -40,9 +40,17 @@ Ron Brewer, CEO
 
 ronb@rjdgreen.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/rjd-green-inc-s-silex-holdings-division-announces-mark-gould-as-the-tulsa-oklahoma-division-manager-7076037)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1feboeq/silex_holdings_inc_hires_mark_gould_as_tulsa/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1feboeq/silex_holdings_inc_hires_mark_gould_as_tulsa/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/11/mintIqxC.webp)

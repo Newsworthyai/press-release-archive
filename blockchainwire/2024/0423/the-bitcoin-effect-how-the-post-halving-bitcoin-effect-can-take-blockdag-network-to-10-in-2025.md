@@ -42,9 +42,17 @@ Discord: https://discord.gg/Q7BxghMVyu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-bitcoin-effect-how-the-post-halving-bitcoin-effect-can-take-blockdag-network-to-10-in-2025)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cb80am/bitcoin_halving_sparks_crypto_interest/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cb80am/bitcoin_halving_sparks_crypto_interest/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/23/mossBzYw.webp)

@@ -14,9 +14,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/millennial-potash-achieves-key-milestone-with-70-banio-project-interest-209822420 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/millennial-potash-achieves-key-milestone-with-70-banio-project-interest-209822420)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e0q42t/millennial_potash_achieves_key_milestone_with_70/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e0q42t/millennial_potash_achieves_key_milestone_with_70/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/11/deep6eCP.webp)

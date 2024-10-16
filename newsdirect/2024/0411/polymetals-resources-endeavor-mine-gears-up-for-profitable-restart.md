@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/polymetals-resources-endeavor-mine-gears-up-for-profitable-restart-529282104 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/polymetals-resources-endeavor-mine-gears-up-for-profitable-restart-529282104)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1c1o99l/polymetals_resources_ltd_chairman_discusses/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1c1o99l/polymetals_resources_ltd_chairman_discusses/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/larkp735.webp)

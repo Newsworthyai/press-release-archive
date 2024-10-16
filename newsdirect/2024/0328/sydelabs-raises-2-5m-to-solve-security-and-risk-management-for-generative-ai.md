@@ -40,9 +40,17 @@ Company Websitehttps://www.sydelabs.ai/
 
 View source version on newsdirect.com: https://newsdirect.com/news/sydelabs-raises-2-5m-to-solve-security-and-risk-management-for-generative-ai-566933759 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sydelabs-raises-2-5m-to-solve-security-and-risk-management-for-generative-ai-566933759)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bpwjix/security_risk_management_startup_sydelabs_raises/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bpwjix/security_risk_management_startup_sydelabs_raises/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/maskkclk.webp)

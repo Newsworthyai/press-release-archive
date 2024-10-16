@@ -33,9 +33,17 @@ Join us in the FlappyPedro adventure and the $PEDRO pre-sale!
 
 Disclaimer: Participation in the $PEDRO pre-sale and FlappyPedro game is subject to individual discretion. Please conduct your own research before investing or playing. FlappyPedro game participation may require additional terms and conditions. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-flappypedro-play-2-win-game-from-the-real-pedro-dancing-racoon-pedro-creators-alongside-the-pre-sale-launch)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1cjdsni/the_real_pedro_dancing_racoon_pedro_unveils/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1cjdsni/the_real_pedro_dancing_racoon_pedro_unveils/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/3/quip3avK.webp)

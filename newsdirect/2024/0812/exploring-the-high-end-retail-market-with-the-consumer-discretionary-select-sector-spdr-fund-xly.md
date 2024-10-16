@@ -80,9 +80,17 @@ Company Websitehttps://www.sectorspdrs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/exploring-the-high-end-retail-market-with-the-consumer-discretionary-select-sector-spdr-fund-xly-927600897 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/exploring-the-high-end-retail-market-with-the-consumer-discretionary-select-sector-spdr-fund-xly-927600897)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1eqh0mw/diversify_your_luxury_market_exposure_with/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1eqh0mw/diversify_your_luxury_market_exposure_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/12/wallD3oV.webp)

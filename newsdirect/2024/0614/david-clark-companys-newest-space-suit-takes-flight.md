@@ -20,9 +20,17 @@ Company Websitehttps://www.davidclarkcompany.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/david-clark-companys-newest-space-suit-takes-flight-839582484 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/david-clark-companys-newest-space-suit-takes-flight-839582484)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dfunwk/nasa_astronauts_wear_david_clarks_s1100_salus/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dfunwk/nasa_astronauts_wear_david_clarks_s1100_salus/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/14/lark3zO4.webp)

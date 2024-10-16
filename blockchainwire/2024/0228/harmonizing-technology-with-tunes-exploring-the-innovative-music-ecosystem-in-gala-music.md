@@ -58,9 +58,17 @@ Jennifer Lu, Brand Ambassador | Jennifer.lu@coinstore.com
 
 Coinstore Social MediaTwitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Telegram Announcement 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/harmonizing-technology-with-tunes-exploring-the-innovative-music-ecosystem-in-gala-music-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1b6rot4/gala_launches_decentralized_music_platform_with/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1b6rot4/gala_launches_decentralized_music_platform_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/28/airyOD0d.webp)

@@ -36,9 +36,17 @@ Country: Singapore
 
 Website: [https://bhe.global/#/](https://bhe.global/#/) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/breaking-boundaries-bhe-emerges-as-the-next-frontier-in-crypto-asset-trading)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1coqdsk/bhe_exceeds_150_million_registered_users_set_to/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1coqdsk/bhe_exceeds_150_million_registered_users_set_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/10/numbfPNp.webp)

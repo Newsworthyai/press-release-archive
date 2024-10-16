@@ -30,9 +30,17 @@ Company Websitehttps://www.moonpig.com/us/
 
 View source version on newsdirect.com: https://newsdirect.com/news/leading-u-k-greeting-card-company-moonpig-unveils-new-u-s-gift-card-collection-747032359 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/leading-u-k-greeting-card-company-moonpig-unveils-new-u-s-gift-card-collection-747032359)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bzs49p/moonpig_launches_gift_card_addons_just_in_time/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bzs49p/moonpig_launches_gift_card_addons_just_in_time/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/9/peareIio.webp)

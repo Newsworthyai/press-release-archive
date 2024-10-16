@@ -42,9 +42,17 @@ Tel: 516.212.0727
 
 Email: Areyes@hestiainvestments.us 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/hestia-insight-inc-leverages-ai-to-transform-capital-markets-advisory-for-emerging-growth-companies-7075954)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1f7loei/hestia_insight_inc_shifts_focus_to_aienhanced/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1f7loei/hestia_insight_inc_shifts_focus_to_aienhanced/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/2/vastJakG.webp)

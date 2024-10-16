@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/evion-group-begins-expandable-graphite-production-in-india-485345008 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/evion-group-begins-expandable-graphite-production-in-india-485345008)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bzth9i/evion_group_nl_begins_expandable_graphite/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bzth9i/evion_group_nl_begins_expandable_graphite/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/9/kiteIr0w.webp)

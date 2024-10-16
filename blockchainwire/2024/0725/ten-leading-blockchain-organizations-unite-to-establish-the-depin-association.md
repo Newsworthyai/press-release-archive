@@ -64,9 +64,17 @@ About DePIN Association
 
 The DePIN Association is a collective of leading organizations dedicated to advancing the decentralized physical infrastructure networks (DePIN) ecosystem. By leveraging jointly engaging on various verticals: research, education, advocacy and events. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ten-leading-blockchain-organizations-unite-to-establish-the-depin-association)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ebyr3n/depin_association_formed_with_ten_pioneering/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ebyr3n/depin_association_formed_with_ten_pioneering/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/25/openoB9G.webp)

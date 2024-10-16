@@ -37,9 +37,17 @@ Become a part of HR.com’s HR Research Influencer panel today. Participate in s
 
 Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202408151237/performance-management-shows-progress-but-execution-gaps-remain-new-study-by-hr-research-institute)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HRnews/comments/1estniv/new_study_reveals_challenges_and_opportunities_in/
+
+
+[Reddit Post](https://www.reddit.com/r/HRnews/comments/1estniv/new_study_reveals_challenges_and_opportunities_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/248/15/wolfRguT.webp)

@@ -40,9 +40,17 @@ Company Websitehttps://www.tg.casino/en
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-crypto-casino-tg-casino-becomes-regional-igaming-partner-of-ac-milan-372013869 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/new-crypto-casino-tg-casino-becomes-regional-igaming-partner-of-ac-milan-372013869)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cn333b/tgcasino_partners_with_ac_milan_for_exclusive/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cn333b/tgcasino_partners_with_ac_milan_for_exclusive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/8/pend5nuV.webp)

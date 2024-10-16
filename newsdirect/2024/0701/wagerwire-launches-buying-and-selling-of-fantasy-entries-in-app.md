@@ -24,9 +24,17 @@ Company Websitehttps://www.wagerwire.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/wagerwire-launches-buying-and-selling-of-fantasy-entries-in-app-980667988 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/wagerwire-launches-buying-and-selling-of-fantasy-entries-in-app-980667988)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dsu5ih/wagerwire_launches_fantasy_entry_buying_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dsu5ih/wagerwire_launches_fantasy_entry_buying_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/1/sageOHOw.webp)

@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/painreform-advances-pain-relief-solution-prf-110-in-phase-3-trial-to-combat-opioid-crisis-657098434 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/painreform-advances-pain-relief-solution-prf-110-in-phase-3-trial-to-combat-opioid-crisis-657098434)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cmg7wj/painreform_advances_nonopioid_pain_relief/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cmg7wj/painreform_advances_nonopioid_pain_relief/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/divebT9o.webp)

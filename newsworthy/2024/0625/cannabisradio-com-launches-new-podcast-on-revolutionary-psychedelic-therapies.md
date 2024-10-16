@@ -22,9 +22,17 @@ DemeRx is a Miami-based clinical-stage biotech platform developing next generati
 
 Noribogaine hydrichloride is a new chemical entity azepinoindole that fits into the category of novel "psychoplastogen" therapeutic agents. DMX-1001 is positioned to build upon the success of this novel class of next generation therapeutics to advance an oral dose formulation of DMX-1001 to Phase 2a (n=120) for alcohol use disorder (AUD) in Q2 2025. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202406251153/cannabisradio-com-launches-new-podcast-on-revolutionary-psychedelic-therapies)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1do4jgm/cannabisradiocom_launches_new_podcast_on/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1do4jgm/cannabisradiocom_launches_new_podcast_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/246/25/loftylAL.webp)

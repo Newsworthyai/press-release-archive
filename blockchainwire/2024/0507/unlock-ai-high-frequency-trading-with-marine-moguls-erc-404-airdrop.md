@@ -52,9 +52,17 @@ CoinMarketCap: https://coinmarketcap.com/currencies/metfi2
 
 CoinGecko: https://www.coingecko.com/en/coins/metfiInstagram: https://instagram.com/metfidao 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/unlock-ai-high-frequency-trading-with-marine-moguls-erc-404-airdrop)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cm9eak/revolutionizing_digital_asset_management_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cm9eak/revolutionizing_digital_asset_management_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/7/deep4wYl.webp)

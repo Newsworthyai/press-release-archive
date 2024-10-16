@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/far-east-gold-logs-high-grade-gold-boosts-strike-at-woylas-victory-vein-190386023 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/far-east-gold-logs-high-grade-gold-boosts-strike-at-woylas-victory-vein-190386023)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bztpsd/far_east_gold_unearths_highgrade_gold_and_extends/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bztpsd/far_east_gold_unearths_highgrade_gold_and_extends/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/9/knobtmBQ.webp)

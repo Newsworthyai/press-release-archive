@@ -52,9 +52,17 @@ LAS VEGAS, NV - (NewMediaWire) - August 28, 2024 - Golden Matrix Group (NASDAQ:
 
  Gregory.Michaels@icrinc.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-provides-update-on-entering-u-s-market-and-expansion-into-additional-european-markets-7075972)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f7loz1/golden_matrix_group_nasdaq_gmgi_expanding_market/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f7loz1/golden_matrix_group_nasdaq_gmgi_expanding_market/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/2/jazzjnuo.webp)

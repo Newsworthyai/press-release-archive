@@ -26,9 +26,17 @@ For investors and traders, this breakout presents a lucrative opportunity. Enter
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/maga-vp-mvp-to-reach-10-as-trumps-running-mate-becomes-the-most-important-vp-pick-of-our-time-is-mvp-the-next-100x-opportunity)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d7mmjm/maga_vp_token_mvp_set_to_impact_the_future_of/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d7mmjm/maga_vp_token_mvp_set_to_impact_the_future_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/envyP7uc.webp)

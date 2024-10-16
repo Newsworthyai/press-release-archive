@@ -37,9 +37,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-crucial-role-of-gut-health-transforming-gut-health-through-nutrition-530202148 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-crucial-role-of-gut-health-transforming-gut-health-through-nutrition-530202148)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d47926/transform_your_gut_health_with_myfitnesspals_gut/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d47926/transform_your_gut_health_with_myfitnesspals_gut/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/30/ricewPLm.webp)

@@ -20,9 +20,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pantheon-resources-eyes-resource-upgrade-and-financing-developments-392568316 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pantheon-resources-eyes-resource-upgrade-and-financing-developments-392568316)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bpufjp/pantheon_resources_eyes_resource_upgrade_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bpufjp/pantheon_resources_eyes_resource_upgrade_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/maskK8kU.webp)

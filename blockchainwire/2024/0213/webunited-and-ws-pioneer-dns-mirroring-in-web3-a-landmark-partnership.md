@@ -28,9 +28,17 @@ Eshan Pancholi
 
 hello@webunited.comPaul Apanowicz paul.apanowicz@website.ws 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/webunited-and-ws-pioneer-dns-mirroring-in-web3-a-landmark-partnership)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1avwzka/ws_and_webunited_partner_to_integrate_domain/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1avwzka/ws_and_webunited_partner_to_integrate_domain/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/13/cornR0LN.webp)

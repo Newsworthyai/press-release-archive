@@ -70,9 +70,17 @@ Company Websitehttps://chitrakutdhamtalgajarda.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/indian-spiritual-leader-morari-bapu-dedicates-ram-katha-at-the-united-nations-to-the-organisation-for-world-peace-932357936 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/indian-spiritual-leader-morari-bapu-dedicates-ram-katha-at-the-united-nations-to-the-organisation-for-world-peace-932357936)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1elism9/morari_bapu_dedicates_spiritual_event_at_un_for/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1elism9/morari_bapu_dedicates_spiritual_event_at_un_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/6/yarnlaH1.webp)

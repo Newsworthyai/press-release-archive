@@ -36,9 +36,17 @@ oscar@casinoonline.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/spilleloven-i-danmark-hvad-du-skal-vide-191995773 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/spilleloven-i-danmark-hvad-du-skal-vide-191995773)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cbnzn2/understanding_the_complexities_of_the_danish/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cbnzn2/understanding_the_complexities_of_the_danish/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/24/lineZQgY.webp)

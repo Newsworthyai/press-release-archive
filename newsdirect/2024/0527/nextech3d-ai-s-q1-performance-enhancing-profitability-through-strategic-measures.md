@@ -14,9 +14,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ais-q1-performance-enhancing-profitability-through-strategic-measures-768580386 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nextech3d-ais-q1-performance-enhancing-profitability-through-strategic-measures-768580386)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1d1vm28/nextech3dai_ceo_discusses_q1_performance_and/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1d1vm28/nextech3dai_ceo_discusses_q1_performance_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/27/rubyCeyZ.webp)

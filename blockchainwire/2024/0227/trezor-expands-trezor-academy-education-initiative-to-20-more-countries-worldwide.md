@@ -22,9 +22,17 @@ Trezor is the original bitcoin hardware wallet company, founded in 2013. It pio
 
 Trezor has expanded to offer a whole ecosystem of easy-to-use both hardware and software  products that help protect users - from crypto novices to crypto experts. In 2023, the company launched its Trezor Academy initiative which educates grassroots communities across the African content on safe participation in the bitcoin ecosystem. Trezor is part of SatoshiLabs, a technology holding company with various interests in crypto and bitcoin companies. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/trezor-expands-trezor-academy-education-initiative-to-20-more-countries-worldwide)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1b6rqqg/trezor_expands_bitcoin_education_program_to_20/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1b6rqqg/trezor_expands_bitcoin_education_program_to_20/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/27/peargfxl.webp)

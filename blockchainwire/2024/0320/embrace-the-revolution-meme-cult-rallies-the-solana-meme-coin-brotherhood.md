@@ -34,9 +34,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/embrace-the-revolution-meme-cult-rallies-the-solana-meme-coin-brotherhood)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bjbn3k/meme_cult_revolutionizing_the_solana_meme_coin/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bjbn3k/meme_cult_revolutionizing_the_solana_meme_coin/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/20/mean1hbO.webp)

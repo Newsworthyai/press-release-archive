@@ -26,9 +26,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cyberkart-unveils-the-future-of-multiplayer-crypto-gaming-a-thrilling-fusion-of-racing-strategy-and-blockchain-technology)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1b6rmy1/cyberkart_launches_multiplayer_crypto_racing_game/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1b6rmy1/cyberkart_launches_multiplayer_crypto_racing_game/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/4/keepQHGP.webp)

@@ -34,9 +34,17 @@ Moreover, Gevulot enjoys the support of recognized VC backers with the project r
 
 You can follow the project’s development and stay up to date at these links: Website | X (Twitter) | Telegram | GitHub | LinkedIn | Docs | Galxe Campaign | Discord 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gevulot-sets-firestarter-mainnet-launch-on-july-15-explains-zk-endgame-approach)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cxyoui/gevulot_launches_zkcloud_for_zeroknowledge_proof/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cxyoui/gevulot_launches_zkcloud_for_zeroknowledge_proof/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/22/xenoDyab.webp)

@@ -30,9 +30,17 @@
 
  [1] https://www.forbes.com/sites/jackkelly/2023/08/09/the-great-wealth-transfer-from-baby-boomers-to-millennials-will-impact-the-job-market-and-economy/ 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/free-estate-planning-webinar-provides-tools-for-a-secure-financial-future-7076167)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fzsy2l/american_heart_association_offers_free_webinar/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fzsy2l/american_heart_association_offers_free_webinar/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/9/lossyTON.webp)

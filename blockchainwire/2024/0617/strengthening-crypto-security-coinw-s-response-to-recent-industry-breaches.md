@@ -42,9 +42,17 @@ CoinW has also achieved compliance milestones, such as obtaining the digital cur
 
 'In summary, the security level of a centralized exchange is determined by its technical measures, business operations, internal management, and its response to security incidents. These factors collectively ensure the robustness and reliability of the exchange, providing users with a safe and trustworthy trading environment.' CoinW's Head of Security commented. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/strengthening-crypto-security-coinws-response-to-recent-industry-breaches)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dhvnlu/rising_crypto_security_threats_and_coinws/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dhvnlu/rising_crypto_security_threats_and_coinws/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/17/frog_Xkb.webp)

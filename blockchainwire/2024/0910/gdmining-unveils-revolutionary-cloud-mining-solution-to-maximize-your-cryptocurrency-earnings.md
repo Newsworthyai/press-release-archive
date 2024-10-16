@@ -22,9 +22,17 @@ ConclusionGDMining’s revolutionary cloud mining solution is set to change the 
 
 For more information, Please visit their official website: https://gdmining.com/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-unveils-revolutionary-cloud-mining-solution-to-maximize-your-cryptocurrency-earnings)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fulqba/gdmining_launches_groundbreaking_cloud_mining/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fulqba/gdmining_launches_groundbreaking_cloud_mining/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/11/jadefHkp.webp)

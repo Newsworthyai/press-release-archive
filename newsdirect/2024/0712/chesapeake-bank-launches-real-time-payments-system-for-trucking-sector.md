@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/chesapeake-bank-launches-real-time-payments-system-for-trucking-sector-953915273 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/chesapeake-bank-launches-real-time-payments-system-for-trucking-sector-953915273)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1e1o6bo/chesapeake_bank_revolutionizes_trucking_sector/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1e1o6bo/chesapeake_bank_revolutionizes_trucking_sector/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/12/glowu_El.webp)

@@ -36,9 +36,17 @@ Anyone who would like to know more about the game of Whack'em TON can check out 
 
 X (Twitter) | Telegram | Telegram bot 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/whackem-ton-mini-game-launches-on-telegram-with-exclusive-tap-game-features)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1ewpcrk/whackem_ton_the_launch_of_a_revolutionary/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1ewpcrk/whackem_ton_the_launch_of_a_revolutionary/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/20/joltvrVS.webp)

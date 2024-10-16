@@ -6,9 +6,17 @@ FLOKITA Swap features (SOL+ETH)1.) Swapping tokens on BSC2.) Using our farms and
 
 $FLOKITA SOL team have given you a wide variety of social platforms that you can engage with and communicate with other people in the project. Right there you can contact the team and ask them anything you feel like it! I have done it myself and they are flawless in their response.Let your imagination run wild, and let's make the internet buzz with #FLOKITASOL humor. Ready, set, meme!You know how every one of these dog tokens have grown parabolically?Well… don't miss out on Miss Flokita and take this chance to be early for once!— DOGE needs a Wifey and BabyDoge a mommy with the same value —Join us for more :Website: [http://flokita.io](http://flokita.io)Dex: [https://flokita.exchange/](https://flokita.exchange/)Telegram: [https://t.me/flokita_portal](https://t.me/flokita_portal)Twitter: [https://x.com/missflokita](https://x.com/missflokita)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/flokita-team-is-proud-to-present-flokita-swap)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1e0mf2g/miss_flokita_launches_decentralized_exchange_on/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1e0mf2g/miss_flokita_launches_decentralized_exchange_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/10/glowTw03.webp)

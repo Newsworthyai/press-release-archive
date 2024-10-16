@@ -34,9 +34,17 @@ Q International Foundation is a not-for-profit organization located in Liechtens
 
 Media contact via Cassiopeia [info@cassiopeia-ltd.com](mailto:info@cassiopeia-ltd.com)nadine@cassiopeia-ltd.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/stanford-professor-jeff-strnad-joins-advisory-panel-of-q-international-foundation-to-address-daos-governance-challenges-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1e0vjxc/stanford_university_professor_joins_q/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1e0vjxc/stanford_university_professor_joins_q/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/11/kiwiErSj.webp)

@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/iondrive-has-battery-recycling-position-validated-333179538 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/iondrive-has-battery-recycling-position-validated-333179538)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bwohfp/iondrive_ceo_ebbe_dommisse_shares_progress_in/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bwohfp/iondrive_ceo_ebbe_dommisse_shares_progress_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/5/loftyz3i.webp)

@@ -34,9 +34,17 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-has-onboarded-over-2-5m-users-in-mena-region-in-the-past-six-months-165061077 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitget-has-onboarded-over-2-5m-users-in-mena-region-in-the-past-six-months-165061077)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c676mq/bitget_reports_rapid_growth_in_mena_region_plans/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c676mq/bitget_reports_rapid_growth_in_mena_region_plans/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/17/mendR4QL.webp)

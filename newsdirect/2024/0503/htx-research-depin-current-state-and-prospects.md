@@ -376,9 +376,17 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-research-depin-current-state-and-prospects-325153621 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-research-depin-current-state-and-prospects-325153621)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cja3q7/decentralized_physical_infrastructure_networks/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cja3q7/decentralized_physical_infrastructure_networks/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/3/rendY8tT.webp)

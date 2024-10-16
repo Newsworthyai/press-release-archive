@@ -32,9 +32,17 @@ The WPP Token launch further shows WPP Energy's dedication to connecting real-wo
 
 About WPP EnergyWPP Energy is changing the energy sector by developing innovative technologies that tackle the challenges of relying on fossil fuels. It offers sustainable alternatives to traditional energy sources through clean hydrogen production with W2H2 and waste-to-energy conversion with EcoFusion. These solutions are designed to work seamlessly with current infrastructure while greatly cutting emissions and waste. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/wpp-energy-is-changing-the-11-trillion-energy-sector-with-blockchain-and-green-tech)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1g3kgmr/wpp_energy_leading_the_shift_to_clean_energy_with/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1g3kgmr/wpp_energy_leading_the_shift_to_clean_energy_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/14/mildnfVr.webp)

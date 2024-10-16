@@ -40,9 +40,17 @@ Telegram:https://t.me/blockDAGnetworkOfficial
 
 Discord: https://discord.gg/Q7BxghMVyu 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-breakthrough-bill-could-see-bitcoin-ethereum-and-blockdag-network-prices-skyrocket-very-soon)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dfunu6/bitcoin_and_cryptocurrency_market_surge_key/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dfunu6/bitcoin_and_cryptocurrency_market_surge_key/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/14/rubyaSTn.webp)

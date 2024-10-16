@@ -20,9 +20,17 @@ Company Websitehttps://www.aob.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/correcting-and-replacing-american-outdoor-brands-to-present-at-share-series-event-549307675 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/correcting-and-replacing-american-outdoor-brands-to-present-at-share-series-event-549307675)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cd1u0f/american_outdoor_brands_inc_to_participate_in/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cd1u0f/american_outdoor_brands_inc_to_participate_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/25/leanTTr9.webp)

@@ -43,9 +43,17 @@ Visit Our Blog
  * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/tidbitsofchange/news_release/1419)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bko90b/skadi_tour_nears_historic_feat_44_ski_areas_in_42/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bko90b/skadi_tour_nears_historic_feat_44_ski_areas_in_42/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/243/22/daveVqcJ.webp)

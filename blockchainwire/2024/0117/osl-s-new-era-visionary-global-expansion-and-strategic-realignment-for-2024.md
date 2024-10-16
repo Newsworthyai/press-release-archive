@@ -37,9 +37,17 @@ media@osl.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/osls-new-era-visionary-global-expansion-and-strategic-realignment-for-2024-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1avds6c/osl_group_unveils_global_expansion_strategy_for/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1avds6c/osl_group_unveils_global_expansion_strategy_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/pearg5gF.webp)

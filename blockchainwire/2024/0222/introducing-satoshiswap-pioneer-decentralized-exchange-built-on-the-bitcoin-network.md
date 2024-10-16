@@ -22,9 +22,17 @@ While built on the Stacks L2 chain, SatoshiSwap ultimately interacts with the Bi
 
 SatoshiSwap, operating on the Stacks Layer 2 chain, is a groundbreaking DeFi protocol revolutionizing the Bitcoin blockchain ecosystem. As a decentralized exchange, SatoshiSwap facilitates seamless asset swaps and liquidity provision, eliminating the need for wrapped assets and costly Ethereum fees.     With its platform at satoshiswap.ai, users can directly trade tokens on Bitcoin, enhancing accessibility and reducing transaction costs. Leveraging the Stacks Layer 2 chain ensures swift transaction processing while maintaining the security and decentralization. SatoshiSwap leads a new era of decentralized finance, where innovation meets with utility on the Bitcoin blockchain. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-satoshiswap-pioneer-decentralized-exchange-built-on-the-bitcoin-network)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ay4qd4/satoshiswap_bringing_defi_innovation_to_the/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ay4qd4/satoshiswap_bringing_defi_innovation_to_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/22/urge1PUH.webp)

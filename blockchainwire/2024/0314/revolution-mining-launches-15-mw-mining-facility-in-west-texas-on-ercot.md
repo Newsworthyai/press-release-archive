@@ -36,9 +36,17 @@ Telegram - https://t.me/revolution_mining_official
 
 Facebook - https://www.facebook.com/RevolMining 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/revolution-mining-launches-15-mw-mining-facility-in-west-texas-on-ercot)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bensms/revolution_mining_launches_stateoftheart_15mw/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bensms/revolution_mining_launches_stateoftheart_15mw/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/14/ovalqSIA.webp)

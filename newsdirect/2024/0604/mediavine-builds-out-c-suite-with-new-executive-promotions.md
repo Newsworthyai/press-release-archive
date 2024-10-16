@@ -26,9 +26,17 @@ mediavine@kitehillpr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mediavine-builds-out-c-suite-with-new-executive-promotions-525493247 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/mediavine-builds-out-c-suite-with-new-executive-promotions-525493247)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d7zjhl/mediavine_appoints_amanda_martin_as_cro_and_jamie/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d7zjhl/mediavine_appoints_amanda_martin_as_cro_and_jamie/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/4/wamcTbxm.webp)

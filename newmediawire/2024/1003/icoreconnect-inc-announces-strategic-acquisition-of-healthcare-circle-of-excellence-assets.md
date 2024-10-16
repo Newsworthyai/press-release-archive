@@ -26,9 +26,17 @@ IR@icoreconnect.com
 
 888.810.7706, ext 5 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/icoreconnect-inc-announces-strategic-acquisition-of-healthcare-circle-of-excellence-assets-7076150)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1fx6i0b/icoreconnect_inc_acquires_healthcare_circle_of/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1fx6i0b/icoreconnect_inc_acquires_healthcare_circle_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/6/lendrZ4T.webp)

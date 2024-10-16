@@ -30,9 +30,17 @@ Darya Karpukova, CCO
 
 press@tangem.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/tangem-to-unveil-its-first-crypto-visa-payment-card-combined-with-a-hardware-wallet)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dvvj48/tangem_ag_partners_with_visa_to_introduce/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dvvj48/tangem_ag_partners_with_visa_to_introduce/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/5/glueeol_.webp)

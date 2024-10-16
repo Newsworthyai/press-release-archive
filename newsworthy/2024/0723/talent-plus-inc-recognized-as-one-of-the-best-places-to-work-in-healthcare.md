@@ -14,9 +14,17 @@ About Talent Plus
 
 Talent Plus, an internationally recognized global talent consulting firm in over 20 countries, delivers interviews and assessments in 20+ languages. We use world-class science to help clients grow high performing, fully engaged cultures through talent discovery and development. Our results show improved work performance, increased productivity, reduced turnover, strengthened employee engagement and bottom-line results. To learn more, visit www.talentplus.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202407231216/talent-plus-inc-recognized-as-one-of-the-best-places-to-work-in-healthcare)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HRnews/comments/1eaa7r7/talent_plus_inc_named_one_of_the_2024_best_places/
+
+
+[Reddit Post](https://www.reddit.com/r/HRnews/comments/1eaa7r7/talent_plus_inc_named_one_of_the_2024_best_places/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/247/23/barnOi4Q.webp)

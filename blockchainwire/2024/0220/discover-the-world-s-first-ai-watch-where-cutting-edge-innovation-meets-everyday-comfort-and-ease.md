@@ -46,9 +46,17 @@ Email: contact@chatuni.com
 
 Website: www.chatuni.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-worlds-first-ai-watch-where-cutting-edge-innovation-meets-everyday-comfort-and-ease)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1avwxtb/gaia_ai_lab_launches_chatuni_one_ai_watch/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1avwxtb/gaia_ai_lab_launches_chatuni_one_ai_watch/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/20/noteSZyV.webp)

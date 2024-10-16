@@ -24,9 +24,17 @@ aibrainstormcreator.net
 
 Facebook Group | Facebook | Linkedin | X (Twitter) |Instagram | Pinterest 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402061056/do-people-use-social-media-too-much-not-if-they-use-it-with-ai-to-connect-with-the-world-to-help-others-thrive-says-ngo)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avxit8/ngo_uses_ai_to_create_shared_emotional_peak/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avxit8/ngo_uses_ai_to_create_shared_emotional_peak/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/neonRbbp.webp)

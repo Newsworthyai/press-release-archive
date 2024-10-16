@@ -20,9 +20,17 @@ Overall, Usdcbtc’s success is not only the result of its own continuous innova
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/usdcbtc-digital-economy-platform-surpasses-3-million-global-users-new-financial-entity-gains-wide-recognition-in-global-markets)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1diywa8/digital_economy_platform_usdcbtc_surpasses_3/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1diywa8/digital_economy_platform_usdcbtc_surpasses_3/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/18/losscZPX.webp)

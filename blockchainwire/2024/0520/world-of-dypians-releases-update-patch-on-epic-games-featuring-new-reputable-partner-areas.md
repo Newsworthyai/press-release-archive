@@ -36,9 +36,17 @@ World of Dypians has recently been on a streak of exceptional developments, incl
 
 You can learn more about World of Dypians and stay up-to-date with its development at these links: Website | Twitter | Discord | Telegram | GitHub | YouTube | Download on Epic Games. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/world-of-dypians-releases-update-patch-on-epic-games-featuring-new-reputable-partner-areas)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1cw9kcm/world_of_dypians_releases_major_update_with/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1cw9kcm/world_of_dypians_releases_major_update_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/20/dualaRDK.webp)

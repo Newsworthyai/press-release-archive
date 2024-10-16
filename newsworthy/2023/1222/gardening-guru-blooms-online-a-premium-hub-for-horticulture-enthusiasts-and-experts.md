@@ -18,9 +18,17 @@ Gardening.guru aims to sow seeds of wisdom in the hearts of gardening aficionado
 
 Sprout your gardening prowess and passion at www.Gardening.guru. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231222822/gardening-guru-blooms-online-a-premium-hub-for-horticulture-enthusiasts-and-experts)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1avxpj8/gardeningguru_launches_as_the_ultimate_digital/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1avxpj8/gardeningguru_launches_as_the_ultimate_digital/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/milkndjy.webp)

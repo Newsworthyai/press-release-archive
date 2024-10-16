@@ -16,9 +16,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nevada-lithium-unveils-high-grade-boron-discovery-at-bonnie-claire-project-479144648 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nevada-lithium-unveils-high-grade-boron-discovery-at-bonnie-claire-project-479144648)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1czmcgf/nevada_lithium_unveils_highgrade_boron_discovery/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1czmcgf/nevada_lithium_unveils_highgrade_boron_discovery/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/24/daveJAsg.webp)

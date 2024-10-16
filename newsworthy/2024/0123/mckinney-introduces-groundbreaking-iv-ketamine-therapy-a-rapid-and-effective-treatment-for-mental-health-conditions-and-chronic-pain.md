@@ -10,9 +10,17 @@ Compared to traditional medications, IV Ketamine Therapy offers rapid relief, ma
 
 With IV Ketamine Therapy, residents of McKinney now have access to a cutting-edge treatment option that effectively addresses mental health conditions and chronic pain. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401231019/mckinney-introduces-groundbreaking-iv-ketamine-therapy-a-rapid-and-effective-treatment-for-mental-health-conditions-and-chronic-pain)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1avleg9/groundbreaking_iv_ketamine_therapy_now_available/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1avleg9/groundbreaking_iv_ketamine_therapy_now_available/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/ovalDLVP.webp)

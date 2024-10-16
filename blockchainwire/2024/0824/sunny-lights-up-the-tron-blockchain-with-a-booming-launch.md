@@ -28,9 +28,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/sunny-lights-up-the-tron-blockchain-with-a-booming-launch)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f0ee2h/sunny_token_launches_on_tron_blockchain_creating/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f0ee2h/sunny_token_launches_on_tron_blockchain_creating/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/24/zeal9uT7.webp)

@@ -26,9 +26,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/smart-glasses-let-you-see-the-world-in-a-new-way-393684693 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/smart-glasses-let-you-see-the-world-in-a-new-way-393684693)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fsujpy/vuzix_corp_ceo_discusses_augmented_reality/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fsujpy/vuzix_corp_ceo_discusses_augmented_reality/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/30/swimSkdD.webp)

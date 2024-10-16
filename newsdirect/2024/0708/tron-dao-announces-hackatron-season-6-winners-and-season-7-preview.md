@@ -183,9 +183,17 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-announces-hackatron-season-6-winners-and-season-7-preview-742186952 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tron-dao-announces-hackatron-season-6-winners-and-season-7-preview-742186952)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1dyacfz/tron_dao_announces_hackatron_season_6_winners_and/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1dyacfz/tron_dao_announces_hackatron_season_6_winners_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/8/jade_BWg.webp)

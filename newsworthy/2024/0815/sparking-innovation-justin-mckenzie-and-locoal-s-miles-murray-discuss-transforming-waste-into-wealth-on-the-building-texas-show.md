@@ -20,9 +20,17 @@ Contact Information:Justin McKenziejustin@buildingtexasshow.comwww.buildingtexas
 
 For more information about the podcast, visit www.buildingtexasshow.comTo learn more about LOCOAL, visit www.locoal.com 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202408151236/sparking-innovation-justin-mckenzie-and-locoal-s-miles-murray-discuss-transforming-waste-into-wealth-on-the-building-texas-show)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1esxrz8/the_building_texas_show_spotlights_locoals/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1esxrz8/the_building_texas_show_spotlights_locoals/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/248/15/lambgdu9.webp)

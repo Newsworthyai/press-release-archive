@@ -56,9 +56,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/from-inking-new-partnerships-to-hosting-federal-leaders-dragonfly-energy-is-busy-growing-the-lithium-battery-market-210132171 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/from-inking-new-partnerships-to-hosting-federal-leaders-dragonfly-energy-is-busy-growing-the-lithium-battery-market-210132171)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1dy8ant/dragonfly_energys_recent_wins_and_commitment_to/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1dy8ant/dragonfly_energys_recent_wins_and_commitment_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/8/daveeVOl.webp)

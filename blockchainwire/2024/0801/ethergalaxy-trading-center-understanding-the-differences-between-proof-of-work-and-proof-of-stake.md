@@ -48,9 +48,17 @@ Conclusion
 
 While PoW and PoS operate differently, both serve the essential purpose of facilitating a decentralized and secure cryptocurrency network. Each mechanism has its advantages and drawbacks, making the choice between them dependent on individual preferences and priorities. Understanding how these mechanisms work can help you make informed decisions about which cryptocurrency systems align best with your needs. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ethergalaxy-trading-center-understanding-the-differences-between-proof-of-work-and-proof-of-stake)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ehkjsw/understanding_the_difference_between_proof_of/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ehkjsw/understanding_the_difference_between_proof_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/1/larkIyVU.webp)

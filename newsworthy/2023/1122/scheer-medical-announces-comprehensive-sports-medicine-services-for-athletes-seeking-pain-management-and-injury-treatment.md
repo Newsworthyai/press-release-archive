@@ -10,9 +10,17 @@ The sports medicine services at Scheer Medical encompass a wide range of treatme
 
 Dr. Mark Johnson, a respected medical doctor at Scheer Medical, further explained the clinic's approach to sports medicine. Dr. Johnson stated, "At Scheer Medical, we employ a multidisciplinary team of experts who collaborate to deliver comprehensive care. Our goal is to not only provide effective treatment but also educate athletes on injury prevention and performance optimization. By addressing the root causes of sports-related injuries, we empower athletes to achieve long-term health and success." 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231122891/scheer-medical-announces-comprehensive-sports-medicine-services-for-athletes-seeking-pain-management-and-injury-treatment)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avwzr0/scheer_medical_unveils_cuttingedge_sports/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avwzr0/scheer_medical_unveils_cuttingedge_sports/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/larkLkXu.webp)

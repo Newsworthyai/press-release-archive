@@ -32,9 +32,17 @@ In recent years, with abundant use cases of the supply chain industry, the rapid
 
 In the 2023 annual results released on March 26th, Linklogis announced a shareholder return plan, intending to continuously enhance capital returns to shareholders through cash dividends and share repurchases. The latest cash reserves of Linklogis have reached RMB5.2 billion, with the management reaffirming their commitment to enhancing shareholder returns through the implementation of a share repurchase plan of up to $100 million. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/linklogis-starts-first-quarter-with-strong-performance-with-the-transaction-volume-reaching-rmb962-billion-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cb5dy5/linklogis_inc_achieves_strong_first_quarter/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cb5dy5/linklogis_inc_achieves_strong_first_quarter/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/23/envypOrl.webp)

@@ -84,9 +84,17 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-why-bouncebits-innovative-solutions-might-be-key-to-unlock-the-bitcoin-btc-ecosystem-271151466 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-ventures-why-bouncebits-innovative-solutions-might-be-key-to-unlock-the-bitcoin-btc-ecosystem-271151466)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bpr72k/btc_spot_etf_approval_sparks_surge_in_btc_prices/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bpr72k/btc_spot_etf_approval_sparks_surge_in_btc_prices/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/bestqMwp.webp)

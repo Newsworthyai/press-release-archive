@@ -32,9 +32,17 @@ For more information or to request an interview:
 
 hello@toymak3rs.com | jellybean.xyz | toymak3rs.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/wen-and-toymak3rs-debut-limited-edition-collectible-toy-that-unlocks-unique-cross-chain-nfts-using-jellybean-technology)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1e6j1bd/toymak3rstrade_and_wen_partner_to_revolutionize/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1e6j1bd/toymak3rstrade_and_wen_partner_to_revolutionize/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/18/fernUZcZ.webp)

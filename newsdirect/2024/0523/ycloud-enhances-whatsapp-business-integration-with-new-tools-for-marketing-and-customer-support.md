@@ -35,9 +35,17 @@ Company Websitehttps://www.ycloud.com/zh
 
 View source version on newsdirect.com: https://newsdirect.com/news/ycloud-enhances-whatsapp-business-integration-with-new-tools-for-marketing-and-customer-support-810934333 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ycloud-enhances-whatsapp-business-integration-with-new-tools-for-marketing-and-customer-support-810934333)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/MarketingNewsramp/comments/1cynm6v/ycloud_enhances_whatsapp_business_integration/
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1cynm6v/ycloud_enhances_whatsapp_business_integration/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/23/oxenO_iN.webp)

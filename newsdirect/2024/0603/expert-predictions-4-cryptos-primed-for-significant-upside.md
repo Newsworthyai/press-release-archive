@@ -48,9 +48,17 @@ marketing@rebelsatoshi.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/expert-predictions-4-cryptos-primed-for-significant-upside-378432266 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/expert-predictions-4-cryptos-primed-for-significant-upside-378432266)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1d7lnqu/expert_predictions_4_cryptos_primed_for/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1d7lnqu/expert_predictions_4_cryptos_primed_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/3/riceoVWo.webp)

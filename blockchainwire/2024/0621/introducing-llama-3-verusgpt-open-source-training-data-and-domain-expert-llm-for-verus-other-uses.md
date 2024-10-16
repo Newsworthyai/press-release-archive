@@ -28,9 +28,17 @@ We also encourage you to start interacting with VerusGPT on Discord, where you c
 
 X: [https://x.com/veruscoin](https://x.com/veruscoin)Telegram: [https://t.me/veruscommunity](https://t.me/veruscommunity)Youtube: [https://www.youtube.com/@VerusCoinCommunity](https://www.youtube.com/@VerusCoinCommunity)Reddit: [https://www.reddit.com/r/VerusCoin/](https://www.reddit.com/r/VerusCoin/)Medium: [https://medium.com/veruscoin](https://medium.com/veruscoin) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-llama-3-verusgpt--open-source-training-data-and-domain-expert-llm-for-verus--other-uses)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dmq2o4/verus_community_launches_llama_3_verusgpt_a/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dmq2o4/verus_community_launches_llama_3_verusgpt_a/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/21/vastEhjO.webp)

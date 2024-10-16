@@ -40,9 +40,17 @@ Email: cs@Gityer.net
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gityer-exchange-signs-mou-with-panamanian-government-to-jointly-promote-blockchain-education-projects)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ectf2j/gityer_exchange_signs_mou_with_panamanian/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ectf2j/gityer_exchange_signs_mou_with_panamanian/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/26/camcfFHy.webp)

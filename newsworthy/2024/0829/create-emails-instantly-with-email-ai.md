@@ -30,9 +30,17 @@ About SalesNexus
 
 SalesNexus is a leading provider of CRM and email marketing solutions designed to help businesses grow and thrive. With a focus on ease of use, powerful features, and exceptional customer support, SalesNexus empowers businesses to connect with their customers in meaningful ways. For more information, visit https://salesnexus.com/blog/do-more-with-email-ai. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202408291250/create-emails-instantly-with-email-ai)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/MarketingNewsramp/comments/1f45wuw/salesnexus_launches_aipowered_email_writer_to/
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1f45wuw/salesnexus_launches_aipowered_email_writer_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/248/29/limeaouS.webp)

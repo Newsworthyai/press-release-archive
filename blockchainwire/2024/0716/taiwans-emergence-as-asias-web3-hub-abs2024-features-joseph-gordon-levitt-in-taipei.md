@@ -59,9 +59,17 @@ Website | X | Linkedin | Facebook
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/taiwans-emergence-as-asias-web3-hub--abs2024-features-joseph-gordon-levitt-in-taipei)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1e6j0xb/abs2024_summit_in_taipei_blockchain_ai_and_the/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1e6j0xb/abs2024_summit_in_taipei_blockchain_ai_and_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/18/tintFZ5t.webp)

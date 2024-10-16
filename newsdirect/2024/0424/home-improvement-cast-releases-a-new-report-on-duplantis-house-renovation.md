@@ -41,9 +41,17 @@ Company Websitehttps://homeimprovementcast.co.uk/
 
 View source version on newsdirect.com: https://newsdirect.com/news/home-improvement-cast-releases-a-new-report-on-duplantis-house-renovation-583365398 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/home-improvement-cast-releases-a-new-report-on-duplantis-house-renovation-583365398)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cbnsom/home_improvement_cast_releases_comprehensive/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cbnsom/home_improvement_cast_releases_comprehensive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/24/barnPwIN.webp)

@@ -34,9 +34,17 @@ Company Websitehttps://unos.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/unos-applauds-passage-of-faa-reauthorization-bill-253190234 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/unos-applauds-passage-of-faa-reauthorization-bill-253190234)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1csswxk/unos_applauds_passage_of_faa_reauthorization_bill/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1csswxk/unos_applauds_passage_of_faa_reauthorization_bill/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/fine2vs8.webp)

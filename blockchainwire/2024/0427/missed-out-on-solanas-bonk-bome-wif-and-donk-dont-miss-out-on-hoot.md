@@ -32,9 +32,17 @@ For more details and information.
 
 Media Contact:Name: Frieda OlafEmail: support@hoot.cool 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/missed-out-on-solanas-bonk-bome-wif-and-donk-dont-miss-out-on-hoot)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1ceodvo/hootcool_unveiling_the_magic_of_the_owlthemed/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1ceodvo/hootcool_unveiling_the_magic_of_the_owlthemed/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/27/smogPRib.webp)

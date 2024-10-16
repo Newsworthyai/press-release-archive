@@ -32,9 +32,17 @@ Anna Benson
 
 anna@picklejar.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/picklejar-unveils-latest-venue-managed-services-innovations-in-upcoming-webinar-7075961)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1f7logw/picklejar_unveils_new_digital_signage_and/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1f7logw/picklejar_unveils_new_digital_signage_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/2/lineKOCt.webp)

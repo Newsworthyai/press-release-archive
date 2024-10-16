@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nrxs-nasdaq-nrxp-nmda-modification-therapy-and-its-multiple-applications-from-mental-health-to-chronic-pain-179610199 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nrxs-nasdaq-nrxp-nmda-modification-therapy-and-its-multiple-applications-from-mental-health-to-chronic-pain-179610199)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1c1ecia/nrx_pharmaceuticals_inc_advances_groundbreaking/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1c1ecia/nrx_pharmaceuticals_inc_advances_groundbreaking/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/nukenLKr.webp)

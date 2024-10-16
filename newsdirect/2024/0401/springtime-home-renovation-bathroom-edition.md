@@ -38,9 +38,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/springtime-home-renovation-bathroom-edition-284096797 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/springtime-home-renovation-bathroom-edition-284096797)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bt87mr/hgtv_star_scott_mcgillivray_teams_up_with_bath/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bt87mr/hgtv_star_scott_mcgillivray_teams_up_with_bath/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/1/kisshNRa.webp)

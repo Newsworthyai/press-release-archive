@@ -36,9 +36,17 @@ Company Websitehttps://bettormetrics.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/ai-sports-odds-intelligence-firm-bettormetrics-finds-us-sportsbooks-leave-billions-in-handle-on-the-table-due-to-poor-suspension-strategies-434125370 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ai-sports-odds-intelligence-firm-bettormetrics-finds-us-sportsbooks-leave-billions-in-handle-on-the-table-due-to-poor-suspension-strategies-434125370)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cil1u9/bettormetrics_analysis_reveals_us_sportsbooks/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cil1u9/bettormetrics_analysis_reveals_us_sportsbooks/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/2/club7yV2.webp)

@@ -16,9 +16,17 @@ NEITHER THE CANADIAN SECURITIES EXCHANGE NOR ITS REGULATION SERVICES PROVIDER HA
 
 CAUTIONARY STATEMENT REGARDING FORWARD-LOOKING INFORMATION: This news release includes certain "forward-looking statements" under applicable Canadian securities legislation. Forward-looking statements include, but are not limited to, statements with respect to future developments and the business and operations of the Corporation.  Forward-looking statements are necessarily based upon a number of estimates and assumptions that, while considered reasonable, are subject to known and unknown risks, uncertainties, and other factors which may cause the actual results and future events to differ materially from those expressed or implied by such forward-looking statements. Such factors include, but are not limited to general business, economic, competitive, political and social uncertainties; and delay or failure to receive board, shareholder or regulatory approvals.  Readers should not place undue reliance on forward-looking statements.  The Corporation disclaims any intention or obligation to update or revise any forward-looking statements, whether as a result of new information, future events or otherwise, except as required by law. 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/illumination-brands-announces-the-plan-to-distribute-or-sell-shares-of-ltnc-after-selling-one-of-its-subsidiaries-illumination-holdings-inc-7076210)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1g3f5wc/illumination_brands_announces_plans_to_pay_off/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1g3f5wc/illumination_brands_announces_plans_to_pay_off/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/14/bean_tL_.webp)

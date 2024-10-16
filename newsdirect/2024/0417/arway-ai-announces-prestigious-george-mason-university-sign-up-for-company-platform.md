@@ -20,9 +20,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/arway-ai-announces-prestigious-george-mason-university-sign-up-for-company-platform-795185556 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/arway-ai-announces-prestigious-george-mason-university-sign-up-for-company-platform-795185556)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1c6f7n0/arwayai_partners_with_george_mason_university_to/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1c6f7n0/arwayai_partners_with_george_mason_university_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/17/cakeR8Zs.webp)

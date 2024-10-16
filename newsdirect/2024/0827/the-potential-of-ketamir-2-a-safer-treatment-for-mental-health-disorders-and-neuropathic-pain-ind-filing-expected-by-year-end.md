@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-potential-of-ketamir-2-a-safer-treatment-for-mental-health-disorders-and-neuropathic-pain-ind-filing-expected-by-year-end-971029100 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-potential-of-ketamir-2-a-safer-treatment-for-mental-health-disorders-and-neuropathic-pain-ind-filing-expected-by-year-end-971029100)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2jfno/mira_pharmaceuticals_ketamir2_a_safer_treatment/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2jfno/mira_pharmaceuticals_ketamir2_a_safer_treatment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/27/oxen51D8.webp)

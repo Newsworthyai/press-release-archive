@@ -74,9 +74,17 @@ Company Websitehttps://www.sectorspdrs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/xlb-etf-its-relevance-to-increased-construction-activity-772310290 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/xlb-etf-its-relevance-to-increased-construction-activity-772310290)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d7lnsz/materials_select_sector_spdr_fund_xlb_and_its/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d7lnsz/materials_select_sector_spdr_fund_xlb_and_its/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/3/rendUU1p.webp)

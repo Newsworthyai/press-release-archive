@@ -35,9 +35,17 @@ Visit Our Blog
 * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/ycommunicate/news_release/1489)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1eg62vf/trish_standley_tv_relaunches_as_a_dynamic_tv/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1eg62vf/trish_standley_tv_relaunches_as_a_dynamic_tv/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/247/30/cakemhkU.webp)

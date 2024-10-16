@@ -34,9 +34,17 @@ Visit Our Website
 * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/atapfoundation/news_release/1554)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f9ve2e/annual_atap_community_service_awards_in/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f9ve2e/annual_atap_community_service_awards_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/249/5/yarn9Tbh.webp)

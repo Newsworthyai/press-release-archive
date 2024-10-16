@@ -78,9 +78,17 @@ Company Websitehttps://www.sectorspdrs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/communication-services-select-sector-spdr-fund-xlc-adapts-to-the-evolving-digital-economy-974942546 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/communication-services-select-sector-spdr-fund-xlc-adapts-to-the-evolving-digital-economy-974942546)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dthequ/xlc_fund_adapting_to_the_evolving_digital_economy/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dthequ/xlc_fund_adapting_to_the_evolving_digital_economy/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/2/rainSmFx.webp)

@@ -44,9 +44,17 @@ Company Websitehttps://dhhcompressors.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/dhh-compressor-announces-groundbreaking-all-in-one-screw-compressor-for-laser-cutting-569321262 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/dhh-compressor-announces-groundbreaking-all-in-one-screw-compressor-for-laser-cutting-569321262)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1csf4xg/dhh_compressor_unveils_allinone_screw_compressor/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1csf4xg/dhh_compressor_unveils_allinone_screw_compressor/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/knotVEJX.webp)

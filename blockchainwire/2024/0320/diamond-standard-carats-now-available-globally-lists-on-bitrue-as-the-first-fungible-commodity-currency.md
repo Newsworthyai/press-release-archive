@@ -52,9 +52,17 @@ Media contact: carat@transformgroup.com
 
 Sales: hello@diamondstandard.co 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/diamond-standard-carats-now-available-globally---lists-on-bitrue-as-the-first-fungible-commodity-currency)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1bkobwb/diamond_standard_co_announces_listing_of_carats/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1bkobwb/diamond_standard_co_announces_listing_of_carats/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/22/vastqIIx.webp)

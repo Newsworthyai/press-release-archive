@@ -24,9 +24,17 @@ The venture has as of now raised over $1.3 million in about three months and is 
 
 Media Contact:Robert Smith[https://furrevertoken.com/](https://furrevertoken.com/)support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-trends-for-june-2024-shiba-inus-steady-hold-solanas-market-shifts-and-furrever-tokens-10-referral-awards)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1diob6g/cryptocurrency_market_shifts_shiba_inu_solana_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1diob6g/cryptocurrency_market_shifts_shiba_inu_solana_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/18/cakexPvq.webp)

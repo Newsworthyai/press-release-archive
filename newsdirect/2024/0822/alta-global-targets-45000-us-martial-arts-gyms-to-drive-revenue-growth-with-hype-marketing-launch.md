@@ -56,9 +56,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/alta-global-targets-45-000-us-martial-arts-gyms-to-drive-revenue-growth-with-hype-marketing-launch-981167377 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/alta-global-targets-45-000-us-martial-arts-gyms-to-drive-revenue-growth-with-hype-marketing-launch-981167377)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eyhsfx/alta_global_group_launches_hype_marketing/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eyhsfx/alta_global_group_launches_hype_marketing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/22/divePtFT.webp)

@@ -18,9 +18,17 @@ Utilities.buzz is dedicated to providing utility professionals and enthusiasts w
 
 Plug into the future of the utilities industry with www.Utilities.buzz. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231124883/utilities-buzz-debuts-as-the-definitive-pulse-of-the-utilities-industry)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1avcsc5/new_digital_platform_utilitiesbuzz_revolutionizes/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1avcsc5/new_digital_platform_utilitiesbuzz_revolutionizes/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/bestbeXT.webp)

@@ -18,9 +18,17 @@ About ToobitToobit stands as a beacon of innovation in the digital trading domai
 
 Join the revolution with Toobit – Your Trusted Partner in Digital Trading.For more information on Toobit and its services, visit Toobit. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/eth-breaks-new-ground-toobits-key-insights-on-the-etf-approval-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ecmi8g/ethereum_makes_history_with_first_etf_approval/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ecmi8g/ethereum_makes_history_with_first_etf_approval/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/26/gleeBzy8.webp)

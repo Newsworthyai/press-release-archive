@@ -40,9 +40,17 @@ Info@chicanohollywood.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/chicano-hollywood-announces-elevate-the-latino-voice-conference-at-the-iconic-ricardo-montalban-theater-sept-13-14-2024-913353633 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/chicano-hollywood-announces-elevate-the-latino-voice-conference-at-the-iconic-ricardo-montalban-theater-sept-13-14-2024-913353633)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1fd35il/elevate_the_latino_voice_conference_set_to/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1fd35il/elevate_the_latino_voice_conference_set_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/9/iconAhN3.webp)

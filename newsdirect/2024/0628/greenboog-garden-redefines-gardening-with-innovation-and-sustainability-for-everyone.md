@@ -48,9 +48,17 @@ Company Websitehttps://greenboog.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/greenboog-garden-redefines-gardening-with-innovation-and-sustainability-for-everyone-857179475 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/greenboog-garden-redefines-gardening-with-innovation-and-sustainability-for-everyone-857179475)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1dqh3zm/greenboog_garden_revolutionizes_gardening/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1dqh3zm/greenboog_garden_revolutionizes_gardening/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/28/archd5Yn.webp)

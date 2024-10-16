@@ -18,9 +18,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/adriatic-metals-discusses-transition-to-mining-operator-of-rupice-mine-at-vares-project-526465607 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/adriatic-metals-discusses-transition-to-mining-operator-of-rupice-mine-at-vares-project-526465607)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1ca92zj/adriatic_metals_plc_commences_transition_to/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ca92zj/adriatic_metals_plc_commences_transition_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/22/hushl6d9.webp)

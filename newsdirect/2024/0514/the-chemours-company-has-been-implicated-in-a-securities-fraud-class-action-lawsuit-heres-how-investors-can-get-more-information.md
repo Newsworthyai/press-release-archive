@@ -40,9 +40,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-chemours-company-has-been-implicated-in-a-securities-fraud-class-action-lawsuit-heres-how-investors-can-get-more-information-473622406 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-chemours-company-has-been-implicated-in-a-securities-fraud-class-action-lawsuit-heres-how-investors-can-get-more-information-473622406)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1crr1vb/chemours_company_faces_securities_fraud_lawsuit/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1crr1vb/chemours_company_faces_securities_fraud_lawsuit/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/14/yogalmNc.webp)

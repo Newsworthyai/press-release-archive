@@ -47,9 +47,17 @@ Visit Our Website
 * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/hsr/news_release/1577)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1g4l3gt/zero_waste_construction_certification_sets_new/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1g4l3gt/zero_waste_construction_certification_sets_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/2410/15/bakeH5ir.webp)

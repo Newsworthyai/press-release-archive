@@ -8,9 +8,17 @@ The potential applications of deep TMS therapy are vast, with clinical evidence 
 
 With its non-invasive nature and minimal side effects, deep TMS therapy is emerging as a vital alternative to medications and other traditional treatment methods. By precisely targeting brain regions, it can restore ongoing neural dysfunctions and help individuals regain control over their mental health. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401241030/synchrony-brain-health-introduces-breakthrough-treatment-option-dtms-deep-transcranial-magnetic-stimulation)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlf9s/synchrony_brain_health_introduces_groundbreaking/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlf9s/synchrony_brain_health_introduces_groundbreaking/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/tallf_ER.webp)

@@ -26,9 +26,17 @@ To celebrate the launch of the new features, CoinW is offering a limited-time c
 
 CoinW’s new Futures Grid and Futures CTA tools are designed to democratize access to sophisticated trading strategies. These strategies have been rigorously tested by CoinW's quant team, achieving returns ranging from 7% to 280% based on backtested data. Whether you’re an experienced trader seeking advanced tools or a newcomer looking for a straightforward trading experience, these features provide the perfect solutions for participating in the futures market with confidence. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-unveils-new-futures-features-futures-grid-and-futures-cta-for-smarter-trading)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fe6hms/coinw_launches_innovative_futures_trading_tools/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fe6hms/coinw_launches_innovative_futures_trading_tools/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/11/deepXd_j.webp)

@@ -38,9 +38,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mainz-biomeds-coloalert-potentially-puts-it-on-a-similar-track-as-big-name-cancer-screening-stocks-913462543 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/mainz-biomeds-coloalert-potentially-puts-it-on-a-similar-track-as-big-name-cancer-screening-stocks-913462543)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1dlak65/revolutionizing_colorectal_cancer_screening_market/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1dlak65/revolutionizing_colorectal_cancer_screening_market/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/21/boldB_is.webp)

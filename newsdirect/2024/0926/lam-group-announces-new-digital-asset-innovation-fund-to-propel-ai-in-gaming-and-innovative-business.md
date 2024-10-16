@@ -28,9 +28,17 @@ Company Websitehttps://lamgroupnyc.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lam-group-announces-new-digital-asset-innovation-fund-to-propel-ai-in-gaming-and-innovative-business-369055616 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/lam-group-announces-new-digital-asset-innovation-fund-to-propel-ai-in-gaming-and-innovative-business-369055616)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fpvlma/lam_group_launches_digital_asset_innovation_fund/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fpvlma/lam_group_launches_digital_asset_innovation_fund/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/26/cakepGCp.webp)

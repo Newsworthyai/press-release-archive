@@ -22,9 +22,17 @@ MicroPets is a leading software development company specializing in blockchain t
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/micropets-a-journey-of-redemption-led-by-jessus-zambrano)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cfxm67/micropets_resurgence_actorproducer_jessus/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cfxm67/micropets_resurgence_actorproducer_jessus/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/29/ulnaTsSg.webp)

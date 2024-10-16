@@ -64,9 +64,17 @@ jenn@mddn.co
 
 View source version on newsdirect.com: https://newsdirect.com/news/carlie-hanson-pays-tribute-with-her-heartfelt-cover-of-alice-in-chains-nutshell-929631304 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/carlie-hanson-pays-tribute-with-her-heartfelt-cover-of-alice-in-chains-nutshell-929631304)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1ce4039/carlie_hanson_pays_tribute_with_heartfelt_cover/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1ce4039/carlie_hanson_pays_tribute_with_heartfelt_cover/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/27/gold4l5F.webp)

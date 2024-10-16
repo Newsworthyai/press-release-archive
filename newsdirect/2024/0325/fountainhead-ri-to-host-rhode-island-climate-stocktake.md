@@ -36,9 +36,17 @@ Company Websitehttps://1businessworld.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fountainhead-ri-to-host-rhode-island-climate-stocktake-154711037 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/fountainhead-ri-to-host-rhode-island-climate-stocktake-154711037)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bnudpo/fountainhead_ri_to_host_rhode_island_climate/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bnudpo/fountainhead_ri_to_host_rhode_island_climate/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/echoazrK.webp)

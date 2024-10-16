@@ -20,9 +20,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-technologies-advances-maritime-domain-awareness-solution-with-successful-demonstrations-854233610 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-advances-maritime-domain-awareness-solution-with-successful-demonstrations-854233610)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cmfzjl/ocean_power_technologies_advances_maritime_domain/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cmfzjl/ocean_power_technologies_advances_maritime_domain/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/oxenEInd.webp)

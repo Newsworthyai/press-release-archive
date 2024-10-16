@@ -26,9 +26,17 @@ About Frontier Tech Talks
 
 Frontier Tech Talks is a recurring monthly event designed to shed light on the latest trends in Artificial Intelligence, Blockchain and frontier technologies that are reshaping our digital world, offering a platform for education, collaboration, and networking among professionals, entrepreneurs, investors and enthusiasts. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202409171268/the-first-frontier-tech-talks-learn-network-and-engage-with-cutting-edge-technologies-in-boerne-texas)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1fixmcu/frontier_tech_talks_explore_the_limitless/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1fixmcu/frontier_tech_talks_explore_the_limitless/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/249/17/tilep84t.webp)

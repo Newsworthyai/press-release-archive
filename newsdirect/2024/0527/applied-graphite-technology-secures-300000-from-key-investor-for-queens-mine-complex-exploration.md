@@ -14,9 +14,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/applied-graphite-technology-secures-300-000-from-key-investor-for-queens-mine-complex-exploration-573482119 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/applied-graphite-technology-secures-300-000-from-key-investor-for-queens-mine-complex-exploration-573482119)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d1wbfs/applied_graphite_technology_secures_300000/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d1wbfs/applied_graphite_technology_secures_300000/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/27/icycDr7.webp)

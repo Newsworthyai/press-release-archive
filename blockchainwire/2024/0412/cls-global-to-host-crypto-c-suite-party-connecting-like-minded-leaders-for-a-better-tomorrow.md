@@ -32,9 +32,17 @@ Limited Seats For C-SuitesThe Web3 Synergy: Uniting Crypto Capital Networks is a
 
 Registration alone does not guarantee participation. Each entry will be scrutinized by CLS Global so that only the right executives may attend. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cls-global-to-host-crypto-c-suite-party-connecting-like-minded-leaders-for-a-better-tomorrow)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c26j12/cls_global_hosts_web3_synergy_uniting_crypto/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c26j12/cls_global_hosts_web3_synergy_uniting_crypto/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/12/tintzbiy.webp)

@@ -26,9 +26,17 @@ dan@danrene.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/leaders-in-real-estate-weigh-in-on-national-rent-cap-proposals-184378155 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/leaders-in-real-estate-weigh-in-on-national-rent-cap-proposals-184378155)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1ecguat/real_estate_leaders_respond_to_proposed_national/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ecguat/real_estate_leaders_respond_to_proposed_national/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/26/yarnMvrC.webp)

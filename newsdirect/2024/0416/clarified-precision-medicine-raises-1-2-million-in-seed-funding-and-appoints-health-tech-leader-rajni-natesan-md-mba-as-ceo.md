@@ -30,9 +30,17 @@ Company Websitehttps://clarifiedprecisionmedicine.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/clarified-precision-medicine-raises-1-2-million-in-seed-funding-and-appoints-health-tech-leader-rajni-natesan-md-mba-as-ceo-950900040 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/clarified-precision-medicine-raises-1-2-million-in-seed-funding-and-appoints-health-tech-leader-rajni-natesan-md-mba-as-ceo-950900040)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1c5hf00/clarified_precision_medicine_closes_12m_seed/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1c5hf00/clarified_precision_medicine_closes_12m_seed/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/riceGd44.webp)

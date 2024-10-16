@@ -34,9 +34,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/celebrate-mom-in-style-fashionable-finds-for-mothers-day-914968091 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/celebrate-mom-in-style-fashionable-finds-for-mothers-day-914968091)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cmj25a/celebrate_mothers_day_in_style_with_fashionable/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cmj25a/celebrate_mothers_day_in_style_with_fashionable/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/waittOro.webp)

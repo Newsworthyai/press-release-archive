@@ -48,9 +48,17 @@ Company Websitehttps://www.axmed.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/axmed-raises-2-million-to-transform-access-to-critical-medicines-in-low-and-middle-income-countries-911007690 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/axmed-raises-2-million-to-transform-access-to-critical-medicines-in-low-and-middle-income-countries-911007690)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cn335w/axmed_raises_2_million_to_transform_access_to/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cn335w/axmed_raises_2_million_to_transform_access_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/8/veilCVfs.webp)

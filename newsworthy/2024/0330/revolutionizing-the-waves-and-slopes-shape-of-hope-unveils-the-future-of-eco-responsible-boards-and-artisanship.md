@@ -10,9 +10,17 @@ Directed by Eric Dennis and produced by The Outside Collective, ‘Shape of Hope
 
 Master artisan Martijn Stiphout, co-founder of Ventana Surfboards & Supplies, affirmed, “With ‘Shape of Hope,’ we aspire to ignite a revolution in the hearts of enthusiasts and athletes alike. This is more than a story—it’s a movement at the confluence of zeal, creativity, and a pledge to the Earth. We hope this film inspires you to change the way you engage with the sports you adore and to embrace the instruments of your passion with a newfound reverence for sustainability.” 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202403301136/the-outside-collective-and-ventana-surfboards-present-shape-of-hope-a-short-journey-into-sustainable-craftsmanship)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1brivo4/groundbreaking_documentary_shape_of_hope_unveils/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1brivo4/groundbreaking_documentary_shape_of_hope_unveils/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/243/30/jazzZNJt.webp)

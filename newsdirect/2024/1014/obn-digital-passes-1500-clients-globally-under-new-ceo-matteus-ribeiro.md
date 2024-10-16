@@ -24,9 +24,17 @@ Company Websitehttps://obndigital.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/obn-digital-passes-1-500-clients-globally-under-new-ceo-matteus-ribeiro-263934209 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/obn-digital-passes-1-500-clients-globally-under-new-ceo-matteus-ribeiro-263934209)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1g3ao85/obn_digital_expands_service_portfolio_under_new/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1g3ao85/obn_digital_expands_service_portfolio_under_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/14/xenoWWwO.webp)

@@ -26,9 +26,17 @@ Contact DetailsBryan Feinberg
 
 View source version on newsdirect.com: https://newsdirect.com/news/million-dollar-air-mail-nft-drop-on-base-324675782 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/million-dollar-air-mail-nft-drop-on-base-324675782)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1ctc8b5/million_dollar_airmail_nft_drop_on_base/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1ctc8b5/million_dollar_airmail_nft_drop_on_base/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/16/meanFcxQ.webp)

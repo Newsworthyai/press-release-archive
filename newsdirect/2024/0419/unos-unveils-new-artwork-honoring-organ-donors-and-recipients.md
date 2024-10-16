@@ -34,9 +34,17 @@ Company Websitehttps://unos.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/unos-unveils-new-artwork-honoring-organ-donors-and-recipients-745087034 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/unos-unveils-new-artwork-honoring-organ-donors-and-recipients-745087034)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1c86l6n/unos_unveils_new_artwork_honoring_organ_donors/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1c86l6n/unos_unveils_new_artwork_honoring_organ_donors/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/19/duneB5Ot.webp)

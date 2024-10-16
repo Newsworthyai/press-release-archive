@@ -32,9 +32,17 @@ Company Websitehttps://www.pathai.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/pathai-collaborates-with-goldpath-to-elevate-digital-pathology-capabilities-with-aisight-image-management-system-348740036 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pathai-collaborates-with-goldpath-to-elevate-digital-pathology-capabilities-with-aisight-image-management-system-348740036)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1f8bl0l/pathai_collaborates_with_goldpath_to_elevate/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f8bl0l/pathai_collaborates_with_goldpath_to_elevate/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/3/duneVRw2.webp)

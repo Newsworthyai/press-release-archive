@@ -22,9 +22,17 @@ The concept behind BEK’s news programming is to provide a media service platfo
 
 For more information, log onto bek.tv and bek.news. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202403091113/bull-rider-turned-rancher-joins-dakota-cowboy-as-co-host-beni-paulson-adds-depth-passion-to-exploration-of-western-life)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1bb4wya/former_bull_rider_joins_bek_tvs_dakota_cowboy_as/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1bb4wya/former_bull_rider_joins_bek_tvs_dakota_cowboy_as/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/243/9/pinkpaIN.webp)

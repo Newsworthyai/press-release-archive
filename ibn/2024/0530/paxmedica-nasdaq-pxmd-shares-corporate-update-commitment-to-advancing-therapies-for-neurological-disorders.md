@@ -20,9 +20,17 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/paxmedica-nasdaq-pxmd-shares-corporate-update-commitment-to-advancing-therapies-for-neurological-disorders/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1f2pw8k/paxmedica_prepares_nda_submission_for_suramin_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1f2pw8k/paxmedica_prepares_nda_submission_for_suramin_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/bendiANH.webp)

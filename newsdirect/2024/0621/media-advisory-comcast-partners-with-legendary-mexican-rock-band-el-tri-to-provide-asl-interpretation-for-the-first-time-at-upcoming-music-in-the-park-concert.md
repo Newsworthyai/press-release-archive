@@ -52,9 +52,17 @@ Company Websitehttps://california.comcast.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/media-advisory-comcast-partners-with-legendary-mexican-rock-band-el-tri-to-provide-asl-interpretation-for-the-first-time-at-upcoming-music-in-the-park-concert-773609055 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/media-advisory-comcast-partners-with-legendary-mexican-rock-band-el-tri-to-provide-asl-interpretation-for-the-first-time-at-upcoming-music-in-the-park-concert-773609055)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dlak04/comcast_and_el_tri_collaborate_for_historic_music/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dlak04/comcast_and_el_tri_collaborate_for_historic_music/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/21/diverNrm.webp)

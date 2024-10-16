@@ -50,9 +50,17 @@ Apexreviews154@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-seniors-can-benefit-from-flip-phones-453199715 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/how-seniors-can-benefit-from-flip-phones-453199715)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2bqew/the_appeal_of_flip_phones_for_seniors_simplicity/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2bqew/the_appeal_of_flip_phones_for_seniors_simplicity/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/27/maskx5Ep.webp)

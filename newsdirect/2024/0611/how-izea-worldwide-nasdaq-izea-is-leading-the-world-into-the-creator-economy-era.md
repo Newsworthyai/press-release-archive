@@ -40,9 +40,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-izea-worldwide-nasdaq-izea-is-leading-the-world-into-the-creator-economy-era-983717226 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/how-izea-worldwide-nasdaq-izea-is-leading-the-world-into-the-creator-economy-era-983717226)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dddiw8/izea_worldwide_leading_the_creator_economy_era/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dddiw8/izea_worldwide_leading_the_creator_economy_era/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/11/plumY7k1.webp)

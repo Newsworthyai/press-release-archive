@@ -18,9 +18,17 @@ Rooted in the mission to disseminate actionable, expert-backed Insurtech knowled
 
 To explore and engage with a world of Insurtech insights, visit www.InsurtechTips.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231205828/introducing-insurtechtips-com-the-forefront-of-insurtech-knowledge-and-expertise)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avx1ru/insurtechtipscom_launches_as_a_leading_platform/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avx1ru/insurtechtipscom_launches_as_a_leading_platform/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/veilH4hY.webp)

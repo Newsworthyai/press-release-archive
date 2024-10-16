@@ -179,9 +179,17 @@ media@nettresults.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/yandex-develops-and-open-sources-an-llm-training-tool-that-saves-up-to-20-of-gpu-resources-781511400 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/yandex-develops-and-open-sources-an-llm-training-tool-that-saves-up-to-20-of-gpu-resources-781511400)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1de6ab0/yandex_introduces_yafsdp_a_gamechanger_for_llm/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1de6ab0/yandex_introduces_yafsdp_a_gamechanger_for_llm/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/12/limezxsy.webp)

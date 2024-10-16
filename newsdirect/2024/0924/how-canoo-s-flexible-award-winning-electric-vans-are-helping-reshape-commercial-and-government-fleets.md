@@ -42,9 +42,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-canoos-flexible-award-winning-electric-vans-are-helping-reshape-commercial-and-government-fleets-474423442 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/how-canoos-flexible-award-winning-electric-vans-are-helping-reshape-commercial-and-government-fleets-474423442)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1fobi9y/canoo_inc_redefines_commercial_transportation/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1fobi9y/canoo_inc_redefines_commercial_transportation/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/24/kite___M.webp)

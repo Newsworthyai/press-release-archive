@@ -40,9 +40,17 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-named-international-investment-banking-firm-of-the-year-935986909 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-named-international-investment-banking-firm-of-the-year-935986909)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1enzbpp/benchmark_international_named_investment_banking/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1enzbpp/benchmark_international_named_investment_banking/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/9/gainzDHL.webp)

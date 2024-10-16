@@ -405,9 +405,17 @@ Company Websitehttps://bmrcorp.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/battery-mineral-resources-initiates-new-drilling-program-and-announces-encouraging-drill-results-from-its-punitaqui-copper-mine-in-chile-922834693 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/battery-mineral-resources-initiates-new-drilling-program-and-announces-encouraging-drill-results-from-its-punitaqui-copper-mine-in-chile-922834693)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dtkutc/battery_mineral_resources_corp_announces/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dtkutc/battery_mineral_resources_corp_announces/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/2/epiclx6y.webp)

@@ -54,9 +54,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitfufu-posts-70-revenue-growth-and-outlines-strategic-expansion-company-expects-continued-growth-amid-market-volatility-825210383 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitfufu-posts-70-revenue-growth-and-outlines-strategic-expansion-company-expects-continued-growth-amid-market-volatility-825210383)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f80k7v/bitfufu_reports_70_revenue_growth_and_outlines/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f80k7v/bitfufu_reports_70_revenue_growth_and_outlines/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/3/oval9ocJ.webp)

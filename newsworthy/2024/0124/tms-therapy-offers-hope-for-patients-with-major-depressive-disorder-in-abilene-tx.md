@@ -12,9 +12,17 @@ In conclusion, the Abilene Brain Center strives to provide comprehensive treatme
 
 For more information, please visit the Abilene Brain Center's website. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401241026/tms-therapy-offers-hope-for-patients-with-major-depressive-disorder-in-abilene-tx)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlf2s/abilene_brain_center_introduces_innovative/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlf2s/abilene_brain_center_introduces_innovative/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/warpGxsk.webp)

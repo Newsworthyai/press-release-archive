@@ -16,9 +16,17 @@ Useful Links:Website: https://coinsdo.com X (Twitter): https://x.com/CoinsDogrou
 
 LinkedIn: https://www.linkedin.com/company/coinsdo/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/btcc-exchange-partners-with-coinsdo-to-enhance-cryptocurrency-services-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1e6jqzv/btcc_announces_partnership_with_coinsdo_to/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1e6jqzv/btcc_announces_partnership_with_coinsdo_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/18/tilee3gS.webp)

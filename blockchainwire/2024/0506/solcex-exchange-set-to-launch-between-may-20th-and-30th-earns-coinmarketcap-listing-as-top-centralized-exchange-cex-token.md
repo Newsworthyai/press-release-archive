@@ -48,9 +48,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/solcex-exchange-set-to-launch-between-may-20th-and-30th-earns-coinmarketcap-listing-as-top-centralized-exchange-cex-token)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1clswrl/solcex_set_to_redefine_cryptocurrency_trading/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1clswrl/solcex_set_to_redefine_cryptocurrency_trading/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/6/froggjf1.webp)

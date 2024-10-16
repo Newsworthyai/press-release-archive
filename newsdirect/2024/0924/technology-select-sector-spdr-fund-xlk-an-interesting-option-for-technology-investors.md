@@ -77,9 +77,17 @@ Company Websitehttps://www.sectorspdrs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/technology-select-sector-spdr-fund-xlk-an-interesting-option-for-technology-investors-791605533 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/technology-select-sector-spdr-fund-xlk-an-interesting-option-for-technology-investors-791605533)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fohpxz/xlk_etf_an_interesting_option_for_technology/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fohpxz/xlk_etf_an_interesting_option_for_technology/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/24/navyNWFn.webp)

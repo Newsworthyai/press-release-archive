@@ -17,9 +17,17 @@ The highlight of the HRO Today Forum is always the annual CHRO of the Year Award
 
 Visit [https://www.hrotoday.com/events/hro-today-forum-north-america/](https://www.hrotoday.com/events/hro-today-forum-north-america/) for more details. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202405071160/hro-today-tackles-uncertainty-celebrates-hr-s-best-at-the-2024-hro-today-forum-north-america)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HRnews/comments/1cmh61r/sharedxpertise_media_hosts_2024_hro_today_forum/
+
+
+[Reddit Post](https://www.reddit.com/r/HRnews/comments/1cmh61r/sharedxpertise_media_hosts_2024_hro_today_forum/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/245/7/apexYKxr.webp)

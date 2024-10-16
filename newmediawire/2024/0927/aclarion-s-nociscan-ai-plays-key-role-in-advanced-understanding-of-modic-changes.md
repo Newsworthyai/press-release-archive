@@ -30,9 +30,17 @@ Investor Contacts:Kirin M. SmithPCG Advisory, Inc.646.823.8656ksmith@pcgadvisory
 
 Media Contacts:Jodi LambertiSPRIG Consulting612.812.7477jodi@sprigconsulting.com 
 
+---
+
 [Original/Source Press Release](http://www.newmediawire.com/news/aclarion-s-nociscan-ai-plays-key-role-in-advanced-understanding-of-modic-changes-7076099)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1frcdsq/aclarions_nociscan_solution_used_to_understand/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1frcdsq/aclarions_nociscan_solution_used_to_understand/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/28/quizLj_B.webp)

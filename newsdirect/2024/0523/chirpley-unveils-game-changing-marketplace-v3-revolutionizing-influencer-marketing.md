@@ -54,9 +54,17 @@ Contact DetailsBryan Feinberg
 
 View source version on newsdirect.com: https://newsdirect.com/news/chirpley-unveils-game-changing-marketplace-v3-revolutionizing-influencer-marketing-270904311 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/chirpley-unveils-game-changing-marketplace-v3-revolutionizing-influencer-marketing-270904311)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1cytgsw/chirpley_unveils_gamechanging_marketplace_v3/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1cytgsw/chirpley_unveils_gamechanging_marketplace_v3/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/23/jazzYWgp.webp)

@@ -46,9 +46,17 @@ Email: support@smatl.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/smatl-ltd-sma-exchange-smatlcom-has-successfully-registered-with-the-sec-and-initiated-a-series-of-public-welfare-activities)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cousbd/smatl_ltd_successfully_files_with_sec_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cousbd/smatl_ltd_successfully_files_with_sec_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/10/isle91yY.webp)

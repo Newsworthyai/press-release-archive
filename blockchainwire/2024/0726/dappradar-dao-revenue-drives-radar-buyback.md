@@ -18,9 +18,17 @@ About DappRadar DAO
 
 DappRadar DAO is a Decentralized Autonomous Organization (DAO) built around the DappRadar platform. It aims to decentralize governance and decision-making power related to the platform. DAO members, who hold the RADAR token, can propose and vote on changes to the platform's features and development roadmap, manage the DAO's treasury and allocate funds for various initiatives, and shape the future direction of DappRadar in a community-driven way. The DAO operates on blockchain technology, ensuring transparency and immutability of decisions. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/dappradar-dao-revenue-drives-radar-buyback)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fves8z/dappradar_dao_completes_first_token_buyback/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fves8z/dappradar_dao_completes_first_token_buyback/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/26/pinkQ4jY.webp)

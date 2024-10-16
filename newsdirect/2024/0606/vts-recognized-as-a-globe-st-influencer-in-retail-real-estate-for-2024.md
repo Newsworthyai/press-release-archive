@@ -26,9 +26,17 @@ Company Websitehttps://www.vts.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/vts-recognized-as-a-globe-st-influencer-in-retail-real-estate-for-2024-189989500 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/vts-recognized-as-a-globe-st-influencer-in-retail-real-estate-for-2024-189989500)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1d9ht05/vts_recognized_as_2024_influencer_in_retail_real/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1d9ht05/vts_recognized_as_2024_influencer_in_retail_real/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/6/sage9lyF.webp)

@@ -20,9 +20,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/atha-energy-set-to-begin-companys-most-significant-exploration-program-ever-504450235 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/atha-energy-set-to-begin-companys-most-significant-exploration-program-ever-504450235)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bp65ty/atha_energy_unveils_ambitious_2024_exploration/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bp65ty/atha_energy_unveils_ambitious_2024_exploration/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/oxenGAXG.webp)

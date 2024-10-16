@@ -28,9 +28,17 @@ Support@P2Markets.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ksl-capital-partners-and-soneva-resorts-a-cautionary-tale-of-due-diligence-174457314 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ksl-capital-partners-and-soneva-resorts-a-cautionary-tale-of-due-diligence-174457314)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e0xwha/ksl_capital_partners_and_soneva_resorts_a/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e0xwha/ksl_capital_partners_and_soneva_resorts_a/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/11/seekxBOB.webp)

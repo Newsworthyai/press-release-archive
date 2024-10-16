@@ -28,9 +28,17 @@ srandle@hotpaperlantern.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ftn-network-releases-2024-nfl-draft-team-grades-and-rookie-fantasy-scouting-guide-following-2024-nfl-draft-828828244 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ftn-network-releases-2024-nfl-draft-team-grades-and-rookie-fantasy-scouting-guide-following-2024-nfl-draft-828828244)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1chm0iz/ftn_network_releases_2024_nfl_draft_team_grades/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1chm0iz/ftn_network_releases_2024_nfl_draft_team_grades/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/rushRVzQ.webp)

@@ -28,9 +28,17 @@ Company Websitehttps://novidea.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/novidea-wins-technology-innovation-award-from-propertycasualty360-629306956 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/novidea-wins-technology-innovation-award-from-propertycasualty360-629306956)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1fz2gnu/novidea_named_to_propertycasualty360s_insurance/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1fz2gnu/novidea_named_to_propertycasualty360s_insurance/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/8/riftx1Bn.webp)

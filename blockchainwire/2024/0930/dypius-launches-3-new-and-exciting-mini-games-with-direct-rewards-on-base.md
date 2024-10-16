@@ -46,9 +46,17 @@ The Dypius ecosystem is in full-fledging growth, with the team preparing even mo
 
 You can join it too at these links: Dypius Website | World of Dypians | Twitter | Announcements | Discord | Telegram | GitHub | YouTube 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/dypius-launches-3-new-and-exciting-mini-games-with-direct-rewards-on-base)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsInfo/comments/1fulq81/dypius_introduces_three_new_captivating_minigames/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsInfo/comments/1fulq81/dypius_introduces_three_new_captivating_minigames/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/30/limepR3G.webp)

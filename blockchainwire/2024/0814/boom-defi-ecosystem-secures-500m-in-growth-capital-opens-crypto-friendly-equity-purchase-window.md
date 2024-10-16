@@ -29,9 +29,17 @@ To learn more about Boom, please visit www.boom.market.
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/boom-defi-ecosystem-secures-500m-in-growth-capital-opens-crypto-friendly-equity-purchase-window)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1esfohi/boom_technologies_secures_500m_growth_capital/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1esfohi/boom_technologies_secures_500m_growth_capital/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/14/waitWhlB.webp)

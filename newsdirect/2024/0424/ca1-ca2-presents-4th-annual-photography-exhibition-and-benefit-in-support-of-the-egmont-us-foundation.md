@@ -58,9 +58,17 @@ Courtney@cocodaniels.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ca1-ca2-presents-4th-annual-photography-exhibition-and-benefit-in-support-of-the-egmont-us-foundation-723856226 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ca1-ca2-presents-4th-annual-photography-exhibition-and-benefit-in-support-of-the-egmont-us-foundation-723856226)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cbxsq5/4th_annual_photography_exhibition_and_benefit_in/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cbxsq5/4th_annual_photography_exhibition_and_benefit_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/24/healQ5Bg.webp)

@@ -30,9 +30,17 @@ Company Websitehttps://navex.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/navex-announces-13th-annual-navex-next-risk-and-compliance-virtual-conference-714223460 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/navex-announces-13th-annual-navex-next-risk-and-compliance-virtual-conference-714223460)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1er7j0d/navex_announces_13th_annual_navex_next_risk_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1er7j0d/navex_announces_13th_annual_navex_next_risk_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/13/lendvvnJ.webp)

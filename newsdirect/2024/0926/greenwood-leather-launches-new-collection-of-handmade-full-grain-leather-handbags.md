@@ -22,9 +22,17 @@ Company Websitehttps://www.greenwoodleather.com.au/
 
 View source version on newsdirect.com: https://newsdirect.com/news/greenwood-leather-launches-new-collection-of-handmade-full-grain-leather-handbags-351048144 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/greenwood-leather-launches-new-collection-of-handmade-full-grain-leather-handbags-351048144)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fpufqa/greenwood_leather_launches_new_collection_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fpufqa/greenwood_leather_launches_new_collection_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/26/fernQlZX.webp)

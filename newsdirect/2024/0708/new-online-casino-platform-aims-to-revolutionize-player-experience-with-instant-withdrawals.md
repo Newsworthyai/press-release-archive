@@ -26,9 +26,17 @@ ken@canisdigitalgroup.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-online-casino-platform-aims-to-revolutionize-player-experience-with-instant-withdrawals-347975162 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/new-online-casino-platform-aims-to-revolutionize-player-experience-with-instant-withdrawals-347975162)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dy8agt/new_platform_instantcasinosnet_revolutionizes/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dy8agt/new_platform_instantcasinosnet_revolutionizes/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/8/joinXfQN.webp)

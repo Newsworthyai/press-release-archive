@@ -32,9 +32,17 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-invests-in-redstone-oracles-to-expand-modular-defi-infrastructure-944755202 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-ventures-invests-in-redstone-oracles-to-expand-modular-defi-infrastructure-944755202)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dtoeym/htx_ventures_invests_in_redstone_oracles_to/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dtoeym/htx_ventures_invests_in_redstone_oracles_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/2/odor1fAm.webp)

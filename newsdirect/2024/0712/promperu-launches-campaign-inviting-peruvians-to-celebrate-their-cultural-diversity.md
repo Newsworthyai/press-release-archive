@@ -20,9 +20,17 @@ Company Websitehttp://www.promperu.gob.pe
 
 View source version on newsdirect.com: https://newsdirect.com/news/promperu-launches-campaign-inviting-peruvians-to-celebrate-their-cultural-diversity-407341700 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/promperu-launches-campaign-inviting-peruvians-to-celebrate-their-cultural-diversity-407341700)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1e1pcjn/promperú_launches_campaign_celebrating_perus/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1e1pcjn/promperú_launches_campaign_celebrating_perus/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/12/poemlDcY.webp)

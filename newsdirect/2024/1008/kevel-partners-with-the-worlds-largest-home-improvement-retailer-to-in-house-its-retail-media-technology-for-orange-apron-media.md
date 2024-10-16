@@ -36,9 +36,17 @@ jchoo@kevel.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kevel-partners-with-the-worlds-largest-home-improvement-retailer-to-in-house-its-retail-media-technology-for-orange-apron-media-181161219 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kevel-partners-with-the-worlds-largest-home-improvement-retailer-to-in-house-its-retail-media-technology-for-orange-apron-media-181161219)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/MarketingNewsramp/comments/1fyzpjw/kevel_partners_with_the_home_depot_to_inhouse_its/
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1fyzpjw/kevel_partners_with_the_home_depot_to_inhouse_its/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/8/urgexCLQ.webp)

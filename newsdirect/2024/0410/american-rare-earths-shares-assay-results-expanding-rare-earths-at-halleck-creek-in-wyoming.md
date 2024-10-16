@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/american-rare-earths-shares-assay-results-expanding-rare-earths-at-halleck-creek-in-wyoming-230656542 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/american-rare-earths-shares-assay-results-expanding-rare-earths-at-halleck-creek-in-wyoming-230656542)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c0tlwo/american_rare_earths_ceo_shares_significant_assay/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c0tlwo/american_rare_earths_ceo_shares_significant_assay/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/10/gluerqG6.webp)

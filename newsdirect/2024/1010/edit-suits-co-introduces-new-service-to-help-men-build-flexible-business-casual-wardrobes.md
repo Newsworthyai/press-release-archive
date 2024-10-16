@@ -32,9 +32,17 @@ Company Websitehttps://www.editsuits.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/edit-suits-co-introduces-new-service-to-help-men-build-flexible-business-casual-wardrobes-430942915 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/edit-suits-co-introduces-new-service-to-help-men-build-flexible-business-casual-wardrobes-430942915)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1g0ea31/edit_suits_co_introduces_new_service_to_help_men/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1g0ea31/edit_suits_co_introduces_new_service_to_help_men/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/10/vastPTZG.webp)

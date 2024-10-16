@@ -38,9 +38,17 @@ Company Websitehttps://lashliftstore.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/lash-lift-store-launches-comprehensive-training-and-certification-program-for-beauty-professionals-589349098 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/lash-lift-store-launches-comprehensive-training-and-certification-program-for-beauty-professionals-589349098)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cyahba/lash_lift_store_launches_new_training_and/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cyahba/lash_lift_store_launches_new_training_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/wait9oTh.webp)

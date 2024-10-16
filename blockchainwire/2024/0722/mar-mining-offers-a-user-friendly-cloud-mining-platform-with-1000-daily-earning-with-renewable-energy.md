@@ -78,9 +78,17 @@ If you want to learn more about MAR Mining, visit its official website: https://
 
 Disclaimer: The artist Banksy is not officially involved and has not directly endorsed this project. The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/mar-mining-offers-a-user-friendly-cloud-mining-platform-with-1000-daily-earning-with-renewable-energy)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1eac10l/mar_mining_the_laziest_path_to_500_per_day/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1eac10l/mar_mining_the_laziest_path_to_500_per_day/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/22/warpl9Lm.webp)

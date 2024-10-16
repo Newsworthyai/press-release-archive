@@ -38,9 +38,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hope-on-the-horizon-results-from-maveric-pilot-show-heartfelt-progress-for-patients-794994908 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/hope-on-the-horizon-results-from-maveric-pilot-show-heartfelt-progress-for-patients-794994908)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1dhvlw8/cardiol_therapeutics_reports_positive_results/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1dhvlw8/cardiol_therapeutics_reports_positive_results/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/17/dualOJsS.webp)

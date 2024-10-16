@@ -24,9 +24,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/medicus-pharma-says-u-s-fda-has-provided-comments-on-phase-2-clinical-protocol-of-sknjct-003-575151078 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/medicus-pharma-says-u-s-fda-has-provided-comments-on-phase-2-clinical-protocol-of-sknjct-003-575151078)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1bpump1/medicus_pharma_receives_fda_feedback_on_phase_2/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1bpump1/medicus_pharma_receives_fda_feedback_on_phase_2/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/pintlkqw.webp)

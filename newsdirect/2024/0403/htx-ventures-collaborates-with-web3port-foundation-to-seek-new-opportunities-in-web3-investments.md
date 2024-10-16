@@ -30,9 +30,17 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-collaborates-with-web3port-foundation-to-seek-new-opportunities-in-web3-investments-893878677 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-ventures-collaborates-with-web3port-foundation-to-seek-new-opportunities-in-web3-investments-893878677)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bup5o7/htx_ventures_collaborates_with_web3port/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bup5o7/htx_ventures_collaborates_with_web3port/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/3/riceabAy.webp)

@@ -50,9 +50,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitdeer-nasdaq-btdr-secures-leading-asic-market-position-with-all-stock-freechain-acquisition-703928801 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitdeer-nasdaq-btdr-secures-leading-asic-market-position-with-all-stock-freechain-acquisition-703928801)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dvx4hg/bitdeer_acquires_freechain_in_140m_allstock_deal/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dvx4hg/bitdeer_acquires_freechain_in_140m_allstock_deal/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/5/lendP0Xu.webp)

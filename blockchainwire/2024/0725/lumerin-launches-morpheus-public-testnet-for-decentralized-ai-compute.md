@@ -30,9 +30,17 @@ About Lumerin
 
 Lumerin is an open-source protocol and foundational layer technology that uses smart contracts to control how P2P data streams are accessed, routed, and transacted. Live on Arbitrum, Lumerin’s first use case is the world’s first peer-to-peer, decentralized marketplace for trading Bitcoin hashpower. Lumerin is currently being leveraged to decentralize and more efficiently allocate AI compute power and, as its ecosystem expands, will enable novel applications on DePIN and the tokenization of real-world assets (RWAs). Lumerin can also enable encrypted video and audio streams, permissioned communications, and programmable data streams and digital assets like NFTs and more. Founded in 2021, Lumerin’s strategic partners include Bloq, Hive Blockchain, Fenbushi Capital and Outlier Ventures, among others. For more info, visit https://lumerin.io/. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/lumerin-launches-morpheus-public-testnet--for-decentralized-ai-compute)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvexcw/lumerin_announces_morpheus_ai_testnet_launch_on/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvexcw/lumerin_announces_morpheus_ai_testnet_launch_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/25/pintjj7j.webp)

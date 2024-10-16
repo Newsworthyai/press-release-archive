@@ -42,9 +42,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/copper-prices-cross-10-000-per-ton-in-q2-is-copper-entering-a-new-supercycle-948165323 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/copper-prices-cross-10-000-per-ton-in-q2-is-copper-entering-a-new-supercycle-948165323)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1eez4sn/copper_prices_surge_is_copper_entering_a_new/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1eez4sn/copper_prices_surge_is_copper_entering_a_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/29/moonAQTW.webp)

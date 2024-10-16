@@ -54,9 +54,17 @@ Company Websitehttps://www.ktmc.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/crwd-investor-reminder-kessler-topaz-meltzer-and-check-llp-reminds-investors-of-securities-fraud-class-action-lawsuit-filed-against-crowdstrike-holdings-inc-crwd-844837502 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/crwd-investor-reminder-kessler-topaz-meltzer-and-check-llp-reminds-investors-of-securities-fraud-class-action-lawsuit-filed-against-crowdstrike-holdings-inc-crwd-844837502)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1etyvka/investor_reminder_securities_fraud_class_action/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1etyvka/investor_reminder_securities_fraud_class_action/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/16/elleS40u.webp)

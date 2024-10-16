@@ -40,9 +40,17 @@ Innovate Continuously: By leveraging AI and big data, the Foundation is committe
 
 Zenith Asset Investment Education Foundation remains steadfast in its mission to assist investors in achieving their financial aspirations through a combination of a highly professional team and advanced technology. As it moves forward, the Foundation is poised to make a significant impact on the investment education landscape, setting new standards for excellence and innovation. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/zenith-asset-investment-education-foundation-arthur-franks-vision-for-advancing-investment-education)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eowou4/zenith_asset_foundation_advances_investment/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eowou4/zenith_asset_foundation_advances_investment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/10/iconRO24.webp)

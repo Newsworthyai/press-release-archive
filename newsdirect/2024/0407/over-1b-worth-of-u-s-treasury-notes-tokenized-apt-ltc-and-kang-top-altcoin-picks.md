@@ -50,9 +50,17 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/over-1b-worth-of-u-s-treasury-notes-tokenized-apt-ltc-and-kang-top-altcoin-picks-821901197 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/over-1b-worth-of-u-s-treasury-notes-tokenized-apt-ltc-and-kang-top-altcoin-picks-821901197)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bxze2v/us_treasury_notes_tokenized_apt_ltc_and_kang_top/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bxze2v/us_treasury_notes_tokenized_apt_ltc_and_kang_top/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/7/noteUMHs.webp)

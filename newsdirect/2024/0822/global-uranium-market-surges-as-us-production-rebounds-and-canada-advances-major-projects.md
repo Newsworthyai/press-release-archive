@@ -80,9 +80,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/global-uranium-market-surges-as-us-production-rebounds-and-canada-advances-major-projects-889995103 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/global-uranium-market-surges-as-us-production-rebounds-and-canada-advances-major-projects-889995103)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1eyieh5/global_uranium_market_surges_as_us_production/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1eyieh5/global_uranium_market_surges_as_us_production/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/22/milkT1iw.webp)

@@ -26,9 +26,17 @@
 
  InvestorWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestech-nasdaq-snes-providing-non-lethal-rodent-pest-management-solutions/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1f2fn9z/study_reveals_threat_to_birds_of_prey_from/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1f2fn9z/study_reveals_threat_to_birds_of_prey_from/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/warpM4QA.webp)

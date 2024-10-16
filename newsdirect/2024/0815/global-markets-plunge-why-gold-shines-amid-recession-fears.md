@@ -40,9 +40,17 @@ Company Websitehttps://prioritygold.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/global-markets-plunge-why-gold-shines-amid-recession-fears-183163244 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/global-markets-plunge-why-gold-shines-amid-recession-fears-183163244)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1esu8t7/global_markets_plunge_why_gold_shines_amid/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1esu8t7/global_markets_plunge_why_gold_shines_amid/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/15/noteugHV.webp)

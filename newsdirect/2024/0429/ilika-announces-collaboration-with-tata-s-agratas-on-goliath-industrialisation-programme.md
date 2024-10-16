@@ -18,9 +18,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ilika-announces-collaboration-with-tatas-agratas-on-goliath-industrialisation-programme-745640935 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ilika-announces-collaboration-with-tatas-agratas-on-goliath-industrialisation-programme-745640935)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1cg34hv/ilika_announces_collaboration_with_tatas_agratas/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1cg34hv/ilika_announces_collaboration_with_tatas_agratas/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/29/tintzkdz.webp)

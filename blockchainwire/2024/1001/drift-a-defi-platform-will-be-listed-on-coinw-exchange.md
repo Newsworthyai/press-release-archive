@@ -30,9 +30,17 @@ About DRIFT
 
 Drift is the #1 open-sourced perpetual futures platform built on Solana. Drift is the most feature-complete decentralized exchange, including spot, perpetual, and swaps. Drift currently has over 180,000 users, $22B in total volume, $350M TVL, and $200M in open interest. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/drift-a-defi-platform-will-be-listed-on-coinw-exchange)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ftlsu5/coinw_to_list_drift_on_decentralized_derivatives/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ftlsu5/coinw_to_list_drift_on_decentralized_derivatives/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/1/chipAqhQ.webp)

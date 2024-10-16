@@ -25,9 +25,17 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-ntt-docomo-leverage-quantum-optimization-tech-to-boost-mobile-network-performance/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fafsry/dwave_quantum_and_ntt_docomo_pilot_shows_15/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fafsry/dwave_quantum_and_ntt_docomo_pilot_shows_15/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/249/6/calmWsRp.webp)

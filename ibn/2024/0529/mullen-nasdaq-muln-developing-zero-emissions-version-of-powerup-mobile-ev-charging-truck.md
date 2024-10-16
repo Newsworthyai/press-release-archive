@@ -18,9 +18,17 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, i
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-developing-zero-emissions-version-of-powerup-mobile-ev-charging-truck/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1f2q1dq/mullen_automotive_developing_zeroemissions/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1f2q1dq/mullen_automotive_developing_zeroemissions/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/lilykmGR.webp)

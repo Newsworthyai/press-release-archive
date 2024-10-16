@@ -62,9 +62,17 @@ Cdeblasio99@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/historic-first-sports-event-at-the-coca-cola-music-hall-set-for-friday-october-18-456780283 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/historic-first-sports-event-at-the-coca-cola-music-hall-set-for-friday-october-18-456780283)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1faou71/cocacola_music_hall_to_host_historic_boxing_event/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1faou71/cocacola_music_hall_to_host_historic_boxing_event/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/6/noteQ726.webp)

@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/elevate-uranium-ceo-murrey-hill-discusses-companys-strategic-expansion-and-market-outlook-106812640 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/elevate-uranium-ceo-murrey-hill-discusses-companys-strategic-expansion-and-market-outlook-106812640)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1czplj1/elevate_uranium_ceo_discusses_strategic_expansion/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1czplj1/elevate_uranium_ceo_discusses_strategic_expansion/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/24/ellayJPU.webp)

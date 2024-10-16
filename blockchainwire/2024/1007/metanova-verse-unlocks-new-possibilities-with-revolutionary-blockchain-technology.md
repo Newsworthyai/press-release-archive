@@ -40,9 +40,17 @@ Validator Application:https://forms.gle/aBfSqHtStNsGtu11A
 
 Whitepaper:https://metanovaverse.com/wp-content/uploads/2024/09/Whitepaper_MNV-1.pdf 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/metanova-verse-unlocks-new-possibilities-with-revolutionary-blockchain-technology-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fy52ci/metanova_verse_revolutionizing_blockchain/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fy52ci/metanova_verse_revolutionizing_blockchain/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/7/echoXsFW.webp)

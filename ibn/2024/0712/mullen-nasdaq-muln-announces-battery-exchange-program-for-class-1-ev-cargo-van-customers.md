@@ -18,9 +18,17 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-nasdaq-muln-announces-battery-exchange-program-for-class-1-ev-cargo-van-customers/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1f2r90o/mullen_automotive_announces_power_boost_battery/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f2r90o/mullen_automotive_announces_power_boost_battery/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/ableuqM5.webp)

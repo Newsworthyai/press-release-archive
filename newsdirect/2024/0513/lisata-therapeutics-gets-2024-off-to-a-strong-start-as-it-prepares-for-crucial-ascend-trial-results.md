@@ -18,9 +18,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lisata-therapeutics-gets-2024-off-to-a-strong-start-as-it-prepares-for-crucial-ascend-trial-results-573775110 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/lisata-therapeutics-gets-2024-off-to-a-strong-start-as-it-prepares-for-crucial-ascend-trial-results-573775110)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cr1k03/lisata_therapeutics_prepares_for_crucial_ascend/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cr1k03/lisata_therapeutics_prepares_for_crucial_ascend/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/calmgYa8.webp)

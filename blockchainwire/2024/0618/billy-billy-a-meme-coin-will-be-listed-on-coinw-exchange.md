@@ -26,9 +26,17 @@ About BILLY (Billy)
 
 [Billy](https://www.billysolcuty.com/) is more than just a cute dog; he is a symbol of the power of connection and the joy that can be found in the simplest of things. His online presence has brought people together and inspired a sense of compassion and empathy, making him a beloved figure in the digital age. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/billy-billy-a-meme-coin-will-be-listed-on-coinw-exchange)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1diong6/coinw_to_list_billy_meme_coin_on_meme_zone/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1diong6/coinw_to_list_billy_meme_coin_on_meme_zone/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/18/best1CZt.webp)

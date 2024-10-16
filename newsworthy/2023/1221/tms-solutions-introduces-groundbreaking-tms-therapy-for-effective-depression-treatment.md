@@ -12,9 +12,17 @@ At TMS Solutions, patient testimonials paint a vivid picture of the transformati
 
 TMS Solutions is spearheading a mental health revolution through the provision of innovative TMS therapy. With an unwavering commitment to patient-centered care, TMS Solutions aims to help individuals overcome depression and embrace positive life changes. To discover more about TMS Solutions and their groundbreaking approach to depression treatment, visit their website at www.tmssolutions.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231221915/tms-solutions-introduces-groundbreaking-tms-therapy-for-effective-depression-treatment)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcv7l/revolutionary_tms_therapy_transforming_lives_and/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcv7l/revolutionary_tms_therapy_transforming_lives_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/wolf1YRv.webp)

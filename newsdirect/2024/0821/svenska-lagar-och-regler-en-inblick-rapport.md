@@ -40,9 +40,17 @@ Spiru.borg@casinolistingmedia.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/svenska-lagar-och-regler-en-inblick-and-rapport-851134224 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/svenska-lagar-och-regler-en-inblick-and-rapport-851134224)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1exf89u/new_swedish_gambling_law_impacts_foreign_casinos/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1exf89u/new_swedish_gambling_law_impacts_foreign_casinos/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/21/echoy9Tl.webp)

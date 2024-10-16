@@ -24,9 +24,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cordiant-digital-infrastructure-targets-future-growth-with-innovative-tech-investments-578856673 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cordiant-digital-infrastructure-targets-future-growth-with-innovative-tech-investments-578856673)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1c72ueg/cordiant_digital_infrastructure_targets_future/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1c72ueg/cordiant_digital_infrastructure_targets_future/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/18/kissVnoB.webp)

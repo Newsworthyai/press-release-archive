@@ -30,9 +30,17 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-tmcadd-consulting-and-services-llc-and-nv5-global-inc-138000347 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-tmcadd-consulting-and-services-llc-and-nv5-global-inc-138000347)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dyyrf7/nv5_global_inc_acquires_mybimteam_benchmark/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dyyrf7/nv5_global_inc_acquires_mybimteam_benchmark/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/9/notebJNW.webp)

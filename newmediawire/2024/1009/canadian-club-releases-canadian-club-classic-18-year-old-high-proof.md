@@ -22,9 +22,17 @@ Distributed by: Reportable, Inc.
 
 [https://cdn.filestackcontent.com/SFnYaOQuRCqCeOMxQimw](https://cdn.filestackcontent.com/SFnYaOQuRCqCeOMxQimw) 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/canadian-club-releases-canadian-club-classic-18-year-old-high-proof-7076172)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1g00gxx/canadian_club_releases_canadian_club_classic_18/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1g00gxx/canadian_club_releases_canadian_club_classic_18/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/9/rubysi66.webp)

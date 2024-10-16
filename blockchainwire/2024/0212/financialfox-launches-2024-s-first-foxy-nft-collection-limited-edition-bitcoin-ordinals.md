@@ -50,9 +50,17 @@ OrdinalsBot is a pioneering platform empowering creators and developers to expl
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practise due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. Full disclaimer here. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/financialfox-launches-2024s-first-foxy-nft-collection-limited-edition-bitcoin-ordinals)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1avcrim/the_financialfox_unveils_exclusive_limited_nft/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1avcrim/the_financialfox_unveils_exclusive_limited_nft/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/12/harpkQK3.webp)

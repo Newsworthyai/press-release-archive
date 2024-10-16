@@ -42,9 +42,17 @@
 
 [4] https://www.heart.org/en/news/2024/05/14/new-roadmap-to-lower-the-risk-of-amputation-in-peripheral-artery-disease 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/interactive-map-highlights-pad-amputation-risks-experts-call-for-action-7075993)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f8bl5t/new_pad_collaborative_heat_map_reveals_risk_of/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f8bl5t/new_pad_collaborative_heat_map_reveals_risk_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/3/envytSdG.webp)

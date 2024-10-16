@@ -18,9 +18,17 @@ CIOGrid.com is poised to be the beacon for CIOs, tech enthusiasts, and professio
 
 Navigate the tech world with authority. Discover more at www.CIOGrid.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231205791/ciogrid-com-launches-the-definitive-portal-for-chief-information-officers-and-tech-leaders)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1avx1p3/ciogridcom_the_premier_digital_destination_for/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1avx1p3/ciogridcom_the_premier_digital_destination_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/mossxdnR.webp)

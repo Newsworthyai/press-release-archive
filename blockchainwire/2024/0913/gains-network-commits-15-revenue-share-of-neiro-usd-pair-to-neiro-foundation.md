@@ -22,9 +22,17 @@ NEIRO is a community-driven cryptocurrency on the Ethereum blockchain, inspired 
 
 Disclaimer: This press release is for informational purposes only and does not constitute investment advice or an offer to invest. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gains-network-commits-15-revenue-share-of-neirousd-pair-to-neiro-foundation-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ffuw6w/neiro_token_partners_with_gains_network_to/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ffuw6w/neiro_token_partners_with_gains_network_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/13/iconju6s.webp)

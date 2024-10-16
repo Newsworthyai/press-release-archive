@@ -42,9 +42,17 @@ Press contact: Anastasia, PR Director: anastasia@bananacapital.fund
 
 Connect with us on social media: X (@Banana_Fund); LinkedIn (@banana-fund); Telegram (@bananacap_ann) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/banana-capital-plans-to-increase-funds-to-100-million-for-its-updated-ai-driven-defi-strategy)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fzr2qk/banana_capital_to_increase_funding_for_aidriven/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fzr2qk/banana_capital_to_increase_funding_for_aidriven/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/9/yoga2VQA.webp)

@@ -56,9 +56,17 @@ Website: https://prismastake.finance/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/prismastakes-6-million-funding-accelerates-defi-staking-innovation)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bub5ls/prismastake_secures_6_million_in_funding_to/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bub5ls/prismastake_secures_6_million_in_funding_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/2/irisXVr0.webp)

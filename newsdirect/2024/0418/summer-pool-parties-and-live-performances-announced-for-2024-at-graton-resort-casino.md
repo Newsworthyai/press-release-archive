@@ -34,9 +34,17 @@ Company Websitehttps://www.gratonresortcasino.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/summer-pool-parties-and-live-performances-announced-for-2024-at-graton-resort-and-casino-713280703 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/summer-pool-parties-and-live-performances-announced-for-2024-at-graton-resort-and-casino-713280703)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1c875c6/graton_resort_casino_announces_summer_pool/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1c875c6/graton_resort_casino_announces_summer_pool/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/18/markgO7P.webp)

@@ -34,9 +34,17 @@ Company Websitehttps://amerilife.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/amerilife-wealth-distribution-and-peak-financial-freedom-group-announce-strategic-national-partnership-575417742 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/amerilife-wealth-distribution-and-peak-financial-freedom-group-announce-strategic-national-partnership-575417742)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1ewvuyq/amerilife_announces_strategic_partnership_with/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ewvuyq/amerilife_announces_strategic_partnership_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/20/corn4_6F.webp)

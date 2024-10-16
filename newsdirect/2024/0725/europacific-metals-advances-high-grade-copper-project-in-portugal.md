@@ -14,9 +14,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/europacific-metals-advances-high-grade-copper-project-in-portugal-525718162 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/europacific-metals-advances-high-grade-copper-project-in-portugal-525718162)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ebzq0g/europacific_metals_advances_highgrade_copper/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ebzq0g/europacific_metals_advances_highgrade_copper/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/25/chipWjlo.webp)

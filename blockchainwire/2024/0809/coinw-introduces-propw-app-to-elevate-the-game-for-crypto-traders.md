@@ -30,9 +30,17 @@ Discord：https://discord.gg/JmRV4aeEbf
 
 Telegram：[https://t.me/CoinWPT](https://t.me/CoinWPT) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-introduces-propw-app-to-elevate-the-game-for-crypto-traders-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1eo26zf/coinw_introduces_propw_app_for_seasoned_crypto/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1eo26zf/coinw_introduces_propw_app_for_seasoned_crypto/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/9/vibe4778.webp)

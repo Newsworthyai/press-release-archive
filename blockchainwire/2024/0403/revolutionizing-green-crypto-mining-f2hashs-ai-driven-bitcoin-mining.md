@@ -20,9 +20,17 @@ Media Contact:
 
 Full Name: Nikolai TerskikihJob Position: Operations Director, F2HashEmail: nikolai@f2hash.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/revolutionizing-green-crypto-mining-f2hashs-ai-driven-bitcoin-mining)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bv4slf/f2hash_integrates_ai_into_solarpowered_crypto/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bv4slf/f2hash_integrates_ai_into_solarpowered_crypto/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/3/mosssKVa.webp)

@@ -34,9 +34,17 @@ Company Websitehttps://cwgmarkets.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/cwg-markets-emerges-as-a-standout-participant-at-the-money-expo-mexico-651817988 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cwg-markets-emerges-as-a-standout-participant-at-the-money-expo-mexico-651817988)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c57wc5/cwg_markets_stands_out_at_money_expo_mexico/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c57wc5/cwg_markets_stands_out_at_money_expo_mexico/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/takeUrTU.webp)

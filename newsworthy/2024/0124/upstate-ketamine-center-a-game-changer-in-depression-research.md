@@ -8,9 +8,17 @@ To undergo the treatment, patients are required to complete the necessary intake
 
 Ketamine infusion therapy, with its ability to combat treatment-resistant conditions, is revolutionizing the field of depression research. Its fast-acting and effective nature has the potential to significantly improve the lives of individuals facing mental health challenges. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401241025/upstate-ketamine-center-a-game-changer-in-depression-research)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlewo/revolutionary_ketamine_infusion_therapy_gains/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlewo/revolutionary_ketamine_infusion_therapy_gains/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/echoEj0u.webp)

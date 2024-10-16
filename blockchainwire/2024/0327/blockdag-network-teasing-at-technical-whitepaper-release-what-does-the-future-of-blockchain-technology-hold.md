@@ -34,9 +34,17 @@ Discord: https://discord.gg/Q7BxghMVyu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-network-teasing-at-technical-whitepaper-releasewhat-does-the-future-of-blockchain-technology-hold-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bp1a2q/blockdag_network_to_release_technical_whitepaper/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bp1a2q/blockdag_network_to_release_technical_whitepaper/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/27/quizX5I3.webp)

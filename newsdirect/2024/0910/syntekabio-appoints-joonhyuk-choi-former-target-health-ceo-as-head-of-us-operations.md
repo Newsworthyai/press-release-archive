@@ -26,9 +26,17 @@ Company Websitehttp://www.syntekabio.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/syntekabio-appoints-joonhyuk-choi-former-target-health-ceo-as-head-of-us-operations-964458569 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/syntekabio-appoints-joonhyuk-choi-former-target-health-ceo-as-head-of-us-operations-964458569)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1fdgb1b/syntekabio_appoints_joonhyuk_choi_as_head_of_us/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1fdgb1b/syntekabio_appoints_joonhyuk_choi_as_head_of_us/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/10/riftISzt.webp)

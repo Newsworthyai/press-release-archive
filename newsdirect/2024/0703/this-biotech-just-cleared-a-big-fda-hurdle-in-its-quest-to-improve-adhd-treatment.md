@@ -28,9 +28,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/this-biotech-just-cleared-a-big-fda-hurdle-in-its-quest-to-improve-adhd-treatment-341277340 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/this-biotech-just-cleared-a-big-fda-hurdle-in-its-quest-to-improve-adhd-treatment-341277340)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dudgpm/biotech_breakthrough_cingulate_receives_fda/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dudgpm/biotech_breakthrough_cingulate_receives_fda/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/3/paveHaey.webp)

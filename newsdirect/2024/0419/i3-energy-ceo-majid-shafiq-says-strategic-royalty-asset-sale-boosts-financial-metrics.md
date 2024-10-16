@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/i3-energy-ceo-majid-shafiq-says-strategic-royalty-asset-sale-boosts-financial-metrics-920977505 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/i3-energy-ceo-majid-shafiq-says-strategic-royalty-asset-sale-boosts-financial-metrics-920977505)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c874g0/i3_energy_ceo_majid_shafiq_says_strategic_royalty/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c874g0/i3_energy_ceo_majid_shafiq_says_strategic_royalty/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/19/zestHofj.webp)

@@ -28,9 +28,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/leading-bitcoin-miner-has-its-eyes-on-the-future-983212032 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/leading-bitcoin-miner-has-its-eyes-on-the-future-983212032)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fi3kj8/bitfufu_ceo_discusses_rapid_growth_and_future/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fi3kj8/bitfufu_ceo_discusses_rapid_growth_and_future/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/16/urgeV3h8.webp)

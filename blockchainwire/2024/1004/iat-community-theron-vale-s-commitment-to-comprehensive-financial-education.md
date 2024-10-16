@@ -20,9 +20,17 @@ As the IAT Community embarks on this exciting journey, it invites potential memb
 
 In conclusion, the IAT Community is more than just an educational platform; it is a vibrant community dedicated to transforming the investment education landscape. By prioritizing knowledge, collaboration, and social responsibility, the IAT Community is poised to empower investors worldwide, equipping them with the skills and confidence needed to thrive in an ever-changing market. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/iat-community-theron-vales-commitment-to-comprehensive-financial-education)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fw2yth/iat_community_launches_innovative_online_platform/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fw2yth/iat_community_launches_innovative_online_platform/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/4/pale2NWU.webp)

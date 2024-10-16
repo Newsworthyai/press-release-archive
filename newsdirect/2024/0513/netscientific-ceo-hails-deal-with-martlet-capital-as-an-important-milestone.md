@@ -16,9 +16,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/netscientific-ceo-hails-deal-with-martlet-capital-as-an-important-milestone-299823807 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/netscientific-ceo-hails-deal-with-martlet-capital-as-an-important-milestone-299823807)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cr1k8q/netscientific_ceo_announces_strategic_transaction/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cr1k8q/netscientific_ceo_announces_strategic_transaction/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/icySf7x.webp)

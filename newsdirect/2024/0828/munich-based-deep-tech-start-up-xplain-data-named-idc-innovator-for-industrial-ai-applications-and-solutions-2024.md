@@ -32,9 +32,17 @@ Monika.Roy@xplain-data.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/munich-based-deep-tech-start-up-xplain-data-named-idc-innovator-for-industrial-ai-applications-and-solutions-2024-525713798 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/munich-based-deep-tech-start-up-xplain-data-named-idc-innovator-for-industrial-ai-applications-and-solutions-2024-525713798)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1f3h40y/xplain_data_gmbh_named_idc_innovator_in/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1f3h40y/xplain_data_gmbh_named_idc_innovator_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/28/quayrEKo.webp)

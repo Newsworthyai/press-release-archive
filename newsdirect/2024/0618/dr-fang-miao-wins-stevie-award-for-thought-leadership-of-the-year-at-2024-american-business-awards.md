@@ -36,9 +36,17 @@ Company Websitehttp://www.pawaus.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/dr-fang-miao-wins-stevie-award-for-thought-leadership-of-the-year-at-2024-american-business-awards-590068593 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/dr-fang-miao-wins-stevie-award-for-thought-leadership-of-the-year-at-2024-american-business-awards-590068593)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1ditdnk/dr_fang_miao_wins_thought_leader_of_the_year_at/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1ditdnk/dr_fang_miao_wins_thought_leader_of_the_year_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/18/dunejPoJ.webp)

@@ -28,9 +28,17 @@ About KabosuMama
 
 [KabosuMama](https://fukutoken.xyz/) is the owner of Kabosu, the Shiba Inu famous for the Doge meme. Recently, she welcomed a new family member: Fuku, a lively and adorable 3-month-old puppy. Fuku, with her bright eyes and boundless energy, quickly became the new star of the family. Although still small, Fuku already exhibits the charming personality of Kabosu. She enjoys exploring the garden, chasing leaves, and cuddling with her new family members. KabosuMama frequently shares playful and cute photos and videos of Fuku, bringing joy to fans 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/fuku-a-meme-coin-will-be-initially-listed-on-coinw-exchange)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1eo3qyh/coinw_to_list_fuku_token_on_meme_zone_with_5000/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1eo3qyh/coinw_to_list_fuku_token_on_meme_zone_with_5000/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/9/bluryaga.webp)

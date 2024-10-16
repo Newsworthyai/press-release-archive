@@ -30,9 +30,17 @@ Bismarck, ND (Newsworthy.ai) Friday Jan 19, 2024 @ 7:00 AM Central — In its co
 
  For more information, log onto bek.tv and bek.news. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20240119998/bek-tv-announces-premiere-of-open-range-show-offers-new-insights-on-nd-topics)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1avxpni/bek_tv_announces_premiere_of_open_range_show/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1avxpni/bek_tv_announces_premiere_of_open_range_show/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/neonDBf8.webp)

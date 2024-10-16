@@ -46,9 +46,17 @@ Twitter: https://twitter.com/taboo_ioTelegram: https://t.me/TABOO_OFFICIALDiscor
 
 Media contact:Company Name: TABOO TOKENContact person: James LambertEmail: info@taboo.io 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/taboo-unveils-live-streaming-confirms-second-mansion-event-after-successful-marketplace-launch)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fvbtol/taboo_announces_revolutionary_livestreaming/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fvbtol/taboo_announces_revolutionary_livestreaming/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/club_trM.webp)

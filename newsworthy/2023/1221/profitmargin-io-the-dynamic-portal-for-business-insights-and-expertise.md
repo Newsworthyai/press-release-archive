@@ -18,9 +18,17 @@ Crafted for entrepreneurs, investors, and professionals, ProfitMargin.io aspires
 
 Empower your business decisions at www.ProfitMargin.io. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231221865/profitmargin-io-the-dynamic-portal-for-business-insights-and-expertise)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1avx4sh/profitmarginio_redefining_business_insights_in/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1avx4sh/profitmarginio_redefining_business_insights_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/jokejhk0.webp)

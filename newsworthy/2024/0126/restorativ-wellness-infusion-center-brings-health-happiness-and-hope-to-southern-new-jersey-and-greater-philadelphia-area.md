@@ -10,9 +10,17 @@ To empower prospective patients with informed choices, RestoratIV Wellness & Inf
 
 RestoratIV Wellness & Infusion Center stands as the premier destination for ketamine infusions in southern New Jersey and the greater Philadelphia area. Their commitment shines through in the provision of free consultations and the compassionate support offered by their caring and friendly staff. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401261035/restorativ-wellness-infusion-center-brings-health-happiness-and-hope-to-southern-new-jersey-and-greater-philadelphia-area-with-ketamine-infus)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlg06/restorativ_wellness_infusion_center_leading_the/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlg06/restorativ_wellness_infusion_center_leading_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/yarnc9Hn.webp)

@@ -18,9 +18,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/creo-medical-says-nhs-case-study-reveals-significant-efficiencies-from-speedboat-technology-306663373 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/creo-medical-says-nhs-case-study-reveals-significant-efficiencies-from-speedboat-technology-306663373)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cc0nnk/creo_medical_reveals_nhs_case_study_shows/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cc0nnk/creo_medical_reveals_nhs_case_study_shows/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/24/ricevLQ2.webp)

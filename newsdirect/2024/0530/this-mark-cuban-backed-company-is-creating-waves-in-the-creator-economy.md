@@ -32,9 +32,17 @@ Company Websitehttps://overplay.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/this-mark-cuban-backed-company-is-creating-waves-in-the-creator-economy-775696436 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/this-mark-cuban-backed-company-is-creating-waves-in-the-creator-economy-775696436)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d43a70/revolutionizing_the_creator_economy_with/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d43a70/revolutionizing_the_creator_economy_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/30/blurqfsY.webp)

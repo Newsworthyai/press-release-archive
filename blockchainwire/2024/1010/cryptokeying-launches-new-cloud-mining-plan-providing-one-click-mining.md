@@ -35,9 +35,17 @@ Are you ready to embark on this exciting journey to wealth? Choose the reputable
 
 For more information, please visit the CryptoKeying official website: https://cryptokeying.com/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptokeying-launches-new-cloud-mining-plan-providing-one-click-mining)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1g0rzms/cryptokeying_launches_new_cloud_mining_plans_for/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1g0rzms/cryptokeying_launches_new_cloud_mining_plans_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/10/jade85LU.webp)

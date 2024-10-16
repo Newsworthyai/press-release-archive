@@ -48,9 +48,17 @@ dtorgerud@aprullc.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kona-gold-beverages-and-apple-rush-co-revolutionizing-beverage-market-with-joint-venture-and-manufacturing-agreement-465561988 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kona-gold-beverages-and-apple-rush-co-revolutionizing-beverage-market-with-joint-venture-and-manufacturing-agreement-465561988)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1c29jkp/kona_gold_beverages_and_apple_rush_co/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1c29jkp/kona_gold_beverages_and_apple_rush_co/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/12/chip1Y_3.webp)

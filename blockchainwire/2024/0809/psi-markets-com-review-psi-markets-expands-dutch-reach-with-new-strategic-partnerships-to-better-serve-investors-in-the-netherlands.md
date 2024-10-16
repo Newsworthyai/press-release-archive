@@ -80,9 +80,17 @@ The company’s expansion into new markets and its strategic partnerships reflec
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/psi-marketscom-review-psi-markets-expands-dutch-reach-with-new-strategic-partnerships-to-better-serve-investors-in-the-netherlands-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eoe0p4/psimarketscom_expands_global_presence/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eoe0p4/psimarketscom_expands_global_presence/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/9/lossPwgv.webp)

@@ -48,9 +48,17 @@ Company Websitehttps://razorpitch.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/prenetics-global-limited-genomic-innovations-making-waves-in-cancer-care-331342131 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/prenetics-global-limited-genomic-innovations-making-waves-in-cancer-care-331342131)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dmper4/prenetics_global_limited_revolutionizing_cancer/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dmper4/prenetics_global_limited_revolutionizing_cancer/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/20/dashrXXV.webp)

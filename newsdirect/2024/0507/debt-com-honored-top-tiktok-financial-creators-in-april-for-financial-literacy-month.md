@@ -69,9 +69,17 @@ Company Websitehttps://www.debt.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/debt-com-honored-top-tiktok-financial-creators-in-april-for-financial-literacy-month-213758404 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/debt-com-honored-top-tiktok-financial-creators-in-april-for-financial-literacy-month-213758404)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cmhe8q/debtcom_honors_top_tiktok_financial_creators_in/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cmhe8q/debtcom_honors_top_tiktok_financial_creators_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/lush2dcT.webp)

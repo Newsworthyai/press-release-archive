@@ -28,9 +28,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/big-news-for-dlmi-tokenization-pioneer-inks-deal-with-international-partner-761573487 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/big-news-for-dlmi-tokenization-pioneer-inks-deal-with-international-partner-761573487)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dhwzjh/dlmi_ceo_discusses_dynamic_partnership_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dhwzjh/dlmi_ceo_discusses_dynamic_partnership_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/17/airywcvr.webp)

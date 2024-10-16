@@ -18,9 +18,17 @@ A mecca for dental professionals, Dentist Magazine is where clinical expertise m
 
 Stay informed and inspired with www.DentistMagazine.co. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231212807/dentist-magazine-debuts-setting-new-standards-in-dental-industry-insights-and-connections)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avctt0/dentist_magazine_launches_a_mecca_for_dental/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avctt0/dentist_magazine_launches_a_mecca_for_dental/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/dual_y7C.webp)

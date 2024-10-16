@@ -62,9 +62,17 @@ Company Websitehttps://www.dbschenker.com/usa
 
 View source version on newsdirect.com: https://newsdirect.com/news/db-schenker-showcases-thought-leadership-in-import-export-logistics-through-new-video-series-on-the-port-of-halifax-618653442 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/db-schenker-showcases-thought-leadership-in-import-export-logistics-through-new-video-series-on-the-port-of-halifax-618653442)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1e4skvb/db_schenker_launches_exclusive_video_series_on/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1e4skvb/db_schenker_launches_exclusive_video_series_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/16/takeHrYT.webp)

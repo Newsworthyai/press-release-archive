@@ -18,9 +18,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/standard-uranium-announces-financing-as-company-plans-drilling-at-davidson-river-829059604 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/standard-uranium-announces-financing-as-company-plans-drilling-at-davidson-river-829059604)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cin0d8/standard_uranium_ceo_announces_3m_financing_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cin0d8/standard_uranium_ceo_announces_3m_financing_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/2/gleeJnTl.webp)

@@ -22,9 +22,17 @@ Company Websitehttps://www.ballastrockpw.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/joe-miller-joins-ballast-rock-private-wealth-as-a-wealth-advisor-903042069 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/joe-miller-joins-ballast-rock-private-wealth-as-a-wealth-advisor-903042069)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1fklxsf/wealth_advisor_joe_miller_joins_ballast_rock/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1fklxsf/wealth_advisor_joe_miller_joins_ballast_rock/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/19/jazzb2Kq.webp)

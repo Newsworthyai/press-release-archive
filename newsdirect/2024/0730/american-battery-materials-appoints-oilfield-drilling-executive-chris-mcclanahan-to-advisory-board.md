@@ -32,9 +32,17 @@ Company Websitehttps://www.americanbatterymaterials.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/american-battery-materials-appoints-oilfield-drilling-executive-chris-mcclanahan-to-advisory-board-498386617 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/american-battery-materials-appoints-oilfield-drilling-executive-chris-mcclanahan-to-advisory-board-498386617)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1eg4ml1/american_battery_materials_appoints_oilfield/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1eg4ml1/american_battery_materials_appoints_oilfield/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/30/faceCl4q.webp)

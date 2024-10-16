@@ -34,9 +34,17 @@ Company Websitehttps://www.xyplanningnetwork.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/xypn-marks-its-10th-anniversary-amid-record-growth-270231178 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/xypn-marks-its-10th-anniversary-amid-record-growth-270231178)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fzy37m/xy_planning_network_marks_10th_anniversary_amid/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fzy37m/xy_planning_network_marks_10th_anniversary_amid/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/9/bendyOZi.webp)

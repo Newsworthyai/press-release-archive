@@ -23,9 +23,17 @@ About SphereX:
 
 SphereX is a decentralized crypto exchange designed to provide users with a more secure, efficient, and user-friendly platform for trading digital assets. SphereX boasts a unique combination of capabilities that include off-chain matching for lightning-fast trade execution, on-chain settlement for enhanced security, and cross-margin trading to optimize capital utilization. To learn more about SphereX, visit the SphereX website, and for updates, news, and promotions follow SphereX on X and Telegram. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/spherex-celebrates-its-grand-launch-with-dual-track-event-warp-drive-and-lightspeed-tracks-offer-exclusive-atlas-collections-nft-airdrops----)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1b6rm91/spherex_launches_grand_event_to_reward_blast_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1b6rm91/spherex_launches_grand_event_to_reward_blast_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/4/ulnaLIUO.webp)

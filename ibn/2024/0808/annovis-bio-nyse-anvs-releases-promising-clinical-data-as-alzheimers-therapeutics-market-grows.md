@@ -32,9 +32,17 @@ Annovis Bio (NYSE: ANVS), a late-stage, clinical-drug platform company pioneeri
 
  BioMedWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-releases-promising-clinical-data-as-alzheimers-therapeutics-market-grows/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2g50o/annovis_bio_releases_preclinical_data_showing/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2g50o/annovis_bio_releases_preclinical_data_showing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/dashTcnx.webp)

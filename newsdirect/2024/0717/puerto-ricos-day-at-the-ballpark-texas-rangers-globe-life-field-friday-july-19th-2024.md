@@ -30,9 +30,17 @@ kenn@talentedartpro.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/puerto-ricos-day-at-the-ballpark-texas-rangers-globe-life-field-friday-july-19th-2024-511899630 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/puerto-ricos-day-at-the-ballpark-texas-rangers-globe-life-field-friday-july-19th-2024-511899630)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1e5i90v/prcda_sponsors_puerto_ricos_day_at_the_ballpark/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1e5i90v/prcda_sponsors_puerto_ricos_day_at_the_ballpark/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/17/noonifzx.webp)

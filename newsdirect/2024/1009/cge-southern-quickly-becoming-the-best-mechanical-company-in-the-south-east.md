@@ -36,9 +36,17 @@ Company Websitehttps://www.cgesouthern.co.uk/
 
 View source version on newsdirect.com: https://newsdirect.com/news/cge-southern-quickly-becoming-the-best-mechanical-company-in-the-south-east-802173825 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cge-southern-quickly-becoming-the-best-mechanical-company-in-the-south-east-802173825)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fzugfl/cge_southern_quickly_becoming_the_best_mechanical/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fzugfl/cge_southern_quickly_becoming_the_best_mechanical/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/9/xenokLNF.webp)

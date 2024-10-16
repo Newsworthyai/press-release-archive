@@ -46,9 +46,17 @@ https://twitter.com/Option2Trade
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/how-this-new-black-account-token-filled-the-void-for-bitcoin-btc-and-ethereums-eth-price-uncertainty)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bng1nv/option2trade_o2t_introduces_black_account_token/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bng1nv/option2trade_o2t_introduces_black_account_token/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/25/ovalcZbj.webp)

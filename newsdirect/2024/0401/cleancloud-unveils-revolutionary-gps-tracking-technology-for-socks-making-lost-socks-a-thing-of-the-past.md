@@ -26,9 +26,17 @@ leanne@cleancloud.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cleancloud-unveils-revolutionary-gps-tracking-technology-for-socks-making-lost-socks-a-thing-of-the-past-357232964 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cleancloud-unveils-revolutionary-gps-tracking-technology-for-socks-making-lost-socks-a-thing-of-the-past-357232964)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bt87j4/cleancloud_unveils_revolutionary_gps_tracking/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bt87j4/cleancloud_unveils_revolutionary_gps_tracking/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/1/epicbXdt.webp)

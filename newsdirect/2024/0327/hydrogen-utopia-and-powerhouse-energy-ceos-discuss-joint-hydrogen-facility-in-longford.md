@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hydrogen-utopia-and-powerhouse-energy-ceos-discuss-joint-hydrogen-facility-in-longford-440728577 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/hydrogen-utopia-and-powerhouse-energy-ceos-discuss-joint-hydrogen-facility-in-longford-440728577)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bp0vp8/hydrogen_utopia_and_powerhouse_energy_ceos/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bp0vp8/hydrogen_utopia_and_powerhouse_energy_ceos/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/ideau_Se.webp)

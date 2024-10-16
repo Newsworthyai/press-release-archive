@@ -30,9 +30,17 @@ Sean.Maharaj@hoptek.ai
 
 View source version on newsdirect.com: https://newsdirect.com/news/xtreme-trucking-selects-hopteks-dispatch-engine-r-solution-for-real-time-visibility-and-optimization-of-fleet-operations-987144069 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/xtreme-trucking-selects-hopteks-dispatch-engine-r-solution-for-real-time-visibility-and-optimization-of-fleet-operations-987144069)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fnkp93/xtreme_trucking_selects_hopteks_dispatch_engine/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fnkp93/xtreme_trucking_selects_hopteks_dispatch_engine/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/23/noravG7Q.webp)

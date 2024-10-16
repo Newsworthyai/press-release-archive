@@ -45,9 +45,17 @@ Final RemarksB2BinPay is planning to introduce Algorand and Solana in the next r
 
 Stay connected with B2BinPay and utilize modern blockchain payment processing solutions to optimize your company's potential! 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/b2binpay-v20-release-improved-functionality-with-trx-staking-and-expanded-blockchain-support-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvl1p1/b2binpay_introduces_trx_staking_and_expands/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvl1p1/b2binpay_introduces_trx_staking_and_expands/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/6/deep7PqX.webp)

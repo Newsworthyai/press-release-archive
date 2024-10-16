@@ -36,9 +36,17 @@ About CJNA:
 
 The first community-led Accelerator, built by the largest media company on X and the fastest growing globally in 2024. Led by a top team with extensive investing and operating experience composed of some of the most influential figures in citizen journalism and blockchain. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitfi-kicks-off-seed-round-with-fundamental-labs-ibc-group-as-anchor-investors-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ecgu54/pioneering_cedefi_platform_bitfi_announces_50m/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ecgu54/pioneering_cedefi_platform_bitfi_announces_50m/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/26/riceOTk_.webp)

@@ -212,9 +212,17 @@ Company Websitehttps://www.sigmaphoto.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/announcing-the-50mm-f1-2-dg-dn-art-lens-the-brightest-50mm-prime-lens-in-sigmas-lineup-264535198 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/announcing-the-50mm-f1-2-dg-dn-art-lens-the-brightest-50mm-prime-lens-in-sigmas-lineup-264535198)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1bo6brq/sigma_announces_new_50mm_f12_dg_dn_art_lens_for/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1bo6brq/sigma_announces_new_50mm_f12_dg_dn_art_lens_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/hushl5db.webp)

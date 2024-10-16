@@ -116,9 +116,17 @@ Company Websitehttps://911day.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/leading-9-11-nonprofit-calls-on-presidential-candidates-to-suspend-campaign-rhetoric-and-activities-in-observance-of-the-23rd-anniversary-of-the-september-11-2001-terrorist-attacks-888539857 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/leading-9-11-nonprofit-calls-on-presidential-candidates-to-suspend-campaign-rhetoric-and-activities-in-observance-of-the-23rd-anniversary-of-the-september-11-2001-terrorist-attacks-888539857)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1f8qtah/911_day_calls_on_presidential_candidates_to/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1f8qtah/911_day_calls_on_presidential_candidates_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/4/mielln4B.webp)

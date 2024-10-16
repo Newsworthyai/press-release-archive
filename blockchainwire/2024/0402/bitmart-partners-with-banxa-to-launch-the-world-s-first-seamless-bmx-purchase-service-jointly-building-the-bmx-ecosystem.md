@@ -22,9 +22,17 @@ About BANXA Holdings Inc
 
 Banxa aims to accelerate the world to Web3 with its leading global on-and-off ramp solution. Through its extensive network of local payment solutions paired with the required crypto licenses, Banxa gives its partners and projects access to global audiences with less friction and higher conversions. Banxa has a global team of Web3 natives - with operating headquarters in the USA, Europe and APAC regions. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-partners-with-banxa-to-launch-the-worlds-first-seamless-bmx-purchase-service-jointly-building-the-bmx-ecosystem)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bu60ty/bitmart_partners_with_banxa_for_fiattobmx/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bu60ty/bitmart_partners_with_banxa_for_fiattobmx/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/2/quiz3kYz.webp)

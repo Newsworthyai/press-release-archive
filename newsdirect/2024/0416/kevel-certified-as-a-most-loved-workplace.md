@@ -32,9 +32,17 @@ jchoo@kevel.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kevel-certified-as-a-most-loved-workplace-537183195 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kevel-certified-as-a-most-loved-workplace-537183195)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1c5ftzs/kevel_certified_as_most_loved_workplace_by_best/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1c5ftzs/kevel_certified_as_most_loved_workplace_by_best/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/lushg54k.webp)

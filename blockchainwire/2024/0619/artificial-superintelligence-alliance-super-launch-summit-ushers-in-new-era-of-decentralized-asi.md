@@ -46,9 +46,17 @@ Company contact: Alex Domecq
 
 Media contact: info@superintelligence.io 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/artificial-superintelligence-alliance-super-launch-summit--ushers-in-new-era-of-decentralized-asi)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dudzg4/artificial_superintelligence_alliance_hosts/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dudzg4/artificial_superintelligence_alliance_hosts/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/19/calmRMJJ.webp)

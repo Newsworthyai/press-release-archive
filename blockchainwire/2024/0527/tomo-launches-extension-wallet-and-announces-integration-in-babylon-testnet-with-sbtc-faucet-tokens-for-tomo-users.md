@@ -22,9 +22,17 @@ About Babylon:
 
 Babylon is a blockchain project that designs security sharing protocols for the decentralized economy. Babylon's mission is to scale Bitcoin to secure the decentralized economy. To achieve this, Babylon utilizes the three primary facets of Bitcoin: its asset, its reliable timestamping service, and its most censorship-resistant blockspace in the world. To leverage these facets, Babylon is developing three innovative security-sharing protocols: Bitcoin Staking Protocol, Bitcoin Timestamping Protocol, and Bitcoin Data Availability Protocol. Through these pioneering protocols, Babylon envisions a more secure and decentralized future. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/tomo-launches-extension-wallet-and-announces-integration-in-babylon-testnet-with-sbtc-faucet-tokens-for-tomo-users--1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ez6kh1/tomo_launches_multichain_wallet_extension_in/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ez6kh1/tomo_launches_multichain_wallet_extension_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/zeroIMdV.webp)

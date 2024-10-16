@@ -32,9 +32,17 @@ Company Websitehttps://share-series.open-exchange.net
 
 View source version on newsdirect.com: https://newsdirect.com/news/upcoming-share-series-events-275088005 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/upcoming-share-series-events-275088005)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1cr57c0/upcoming_share_series_events_on_may_16th/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1cr57c0/upcoming_share_series_events_on_may_16th/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/mendHEfS.webp)

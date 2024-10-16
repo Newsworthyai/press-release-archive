@@ -36,9 +36,17 @@ johan@spelnyheter.se
 
 View source version on newsdirect.com: https://newsdirect.com/news/casino-utan-svensk-licens-965721553 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/casino-utan-svensk-licens-965721553)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cgu5i8/unlicensed_casinos_in_sweden_why_some_operators/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cgu5i8/unlicensed_casinos_in_sweden_why_some_operators/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/30/cakeYhH_.webp)

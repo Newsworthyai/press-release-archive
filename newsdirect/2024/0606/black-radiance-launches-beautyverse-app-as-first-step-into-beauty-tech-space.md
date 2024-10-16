@@ -24,9 +24,17 @@ camryn@six-one.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/black-radiance-launches-beautyverse-app-as-first-step-into-beauty-tech-space-873379220 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/black-radiance-launches-beautyverse-app-as-first-step-into-beauty-tech-space-873379220)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1d9gtwl/black_radiance_launches_beyond_radiant_ar_app/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1d9gtwl/black_radiance_launches_beyond_radiant_ar_app/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/6/pondZkcg.webp)

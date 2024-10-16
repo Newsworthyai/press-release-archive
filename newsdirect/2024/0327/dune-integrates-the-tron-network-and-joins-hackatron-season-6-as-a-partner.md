@@ -62,9 +62,17 @@ arnaud@dune.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/dune-integrates-the-tron-network-and-joins-hackatron-season-6-as-a-partner-393363082 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/dune-integrates-the-tron-network-and-joins-hackatron-season-6-as-a-partner-393363082)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bp4y5u/dune_integrates_tron_network_joins_hackatron/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bp4y5u/dune_integrates_tron_network_joins_hackatron/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/keepi_Fs.webp)

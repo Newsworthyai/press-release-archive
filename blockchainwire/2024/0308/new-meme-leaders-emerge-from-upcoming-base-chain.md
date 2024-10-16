@@ -18,9 +18,17 @@ Tg: https://t.me/basedbrettX: https://twitter.com/basedbrettWebsite: https://www
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/new-meme-leaders-emerge-from-upcoming-base-chain)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bb4x0a/coinbases_basechain_welcomes_meme_leader_brett_to/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bb4x0a/coinbases_basechain_welcomes_meme_leader_brett_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/9/nora1N1Q.webp)

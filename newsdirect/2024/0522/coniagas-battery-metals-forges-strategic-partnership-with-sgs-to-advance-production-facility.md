@@ -16,9 +16,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/coniagas-battery-metals-forges-strategic-partnership-with-sgs-to-advance-production-facility-902771962 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/coniagas-battery-metals-forges-strategic-partnership-with-sgs-to-advance-production-facility-902771962)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cy41yk/coniagas_battery_metals_forges_strategic/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cy41yk/coniagas_battery_metals_forges_strategic/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/hint1d09.webp)

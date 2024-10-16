@@ -34,9 +34,17 @@ DUBAI, UAE - (NewMediaWire) - September 03, 2024 - Blackwell 3D Construction Cor
 
  +1 (702) 718-0807 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/blackwell-3d-provides-corporate-update-eyes-asian-market-7075988)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f7y4f5/blackwell_3d_construction_corp_announces_key/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f7y4f5/blackwell_3d_construction_corp_announces_key/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/3/camc72mg.webp)

@@ -48,9 +48,17 @@ Visit Our Blog
 
  * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1550)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BookNews/comments/1f6i6d1/the_print_whisperer_leads_walk_with_warren_at/
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1f6i6d1/the_print_whisperer_leads_walk_with_warren_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/249/1/pale8zrI.webp)

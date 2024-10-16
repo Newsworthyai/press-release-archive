@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/empire-metals-reveals-more-promising-drill-results-confirming-pitfield-projects-titanium-potential-705357211 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/empire-metals-reveals-more-promising-drill-results-confirming-pitfield-projects-titanium-potential-705357211)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1ctzcyo/empire_metals_reveals_promising_drill_results_at/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1ctzcyo/empire_metals_reveals_promising_drill_results_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/17/herbT7Jw.webp)

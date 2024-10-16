@@ -46,9 +46,17 @@ Safe Harbor for Forward-Looking Statements:
 
 This news release contains forward-looking statements which are not statements of historical fact. Forward-looking statements include estimates and statements that describe the Company’s future plans, objectives or goals, including words to the effect that the Company or management expects a stated condition or result to occur. Forward-looking statements may be identified by such terms as “believes,” “anticipates”, “expects”, “estimates”, “may”, “could”, “would”, “will”, or “plan”. Since forward-looking statements are based on assumptions and address future events and conditions, by their very nature they involve inherent risks and uncertainties. Although these statements are based on information currently available to the Company, the Company provides no assurance that actual results will meet management’s expectations. Risks, uncertainties, and other factors involved with forward-looking information could cause actual events, results, performance, prospects, and opportunities to differ materially from those expressed or implied by such forward-looking information. Factors that could cause actual results to differ materially from such forward-looking information include but are not limited to changes in general economic and financial market conditions. Although the Company believes that the assumptions and factors used in preparing the forward-looking information in this news release are reasonable, undue reliance should not be placed on such information, which only applies as of the date of this news release, and no assurance can be given that such events will occur in the disclosed time frames or at all. The Company disclaims any intention or obligation to update or revise any forward-looking information, whether as a result of new information, future events or otherwise, other than as required by law.” 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/ladybug-reveals-major-milestones-in-ai-driven-nutrabuddy-platform-during-alpha-testing-7076166)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1fzsxx8/ladybug_nutratech_announces_development_of/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1fzsxx8/ladybug_nutratech_announces_development_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/9/gainJzVV.webp)

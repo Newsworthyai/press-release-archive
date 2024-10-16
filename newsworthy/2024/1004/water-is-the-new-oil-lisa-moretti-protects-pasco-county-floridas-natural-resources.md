@@ -38,9 +38,17 @@ Lisa Moretti Campaign
 
 (352) 806-8135 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202410041300/water-is-the-new-oil-lisa-moretti-protects-pasco-county-floridas-natural-resources)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1fvwm4j/lisa_moretti_highlights_the_importance_of_water/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1fvwm4j/lisa_moretti_highlights_the_importance_of_water/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2410/4/sagebp59.webp)

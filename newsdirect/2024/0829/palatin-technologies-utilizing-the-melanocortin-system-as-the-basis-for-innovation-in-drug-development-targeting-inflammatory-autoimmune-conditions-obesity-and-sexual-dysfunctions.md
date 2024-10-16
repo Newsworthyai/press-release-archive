@@ -63,9 +63,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/palatin-technologies-utilizing-the-melanocortin-system-as-the-basis-for-innovation-in-drug-development-targeting-inflammatory-and-autoimmune-conditions-obesity-and-sexual-dysfunctions-778509273 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/palatin-technologies-utilizing-the-melanocortin-system-as-the-basis-for-innovation-in-drug-development-targeting-inflammatory-and-autoimmune-conditions-obesity-and-sexual-dysfunctions-778509273)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f45wpj/palatin_technologies_receives_first_fda_approval/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f45wpj/palatin_technologies_receives_first_fda_approval/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/29/numbwJaN.webp)

@@ -30,9 +30,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ilearningengines-hear-from-the-chief-architect-of-this-applied-ai-platform-464542036 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ilearningengines-hear-from-the-chief-architect-of-this-applied-ai-platform-464542036)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1er7ljr/ilearningengines_chief_architect_discusses/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1er7ljr/ilearningengines_chief_architect_discusses/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/13/ableSWYR.webp)

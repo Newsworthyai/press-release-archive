@@ -20,9 +20,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ginsglobal-ceo-highlights-unique-investment-approach-amidst-evolving-tech-landscape-271738267 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ginsglobal-ceo-highlights-unique-investment-approach-amidst-evolving-tech-landscape-271738267)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1c73yhm/ginsglobal_ceo_highlights_unique_investment/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1c73yhm/ginsglobal_ceo_highlights_unique_investment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/18/lamb0if9.webp)

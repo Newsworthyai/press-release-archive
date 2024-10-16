@@ -33,9 +33,17 @@ Company Websitehttps://www.novusink.com/about
 
 View source version on newsdirect.com: https://newsdirect.com/news/novus-ink-advisors-and-solidus-capital-group-team-up-to-serve-growing-transatlantic-commercial-interests-of-mid-market-enterprises-913733575 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/novus-ink-advisors-and-solidus-capital-group-team-up-to-serve-growing-transatlantic-commercial-interests-of-mid-market-enterprises-913733575)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ddeejg/novus_ink_advisors_and_solidus_capital_group_join/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ddeejg/novus_ink_advisors_and_solidus_capital_group_join/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/11/numbANED.webp)

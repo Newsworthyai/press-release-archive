@@ -18,9 +18,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ethernity-networks-forecasts-substantial-growth-with-new-oem-engagements-621883541 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ethernity-networks-forecasts-substantial-growth-with-new-oem-engagements-621883541)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1but7wq/ethernity_networks_forecasts_substantial_growth/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1but7wq/ethernity_networks_forecasts_substantial_growth/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/3/epicq281.webp)

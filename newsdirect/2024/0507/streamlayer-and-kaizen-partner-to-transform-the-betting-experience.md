@@ -26,9 +26,17 @@ Company Websitehttps://www.streamlayer.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/streamlayer-and-kaizen-partner-to-transform-the-betting-experience-445848186 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/streamlayer-and-kaizen-partner-to-transform-the-betting-experience-445848186)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cmesip/streamlayer_and_kaizen_partner_to_transform_the/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cmesip/streamlayer_and_kaizen_partner_to_transform_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/pend6zDK.webp)

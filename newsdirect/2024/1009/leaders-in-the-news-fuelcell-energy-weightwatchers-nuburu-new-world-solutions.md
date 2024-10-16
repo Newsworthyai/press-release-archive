@@ -52,9 +52,17 @@ Contact DetailsWALL STREET REPORTER
 
 View source version on newsdirect.com: https://newsdirect.com/news/leaders-in-the-news-fuelcell-energy-weightwatchers-nuburu-new-world-solutions-283690022 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/leaders-in-the-news-fuelcell-energy-weightwatchers-nuburu-new-world-solutions-283690022)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fzvr16/wall_street_reporter_highlights_latest_insights/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fzvr16/wall_street_reporter_highlights_latest_insights/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/9/lunaIZrw.webp)

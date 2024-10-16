@@ -18,9 +18,17 @@ McEwen Mining (NYSE: MUX) (TSX: MUX), a gold and silver producer with operations
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-minings-nyse-mux-tsx-mux-mcewen-copper-reports-on-assay-results/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2pvps/mcewen_mining_reports_positive_assay_results_from/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2pvps/mcewen_mining_reports_positive_assay_results_from/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/mossVbkz.webp)

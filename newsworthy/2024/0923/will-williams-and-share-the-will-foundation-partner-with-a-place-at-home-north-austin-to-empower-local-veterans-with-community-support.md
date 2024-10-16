@@ -12,9 +12,17 @@ As Mr. Prue looks forward to his Honor Flight in October, this effort serves as 
 
 About A Place At Home - North AustinA Place At Home - North Austin, based in Round Rock, TX, offers personalized in home care services for seniors, veterans and adults with disabilities, from companionship and homemaking to personal care and care coordination. The team is committed to providing exceptional care that allows seniors to age comfortably and confidently at home. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202409231278/will-williams-and-share-the-will-foundation-partner-with-a-place-at-home-north-austin-to-empower-local-veterans-with-community-support)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1fnsnfz/local_organizations_come_together_to_provide/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1fnsnfz/local_organizations_come_together_to_provide/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/249/23/lime1l06.webp)

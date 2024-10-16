@@ -26,9 +26,17 @@ Company Websitehttps://casablui.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/casa-blui-launches-new-range-of-home-wellness-products-134875943 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/casa-blui-launches-new-range-of-home-wellness-products-134875943)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fdhib1/casa_blui_launches_new_range_of_home_wellness/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fdhib1/casa_blui_launches_new_range_of_home_wellness/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/10/loftOB39.webp)

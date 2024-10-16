@@ -40,9 +40,17 @@ allison@trustrelations.agency
 
 View source version on newsdirect.com: https://newsdirect.com/news/sports-research-r-partners-with-yulex-r-on-first-ever-eco-friendly-waist-trainer-992404889 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sports-research-r-partners-with-yulex-r-on-first-ever-eco-friendly-waist-trainer-992404889)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bo7jex/sports_research_introduces_ecofriendly_sweet/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bo7jex/sports_research_introduces_ecofriendly_sweet/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/hushhyUn.webp)

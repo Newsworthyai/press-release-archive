@@ -40,9 +40,17 @@ Company Websitehttp://www.ourcrowd.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-next-wave-of-ai-how-hailos-edge-ai-chips-may-help-transform-the-industry-671090598 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-next-wave-of-ai-how-hailos-edge-ai-chips-may-help-transform-the-industry-671090598)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bpv1do/hailos_edge_ai_chips_transforming_the_industry/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bpv1do/hailos_edge_ai_chips_transforming_the_industry/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/lossxEHM.webp)

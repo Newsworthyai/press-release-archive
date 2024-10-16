@@ -12,9 +12,17 @@ A standard TMS treatment plan initially involves five sessions per week for six 
 
 Bright Horizons Psychiatry is thrilled to offer TMS as part of its comprehensive mental health treatment options. To learn more about TMS or to schedule an appointment, please visit www.brighthorizonpsychiatry.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402141027/bright-horizons-psychiatry-offers-groundbreaking-tms-treatment-for-depression-and-other-mental-health-conditions)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcaux/bright_horizons_psychiatry_offers_innovative_tms/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcaux/bright_horizons_psychiatry_offers_innovative_tms/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/16/dualLIkh.webp)

@@ -34,9 +34,17 @@ Company Websitehttp://HeavyweightUnlimited.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/heavyweight-unlimited-ceo-jesse-is-heavyweight-launches-new-music-projects-with-community-initiatives-698753387 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/heavyweight-unlimited-ceo-jesse-is-heavyweight-launches-new-music-projects-with-community-initiatives-698753387)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1en26ww/heavyweight_unlimited_ceo_jesse_is_heavyweight/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1en26ww/heavyweight_unlimited_ceo_jesse_is_heavyweight/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/8/cheflxsW.webp)

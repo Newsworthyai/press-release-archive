@@ -32,9 +32,17 @@ Boba Network is an optimistic-based multichain layer-2 scaling solution that aim
 
 Learn more: https://boba.network/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/boba-network-joins-the-superchain-ecosystem-benefiting-from-cross-chain-interoperability-and-expanding-real-world-blockchain-applications)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1fq8g85/boba_network_integrates_into_superchain_ecosystem/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1fq8g85/boba_network_integrates_into_superchain_ecosystem/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/26/nuke9qTr.webp)

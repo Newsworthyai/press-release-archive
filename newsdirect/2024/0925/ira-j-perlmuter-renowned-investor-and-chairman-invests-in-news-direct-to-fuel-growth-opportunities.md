@@ -32,9 +32,17 @@ Company Websitehttp://www.newsdirect.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ira-j-perlmuter-renowned-investor-and-chairman-invests-in-news-direct-to-fuel-growth-opportunities-877325127 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ira-j-perlmuter-renowned-investor-and-chairman-invests-in-news-direct-to-fuel-growth-opportunities-877325127)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fpbvl2/renowned_investor_ira_j_perlmuter_invests_in_news/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fpbvl2/renowned_investor_ira_j_perlmuter_invests_in_news/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/25/wall6xqt.webp)

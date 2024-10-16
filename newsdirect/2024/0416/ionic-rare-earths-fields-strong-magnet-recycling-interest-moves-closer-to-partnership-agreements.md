@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ionic-rare-earths-fields-strong-magnet-recycling-interest-moves-closer-to-partnership-agreements-989706268 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ionic-rare-earths-fields-strong-magnet-recycling-interest-moves-closer-to-partnership-agreements-989706268)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c5p3rl/ionic_rare_earths_fields_strong_magnet_recycling/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c5p3rl/ionic_rare_earths_fields_strong_magnet_recycling/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/pitapico78m1.webp)

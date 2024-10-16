@@ -20,9 +20,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/artemis-resources-expands-gold-exploration-in-west-pilbara-amid-favorable-market-conditions-286743175 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/artemis-resources-expands-gold-exploration-in-west-pilbara-amid-favorable-market-conditions-286743175)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1c9vn3m/artemis_resources_expands_gold_exploration_in/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1c9vn3m/artemis_resources_expands_gold_exploration_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/21/mossXfpv.webp)

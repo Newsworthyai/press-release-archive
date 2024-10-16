@@ -18,9 +18,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mtb-metals-advances-porphyry-copper-gold-exploration-in-bcs-golden-triangle-938741879 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/mtb-metals-advances-porphyry-copper-gold-exploration-in-bcs-golden-triangle-938741879)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bpums2/mtb_metals_ceo_shares_promising_exploration/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bpums2/mtb_metals_ceo_shares_promising_exploration/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/ruby9QgT.webp)

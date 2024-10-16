@@ -18,9 +18,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/us-global-investors-announces-merger-of-europe-domiciled-airlines-etf-into-the-travel-ucits-etf-120059927 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/us-global-investors-announces-merger-of-europe-domiciled-airlines-etf-into-the-travel-ucits-etf-120059927)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/TravelAndLeisureNews/comments/1cct6nm/us_global_investors_announces_merger_of/
+
+
+[Reddit Post](https://www.reddit.com/r/TravelAndLeisureNews/comments/1cct6nm/us_global_investors_announces_merger_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/25/notepQ3d.webp)

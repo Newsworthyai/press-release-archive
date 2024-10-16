@@ -32,9 +32,17 @@ About BUIDL (NEW)
 
 [BUIDL (NEW)](https://starter.xyz/) is designed to empower users within the Starter ecosystem, a decentralized launchpad for blockchain projects. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/buidlnew-a-decentralized-launchpad-will-be-listed-on-coinw-exchange)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1g0hd4t/coinw_to_list_buidlnew_on_innovation_zone_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1g0hd4t/coinw_to_list_buidlnew_on_innovation_zone_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/10/wamc_eZJ.webp)

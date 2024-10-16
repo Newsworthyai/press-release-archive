@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/with-enough-cash-in-the-coffers-greenwave-is-putting-its-growth-plans-to-work-130906671 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/with-enough-cash-in-the-coffers-greenwave-is-putting-its-growth-plans-to-work-130906671)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1doxxsx/greenwave_technology_solutions_inc_makes_major/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1doxxsx/greenwave_technology_solutions_inc_makes_major/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/26/daveUNiD.webp)

@@ -23,9 +23,17 @@ For more information please visit at: https://antiscamworldwide.org/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/aswo-unveils-rising-global-losses-to-pig-butchering-scams-exceeding-1-trillion)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1ay4qfs/aswo_unveils_1_trillion_global_scam_losses_at/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ay4qfs/aswo_unveils_1_trillion_global_scam_losses_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/22/glueaXV_.webp)

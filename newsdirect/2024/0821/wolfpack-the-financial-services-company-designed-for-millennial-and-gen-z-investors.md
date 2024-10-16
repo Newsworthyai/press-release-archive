@@ -64,9 +64,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/wolfpack-the-financial-services-company-designed-for-millennial-and-gen-z-investors-690070140 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/wolfpack-the-financial-services-company-designed-for-millennial-and-gen-z-investors-690070140)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1exowet/wolfpack_financial_empowering_new_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1exowet/wolfpack_financial_empowering_new_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/21/leanw9VN.webp)

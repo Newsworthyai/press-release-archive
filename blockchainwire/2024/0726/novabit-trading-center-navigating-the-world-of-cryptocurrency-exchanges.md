@@ -12,9 +12,17 @@ In addition to these, some platforms may charge custody fees for holding crypto 
 
 Quantum Prosperity Consortium Investment Education Foundation is a private organization focused on improving financial literacy and investment skills. Founded by Michael D. David, it boasts a team with expertise across finance, education, and technology. The foundation’s strategies include attracting top investment education professionals, advancing its AI system FINQbot, building a strong brand, and expanding through collaborations. It aims to become a leading provider of investment education by leveraging AI and big data to offer personalized, intelligent services, and plans to expand globally, enhancing its educational impact. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/novabit-trading-center-navigating-the-world-of-cryptocurrency-exchanges)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ecs72d/understanding_cryptocurrency_exchanges_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ecs72d/understanding_cryptocurrency_exchanges_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/26/gleeXiyA.webp)

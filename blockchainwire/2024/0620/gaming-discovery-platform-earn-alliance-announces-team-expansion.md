@@ -38,9 +38,17 @@ Connect with Earn Alliance: Website | Twitter | LinkedIn | Discord
 
 Download Earn Alliance App: Google Play Store | Apple Store 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gaming-discovery-platform-earn-alliance-announces-team-expansion)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/MarketingNewsramp/comments/1dki7zt/earn_alliance_announces_key_hires_to_redefine/
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1dki7zt/earn_alliance_announces_key_hires_to_redefine/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/20/zeroeP3E.webp)

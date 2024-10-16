@@ -34,9 +34,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-benefits-of-cash-settled-options-770811217 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-benefits-of-cash-settled-options-770811217)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dtl2a3/understanding_cashsettled_options_and_their/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dtl2a3/understanding_cashsettled_options_and_their/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/2/palej7yu.webp)

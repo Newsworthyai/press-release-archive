@@ -18,9 +18,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/poolbeg-pharmas-polb-001-immuno-modulator-ii-receives-fully-granted-patent-from-us-patent-office-684462050 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/poolbeg-pharmas-polb-001-immuno-modulator-ii-receives-fully-granted-patent-from-us-patent-office-684462050)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cn3oje/poolbeg_pharmas_polb_001_receives_patent_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cn3oje/poolbeg_pharmas_polb_001_receives_patent_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/8/silkuziF.webp)

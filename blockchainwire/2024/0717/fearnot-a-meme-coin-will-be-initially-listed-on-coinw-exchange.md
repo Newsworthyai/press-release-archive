@@ -33,9 +33,17 @@ About FEARNOT
 
 [FEARNOT](https://fearnot.vip/) is a meme coin inspired by former President Donald Trump's campaign slogan "Fear Not." 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/fearnot-a-meme-coin-will-be-initially-listed-on-coinw-exchange)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ef5pde/coinw_to_list_fearnot_token_on_trump_zone_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ef5pde/coinw_to_list_fearnot_token_on_trump_zone_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/18/wamcnO_a.webp)

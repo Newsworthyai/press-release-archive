@@ -53,9 +53,17 @@ Company Websitehttps://www.medcognetics.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/medcognetics-introduces-the-first-embedded-ai-cancer-detection-system-for-mammography-imaging-528352296 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/medcognetics-introduces-the-first-embedded-ai-cancer-detection-system-for-mammography-imaging-528352296)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1g0lmlj/medcognetics_introduces_the_first_embedded_ai/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1g0lmlj/medcognetics_introduces_the_first_embedded_ai/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/10/jinxbEpt.webp)

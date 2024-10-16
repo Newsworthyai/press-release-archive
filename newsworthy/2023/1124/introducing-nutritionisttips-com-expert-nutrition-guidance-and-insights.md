@@ -18,9 +18,17 @@ NutritionistTips.com is dedicated to being a trustworthy source of nutritional k
 
 Stay informed and healthy by visiting www.NutritionistTips.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231124855/introducing-nutritionisttips-com-expert-nutrition-guidance-and-insights)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcsg5/new_nutrition_platform_nutritionisttipscom/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcsg5/new_nutrition_platform_nutritionisttipscom/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/silkI8kU.webp)

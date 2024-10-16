@@ -24,9 +24,17 @@ Company Websitehttps://builderscapital.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/builders-capital-announces-new-lending-division-and-significant-headcount-growth-366575635 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/builders-capital-announces-new-lending-division-and-significant-headcount-growth-366575635)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1egpyor/builders_capital_expands_loan_production/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1egpyor/builders_capital_expands_loan_production/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/31/hikesgFS.webp)

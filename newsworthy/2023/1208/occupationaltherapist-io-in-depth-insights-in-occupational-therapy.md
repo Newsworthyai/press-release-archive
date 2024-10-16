@@ -18,9 +18,17 @@ OccupationalTherapist.io is dedicated to advancing the discourse around occupati
 
 Immerse in the world of occupational therapy at www.OccupationalTherapist.io. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231208856/occupationaltherapist-io-in-depth-insights-in-occupational-therapy)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avx2mp/innovative_platform_occupationaltherapistio/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avx2mp/innovative_platform_occupationaltherapistio/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/keepVn1w.webp)

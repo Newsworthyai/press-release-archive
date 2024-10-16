@@ -58,9 +58,17 @@ Company Websitehttps://1businessworld.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fountainhead-ri-sets-the-stage-for-pioneering-2024-climate-stocktake-event-in-providence-769665916 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/fountainhead-ri-sets-the-stage-for-pioneering-2024-climate-stocktake-event-in-providence-769665916)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c5em4f/fountainhead_ri_hosts_2024_climate_stocktake/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c5em4f/fountainhead_ri_hosts_2024_climate_stocktake/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/ricepW3T.webp)

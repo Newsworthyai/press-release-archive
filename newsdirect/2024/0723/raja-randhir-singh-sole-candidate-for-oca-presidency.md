@@ -36,9 +36,17 @@ Claire@weareblueparrot.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/raja-randhir-singh-sole-candidate-for-oca-presidency-116449466 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/raja-randhir-singh-sole-candidate-for-oca-presidency-116449466)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1eac04g/oca_election_committee_confirms_raja_randhir/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1eac04g/oca_election_committee_confirms_raja_randhir/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/23/chip3vXv.webp)

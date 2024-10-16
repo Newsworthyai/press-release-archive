@@ -38,9 +38,17 @@ Company Websitehttps://financialgravity.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/financial-gravity-companies-inc-reports-improved-financial-results-for-the-six-months-ended-march-31-2024-101554112 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/financial-gravity-companies-inc-reports-improved-financial-results-for-the-six-months-ended-march-31-2024-101554112)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1cfy86u/financial_gravity_companies_inc_reports_improved/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1cfy86u/financial_gravity_companies_inc_reports_improved/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/29/ulnaNkxE.webp)

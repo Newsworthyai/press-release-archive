@@ -22,9 +22,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/neural-therapeutics-how-do-we-prevent-people-getting-addicted-to-opioids-247860378 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/neural-therapeutics-how-do-we-prevent-people-getting-addicted-to-opioids-247860378)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1cwfb6j/neural_therapeutics_ceo_addresses_revolutionary/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1cwfb6j/neural_therapeutics_ceo_addresses_revolutionary/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/20/dualWSc8.webp)

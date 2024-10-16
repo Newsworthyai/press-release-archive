@@ -10,9 +10,17 @@ A Victory for Consumers
 
 “This is not just a victory for me, but for thousands of innocent consumers who had their identity compromised, their safety and privacy breached, and in many cases their funds stolen due to lax and indifferent security practices by AT&T,” said Terpin. “Letting this summary judgment stand would have been a horrific precedent.  I am grateful to the Ninth Circuit Court of Appeals for their comprehensive analysis and just decision.” 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/terpin-wins-ninth-circuit-court-of-appeals-decision-reversing-summary-judgment-in-landmark-att-sim-swap-lawsuit)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1g3l7a5/terpin_v_att_ninth_circuit_court_reverses_summary/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1g3l7a5/terpin_v_att_ninth_circuit_court_reverses_summary/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/14/pavem1pG.webp)

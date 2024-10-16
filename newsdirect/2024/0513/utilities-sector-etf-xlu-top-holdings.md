@@ -72,9 +72,17 @@ Company Websitehttps://www.sectorspdrs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/utilities-sector-etf-xlu-top-holdings-217970167 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/utilities-sector-etf-xlu-top-holdings-217970167)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cquwwx/xlu_top_holdings_provide_insights_into_utilities/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cquwwx/xlu_top_holdings_provide_insights_into_utilities/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/roamMr3o.webp)

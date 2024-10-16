@@ -38,9 +38,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/only-27-of-chinese-citizens-have-visited-amusement-parks-and-demand-is-now-growing-golden-heaven-nasdaq-gdhg-plans-to-ride-the-wave-801148041 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/only-27-of-chinese-citizens-have-visited-amusement-parks-and-demand-is-now-growing-golden-heaven-nasdaq-gdhg-plans-to-ride-the-wave-801148041)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1c1ecl0/golden_heaven_nasdaq_gdhg_sees_growth_as_chinese/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1c1ecl0/golden_heaven_nasdaq_gdhg_sees_growth_as_chinese/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/maskF4K5.webp)

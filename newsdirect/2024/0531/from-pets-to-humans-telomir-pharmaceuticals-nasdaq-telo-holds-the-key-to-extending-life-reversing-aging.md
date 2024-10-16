@@ -40,9 +40,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/from-pets-to-humans-telomir-pharmaceuticals-nasdaq-telo-holds-the-key-to-extending-life-reversing-aging-257340194 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/from-pets-to-humans-telomir-pharmaceuticals-nasdaq-telo-holds-the-key-to-extending-life-reversing-aging-257340194)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d4vvvy/telomir_pharmaceuticals_inc_holds_the_key_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d4vvvy/telomir_pharmaceuticals_inc_holds_the_key_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/31/lunaBYOZ.webp)

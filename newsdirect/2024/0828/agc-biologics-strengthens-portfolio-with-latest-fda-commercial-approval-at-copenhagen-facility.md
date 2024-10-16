@@ -28,9 +28,17 @@ Company Websitehttps://www.agcbio.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/agc-biologics-strengthens-portfolio-with-latest-fda-commercial-approval-at-copenhagen-facility-855105286 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/agc-biologics-strengthens-portfolio-with-latest-fda-commercial-approval-at-copenhagen-facility-855105286)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f386t2/agc_biologics_achieves_fda_approval_for/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f386t2/agc_biologics_achieves_fda_approval_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/28/fineWdCf.webp)

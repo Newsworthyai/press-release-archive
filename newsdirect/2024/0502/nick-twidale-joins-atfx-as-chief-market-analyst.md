@@ -28,9 +28,17 @@ sales.uk@atfx.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nick-twidale-joins-atfx-as-chief-market-analyst-235122120 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nick-twidale-joins-atfx-as-chief-market-analyst-235122120)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ci2x8z/atfx_appoints_nick_twidale_as_chief_market/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ci2x8z/atfx_appoints_nick_twidale_as_chief_market/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/2/eachGxpQ.webp)

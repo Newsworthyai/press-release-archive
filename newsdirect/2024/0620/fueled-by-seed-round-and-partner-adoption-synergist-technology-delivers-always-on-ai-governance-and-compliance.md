@@ -22,9 +22,17 @@ synergist@kitehillpr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fueled-by-seed-round-and-partner-adoption-synergist-technology-delivers-always-on-ai-governance-and-compliance-193163235 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/fueled-by-seed-round-and-partner-adoption-synergist-technology-delivers-always-on-ai-governance-and-compliance-193163235)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/StartupBusinessNews/comments/1dki8go/synergist_technology_poised_for_growth_in_ai/
+
+
+[Reddit Post](https://www.reddit.com/r/StartupBusinessNews/comments/1dki8go/synergist_technology_poised_for_growth_in_ai/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/20/xenoaI2X.webp)

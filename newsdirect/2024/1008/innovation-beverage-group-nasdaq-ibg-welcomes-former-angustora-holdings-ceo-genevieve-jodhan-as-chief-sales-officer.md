@@ -34,9 +34,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/innovation-beverage-group-nasdaq-ibg-welcomes-former-angustora-holdings-ceo-genevieve-jodhan-as-chief-sales-officer-630573085 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/innovation-beverage-group-nasdaq-ibg-welcomes-former-angustora-holdings-ceo-genevieve-jodhan-as-chief-sales-officer-630573085)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fyzck7/ibg_appoints_former_angostura_holdings_ceo_as/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fyzck7/ibg_appoints_former_angostura_holdings_ceo_as/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/8/lambeEnT.webp)

@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ideal-power-advances-with-new-semiconductor-technology-and-strategic-partnerships-304606760 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ideal-power-advances-with-new-semiconductor-technology-and-strategic-partnerships-304606760)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1csoq8q/ideal_power_ceo_discusses_advancements_in/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1csoq8q/ideal_power_ceo_discusses_advancements_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/duneGsvs.webp)

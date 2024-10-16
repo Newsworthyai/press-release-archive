@@ -26,9 +26,17 @@ Behind ceτi AI is a highly experienced team of industry veterans and innovators
 
 The ceτi AI invites tech enthusiasts and AI-skilled individuals to join and support this trail-blazing movement. You can follow the project’s development and learn more about ceτi AI at these links: Website | X (Twitter) | Telegram | Discord 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cei-ai-receives-2-million-worth-of-h100-gpus-at-t3-data-center)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvnwzm/cetaui_ai_receives_2_million_worth_of_cuttingedge/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvnwzm/cetaui_ai_receives_2_million_worth_of_cuttingedge/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/sageat5K.webp)

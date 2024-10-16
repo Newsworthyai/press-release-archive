@@ -20,9 +20,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/boardwalktech-software-corp-expands-commercial-agreements-with-fortune-500-clients-311685834 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/boardwalktech-software-corp-expands-commercial-agreements-with-fortune-500-clients-311685834)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bp5o4g/boardwalktech_software_corp_ceo_announces/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bp5o4g/boardwalktech_software_corp_ceo_announces/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/eachdn9w.webp)

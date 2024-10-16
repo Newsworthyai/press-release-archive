@@ -34,9 +34,17 @@ Become a part of HR.com’s HR research influencer panel today. Participate in s
 
 Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202406061188/new-advisory-board-announced-for-hr-coms-state-of-employee-retention-2024-study-and-event)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HRnews/comments/1d9mggv/hrcom_announces_state_of_employee_retention_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/HRnews/comments/1d9mggv/hrcom_announces_state_of_employee_retention_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/246/6/envy9KGm.webp)

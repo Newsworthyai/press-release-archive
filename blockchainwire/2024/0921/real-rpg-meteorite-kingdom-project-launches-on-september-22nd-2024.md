@@ -111,9 +111,17 @@ Website: www.meteorite.io
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/real-rpg-meteorite-kingdom-project-launches-on-september-22nd-2024)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1fn8r73/revolutionary_real_rpg_platform_launches_today/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1fn8r73/revolutionary_real_rpg_platform_launches_today/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/23/lushFL6H.webp)

@@ -14,9 +14,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/northstar-gold-corp-signs-letter-of-intent-for-philip-property-acquisition-305004661 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/northstar-gold-corp-signs-letter-of-intent-for-philip-property-acquisition-305004661)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/StartupBusinessNews/comments/1d2ofgj/northstar_gold_corp_signs_letter_of_intent_for/
+
+
+[Reddit Post](https://www.reddit.com/r/StartupBusinessNews/comments/1d2ofgj/northstar_gold_corp_signs_letter_of_intent_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/28/chef8p9E.webp)

@@ -50,9 +50,17 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-partners-with-core-venture-network-to-empower-core-chain-innovators-250993582 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-ventures-partners-with-core-venture-network-to-empower-core-chain-innovators-250993582)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c5asz6/htx_ventures_partners_with_core_venture_network/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c5asz6/htx_ventures_partners_with_core_venture_network/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/ninoHgnb.webp)

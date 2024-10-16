@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bit-digital-expands-hpc-contract-to-275m-ceo-sam-tabar-explains-678992141 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bit-digital-expands-hpc-contract-to-275m-ceo-sam-tabar-explains-678992141)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dtn911/bit_digital_inc_ceo_sam_tabar_expands_hpc/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dtn911/bit_digital_inc_ceo_sam_tabar_expands_hpc/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/2/takejGk4.webp)

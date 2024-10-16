@@ -39,9 +39,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-spyro-the-legendary-meme-dragon-of-crypto)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avctzm/spyro_the_memeable_meme_dragon_soaring_into_the/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avctzm/spyro_the_memeable_meme_dragon_soaring_into_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/chipLtvB.webp)

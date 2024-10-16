@@ -28,9 +28,17 @@ As of the latest update, FURR's current price stands at $0.000648. Investors int
 
 Media Contact:Robert Smithhttps://furrevertoken.com/ support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/the-ultimate-investor-guide-furrever-token-presale-roi-guide-soars-amid-bitcoin-btc-and-ethereum-eth-challenges)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cdk5zz/cryptocurrency_market_trends_bitcoin_and_ethereum/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cdk5zz/cryptocurrency_market_trends_bitcoin_and_ethereum/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/26/roamLAf5.webp)

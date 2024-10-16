@@ -40,9 +40,17 @@ Company Websitehttps://amerilife.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/leadstar-marketplace-unleashes-groundbreaking-enhancements-to-its-lead-generation-platform-327464187 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/leadstar-marketplace-unleashes-groundbreaking-enhancements-to-its-lead-generation-platform-327464187)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1e6j0kq/leadstar_marketplace_unveils_enhanced_leadstar_20/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1e6j0kq/leadstar_marketplace_unveils_enhanced_leadstar_20/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/18/lilyFcwh.webp)

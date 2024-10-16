@@ -30,9 +30,17 @@ About OMA3
 
 OMA3 is an international consortium based in Switzerland dedicated to enabling the open, interoperable, and user-owned metaverse. To meet this goal OMA3 produces specifications, runs open source projects, and operates Web3 infrastructure. OMA3 membership is open to all organizations aligned with its mission. www.oma3.org. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/reality-joins-the-oma3-metaverse-consortium)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvm5n1/reality_joins_oma3_to_shape_the_future_of_web3/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvm5n1/reality_joins_oma3_to_shape_the_future_of_web3/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/swimJgR9.webp)

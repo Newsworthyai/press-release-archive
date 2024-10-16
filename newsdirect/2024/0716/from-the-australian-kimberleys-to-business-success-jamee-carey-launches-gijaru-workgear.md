@@ -42,9 +42,17 @@ Company Websitehttps://gijaru.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/from-the-australian-kimberleys-to-business-success-jamee-carey-launches-gijaru-workgear-650277202 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/from-the-australian-kimberleys-to-business-success-jamee-carey-launches-gijaru-workgear-650277202)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e4lrec/indigenous_entrepreneur_jamee_carey_launches/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e4lrec/indigenous_entrepreneur_jamee_carey_launches/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/16/dashOac3.webp)

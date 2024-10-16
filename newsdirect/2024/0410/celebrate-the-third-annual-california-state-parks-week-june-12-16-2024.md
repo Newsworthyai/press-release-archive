@@ -113,9 +113,17 @@ Company Websitehttps://www.savetheredwoods.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/celebrate-the-third-annual-california-state-parks-week-june-12-16-2024-206015260 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/celebrate-the-third-annual-california-state-parks-week-june-12-16-2024-206015260)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1c0tur5/celebrate_the_third_annual_california_state_parks/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1c0tur5/celebrate_the_third_annual_california_state_parks/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/10/milkSGjT.webp)

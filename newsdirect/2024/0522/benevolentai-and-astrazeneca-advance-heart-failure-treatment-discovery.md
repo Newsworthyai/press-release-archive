@@ -18,9 +18,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/benevolentai-and-astrazeneca-advance-heart-failure-treatment-discovery-857197925 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benevolentai-and-astrazeneca-advance-heart-failure-treatment-discovery-857197925)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cy0i5m/benevolentai_and_astrazeneca_collaborate_to/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cy0i5m/benevolentai_and_astrazeneca_collaborate_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/gluekH59.webp)

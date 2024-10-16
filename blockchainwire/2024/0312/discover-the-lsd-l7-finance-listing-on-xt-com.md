@@ -48,9 +48,17 @@ Email address: Listing@xt.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-lsd-l7-finance-listing-on-xtcom)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1bcwrut/xtcom_lists_lsdl7_finance_on_its_socially_infused/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1bcwrut/xtcom_lists_lsdl7_finance_on_its_socially_infused/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/12/ninoGtI_.webp)

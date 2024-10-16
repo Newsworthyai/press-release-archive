@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/europacific-metals-expands-drilling-program-at-miguel-vacas-mine-114239111 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/europacific-metals-expands-drilling-program-at-miguel-vacas-mine-114239111)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dn5spz/europacific_metals_expands_drilling_program_at/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dn5spz/europacific_metals_expands_drilling_program_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/21/lilyWT01.webp)

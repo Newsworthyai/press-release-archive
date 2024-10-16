@@ -18,9 +18,17 @@ EdtechBrief.com stands at the crossroads of innovation and education. By amalgam
 
 Stay ahead in the EdTech revolution with www.EdtechBrief.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231214813/edtechbrief-com-the-destination-for-cutting-edge-edtech-insights)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avx3xa/new_platform_edtechbriefcom_unveiled_as_the/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avx3xa/new_platform_edtechbriefcom_unveiled_as_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/lime1A7E.webp)

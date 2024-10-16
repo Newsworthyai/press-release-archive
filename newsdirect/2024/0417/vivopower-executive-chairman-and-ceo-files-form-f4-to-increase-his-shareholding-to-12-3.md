@@ -20,9 +20,17 @@ Company Websitehttps://vivopower.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/vivopower-executive-chairman-and-ceo-files-form-f4-to-increase-his-shareholding-to-12-3-246861624 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/vivopower-executive-chairman-and-ceo-files-form-f4-to-increase-his-shareholding-to-12-3-246861624)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c67q64/vivopower_ceo_increases_shareholding_by_146084/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c67q64/vivopower_ceo_increases_shareholding_by_146084/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/17/smogVhKQ.webp)

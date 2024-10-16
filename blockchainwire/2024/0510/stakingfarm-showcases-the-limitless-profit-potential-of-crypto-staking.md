@@ -68,9 +68,17 @@ Disclaimer: The information provided in this press release is not a solicitation
 
 ### 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-showcases-the-limitless-profit-potential-of-crypto-staking)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1covhbb/stakingfarm_pioneering_crypto_staking_for/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1covhbb/stakingfarm_pioneering_crypto_staking_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/10/pinkCbeI.webp)

@@ -30,9 +30,17 @@ Company Websitehttps://www.bridgeft.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bridgeft-recognized-for-financial-data-innovation-in-5th-annual-data-breakthrough-awards-program-784587811 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bridgeft-recognized-for-financial-data-innovation-in-5th-annual-data-breakthrough-awards-program-784587811)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1c1gehm/bridgeft_recognized_as_data_warehouse_solution/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1c1gehm/bridgeft_recognized_as_data_warehouse_solution/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/glowp8Yr.webp)

@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-benefits-of-increasing-your-portfolio-diversification-with-crypto-727765053 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-benefits-of-increasing-your-portfolio-diversification-with-crypto-727765053)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f9gtd3/diversifying_portfolios_with_cryptocurrencies_the/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f9gtd3/diversifying_portfolios_with_cryptocurrencies_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/5/limexwbK.webp)

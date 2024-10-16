@@ -48,9 +48,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/venhub-offers-fully-autonomous-ai-driven-smart-stores-with-plans-to-revolutionize-retail-investors-can-get-early-access-to-this-future-focused-company-until-august-21st-107933371 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/venhub-offers-fully-autonomous-ai-driven-smart-stores-with-plans-to-revolutionize-retail-investors-can-get-early-access-to-this-future-focused-company-until-august-21st-107933371)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1enz373/venhub_revolutionizes_retail_with_aidriven_smart/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1enz373/venhub_revolutionizes_retail_with_aidriven_smart/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/9/keepQjIa.webp)

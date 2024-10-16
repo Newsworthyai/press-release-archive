@@ -26,9 +26,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/healwell-ai-shares-major-company-milestones-since-its-debut-in-q4-of-2023-517228872 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/healwell-ai-shares-major-company-milestones-since-its-debut-in-q4-of-2023-517228872)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1butx6n/healwell_ai_achieves_major_milestones_in/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1butx6n/healwell_ai_achieves_major_milestones_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/3/poemsc0X.webp)

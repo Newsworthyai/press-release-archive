@@ -24,9 +24,17 @@ EcoChem Alternative Fuels
 
 info@ecochem.us | 1-614-764-3835 | www.hpcdfuel.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/cleveland-metropolitan-school-testing-validates-over-8-fuel-savings-using-ecochem-s-high-performance-clean-diesel-fuel-and-delivers-250-000-in-annual-savings-7075999)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1f9gwmo/cmsd_saves_over_250000_annually_with_ecochems/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1f9gwmo/cmsd_saves_over_250000_annually_with_ecochems/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/5/ableXO0E.webp)

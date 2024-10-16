@@ -26,9 +26,17 @@ Company Websitehttps://www.unos.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/uno-pizzeria-and-grill-offers-bogo-free-deals-for-memorial-day-weekend-769038730 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/uno-pizzeria-and-grill-offers-bogo-free-deals-for-memorial-day-weekend-769038730)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cyy146/uno_pizzeria_and_grill_offers_bogo_free_deals_for/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cyy146/uno_pizzeria_and_grill_offers_bogo_free_deals_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/23/fineIJMG.webp)

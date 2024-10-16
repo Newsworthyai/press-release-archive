@@ -22,9 +22,17 @@ Company Websitehttps://www.greenlanternsolar.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/green-lantern-solar-hires-site-acquisition-specialist-to-support-companys-expansion-of-renewable-energy-projects-736021945 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/green-lantern-solar-hires-site-acquisition-specialist-to-support-companys-expansion-of-renewable-energy-projects-736021945)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1focj6k/green_lantern_solar_adds_brian_pugmire_as_site/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1focj6k/green_lantern_solar_adds_brian_pugmire_as_site/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/24/iconpUhk.webp)

@@ -46,9 +46,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/apple-becomes-latest-giant-to-adopt-ai-but-risks-persist-brand-engagement-network-may-have-the-solution-to-ensure-security-in-the-age-of-ai-383198577 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/apple-becomes-latest-giant-to-adopt-ai-but-risks-persist-brand-engagement-network-may-have-the-solution-to-ensure-security-in-the-age-of-ai-383198577)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1dncm0y/openais_chatgpt_gaining_momentum_as_major/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1dncm0y/openais_chatgpt_gaining_momentum_as_major/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/24/xeno08OO.webp)

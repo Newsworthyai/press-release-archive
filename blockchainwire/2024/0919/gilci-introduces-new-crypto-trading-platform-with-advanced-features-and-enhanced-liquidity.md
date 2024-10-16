@@ -24,9 +24,17 @@ Gilci is a crypto trading platform built for all levels of traders. With a focus
 
 [https://gilci.com/](https://gilci.com/) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gilci-introduces-new-crypto-trading-platform-with-advanced-features-and-enhanced-liquidity)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fmbr0q/gilci_launches_secure_and_userfriendly_crypto/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fmbr0q/gilci_launches_secure_and_userfriendly_crypto/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/19/moonOxpA.webp)

@@ -10,9 +10,17 @@ At 1041 Central Ave, nestled between the vibrant green spaces of Romare Bearden 
 
 One Love Smoke Shop is more than just a destination; it's a part of the community fabric. Positioned near some of Charlotte’s most beloved attractions, such as Romare Bearden Park and Freedom Park, One Love Smoke Shop encourages a lifestyle that is active, engaged, and informed. These parks offer a backdrop for community events and a serene escape for those who enjoy the outdoors, aligning with One Love’s commitment to a lifestyle that values both wellness and community connection.The team at One Love Smoke Shop is dedicated to providing a superior customer experience. Open from 9 am to 9 pm, they ensure that every visitor receives personalized attention and service that is respectful, informative, and compliant with all local regulations. Their knowledgeable staff are always on hand to guide customers through their extensive product range, ensuring that they find the right product to meet their needs.To explore the unique offerings of One Love Smoke Shop and Lifestyle Apparel, visit their website at https://onelovesmoke.com. Here, visitors can browse products, learn more about the shop's standards for quality and compliance, and plan their visit to the store located at 1041 Central Ave in Charlotte, NC. For more information or to speak with a customer service representative, please call +1 704-335-0010. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202405081164/one-love-smoke-shop-and-lifestyle-apparel-continues-to-serve-charlotte-nc)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1cnigpu/one_love_smoke_shop_revolutionizing_the_retail/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1cnigpu/one_love_smoke_shop_revolutionizing_the_retail/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/245/8/riftFjST.webp)

@@ -64,9 +64,17 @@ Discord: https://discord.gg/9kzsnvPze7
 
 Whitepaper: https://whitepaper.cryptocasino.com/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/armchair-online-bv-launches-cryptocasinocom-and-casino-token-to-disrupt-blockchain-betting)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fzlwt0/armchair_online_bv_set_to_revolutionize/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fzlwt0/armchair_online_bv_set_to_revolutionize/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/9/icyfvji.webp)

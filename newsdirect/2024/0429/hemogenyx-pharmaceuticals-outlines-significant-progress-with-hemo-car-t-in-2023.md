@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hemogenyx-pharmaceuticals-outlines-significant-progress-with-hemo-car-t-in-2023-382682099 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/hemogenyx-pharmaceuticals-outlines-significant-progress-with-hemo-car-t-in-2023-382682099)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cg2wah/hemogenyx_pharmaceuticals_ceo_dr_vladislav/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cg2wah/hemogenyx_pharmaceuticals_ceo_dr_vladislav/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/29/vibev9eN.webp)

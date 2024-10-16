@@ -18,9 +18,17 @@
 
  For more information please call Leslie McClure (408) 671-2859. Email Leslie@411videoinfo.com. 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/october-is-national-bully-prevention-month-7076163)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1fxo4b7/kato_karate_and_nickelodeons_michael_d_cohen_team/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1fxo4b7/kato_karate_and_nickelodeons_michael_d_cohen_team/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/6/lineMC3n.webp)

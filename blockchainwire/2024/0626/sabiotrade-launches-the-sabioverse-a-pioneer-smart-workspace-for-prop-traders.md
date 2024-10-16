@@ -46,9 +46,17 @@ Instagram: https://www.instagram.com/sabiotrade/
 
 Facebook: https://www.facebook.com/profile.php?id=100075852953720 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/sabiotrade-launches-the-sabioverse-a-pioneer-smart-workspace-for-prop-traders)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1dp31uh/sabiotrade_launches_new_tradercentric_sabio/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1dp31uh/sabiotrade_launches_new_tradercentric_sabio/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/26/silkoTcx.webp)

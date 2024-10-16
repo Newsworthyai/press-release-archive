@@ -48,9 +48,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-super-league-enterprise-nasdaq-sle-is-pioneering-3d-immersive-platforms-as-the-marketing-channel-of-the-future-588236000 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/how-super-league-enterprise-nasdaq-sle-is-pioneering-3d-immersive-platforms-as-the-marketing-channel-of-the-future-588236000)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1de5ofj/super_league_enterprise_pioneering_3d_immersive/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1de5ofj/super_league_enterprise_pioneering_3d_immersive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/12/miel0lWv.webp)

@@ -76,9 +76,17 @@ Company Websitehttps://1businessworld.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/empowering-sustainability-inspiring-action-rhode-islands-gateway-to-the-global-energy-transition-118137375 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/empowering-sustainability-inspiring-action-rhode-islands-gateway-to-the-global-energy-transition-118137375)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bwruwe/2024_climate_stocktake_event_empowering/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bwruwe/2024_climate_stocktake_event_empowering/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/5/milkUSql.webp)

@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/provaris-energy-starts-fabrication-and-testing-h2neo-prototype-tank-signs-third-european-mou-246755925 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/provaris-energy-starts-fabrication-and-testing-h2neo-prototype-tank-signs-third-european-mou-246755925)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bo9b46/provaris_energy_advances_h2neo_prototype_tank_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bo9b46/provaris_energy_advances_h2neo_prototype_tank_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/maskypW2.webp)

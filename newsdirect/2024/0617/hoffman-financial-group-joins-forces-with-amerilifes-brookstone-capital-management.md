@@ -45,9 +45,17 @@ Company Websitehttps://amerilife.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/hoffman-financial-group-joins-forces-with-amerilifes-brookstone-capital-management-177839796 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/hoffman-financial-group-joins-forces-with-amerilifes-brookstone-capital-management-177839796)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dhxw9t/brookstone_capital_management_partners_with/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dhxw9t/brookstone_capital_management_partners_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/17/warpwUfQ.webp)

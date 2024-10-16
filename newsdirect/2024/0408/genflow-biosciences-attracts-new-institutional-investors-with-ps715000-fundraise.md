@@ -18,9 +18,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/genflow-biosciences-attracts-new-institutional-investors-with-ps715-000-fundraise-277918144 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/genflow-biosciences-attracts-new-institutional-investors-with-ps715-000-fundraise-277918144)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1bz0os2/genflow_biosciences_raises_715000_from_new/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1bz0os2/genflow_biosciences_raises_715000_from_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/8/herbdEMr.webp)

@@ -48,9 +48,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/inmed-nasdaq-inm-developing-cannabinoids-analogs-to-treat-alzheimers-new-studies-showcase-inm-901s-therapeutic-abilities-262016447 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/inmed-nasdaq-inm-developing-cannabinoids-analogs-to-treat-alzheimers-new-studies-showcase-inm-901s-therapeutic-abilities-262016447)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1cmbnor/inmed_pharmaceuticals_inc_develops_promising/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1cmbnor/inmed_pharmaceuticals_inc_develops_promising/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/boldg7xm.webp)

@@ -70,9 +70,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/what-is-margin-trading-and-should-you-try-it-697298518 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/what-is-margin-trading-and-should-you-try-it-697298518)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e4nmjf/margin_trading_a_gamechanger_for_retail_investors/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e4nmjf/margin_trading_a_gamechanger_for_retail_investors/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/16/neonbhFL.webp)

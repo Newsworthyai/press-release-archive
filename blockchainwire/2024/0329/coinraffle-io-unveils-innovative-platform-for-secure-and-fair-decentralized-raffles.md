@@ -32,9 +32,17 @@ Anyone wishing to discover more about CoinRaffle.io can visit the platform's web
 
 X (Twitter) | Telegram 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinraffleio-unveils-innovative-platform-for-secure-and-fair-decentralized-raffles)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1bqrqt0/coinraffleio_launches_utilityfocused_platform_for/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1bqrqt0/coinraffleio_launches_utilityfocused_platform_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/29/apexHcNb.webp)

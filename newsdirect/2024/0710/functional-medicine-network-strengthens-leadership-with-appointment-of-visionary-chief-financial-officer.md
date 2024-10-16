@@ -36,8 +36,15 @@ Company Websitehttps://forumhealth.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/functional-medicine-network-strengthens-leadership-with-appointment-of-visionary-chief-financial-officer-837717856 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/functional-medicine-network-strengthens-leadership-with-appointment-of-visionary-chief-financial-officer-837717856)
                     
 
 [Newsramp.com TLDR](None) 
 
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/10/frogRDfP.webp)

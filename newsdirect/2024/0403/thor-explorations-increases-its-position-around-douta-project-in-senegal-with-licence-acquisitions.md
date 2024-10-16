@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/thor-explorations-increases-its-position-around-douta-project-in-senegal-with-licence-acquisitions-910592997 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/thor-explorations-increases-its-position-around-douta-project-in-senegal-with-licence-acquisitions-910592997)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1butgkq/thor_explorations_increases_position_in_douta/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1butgkq/thor_explorations_increases_position_in_douta/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/3/linek2Fp.webp)

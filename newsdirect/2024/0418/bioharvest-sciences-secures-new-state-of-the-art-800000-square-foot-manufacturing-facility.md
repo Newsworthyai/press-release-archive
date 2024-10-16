@@ -22,9 +22,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bioharvest-sciences-secures-new-state-of-the-art-80-0000-square-foot-manufacturing-facility-793781877 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bioharvest-sciences-secures-new-state-of-the-art-80-0000-square-foot-manufacturing-facility-793781877)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1c73ync/bioharvest_sciences_unveils_transformative/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1c73ync/bioharvest_sciences_unveils_transformative/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/18/pearz5XX.webp)

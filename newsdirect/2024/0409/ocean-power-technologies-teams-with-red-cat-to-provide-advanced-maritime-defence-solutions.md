@@ -18,9 +18,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-technologies-teams-with-red-cat-to-provide-advanced-maritime-defence-solutions-800551398 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-teams-with-red-cat-to-provide-advanced-maritime-defence-solutions-800551398)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c00abi/ocean_power_technologies_teams_with_red_cat_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c00abi/ocean_power_technologies_teams_with_red_cat_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/9/mielfJKe.webp)

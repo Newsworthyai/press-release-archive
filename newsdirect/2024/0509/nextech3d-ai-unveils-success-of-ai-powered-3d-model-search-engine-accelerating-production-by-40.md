@@ -16,9 +16,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-unveils-success-of-ai-powered-3d-model-search-engine-accelerating-production-by-40-890249835 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-unveils-success-of-ai-powered-3d-model-search-engine-accelerating-production-by-40-890249835)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1cnz87u/nextech3dai_unveils_aipowered_3d_model_search/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1cnz87u/nextech3dai_unveils_aipowered_3d_model_search/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/coolK4KB.webp)

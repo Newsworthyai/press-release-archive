@@ -22,9 +22,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lisata-therapeutics-ceo-encouraged-by-progress-on-pancreatic-cancer-trial-526646802 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/lisata-therapeutics-ceo-encouraged-by-progress-on-pancreatic-cancer-trial-526646802)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1dfr04k/lisata_therapeutics_ceo_encouraged_by_progress_on/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1dfr04k/lisata_therapeutics_ceo_encouraged_by_progress_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/14/evenBbFJ.webp)

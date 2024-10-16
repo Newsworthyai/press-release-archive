@@ -24,9 +24,17 @@ The Patterson Inn was granted the very first “cannabis hospitality license” 
 
 Tickets to the Haunted Writer’s Retreat will cost $500 per person for the week, plus a room at the Patterson Inn (couples or friends are welcome to share a room together). More booking information is available at the Patterson Inn website. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202410151323/the-patterson-inn-hosts-the-haunted-writers-retreat-an-immersive-writing-experience-led-by-author-and-journalist-josiah-hesse)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1g4hw8x/denver_author_josiah_hesse_to_host_cannabisfueled/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1g4hw8x/denver_author_josiah_hesse_to_host_cannabisfueled/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2410/15/ninoSC8b.webp)

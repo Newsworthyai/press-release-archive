@@ -38,9 +38,17 @@ Company Websitehttps://igcpharma.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/6-7-million-americans-live-with-alzheimers-igc-pharma-believes-they-deserve-treatment-options-without-black-box-warnings-494950963 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/6-7-million-americans-live-with-alzheimers-igc-pharma-believes-they-deserve-treatment-options-without-black-box-warnings-494950963)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cnwlkn/millions_of_americans_living_with_alzheimers_new/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cnwlkn/millions_of_americans_living_with_alzheimers_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/flaxZ0CX.webp)

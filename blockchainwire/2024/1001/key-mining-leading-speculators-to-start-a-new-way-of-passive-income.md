@@ -30,9 +30,17 @@ If you are looking for ways to increase your passive income, cloud mining is a g
 
 In order to facilitate new and old users, KEY Mining has launched the latest APP installation package. For details, please visit the KEY Mining official website: https://cryptokeying.com/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/key-mining-leading-speculators-to-start-a-new-way-of-passive-income)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ftqg0v/keymining_secure_reliable_and_userfriendly_cloud/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ftqg0v/keymining_secure_reliable_and_userfriendly_cloud/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/1/kiteOiJz.webp)

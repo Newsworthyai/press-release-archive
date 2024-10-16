@@ -46,9 +46,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kartoon-studios-amex-toon-releases-2023-financial-report-with-44-1-million-in-revenue-557104844 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kartoon-studios-amex-toon-releases-2023-financial-report-with-44-1-million-in-revenue-557104844)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1c0kwjc/kartoon_studios_announces_441_million_in_revenue/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1c0kwjc/kartoon_studios_announces_441_million_in_revenue/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/10/kiwivw17.webp)

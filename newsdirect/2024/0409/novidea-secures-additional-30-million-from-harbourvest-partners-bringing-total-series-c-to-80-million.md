@@ -36,9 +36,17 @@ Company Websitehttps://novidea.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/novidea-secures-additional-30-million-from-harbourvest-partners-bringing-total-series-c-to-80-million-633753773 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/novidea-secures-additional-30-million-from-harbourvest-partners-bringing-total-series-c-to-80-million-633753773)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1bzqnxl/novidea_secures_30_million_investment_from/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1bzqnxl/novidea_secures_30_million_investment_from/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/9/lily9rLU.webp)

@@ -24,9 +24,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hostelworld-ceo-discusses-strategic-growth-and-market-share-increase-565359070 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/hostelworld-ceo-discusses-strategic-growth-and-market-share-increase-565359070)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cnujsw/hostelworld_ceo_highlights_strategic_growth_and/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cnujsw/hostelworld_ceo_highlights_strategic_growth_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/jinxMbru.webp)

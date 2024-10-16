@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/zanaga-iron-ore-advances-with-positive-feasibility-study-results-551417017 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/zanaga-iron-ore-advances-with-positive-feasibility-study-results-551417017)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d2jjkg/zanaga_iron_ore_advances_with_positive/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d2jjkg/zanaga_iron_ore_advances_with_positive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/28/zealu1Wf.webp)

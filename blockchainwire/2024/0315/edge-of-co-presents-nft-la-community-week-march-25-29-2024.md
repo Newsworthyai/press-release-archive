@@ -22,9 +22,17 @@ About the Edge Of Company: The Edge Of Company, is a pioneering emerging technol
 
 About NFT LA Community Week: NFT LA Community Week, from the original creators of Outer Edge LA, represents a groundbreaking convergence of innovation, community, and creativity. This decentralized web3 festival, taking place from March 25th to 29th, 2024, in Downtown Los Angeles, serves as a platform for builders, dreamers, and innovators to come together and redefine the boundaries of what's possible. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/edge-of-co-presents-nft-la-community-week-march-25-29-2024)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1bfstk3/edge_of_company_announces_nft_la_community_week/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1bfstk3/edge_of_company_announces_nft_la_community_week/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/16/joinwba6.webp)

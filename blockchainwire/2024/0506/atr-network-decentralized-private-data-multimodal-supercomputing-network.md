@@ -30,9 +30,17 @@ Website：https://atrnetwork.xyz
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/atr-network-decentralized-private-data-multimodal-supercomputing-network)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cljw58/atr_network_introduces_web3_ai_supercomputer/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cljw58/atr_network_introduces_web3_ai_supercomputer/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/6/hush7ptH.webp)

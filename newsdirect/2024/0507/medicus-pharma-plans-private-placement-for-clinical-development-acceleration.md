@@ -20,9 +20,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/medicus-pharma-plans-private-placement-for-clinical-development-acceleration-439755291 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/medicus-pharma-plans-private-placement-for-clinical-development-acceleration-439755291)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cmfzgd/medicus_pharma_ceo_discusses_private_placement/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cmfzgd/medicus_pharma_ceo_discusses_private_placement/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/tint07Ku.webp)

@@ -28,9 +28,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/7-million-tonnes-of-copper-ready-to-go-right-here-in-the-u-s-977449188 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/7-million-tonnes-of-copper-ready-to-go-right-here-in-the-u-s-977449188)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1eift49/world_copper_ceo_talks_copper_exploration_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1eift49/world_copper_ceo_talks_copper_exploration_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/2/mendroBY.webp)

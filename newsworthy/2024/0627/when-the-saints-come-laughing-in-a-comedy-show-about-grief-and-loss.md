@@ -31,9 +31,17 @@ Samantha Bednarz, also a bereaved sibling and native New Yorker, is a deeply per
 
 Alan Pedersen is an award-winning songwriter, recording artist, comedian, and nationally recognized speaker on grief and loss. Alan’s life changed forever on August 15, 2001, when his oldest child and only daughter Ashley died in an automobile accident. He turned his journey through grief into a tribute to Ashley's life. As the former executive director of The Compassionate Friends, he has spent years bringing people together to aid in the healing process through love, laughter, and music. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202406271202/when-the-saints-come-laughing-in-a-comedy-show-about-grief-and-loss)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1dtpx51/the_compassionate_friends_47th_annual_national/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1dtpx51/the_compassionate_friends_47th_annual_national/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/247/2/gainSxVC.webp)

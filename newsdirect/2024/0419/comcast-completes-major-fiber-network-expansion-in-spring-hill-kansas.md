@@ -38,9 +38,17 @@ Company Websitehttps://midwest.comcast.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/comcast-completes-major-fiber-network-expansion-in-spring-hill-kansas-770200313 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/comcast-completes-major-fiber-network-expansion-in-spring-hill-kansas-770200313)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1c877dk/comcast_completes_major_fiber_network_expansion/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1c877dk/comcast_completes_major_fiber_network_expansion/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/19/bold91Mj.webp)

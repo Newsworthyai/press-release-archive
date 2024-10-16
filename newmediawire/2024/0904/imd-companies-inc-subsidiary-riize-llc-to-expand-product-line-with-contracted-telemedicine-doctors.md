@@ -52,9 +52,17 @@ iMD Companies, Inc.
 
 info@imdcompaniesinc.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/imd-companies-inc-subsidiary-riize-llc-to-expand-product-line-with-contracted-telemedicine-doctors-7075997)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1f9gwoe/imd_companies_inc_completes_acquisition_of_riize/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1f9gwoe/imd_companies_inc_completes_acquisition_of_riize/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/5/elleFQzg.webp)

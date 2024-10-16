@@ -24,9 +24,17 @@ IR@icoreconnect.com
 
 888.810.7706, ext 5 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/icoreconnect-inc-announces-appointment-of-industry-leader-yvonne-hyland-to-its-board-of-directors-7076035)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1fe9ff8/icoreconnect_inc_appoints_yvonne_hyland_to_board/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1fe9ff8/icoreconnect_inc_appoints_yvonne_hyland_to_board/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/11/finev3ee.webp)

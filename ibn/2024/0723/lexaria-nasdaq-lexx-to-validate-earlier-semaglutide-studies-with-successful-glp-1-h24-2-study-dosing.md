@@ -27,9 +27,17 @@
 
  CannabisNewsWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-nasdaq-lexx-to-validate-earlier-semaglutide-studies-with-successful-glp-1-h24-2-study-dosing/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1f2fjhd/lexaria_bioscience_completes_human_pilot_study/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1f2fjhd/lexaria_bioscience_completes_human_pilot_study/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/smogjHVL.webp)

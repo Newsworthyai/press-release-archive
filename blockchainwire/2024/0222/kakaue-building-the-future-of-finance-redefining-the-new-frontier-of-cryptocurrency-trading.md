@@ -16,9 +16,17 @@ KAKAUE not only demonstrates an innovative spirit in the field of cryptocurrency
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/kakaue-building-the-future-of-finance-redefining-the-new-frontier-of-cryptocurrency-trading)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ay4qyi/kakaue_exchange_unveils_major_brand_upgrade_for/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ay4qyi/kakaue_exchange_unveils_major_brand_upgrade_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/22/yogaXOwl.webp)

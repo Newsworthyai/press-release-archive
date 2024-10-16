@@ -18,9 +18,17 @@ CopyrightInsights.com stands at the intersection of innovation and intellectual 
 
 For a world where creativity meets clarity. Dive in at www.CopyrightInsights.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231220798/introducing-copyrightinsights-com-the-definitive-source-for-intellectual-property-knowledge)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BookNews/comments/1avcv31/copyrightinsightscom_launches_innovative_platform/
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1avcv31/copyrightinsightscom_launches_innovative_platform/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/plumi0Hc.webp)

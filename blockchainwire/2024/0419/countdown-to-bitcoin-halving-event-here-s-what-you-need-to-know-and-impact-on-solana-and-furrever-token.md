@@ -34,9 +34,17 @@ Let’s Wrap It UpAs the countdown to Bitcoin halving continues, altcoins like S
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities.CONTACT: Robert Smith support at furrevertoken.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/countdown-to-bitcoin-halving-event-heres-what-you-need-to-know-and-impact-on-solana-and-furrever-token)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c86tm2/bitcoin_halving_impact_sol_and_furr_in_the/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c86tm2/bitcoin_halving_impact_sol_and_furr_in_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/19/chef4i0C.webp)

@@ -38,9 +38,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kartoon-studios-gears-up-to-launch-most-ambitious-project-yet-with-new-winnie-the-pooh-franchise-backed-by-30m-of-non-dilutive-financing-from-catalyst-venture-partners-874478472 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kartoon-studios-gears-up-to-launch-most-ambitious-project-yet-with-new-winnie-the-pooh-franchise-backed-by-30m-of-non-dilutive-financing-from-catalyst-venture-partners-874478472)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1do5brt/kartoon_studios_launches_epic_winniethepooh/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1do5brt/kartoon_studios_launches_epic_winniethepooh/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/25/herbLlTR.webp)

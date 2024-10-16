@@ -34,9 +34,17 @@ Company Websitehttps://www.metastudio.land
 
 View source version on newsdirect.com: https://newsdirect.com/news/meta-studio-empowers-content-creators-with-privacy-and-ownership-in-a-decentralized-environment-856721889 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/meta-studio-empowers-content-creators-with-privacy-and-ownership-in-a-decentralized-environment-856721889)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c63qty/meta_studio_empowers_content_creators_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c63qty/meta_studio_empowers_content_creators_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/17/mend92aJ.webp)

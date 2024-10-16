@@ -29,9 +29,17 @@ info-media@acroudmedia.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/get-ready-for-free-spins-with-unlimitedfreespins-com-exclusive-early-access-for-kiwis-161304887 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/get-ready-for-free-spins-with-unlimitedfreespins-com-exclusive-early-access-for-kiwis-161304887)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f9gukd/unlimitedfreespinscom_launches_in_new_zealand/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f9gukd/unlimitedfreespinscom_launches_in_new_zealand/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/5/bossMY3j.webp)

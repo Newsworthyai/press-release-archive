@@ -68,9 +68,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nvidia-is-up-over-150-ytd-but-some-are-flagging-risks-trade-your-expectation-either-way-with-rex-shares-leveraged-etfs-771149912 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nvidia-is-up-over-150-ytd-but-some-are-flagging-risks-trade-your-expectation-either-way-with-rex-shares-leveraged-etfs-771149912)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1f2jfl3/nvidia_set_to_report_earnings_trade_your/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1f2jfl3/nvidia_set_to_report_earnings_trade_your/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/27/apexWKh3.webp)

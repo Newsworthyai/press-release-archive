@@ -30,9 +30,17 @@ Company Websitehttps://www.assiduusglobal.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/assiduus-accelerates-international-growth-expands-into-south-america-910046070 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/assiduus-accelerates-international-growth-expands-into-south-america-910046070)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d9ifk0/assiduus_expands_into_south_america_opening_new/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d9ifk0/assiduus_expands_into_south_america_opening_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/6/roamKZQJ.webp)

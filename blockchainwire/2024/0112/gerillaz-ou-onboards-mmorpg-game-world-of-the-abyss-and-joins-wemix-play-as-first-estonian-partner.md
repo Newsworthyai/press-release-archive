@@ -20,9 +20,17 @@ About WEMADE
 
 Part of the first generation of Korean PC online game developers and Korean mobile game developers, Wemade is at the forefront of the next wave of Web3 game developers that are innovating with blockchain technology. Based on the WEMIX3.0 Mainnet, the WEMIX PLAY blockchain gaming platform is the world’s biggest with millions of users and a wide range of game genres from card, puzzle, simulation and strategy games; to first-person shooters, battle royale, MOBA, MMORPG, SNG, sports games and more. Visit www.wemix.com/communication for more information. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gerillaz-o-onboards-mmorpg-game-world-of-the-abyss-and-joins-wemix-play-as-first-estonian-partner)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1avdqqf/wemade_partners_with_gerillaz_ouuml_to_release/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1avdqqf/wemade_partners_with_gerillaz_ouuml_to_release/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/odorpWEF.webp)

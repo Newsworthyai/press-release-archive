@@ -40,9 +40,17 @@ Company Websitehttp://www.nlpc.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/boeings-chairman-is-leaving-under-a-cloud-so-why-does-exxon-want-him-on-their-board-173053827 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/boeings-chairman-is-leaving-under-a-cloud-so-why-does-exxon-want-him-on-their-board-173053827)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cny44m/exxon_mobil_renominates_controversial_boeing/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cny44m/exxon_mobil_renominates_controversial_boeing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/larkUINb.webp)

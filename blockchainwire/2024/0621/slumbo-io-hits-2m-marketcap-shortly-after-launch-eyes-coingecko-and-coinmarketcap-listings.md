@@ -22,9 +22,17 @@ In summary, Slumbo.io is actively contributing to the evolution of the industry.
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/slumboio-hits-2m-marketcap-shortly-after-launch-eyes-coingecko-and-coinmarketcap-listings)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dlajul/slumboio_achieves_2m_marketcap_postlaunch_gains/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dlajul/slumboio_achieves_2m_marketcap_postlaunch_gains/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/21/eachPh0x.webp)

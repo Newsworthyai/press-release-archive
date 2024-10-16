@@ -40,9 +40,17 @@ About Tokeativity®
 
 Tokeativity is the largest community for cannabis and plant medicine loving feminists in the world. Based in Portland, Oregon, they have hosted over 350 cannabis friendly, private and public events across the globe since 2017 in North America, South Africa & Europe. Tokeativity is passionate about the normalization of plant medicine and celebration of consumption culture. Their Tokeativity Womanifesto envisions a world in which the cannabis, psychedelic and intersectional feminist movements heal our communities and our Earth, that Women and Black, Indigenous, Hispanic, Latinx, Asian, Pacific Islander and People of Color own at least half of the world’s most thriving and sustainable businesses, people are free to make choices around their consumption and that plant medicine consuming mothers and parents don’t have fear of losing their children. For more information, visit tokeativity.co/ and @tokeativity. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202406181197/groove-into-pride-with-studio-420-tokeativity-r-and-the-cannadiva-s-ultimate-70s-inspired-bash)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dpawd2/studio_420_throwback_pride_brunch_celebration_by/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dpawd2/studio_420_throwback_pride_brunch_celebration_by/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/246/18/lime7YHd.webp)

@@ -95,9 +95,17 @@ AeoN-X will release $ANX tokens in an ICO presale on GemPad starting Wednesday, 
 
 Follow the project’s official website and X (Twitter) for the latest development updates. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-aeon-x---the-ai-driven-all-in-one-ecosystem-reshaping-the-web3-landscape)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dz21j8/aeonx_redefining_web3_with_ai_technology/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dz21j8/aeonx_redefining_web3_with_ai_technology/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/9/lushFtAN.webp)

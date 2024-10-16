@@ -49,9 +49,17 @@ Company Websitehttps://california.comcast.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/comcast-announces-live-american-sign-language-interpreting-services-at-eight-bay-area-xfinity-store-locations-672416242 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/comcast-announces-live-american-sign-language-interpreting-services-at-eight-bay-area-xfinity-store-locations-672416242)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d9nv18/comcast_launches_asl_interpreting_services_at_bay/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d9nv18/comcast_launches_asl_interpreting_services_at_bay/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/6/glowypxT.webp)

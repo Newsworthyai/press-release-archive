@@ -36,9 +36,17 @@ Company Websitehttps://www.OCEAN.sv
 
 View source version on newsdirect.com: https://newsdirect.com/news/ocean-establece-un-centro-global-en-el-salvador-951371490 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ocean-establece-un-centro-global-en-el-salvador-951371490)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1d3mb0n/ocean_establishes_global_center_in_el_salvador_to/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1d3mb0n/ocean_establishes_global_center_in_el_salvador_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/29/gulfPO_v.webp)

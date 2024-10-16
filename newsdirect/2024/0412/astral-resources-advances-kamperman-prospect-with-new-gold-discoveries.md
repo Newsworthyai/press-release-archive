@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/astral-resources-advances-kamperman-prospect-with-new-gold-discoveries-273541436 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/astral-resources-advances-kamperman-prospect-with-new-gold-discoveries-273541436)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c2j311/astral_resources_advances_kamperman_prospect_with/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c2j311/astral_resources_advances_kamperman_prospect_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/12/xenox3Tx.webp)

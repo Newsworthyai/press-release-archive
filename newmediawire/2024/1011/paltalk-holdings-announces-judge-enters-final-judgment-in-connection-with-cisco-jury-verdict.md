@@ -24,9 +24,17 @@ nyc@clearthink.capital
 
 (917) 658-7878 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/paltalk-holdings-announces-judge-enters-final-judgment-in-connection-with-cisco-jury-verdict-7076189)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1g18iyj/paltalk_inc_wins_final_judgment_in_patent/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1g18iyj/paltalk_inc_wins_final_judgment_in_patent/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/11/noteyfQ1.webp)

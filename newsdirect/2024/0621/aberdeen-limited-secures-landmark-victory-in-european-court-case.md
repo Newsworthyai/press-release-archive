@@ -28,9 +28,17 @@ Company Websitehttps://aberdeen-ltd.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/aberdeen-limited-secures-landmark-victory-in-european-court-case-184322499 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/aberdeen-limited-secures-landmark-victory-in-european-court-case-184322499)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dlajxb/aberdeen_limited_triumphs_in_european_court_case/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dlajxb/aberdeen_limited_triumphs_in_european_court_case/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/21/pitapicoDgY1.webp)

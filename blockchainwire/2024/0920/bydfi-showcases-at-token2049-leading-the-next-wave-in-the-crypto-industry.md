@@ -18,9 +18,17 @@ About Token2049
 
 Token2049 is the world’s largest Web3 event, attracting thousands of blockchain industry professionals from around the globe each year. The event offers a platform for attendees to exchange ideas, share experiences, and explore innovations in the blockchain space. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bydfi-showcases-at-token2049-leading-the-next-wave-in-the-crypto-industry)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1flec7w/bydfi_to_sponsor_token2049_in_singapore_driving/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1flec7w/bydfi_to_sponsor_token2049_in_singapore_driving/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/20/odor1yyq.webp)

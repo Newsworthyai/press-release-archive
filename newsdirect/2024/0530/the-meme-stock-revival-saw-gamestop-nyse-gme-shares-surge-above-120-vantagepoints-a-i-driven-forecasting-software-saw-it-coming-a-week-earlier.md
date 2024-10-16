@@ -46,9 +46,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-meme-stock-revival-saw-gamestop-nyse-gme-shares-surge-above-120-vantagepoints-a-i-driven-forecasting-software-saw-it-coming-a-week-earlier-126635422 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-meme-stock-revival-saw-gamestop-nyse-gme-shares-surge-above-120-vantagepoints-a-i-driven-forecasting-software-saw-it-coming-a-week-earlier-126635422)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d433ei/meme_stock_revival_and_the_power_of_predictive/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d433ei/meme_stock_revival_and_the_power_of_predictive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/30/odorlhLE.webp)

@@ -36,9 +36,17 @@ Company Websitehttps://amerilife.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/amerilife-expands-wealth-distribution-portfolio-with-acquisition-of-werksgroup-683336531 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/amerilife-expands-wealth-distribution-portfolio-with-acquisition-of-werksgroup-683336531)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dsslef/amerilife_announces_strategic_partnership_with/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dsslef/amerilife_announces_strategic_partnership_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/1/dive_k5b.webp)

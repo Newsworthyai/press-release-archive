@@ -26,9 +26,17 @@ Entertainment-Tech Company and Media Distribution Powerhouse Combine to Form Nex
 
  Kyle Porter EVP, Virgo PR supercloud@virgo-pr.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/supercloud-international-inc-completes-business-combination-with-preeminent-production-company-eyeonchannel-7075969)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1f8qtce/supercloud_international_inc_and_eyeonchannel/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f8qtce/supercloud_international_inc_and_eyeonchannel/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/2/joltXLRy.webp)

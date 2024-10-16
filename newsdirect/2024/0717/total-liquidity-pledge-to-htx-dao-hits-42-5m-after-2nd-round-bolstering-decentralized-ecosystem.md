@@ -38,9 +38,17 @@ media@htxdao.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/total-liquidity-pledge-to-htx-dao-hits-42-5m-after-2nd-round-bolstering-decentralized-ecosystem-188781550 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/total-liquidity-pledge-to-htx-dao-hits-42-5m-after-2nd-round-bolstering-decentralized-ecosystem-188781550)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvfs1y/htx_dao_receives_425m_total_liquidity_pledge/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvfs1y/htx_dao_receives_425m_total_liquidity_pledge/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/17/hintRJwB.webp)

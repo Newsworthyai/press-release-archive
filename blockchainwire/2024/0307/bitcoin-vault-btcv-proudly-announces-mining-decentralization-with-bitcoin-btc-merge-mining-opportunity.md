@@ -20,9 +20,17 @@ About Bitcoin Vault (BTCV) Bitcoin Vault is a cryptocurrency that was created wi
 
 Visit Bitcoin Vault's social media pages to stay in touch with the project: X (Twitter) | Instagram | Telegram (News) | Telegram (Community). 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-vault-btcv-proudly-announces-mining-decentralization-with-bitcoin-btc-merge-mining-opportunity)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1b9vn09/bitcoin_vault_btcv_completes_successful_fork_and/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1b9vn09/bitcoin_vault_btcv_completes_successful_fork_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/8/clubcgr7.webp)

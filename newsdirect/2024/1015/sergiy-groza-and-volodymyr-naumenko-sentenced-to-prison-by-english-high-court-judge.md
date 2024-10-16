@@ -63,9 +63,17 @@ Company Websitehttps://www.argentemcreek.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/sergiy-groza-and-volodymyr-naumenko-sentenced-to-prison-by-english-high-court-judge-836758192 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sergiy-groza-and-volodymyr-naumenko-sentenced-to-prison-by-english-high-court-judge-836758192)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1g4316z/former_ukrainian_business_owners_sentenced_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1g4316z/former_ukrainian_business_owners_sentenced_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/15/cornqbjw.webp)

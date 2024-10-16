@@ -48,9 +48,17 @@ About FluidTokens
 
 [FluidTokens](https://fluidtokens.com/) is the current leading ecosystem on Bitcoin and Cardano blockchains that leverages your assets to offer a world of innovative financial services. This open, trustless and secure ecosystem offers different non-custodial DeFi services for any crypto user, created following the community needs and feedback. FluidTokens is community-centric, prioritising a great user experience - listening to the community suggestions - and allowing everyone to be an active member. As the protocols are non-custodial, any user can be both. As the protocols are non-custodial, any user can be both a liquidity provider and a borrower! The official FluidDAO has been legally established in Switzerland, and the $FLDT token is live on MEXC and Minswap. For more information visit: [https://fluidtokens.com/](https://fluidtokens.com/) Media contacts: Stefania Barbaglio, Nadine ArendseCassiopeia[info@cassiopeia-ltd.com](mailto:info@cassiopeia-ltd.com)nadine@cassiopeia-ltd.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/fluid-tokens-shakes-up-dexes-with-the-first-fully-decentralised-exchange-for-runes)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvjrl1/fluid_tokens_introduces_new_features_to/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvjrl1/fluid_tokens_introduces_new_features_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/11/jinxvyn4.webp)

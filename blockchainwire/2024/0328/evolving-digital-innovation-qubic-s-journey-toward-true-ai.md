@@ -26,9 +26,17 @@ Email Qubic at af@qubic.org
 
 Disclaimer: This content is for informational purposes only and is not an offer to sell or a solicitation of an offer to buy any securities in Qubic or any related entity. Qubic IPOs are not available to persons in the United States or in any jurisdiction where such participation would be unlawful. Potential participants should consult with legal, financial, and tax advisors before engaging in any of Qubic’s offerings. This document may contain forward-looking statements subject to risks and uncertainties that could cause actual results to differ. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/evolving-digital-innovation-qubics-journey-toward-true-ai)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bpx7ya/qubic_leverages_true_ai_and_quorum_consensus_for/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bpx7ya/qubic_leverages_true_ai_and_quorum_consensus_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/28/boldtaSx.webp)

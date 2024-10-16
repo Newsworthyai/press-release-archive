@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/blockmate-ventures-subsidiary-hivello-announces-partnerships-to-aid-august-token-launch-284167830 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/blockmate-ventures-subsidiary-hivello-announces-partnerships-to-aid-august-token-launch-284167830)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fviyv7/blockmate_ventures_ceo_announces_hivellos_native/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fviyv7/blockmate_ventures_ceo_announces_hivellos_native/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/13/seek3acF.webp)

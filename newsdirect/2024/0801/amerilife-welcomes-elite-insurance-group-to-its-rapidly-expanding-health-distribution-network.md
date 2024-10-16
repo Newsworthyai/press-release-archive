@@ -36,9 +36,17 @@ Company Websitehttps://amerilife.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/amerilife-welcomes-elite-insurance-group-to-its-rapidly-expanding-health-distribution-network-560029614 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/amerilife-welcomes-elite-insurance-group-to-its-rapidly-expanding-health-distribution-network-560029614)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1ehgbbd/amerilife_announces_partnership_with_elite/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ehgbbd/amerilife_announces_partnership_with_elite/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/1/idea362M.webp)

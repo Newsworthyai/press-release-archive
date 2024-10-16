@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/elixir-energy-could-have-deepest-unstimulated-gas-flow-in-onshore-australia-east-of-perth-basin-390551409 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/elixir-energy-could-have-deepest-unstimulated-gas-flow-in-onshore-australia-east-of-perth-basin-390551409)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bzt8tq/elixir_energy_makes_groundbreaking_gas_discovery/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bzt8tq/elixir_energy_makes_groundbreaking_gas_discovery/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/9/bendBXCP.webp)

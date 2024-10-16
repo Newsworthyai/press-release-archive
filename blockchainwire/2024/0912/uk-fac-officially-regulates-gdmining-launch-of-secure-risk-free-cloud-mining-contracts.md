@@ -40,9 +40,17 @@ About GDMining
 
 GDMining is a top cloud mining platform that allows users to mine cryptocurrencies such as Bitcoin and Ethereum without the need for physical mining hardware. Committed to providing secure, user-friendly mining solutions, GDMining offers both free and paid plans, with a focus on transparency, security, and regulatory compliance. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/uk-fac-officially-regulates-gdmining-launch-of-secure-risk-free-cloud-mining-contracts)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ffatua/gdmining_launches_facregulated_cloud_mining/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ffatua/gdmining_launches_facregulated_cloud_mining/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/12/pitapico1dSk.webp)

@@ -35,9 +35,17 @@ Company Websitehttps://www.pathai.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/pathai-announces-pluto-a-state-of-the-art-foundation-model-to-enhance-ai-powered-pathology-tools-566469242 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pathai-announces-pluto-a-state-of-the-art-foundation-model-to-enhance-ai-powered-pathology-tools-566469242)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1crt8g2/pathai_launches_pluto_a_stateoftheart_foundation/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1crt8g2/pathai_launches_pluto_a_stateoftheart_foundation/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/14/echo0cCb.webp)

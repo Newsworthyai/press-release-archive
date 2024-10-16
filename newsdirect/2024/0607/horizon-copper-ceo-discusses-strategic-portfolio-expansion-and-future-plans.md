@@ -10,9 +10,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/horizon-copper-ceo-discusses-strategic-portfolio-expansion-and-future-plans-475477516 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/horizon-copper-ceo-discusses-strategic-portfolio-expansion-and-future-plans-475477516)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1daexsm/horizon_copper_ceo_talks_strategic_portfolio/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1daexsm/horizon_copper_ceo_talks_strategic_portfolio/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/7/davebBKQ.webp)

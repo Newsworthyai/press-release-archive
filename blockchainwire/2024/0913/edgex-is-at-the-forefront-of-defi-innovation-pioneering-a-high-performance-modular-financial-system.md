@@ -34,9 +34,17 @@ By offering such an innovative platform, edgeX is redefining the boundaries of D
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/edgex-is-at-the-forefront-of-defi-innovation-pioneering-a-high-performance-modular-financial-system)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fg4stu/bitcoin_etfs_approved_edgex_redefines_defi_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fg4stu/bitcoin_etfs_approved_edgex_redefines_defi_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/13/pondUAAL.webp)

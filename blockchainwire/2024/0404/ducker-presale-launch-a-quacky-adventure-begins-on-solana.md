@@ -36,9 +36,17 @@ DUCKER TEAM : Visit website and Follow $DUCKER on Social Media:Website: https://
 
 PR Contact:James Smithducker.wtfsupport@ducker.wtf 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ducker-presale-launch-a-quacky-adventure-begins-on-solana)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bvsp6r/introducing_ducker_the_quackiest_coin_on_solana/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bvsp6r/introducing_ducker_the_quackiest_coin_on_solana/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/4/fineVFkv.webp)

@@ -41,9 +41,17 @@ Company Websitehttps://keeperaitest.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/keeper-ai-test-how-likely-are-you-to-find-your-ideal-match-866004389 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/keeper-ai-test-how-likely-are-you-to-find-your-ideal-match-866004389)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1c25upe/decode_your_dating_dilemma_with_keeper_ai_test/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1c25upe/decode_your_dating_dilemma_with_keeper_ai_test/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/12/mielqDPm.webp)

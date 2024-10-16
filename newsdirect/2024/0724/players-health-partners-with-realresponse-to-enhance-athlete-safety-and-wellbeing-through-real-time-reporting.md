@@ -28,9 +28,17 @@ Company Websitehttps://www.playershealth.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/players-health-partners-with-realresponse-to-enhance-athlete-safety-and-wellbeing-through-real-time-reporting-212415874 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/players-health-partners-with-realresponse-to-enhance-athlete-safety-and-wellbeing-through-real-time-reporting-212415874)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eazyug/players_health_partners_with_realresponse_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eazyug/players_health_partners_with_realresponse_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/24/lunatW3H.webp)

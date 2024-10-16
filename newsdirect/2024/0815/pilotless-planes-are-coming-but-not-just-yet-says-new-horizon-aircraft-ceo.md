@@ -56,9 +56,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pilotless-planes-are-coming-but-not-just-yet-says-new-horizon-aircraft-ceo-266596091 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pilotless-planes-are-coming-but-not-just-yet-says-new-horizon-aircraft-ceo-266596091)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1esug3b/horizon_aircrafts_ceo_discusses_the_future_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1esug3b/horizon_aircrafts_ceo_discusses_the_future_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/15/quizSfmf.webp)

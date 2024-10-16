@@ -20,9 +20,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/northstar-gold-corp-begins-em-survey-looking-to-target-the-cam-copper-mine-area-of-miller-property-527749272 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/northstar-gold-corp-begins-em-survey-looking-to-target-the-cam-copper-mine-area-of-miller-property-527749272)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bp6evj/northstar_gold_corp_initiates_em_survey_at_cam/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bp6evj/northstar_gold_corp_initiates_em_survey_at_cam/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/loftRX7n.webp)

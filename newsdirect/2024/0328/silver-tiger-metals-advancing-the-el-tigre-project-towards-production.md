@@ -22,9 +22,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/silver-tiger-metals-advancing-the-el-tigre-project-towards-production-741924674 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/silver-tiger-metals-advancing-the-el-tigre-project-towards-production-741924674)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bpuu41/silver_tiger_metals_advancing_el_tigre_project_in/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bpuu41/silver_tiger_metals_advancing_el_tigre_project_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/vibeaKW8.webp)

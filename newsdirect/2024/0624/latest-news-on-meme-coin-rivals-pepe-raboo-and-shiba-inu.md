@@ -40,9 +40,17 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/latest-news-on-meme-coin-rivals-pepe-raboo-and-shiba-inu-729371710 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/latest-news-on-meme-coin-rivals-pepe-raboo-and-shiba-inu-729371710)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dnai3l/meme_coin_battle_shiba_inu_pepe_and_raboo/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dnai3l/meme_coin_battle_shiba_inu_pepe_and_raboo/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/24/lendlzX3.webp)

@@ -40,9 +40,17 @@
 
  [1] Department of Health and Human Services, Physical Activity Guidelines, page 14. Available for download here: https://health.gov/paguidelines/default.aspx 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/physical-activity-boosting-resources-support-classroom-performance-7075998)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f9gunz/american_heart_association_and_nfl_join_forces_to/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f9gunz/american_heart_association_and_nfl_join_forces_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/5/nora2MBr.webp)

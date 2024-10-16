@@ -10,9 +10,17 @@ This ketamine treatment has demonstrated superior efficacy compared to tradition
 
 Each treatment session at the New Brain Institute involves extensive monitoring by healthcare professionals in a comfortable setting, ensuring patient safety and well-being. Patients are advised to avoid driving or operating machinery until the following day. The institute also provides various insurance options to make this transformative therapy more accessible. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202401201005/new-brain-institute-introduces-groundbreaking-ketamine-treatment-for-treatment-resistant-depression)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdpgl/new_brain_institute_introduces_spravato_ketamine/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdpgl/new_brain_institute_introduces_spravato_ketamine/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/yarn4GcS.webp)

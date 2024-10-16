@@ -48,9 +48,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/battle-of-memes-sponsors-blockbuster-boxing-event-with-over-30m-live-views-shaking-up-the-crypto-world)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dpzei7/battle_of_memes_announces_sponsorship_of_largest/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dpzei7/battle_of_memes_announces_sponsorship_of_largest/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/27/taroeUC2.webp)

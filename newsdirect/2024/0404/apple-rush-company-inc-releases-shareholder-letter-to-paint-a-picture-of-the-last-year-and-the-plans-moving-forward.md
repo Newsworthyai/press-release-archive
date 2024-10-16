@@ -38,9 +38,17 @@ dtorgerud@aprullc.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/apple-rush-company-inc-releases-shareholder-letter-to-paint-a-picture-of-the-last-year-and-the-plans-moving-forward-687138003 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/apple-rush-company-inc-releases-shareholder-letter-to-paint-a-picture-of-the-last-year-and-the-plans-moving-forward-687138003)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bvsmjw/apple_rush_company_inc_unveils_ambitious_plans/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bvsmjw/apple_rush_company_inc_unveils_ambitious_plans/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/4/clubNFL4.webp)

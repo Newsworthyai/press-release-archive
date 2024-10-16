@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/iofinas-strategic-success-revenue-surpasses-50-million-expansion-underway-128134394 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/iofinas-strategic-success-revenue-surpasses-50-million-expansion-underway-128134394)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cn3haa/iofinas_ceo_discusses_record_revenue_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cn3haa/iofinas_ceo_discusses_record_revenue_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/8/lendcBrK.webp)

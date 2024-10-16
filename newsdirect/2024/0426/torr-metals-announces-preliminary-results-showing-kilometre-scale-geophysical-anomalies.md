@@ -18,9 +18,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/torr-metals-announces-preliminary-results-showing-kilometre-scale-geophysical-anomalies-924887407 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/torr-metals-announces-preliminary-results-showing-kilometre-scale-geophysical-anomalies-924887407)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cdmnbm/torr_metals_unveils_major_geophysical_anomalies/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cdmnbm/torr_metals_unveils_major_geophysical_anomalies/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/26/irisxsx0.webp)

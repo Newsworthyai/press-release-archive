@@ -34,9 +34,17 @@ Company Websitehttps://www.ballastrock.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/ballast-rock-announces-launch-of-sunbelt-multifamily-fund-iii-667665155 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ballast-rock-announces-launch-of-sunbelt-multifamily-fund-iii-667665155)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cmfr64/ballast_rock_launches_sunbelt_multifamily_fund/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cmfr64/ballast_rock_launches_sunbelt_multifamily_fund/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/swimq5E7.webp)

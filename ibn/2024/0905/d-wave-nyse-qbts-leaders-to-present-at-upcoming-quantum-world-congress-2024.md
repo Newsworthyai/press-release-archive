@@ -28,9 +28,17 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing 
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-leaders-to-present-at-upcoming-quantum-world-congress-2024/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1f9rh81/dwave_to_participate_in_quantum_world_congress/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1f9rh81/dwave_to_participate_in_quantum_world_congress/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/249/5/taroFh6R.webp)

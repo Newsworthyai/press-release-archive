@@ -26,9 +26,17 @@ Company Websitehttps://vendinvenue.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/vending-venue-ltd-launches-pizza-vending-machines-across-the-uk-335198641 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/vending-venue-ltd-launches-pizza-vending-machines-across-the-uk-335198641)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eza0o1/vending_venue_ltd_launches_pizza_vending_machines/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eza0o1/vending_venue_ltd_launches_pizza_vending_machines/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/23/pineRdMf.webp)

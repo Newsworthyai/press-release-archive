@@ -28,9 +28,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/global-crypto-brokerage-caleb-and-brown-provides-a-tailored-approach-603858195 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/global-crypto-brokerage-caleb-and-brown-provides-a-tailored-approach-603858195)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fe9mt8/caleb_brown_senior_broker_discusses_future_of/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fe9mt8/caleb_brown_senior_broker_discusses_future_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/11/swimeMXA.webp)

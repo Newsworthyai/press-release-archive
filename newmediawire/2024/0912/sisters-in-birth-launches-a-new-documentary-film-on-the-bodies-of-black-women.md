@@ -14,9 +14,17 @@ Sisters in Birth is a nonprofit, charitable clinic and community health practice
 
 For media inquiries contact: israel@sibirth.onmicrosoft.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/sisters-in-birth-launches-a-new-documentary-film-on-the-bodies-of-black-women-7076048)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1ffh3od/new_documentary_on_the_bodies_of_black_women/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1ffh3od/new_documentary_on_the_bodies_of_black_women/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/12/milk9C1X.webp)

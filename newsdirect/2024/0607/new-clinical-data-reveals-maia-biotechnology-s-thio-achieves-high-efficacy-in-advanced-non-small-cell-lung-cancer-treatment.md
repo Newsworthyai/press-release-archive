@@ -42,9 +42,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-clinical-data-reveals-maia-biotechnologys-thio-achieves-high-efficacy-in-advanced-non-small-cell-lung-cancer-treatment-599831106 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/new-clinical-data-reveals-maia-biotechnologys-thio-achieves-high-efficacy-in-advanced-non-small-cell-lung-cancer-treatment-599831106)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1da9gso/maia_biotechnologys_thio_achieves_high_efficacy/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1da9gso/maia_biotechnologys_thio_achieves_high_efficacy/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/7/hikeUfxE.webp)

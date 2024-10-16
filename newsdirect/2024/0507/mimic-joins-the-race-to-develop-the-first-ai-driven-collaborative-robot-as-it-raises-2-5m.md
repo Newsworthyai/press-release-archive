@@ -46,9 +46,17 @@ Company Websitehttps://www.mimicrobotics.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/mimic-joins-the-race-to-develop-the-first-ai-driven-collaborative-robot-as-it-raises-2-5m-787040548 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/mimic-joins-the-race-to-develop-the-first-ai-driven-collaborative-robot-as-it-raises-2-5m-787040548)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cmagt1/swiss_startup_mimic_challenges_us_dominance_in/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cmagt1/swiss_startup_mimic_challenges_us_dominance_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/plumRdnI.webp)

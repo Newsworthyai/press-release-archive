@@ -38,9 +38,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/diamond-lake-minerals-otc-dlmi-and-boxabl-team-up-to-bring-affordable-housing-to-the-masses-and-digital-tokens-to-investors-394454132 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/diamond-lake-minerals-otc-dlmi-and-boxabl-team-up-to-bring-affordable-housing-to-the-masses-and-digital-tokens-to-investors-394454132)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cbxken/diamond_lake_minerals_and_boxabl_team_up_to_bring/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cbxken/diamond_lake_minerals_and_boxabl_team_up_to_bring/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/24/glees78c.webp)

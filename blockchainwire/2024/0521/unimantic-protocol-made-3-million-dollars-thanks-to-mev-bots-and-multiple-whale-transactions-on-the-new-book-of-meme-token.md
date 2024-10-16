@@ -14,9 +14,17 @@ Nevertheless, for Unimantic Protocol, this is an impressive demonstration of its
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/unimantic-protocol-made-3-million-dollars-thanks-to-mev-bots-and-multiple-whale-transactions-on-the-new-book-of-meme-token)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cxhh50/unimantic_protocol_sparks_262_surge_in_book_of/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cxhh50/unimantic_protocol_sparks_262_surge_in_book_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/21/markpWrm.webp)

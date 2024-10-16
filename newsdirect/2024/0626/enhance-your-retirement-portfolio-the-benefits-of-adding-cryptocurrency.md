@@ -46,9 +46,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/enhance-your-retirement-portfolio-the-benefits-of-adding-cryptocurrency-832636731 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/enhance-your-retirement-portfolio-the-benefits-of-adding-cryptocurrency-832636731)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1doy5fc/retirement_savers_boost_your_portfolio_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1doy5fc/retirement_savers_boost_your_portfolio_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/26/roamxASw.webp)

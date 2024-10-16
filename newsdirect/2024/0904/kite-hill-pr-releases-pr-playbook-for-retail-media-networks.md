@@ -31,9 +31,17 @@ mackenzie@kitehillpr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kite-hill-pr-releases-pr-playbook-for-retail-media-networks-475404503 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kite-hill-pr-releases-pr-playbook-for-retail-media-networks-475404503)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/MarketingNewsramp/comments/1f9gtbj/kite_hill_pr_launches_comprehensive_pr_playbook/
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1f9gtbj/kite_hill_pr_launches_comprehensive_pr_playbook/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/5/envyoFnk.webp)

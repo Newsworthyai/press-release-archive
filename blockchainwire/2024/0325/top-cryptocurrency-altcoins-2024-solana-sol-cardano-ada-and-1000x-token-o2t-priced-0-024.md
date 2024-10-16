@@ -46,9 +46,17 @@ https://twitter.com/Option2Trade
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/top-cryptocurrency-altcoins-2024-solana-sol-cardano-ada-and-1000x-token-o2t-priced-0024)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bnjqt2/crypto_market_evolves_solana_cardano_and_emerging/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bnjqt2/crypto_market_evolves_solana_cardano_and_emerging/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/25/norajD70.webp)

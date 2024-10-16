@@ -36,9 +36,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mainz-biomeds-nasdaq-mynz-cutting-edge-colorectal-cancer-test-applies-for-fda-breakthrough-status-224803617 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/mainz-biomeds-nasdaq-mynz-cutting-edge-colorectal-cancer-test-applies-for-fda-breakthrough-status-224803617)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1egm5he/mainz_biomed_applies_for_fda_breakthrough_status/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1egm5he/mainz_biomed_applies_for_fda_breakthrough_status/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/31/herbPlKm.webp)

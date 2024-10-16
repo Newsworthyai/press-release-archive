@@ -64,9 +64,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/analysts-consensus-reaffirms-significant-upside-potential-for-cardiol-therapeutics-675722872 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/analysts-consensus-reaffirms-significant-upside-potential-for-cardiol-therapeutics-675722872)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d2gvus/cardiol_therapeutics_attracts_investor_interest/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d2gvus/cardiol_therapeutics_attracts_investor_interest/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/28/knotwoF4.webp)

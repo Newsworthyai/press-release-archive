@@ -52,9 +52,17 @@ ABOUT DEX.ORG:
 
 DEX.ORG is a pioneering decentralized exchange platform that combines the best features of a centralized exchange with the security and autonomy of decentralized finance. Providing an intuitive trading experience, advanced security features, and community tools such as copy trading, DEX.ORG is a groundbreaking new paradigm for trading digital assets. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/dexorg-the-robinhood-of-defi-gears-up-for-an-explosive-token-and-exchange-launch)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d9ga3z/dexorg_announces_launch_of_revolutionary/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d9ga3z/dexorg_announces_launch_of_revolutionary/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/6/quit3dCf.webp)

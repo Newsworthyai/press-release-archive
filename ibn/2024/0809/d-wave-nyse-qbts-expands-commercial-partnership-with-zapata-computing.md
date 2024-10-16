@@ -25,9 +25,17 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-expands-commercial-partnership-with-zapata-computing/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2ri3i/dwave_quantum_and_zapata_computing_expand/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2ri3i/dwave_quantum_and_zapata_computing_expand/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/quayn3D2.webp)

@@ -40,9 +40,17 @@ Cassiopeia
 
 info@cassiopeia-ltd.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/reinforced-governance-for-daos-q-development-partners-with-kleros)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cylwfg/q_development_ag_collaborates_with_kleros_to/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cylwfg/q_development_ag_collaborates_with_kleros_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/23/hush5za7.webp)

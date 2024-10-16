@@ -42,9 +42,17 @@ As a leading global platform for cryptocurrency and blockchain technology, Coins
 
 Coinstore Social MediaTwitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Telegram Announcement 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/drift-labs-launches-on-coinstore-after-its-ieo-was-250-oversubscribscribed)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1clohwz/drift_token_oversubscribed_by_250_on_coinstore_ieo/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1clohwz/drift_token_oversubscribed_by_250_on_coinstore_ieo/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/6/warp0fG_.webp)

@@ -18,9 +18,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/u-s-gold-corp-chairman-discusses-new-funding-and-upcoming-mining-permit-966152881 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/u-s-gold-corp-chairman-discusses-new-funding-and-upcoming-mining-permit-966152881)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1c873ms/us_gold_corp_secures_49m_funding_anticipates/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1c873ms/us_gold_corp_secures_49m_funding_anticipates/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/19/quit_19g.webp)

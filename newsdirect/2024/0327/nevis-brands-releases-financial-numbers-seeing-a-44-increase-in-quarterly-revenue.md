@@ -22,9 +22,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nevis-brands-releases-financial-numbers-seeing-a-44-increase-in-quarterly-revenue-209854143 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nevis-brands-releases-financial-numbers-seeing-a-44-increase-in-quarterly-revenue-209854143)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1bp3ift/nevis_brands_sees_44_increase_in_quarterly/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1bp3ift/nevis_brands_sees_44_increase_in_quarterly/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/hushQZpN.webp)

@@ -24,9 +24,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sandus-resilient-performance-and-growth-strategy-amidst-economic-and-regulatory-headwinds-606067216 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sandus-resilient-performance-and-growth-strategy-amidst-economic-and-regulatory-headwinds-606067216)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c1cta2/su_plc_chairman_anthony_coombs_discusses_companys/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c1cta2/su_plc_chairman_anthony_coombs_discusses_companys/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/jinxxuTu.webp)

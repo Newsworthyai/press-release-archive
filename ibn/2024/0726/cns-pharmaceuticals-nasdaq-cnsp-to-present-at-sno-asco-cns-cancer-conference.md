@@ -26,9 +26,17 @@ CNS Pharmaceuticals (NASDAQ: CNSP), a biopharmaceutical company specializing in 
 
  BioMedWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/cns-pharmaceuticals-nasdaq-cnsp-to-present-at-sno-asco-cns-cancer-conference/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1f2fn56/cns_pharmaceuticals_to_present_abstract_at_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1f2fn56/cns_pharmaceuticals_to_present_abstract_at_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/ninaYrbb.webp)

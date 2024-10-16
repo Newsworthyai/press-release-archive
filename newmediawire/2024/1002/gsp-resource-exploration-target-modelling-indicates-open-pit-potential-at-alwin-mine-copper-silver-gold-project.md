@@ -56,9 +56,17 @@ Forward-Looking Information
 
 This news release contains “forward‐looking information or statements” within the meaning of applicable securities laws, which may include, without limitation, completing ongoing and planned work, the potential for additional drilling at the Alwin Property, the potential for further evaluation, through additional drilling, of potentially economically significant gold values, open pit potential at the Alwin Property, additional modelling and related activities of the Alwin Property, any potential for future resource estimation or reporting for the Alwin Property, carrying out future exploration work on the Company’s projects, other statements relating to the technical, financial and business prospects of the Company, its projects and other matters. All statements in this news release, other than statements of historical facts, that address events or developments that the Company expects to occur, are forward-looking statements. Although the Company believes the expectations expressed in such forward-looking statements are based on reasonable assumptions, such statements are not guarantees of future performance and actual results may differ materially from those in the forward-looking statements. Such statements and information are based on numerous assumptions regarding present and future business strategies and the environment in which the Company will operate in the future, including the price of metals, the ability to achieve its goals, that general business and economic conditions will not change in a material adverse manner, that financing will be available if and when needed and on reasonable terms. Such forward-looking information reflects the Company’s views with respect to future events and is subject to risks, uncertainties and assumptions, including the risks and uncertainties relating to the interpretation of exploration results, risks related to the inherent uncertainty of exploration and cost estimates and the potential for unexpected costs and expenses, and those filed under the Company’s profile on SEDAR+ at www.sedarplus.ca. Factors that could cause actual results to differ materially from those in forward looking statements include, but are not limited to, continued availability of capital and financing and general economic, market or business conditions, adverse weather or climate conditions, failure to maintain all necessary government permits, approvals and authorizations, failure to obtain or maintain community acceptance (including First Nations), decrease in the price of copper, gold, silver and other metals, increase in costs, litigation, and failure of counterparties to perform their contractual obligations. The Company does not undertake to update forward‐looking statements or forward‐looking information, except as required by law. 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/gsp-resource-exploration-target-modelling-indicates-open-pit-potential-at-alwin-mine-copper-silver-gold-project-7076137)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fx6hna/gsp_resource_corp_announces_open_pit_potential_at/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fx6hna/gsp_resource_corp_announces_open_pit_potential_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/6/envyuogL.webp)

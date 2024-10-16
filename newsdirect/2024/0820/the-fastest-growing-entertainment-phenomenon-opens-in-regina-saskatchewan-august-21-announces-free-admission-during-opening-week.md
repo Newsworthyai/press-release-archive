@@ -46,9 +46,17 @@ Company Websitehttps://playactivate.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-fastest-growing-entertainment-phenomenon-opens-in-regina-saskatchewan-august-21-announces-free-admission-during-opening-week-382016404 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-fastest-growing-entertainment-phenomenon-opens-in-regina-saskatchewan-august-21-announces-free-admission-during-opening-week-382016404)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1ewvtt0/activate_opens_worlds_first_active_gaming/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1ewvtt0/activate_opens_worlds_first_active_gaming/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/20/bestwh9u.webp)

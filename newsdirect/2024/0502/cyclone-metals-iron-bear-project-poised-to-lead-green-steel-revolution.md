@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cyclone-metals-iron-bear-project-poised-to-lead-green-steel-revolution-303930720 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cyclone-metals-iron-bear-project-poised-to-lead-green-steel-revolution-303930720)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cikkdd/cyclone_metals_iron_bear_project_poised_to_lead/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cikkdd/cyclone_metals_iron_bear_project_poised_to_lead/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/2/ideaAcKk.webp)

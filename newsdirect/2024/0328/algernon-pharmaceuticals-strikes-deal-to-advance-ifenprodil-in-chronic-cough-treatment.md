@@ -20,9 +20,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/algernon-pharmaceuticals-strikes-deal-to-advance-ifenprodil-in-chronic-cough-treatment-714219688 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/algernon-pharmaceuticals-strikes-deal-to-advance-ifenprodil-in-chronic-cough-treatment-714219688)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1bpv1au/algernon_pharmaceuticals_strikes_deal_to_advance/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1bpv1au/algernon_pharmaceuticals_strikes_deal_to_advance/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/vibe0QHi.webp)

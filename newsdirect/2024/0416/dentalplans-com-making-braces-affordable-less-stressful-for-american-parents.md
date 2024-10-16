@@ -40,9 +40,17 @@ Company Websitehttps://www.dentalplans.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/dentalplans-com-making-braces-affordable-less-stressful-for-american-parents-828954116 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/dentalplans-com-making-braces-affordable-less-stressful-for-american-parents-828954116)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1c5f77k/dentalplanscom_offers_affordable_braces_for/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1c5f77k/dentalplanscom_offers_affordable_braces_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/16/face_O_4.webp)

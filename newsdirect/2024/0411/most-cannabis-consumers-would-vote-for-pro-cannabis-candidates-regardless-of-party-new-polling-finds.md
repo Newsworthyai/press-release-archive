@@ -38,9 +38,17 @@ Company Websitehttp://www.nuggmd.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/most-cannabis-consumers-would-vote-for-pro-cannabis-candidates-regardless-of-party-new-polling-finds-803557725 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/most-cannabis-consumers-would-vote-for-pro-cannabis-candidates-regardless-of-party-new-polling-finds-803557725)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1c1jtxb/new_poll_shows_majority_of_cannabis_consumers/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1c1jtxb/new_poll_shows_majority_of_cannabis_consumers/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/bestyfaM.webp)

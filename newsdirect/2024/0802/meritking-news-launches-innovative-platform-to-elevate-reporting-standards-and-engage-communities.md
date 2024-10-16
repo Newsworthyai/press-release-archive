@@ -30,9 +30,17 @@ Company Websitehttps://meritking.news/
 
 View source version on newsdirect.com: https://newsdirect.com/news/meritking-news-launches-innovative-platform-to-elevate-reporting-standards-and-engage-communities-376925259 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/meritking-news-launches-innovative-platform-to-elevate-reporting-standards-and-engage-communities-376925259)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eiftae/new_online_news_platform_meritking_news_launches/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eiftae/new_online_news_platform_meritking_news_launches/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/2/ovalL1B3.webp)

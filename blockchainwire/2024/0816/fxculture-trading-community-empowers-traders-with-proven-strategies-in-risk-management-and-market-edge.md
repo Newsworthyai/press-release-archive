@@ -34,9 +34,17 @@ fxculture is a leading trading community dedicated to empowering traders through
 
 For more information, please visit [www.fxculturetrading.com] or contact: nate@fxculturetrading.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/fxculture-trading-community-empowers-traders-with-proven-strategies-in-risk-management-and-market-edge)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1etyzyg/fxculture_revolutionizes_trading_with_risk/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1etyzyg/fxculture_revolutionizes_trading_with_risk/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/16/limesyW0.webp)

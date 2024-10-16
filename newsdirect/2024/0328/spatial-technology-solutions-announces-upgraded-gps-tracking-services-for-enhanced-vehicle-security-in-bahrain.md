@@ -46,9 +46,17 @@ Company Websitehttps://sts-int.net/
 
 View source version on newsdirect.com: https://newsdirect.com/news/spatial-technology-solutions-announces-upgraded-gps-tracking-services-for-enhanced-vehicle-security-in-bahrain-900204943 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/spatial-technology-solutions-announces-upgraded-gps-tracking-services-for-enhanced-vehicle-security-in-bahrain-900204943)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1bq5ts2/sts_announces_upgraded_gps_tracking_services_in/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1bq5ts2/sts_announces_upgraded_gps_tracking_services_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/lushn0Fw.webp)

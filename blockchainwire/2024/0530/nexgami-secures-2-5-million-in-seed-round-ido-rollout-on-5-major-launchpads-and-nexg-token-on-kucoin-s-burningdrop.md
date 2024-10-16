@@ -55,9 +55,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/nexgami-secures-25-million-in-seed-round-ido-rollout-on-5-major-launchpads-and-nexg-token-on-kucoins-burningdrop)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvotrc/nexgami_completes_25m_seed_round_launches_nexg_on/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvotrc/nexgami_completes_25m_seed_round_launches_nexg_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/swim5BR4.webp)

@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/regency-silver-corp-announces-2-5-million-financing-to-advance-dios-padre-drilling-program-305902398 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/regency-silver-corp-announces-2-5-million-financing-to-advance-dios-padre-drilling-program-305902398)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ebzz7b/regency_silver_corp_announces_25_million/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ebzz7b/regency_silver_corp_announces_25_million/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/25/pitapico0RIp.webp)

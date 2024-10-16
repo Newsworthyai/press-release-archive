@@ -64,9 +64,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/1-8-trillion-investment-in-clean-energy-in-2023-highlights-importance-of-critical-materials-572383058 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/1-8-trillion-investment-in-clean-energy-in-2023-highlights-importance-of-critical-materials-572383058)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dqja8c/the_importance_of_critical_minerals_in_the_global/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dqja8c/the_importance_of_critical_minerals_in_the_global/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/28/glueAvyM.webp)

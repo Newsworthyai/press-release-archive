@@ -14,9 +14,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-technologies-selected-as-preferred-supplier-for-powerbuoy-with-merrows-in-middle-east-486482435 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-selected-as-preferred-supplier-for-powerbuoy-with-merrows-in-middle-east-486482435)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1dp0d4a/ocean_power_technologies_chosen_as_preferred/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1dp0d4a/ocean_power_technologies_chosen_as_preferred/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/26/zealHMHs.webp)

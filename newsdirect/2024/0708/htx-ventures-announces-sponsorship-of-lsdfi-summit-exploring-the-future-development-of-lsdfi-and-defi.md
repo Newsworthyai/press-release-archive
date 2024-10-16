@@ -40,9 +40,17 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-announces-sponsorship-of-lsdfi-summit-exploring-the-future-development-of-lsdfi-and-defi-241020067 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-ventures-announces-sponsorship-of-lsdfi-summit-exploring-the-future-development-of-lsdfi-and-defi-241020067)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dydr4c/htx_ventures_sponsors_lsdfi_summit_to_explore/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dydr4c/htx_ventures_sponsors_lsdfi_summit_to_explore/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/8/tintG7Pq.webp)

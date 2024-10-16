@@ -58,9 +58,17 @@ Visit Our Blog
 * 
 * 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1572)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1fy3dd7/joanne_gore_communications_makes_waves_at/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1fy3dd7/joanne_gore_communications_makes_waves_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/2410/7/fondW0tp.webp)

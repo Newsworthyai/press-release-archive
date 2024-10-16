@@ -20,9 +20,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/standard-uranium-announces-wraps-up-inaugural-drill-program-at-atlantic-project-829371569 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/standard-uranium-announces-wraps-up-inaugural-drill-program-at-atlantic-project-829371569)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c2bp6s/standard_uranium_unveils_promising_results_from/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c2bp6s/standard_uranium_unveils_promising_results_from/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/12/daveivfb.webp)

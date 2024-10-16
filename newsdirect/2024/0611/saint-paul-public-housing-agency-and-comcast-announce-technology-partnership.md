@@ -32,9 +32,17 @@ Company Websitehttps://midwest.comcast.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/saint-paul-public-housing-agency-and-comcast-announce-technology-partnership-518924806 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/saint-paul-public-housing-agency-and-comcast-announce-technology-partnership-518924806)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ddkufp/comcast_and_saint_paul_public_housing_agency/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ddkufp/comcast_and_saint_paul_public_housing_agency/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/11/hushlPei.webp)

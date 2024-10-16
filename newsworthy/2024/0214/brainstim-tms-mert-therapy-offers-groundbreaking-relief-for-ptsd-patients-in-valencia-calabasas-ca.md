@@ -12,9 +12,17 @@ Living with PTSD can be a daunting and debilitating experience. Traumatic events
 
 Offering a ray of hope to those affected by PTSD, MeRT therapy's primary goal is to alleviate the aftereffects of traumatic experiences and restore harmony and functioning to the lives of patients. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20240214962/brainstim-centers-introduces-mert-therapy-for-ptsd-a-breakthrough-non-invasive-treatment-option)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcasv/groundbreaking_mert_therapy_revolutionizes_ptsd/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcasv/groundbreaking_mert_therapy_revolutionizes_ptsd/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/16/clubtCeu.webp)

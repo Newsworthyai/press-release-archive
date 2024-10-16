@@ -24,9 +24,17 @@ DUBAI, UAE - (NewMediaWire) - October 3, 2024 - Blackwell 3D Construction Corp.
 
  +1 (702) 718-0807 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/blackwell-3d-completes-audit-plans-to-file-form-10-registration-statement-with-the-sec-7076152)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1fx6l6e/blackwell_3d_completes_audited_financial/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1fx6l6e/blackwell_3d_completes_audited_financial/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/6/filo4Aow.webp)

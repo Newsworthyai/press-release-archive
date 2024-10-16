@@ -48,9 +48,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-gamification-can-mislead-traders-into-potentially-reckless-trading-438135119 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/how-gamification-can-mislead-traders-into-potentially-reckless-trading-438135119)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1eg4qej/the_impact_of_gamification_on_investor_behavior/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1eg4qej/the_impact_of_gamification_on_investor_behavior/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/30/fileEsGP.webp)

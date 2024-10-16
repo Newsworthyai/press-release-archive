@@ -30,9 +30,17 @@ AINNLayer2 will continue to roll out the "Inscription Easter" event. This event 
 
 About AINNLayer2AINNLayer2 aims to continuously build the infrastructure for decentralized AI and support the development of decentralized AI applications. In the future, thousands of AI applications will be deployed on AINNLayer2, and billions of users will utilize AI products on AINNLayer2, jointly creating the ecosystem blueprint for web3+AI. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/emerging-btc-layer2-innovation-ainn-layer2-secures-funding-from-satoshi-lab-waterdrip-capital-and-industry-pioneers)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bko8i0/ainnlayer2_secures_strategic_investments_for/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bko8i0/ainnlayer2_secures_strategic_investments_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/22/numbHyDJ.webp)

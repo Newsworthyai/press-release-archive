@@ -30,9 +30,17 @@ Contact: info@hr.com
 
 HR.com Newsroom 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202410081307/organizations-struggle-to-enhance-their-talent-acquisition-function-despite-strategic-importance-new-study-by-hr-research-institute)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HRnews/comments/1fyyaj9/hrcom_study_reveals_struggle_to_enhance_talent/
+
+
+[Reddit Post](https://www.reddit.com/r/HRnews/comments/1fyyaj9/hrcom_study_reveals_struggle_to_enhance_talent/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2410/8/maskB5EB.webp)

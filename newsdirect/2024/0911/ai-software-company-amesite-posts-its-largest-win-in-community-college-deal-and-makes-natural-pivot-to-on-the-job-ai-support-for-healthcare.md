@@ -52,9 +52,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ai-software-company-amesite-posts-its-largest-win-in-community-college-deal-and-makes-natural-pivot-to-on-the-job-ai-support-for-healthcare-449699626 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ai-software-company-amesite-posts-its-largest-win-in-community-college-deal-and-makes-natural-pivot-to-on-the-job-ai-support-for-healthcare-449699626)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fe981s/amesite_lands_major_college_deal_and_expands_into/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fe981s/amesite_lands_major_college_deal_and_expands_into/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/11/ponde0zC.webp)

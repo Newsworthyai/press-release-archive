@@ -36,9 +36,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/90-of-americans-believe-we-are-experiencing-a-mental-health-care-crisis-elevate-health-and-wellness-is-providing-relief-471474646 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/90-of-americans-believe-we-are-experiencing-a-mental-health-care-crisis-elevate-health-and-wellness-is-providing-relief-471474646)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cbx577/elevate_health_and_wellness_revolutionizes_mental/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cbx577/elevate_health_and_wellness_revolutionizes_mental/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/24/fileTeKe.webp)

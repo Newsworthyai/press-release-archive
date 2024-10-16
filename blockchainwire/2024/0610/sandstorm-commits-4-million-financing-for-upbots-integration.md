@@ -20,9 +20,17 @@ Upbots is an all-in-one trading ecosystem for cryptocurrency users. It offers a 
 
 For more information, visit sandstorminnov.com and upbots.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/sandstorm-commits-4-million-financing-for-upbots-integration)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dctzxu/sandstorm_commits_4_million_in_financing_to/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dctzxu/sandstorm_commits_4_million_in_financing_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/10/roamwBJ0.webp)

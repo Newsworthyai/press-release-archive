@@ -14,9 +14,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-expands-into-specialty-retail-e-commerce-with-wyvern-creations-partnership-761282147 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-expands-into-specialty-retail-e-commerce-with-wyvern-creations-partnership-761282147)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1dv8ule/nextech3dai_expands_into_specialty_retail/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1dv8ule/nextech3dai_expands_into_specialty_retail/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/4/odoruW6q.webp)

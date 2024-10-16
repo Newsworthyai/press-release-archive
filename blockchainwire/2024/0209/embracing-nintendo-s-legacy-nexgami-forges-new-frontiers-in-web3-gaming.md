@@ -30,9 +30,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/embracing-nintendos-legacy-nexgami-forges-new-frontiers-in-web3-gaming)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1avjzyg/nexgami_revolutionizes_web3_gaming_with/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1avjzyg/nexgami_revolutionizes_web3_gaming_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/vastDBrC.webp)

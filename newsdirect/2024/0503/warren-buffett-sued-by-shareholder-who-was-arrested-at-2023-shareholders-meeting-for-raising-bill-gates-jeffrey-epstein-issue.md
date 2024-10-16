@@ -24,9 +24,17 @@ Company Websitehttp://www.nlpc.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/warren-buffett-sued-by-shareholder-who-was-arrested-at-2023-shareholders-meeting-for-raising-bill-gates-jeffrey-epstein-issue-201633824 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/warren-buffett-sued-by-shareholder-who-was-arrested-at-2023-shareholders-meeting-for-raising-bill-gates-jeffrey-epstein-issue-201633824)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cjj8r9/nlpc_files_lawsuit_against_berkshire_hathaway_and/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cjj8r9/nlpc_files_lawsuit_against_berkshire_hathaway_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/3/tilel33h.webp)

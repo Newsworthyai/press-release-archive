@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/zynex-inc-ceo-thomas-sandgaard-discusses-significant-company-growth-and-future-innovations-145224161 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/zynex-inc-ceo-thomas-sandgaard-discusses-significant-company-growth-and-future-innovations-145224161)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1egnx29/zynex_inc_ceo_sandgaard_announces_record_growth/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1egnx29/zynex_inc_ceo_sandgaard_announces_record_growth/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/31/pearvBxx.webp)

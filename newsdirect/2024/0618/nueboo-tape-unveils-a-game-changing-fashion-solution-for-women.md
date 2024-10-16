@@ -30,9 +30,17 @@ Company Websitehttps://nuebootape.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/nueboo-tape-unveils-a-game-changing-fashion-solution-for-women-474800726 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nueboo-tape-unveils-a-game-changing-fashion-solution-for-women-474800726)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dimvap/nueboo_tape_launches_gamechanging_fashion/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dimvap/nueboo_tape_launches_gamechanging_fashion/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/18/kiteOSFc.webp)

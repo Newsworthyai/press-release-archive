@@ -18,9 +18,17 @@ PaxMedica (NASDAQ: PXMD), a renowned biopharmaceutical company specializing in t
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/paxmedica-nasdaq-pxmd-dedicated-to-ensuring-access-to-life-saving-treatments/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2pvx2/paxmedica_commits_to_providing_lifesaving/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2pvx2/paxmedica_commits_to_providing_lifesaving/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/cakeTh7h.webp)

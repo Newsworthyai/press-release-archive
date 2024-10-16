@@ -16,9 +16,17 @@ For more information, refer to the official channels of Galaxis and Bybit. Stay 
 
 About Galaxis  [Galaxis](https://galaxis.xyz) is a groundbreaking platform designed to empower creators and brands in the ever-evolving Web3 ecosystem. Leveraging the latest in blockchain technology, Galaxis provides a suite of tools and services to create, manage, and sell dynamic NFTs (Non-Fungible Tokens) with utility. These advanced NFTs go beyond traditional digital collectibles by offering real-world benefits and interactive features, allowing creators to engage with their communities in meaningful ways. From customizable smart contracts to integrated marketplaces, Galaxis is at the forefront of the NFT revolution, offering a decentralized and secure environment for creators to unleash their potential and for collectors to discover unique digital assets. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/galaxis-unleashed-the-highly-anticipated-token-launch-on-bybit)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cnx0wi/galaxis_announces_initial_token_launch_through/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cnx0wi/galaxis_announces_initial_token_launch_through/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/9/camc0Yf4.webp)

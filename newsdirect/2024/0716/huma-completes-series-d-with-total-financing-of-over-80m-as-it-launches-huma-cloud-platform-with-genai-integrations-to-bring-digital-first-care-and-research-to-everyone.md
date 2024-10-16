@@ -58,9 +58,17 @@ Company Websitehttps://www.huma.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/huma-completes-series-d-with-total-financing-of-over-80m-as-it-launches-huma-cloud-platform-with-genai-integrations-to-bring-digital-first-care-and-research-to-everyone-106718712 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/huma-completes-series-d-with-total-financing-of-over-80m-as-it-launches-huma-cloud-platform-with-genai-integrations-to-bring-digital-first-care-and-research-to-everyone-106718712)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e4n49j/huma_completes_series_d_funding_launches_huma/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e4n49j/huma_completes_series_d_funding_launches_huma/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/16/echo35S_.webp)

@@ -38,9 +38,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-debuts-earn-with-pending-orders-event-join-now-for-a-share-of-25-7b-htx-705026693 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-debuts-earn-with-pending-orders-event-join-now-for-a-share-of-25-7b-htx-705026693)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dpkgz6/htx_introduces_earn_with_pending_orders_event/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dpkgz6/htx_introduces_earn_with_pending_orders_event/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/27/maskHQOy.webp)

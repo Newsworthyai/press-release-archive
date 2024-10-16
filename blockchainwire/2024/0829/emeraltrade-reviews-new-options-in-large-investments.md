@@ -28,9 +28,17 @@ Email: support@emeraltrade.com
 
 Address: Tuchlauben 7A, 1010, Vienna, Austria 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/emeraltrade-reviews-new-options-in-large-investments)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1f4ooks/emeraltrade_rapidly_expands_reach_and_offerings/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f4ooks/emeraltrade_rapidly_expands_reach_and_offerings/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/30/poemYAX6.webp)

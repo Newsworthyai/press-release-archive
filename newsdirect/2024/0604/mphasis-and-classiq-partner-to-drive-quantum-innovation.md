@@ -54,9 +54,17 @@ Company Websitehttp://www.classiq.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/mphasis-and-classiq-partner-to-drive-quantum-innovation-559552434 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/mphasis-and-classiq-partner-to-drive-quantum-innovation-559552434)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvmri2/mphasis_and_classiq_partner_to_drive_quantum/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvmri2/mphasis_and_classiq_partner_to_drive_quantum/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/4/dualnygW.webp)

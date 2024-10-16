@@ -22,9 +22,17 @@ About Tokenize!
 
 Tokenize! is a global boutique conference series connecting professional investors, traders, family offices and digital currency funds with top entrepreneurs in the blockchain, cryptocurrency, Web3, real world assets and AI sectors. Since 2014 our team has been connecting blockchain and cryptocurrency investors with startup and ICO opportunities across the Caribbean, Europe and North America. Tokenize! is an insider experience that allows all attendees to meet, mingle and get to know the pioneers in blockchain, leading thought leaders, entrepreneurs and investors in the sector. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitangels-network-presents-24-blockchain-startups-in-competition-during-consensus-week)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvo93w/24_blockchain_startups_to_compete_for_bitangels/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvo93w/24_blockchain_startups_to_compete_for_bitangels/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/zestT43h.webp)

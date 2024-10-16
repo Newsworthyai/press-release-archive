@@ -22,9 +22,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/honk-the-new-memecoin-phenomenon-set-to-become-the-shiba-of-solana)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avjtn5/honk_the_rise_of_a_memecoin_rivalry_on_solana/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avjtn5/honk_the_rise_of_a_memecoin_rivalry_on_solana/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/warpxIk_.webp)

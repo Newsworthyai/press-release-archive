@@ -12,9 +12,17 @@ Brittany Kaiser, Co-Founder and CEO of Chateaushi, envisions the platform as a b
 
 For more information about the transformative vision of Chateaushi and the opportunity to be a part of the future of historic preservation, please visit www.chateaushi.com. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/chateaushi-revolutionizes-heritage-conservation)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1avdrtv/chateaushi_reshaping_historic_preservation_with/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1avdrtv/chateaushi_reshaping_historic_preservation_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/plum8Z3V.webp)

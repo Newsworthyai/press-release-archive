@@ -18,9 +18,17 @@ BiomedicalEngineering.io stands as a beacon for all things biomedical. Whether y
 
 Embark on a journey of discovery and innovation at www.BiomedicalEngineering.io. Where science meets solutions, and aspirations turn to achievements. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231220782/biomedicalengineering-io-debuts-the-nexus-of-biomedical-innovation-and-expert-knowledge)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avx4pb/new_platform_biomedicalengineeringio/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avx4pb/new_platform_biomedicalengineeringio/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/epicf7_e.webp)

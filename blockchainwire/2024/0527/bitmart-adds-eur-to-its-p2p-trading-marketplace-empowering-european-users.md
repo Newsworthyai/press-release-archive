@@ -14,9 +14,17 @@ About BitMart
 
 BitMart is the premier global digital asset trading platform. With millions of users worldwide and ranked among the top crypto exchanges on CoinGecko, it currently offers 1,500+ trading pairs with competitive trading fees. Constantly evolving and growing, BitMart is interested in crypto’s potential to drive innovation and promote financial inclusion. To learn more about BitMart, visit their Website, follow their X (Twitter), or join their Telegram for updates, news, and promotions. Download BitMart App to trade anytime, anywhere. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-adds-eur-to-its-p2p-trading-marketplace-empowering-european-users-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ez6gy8/bitmart_adds_euro_to_p2p_trading_marketplace/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ez6gy8/bitmart_adds_euro_to_p2p_trading_marketplace/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/club4Bgi.webp)

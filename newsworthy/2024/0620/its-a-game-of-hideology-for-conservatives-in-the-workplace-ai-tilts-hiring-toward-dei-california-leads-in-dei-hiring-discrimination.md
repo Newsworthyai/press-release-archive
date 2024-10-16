@@ -50,9 +50,17 @@ PublicSquare Is America’s largest nonwoke marketplace app with over 70,000 bus
 
 Founded In 2021, RedBalloon has quickly become America’s largest woke-free job board, connecting employers and employees who prioritize a positive workplace culture free from the divisiveness of cancel-culture mandates 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202406201200/its-a-game-of-hideology-for-conservatives-in-the-workplace-ai-tilts-hiring-toward-dei-california-leads-in-dei-hiring-discrimination)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dki8v4/new_survey_reveals_workplace_discrimination_and/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dki8v4/new_survey_reveals_workplace_discrimination_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/246/20/oxenb_s2.webp)

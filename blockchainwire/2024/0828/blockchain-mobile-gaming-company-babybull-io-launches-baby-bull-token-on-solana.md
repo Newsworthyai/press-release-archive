@@ -48,9 +48,17 @@ Discord: https://discord.gg/RFPmEvJVmD
 
 X/Twitter: https://twitter.com/babybullfanpageYoutube: Baby Bull - YouTube 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockchain-mobile-gaming-company-babybullio-launches-baby-bull-token-on-solana)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f3hz12/babybullio_launches_bull_token_and_innovative/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f3hz12/babybullio_launches_bull_token_and_innovative/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/28/pintk8Or.webp)

@@ -28,9 +28,17 @@ Blabberix invites users and investors to follow its journey by participating in 
 
 About BlabberixBlabberix is the first Web3 social network to seamlessly integrate blockchain, AI, and tokenomics. It empowers users to create, engage, and profit from their online activities through a decentralized, user-controlled model that shifts away from corporate-driven platforms. With its innovative use of virtual avatars, AI content generation, and transparent monetization systems, Blabberix is a trailblazer in the future of social networks. The platform is committed to redefining social media by giving users control, rewarding engagement, and leveraging cutting-edge technology to foster a transparent, user-centric ecosystem. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/blabberix-successfully-kicks-off-presale-ushering-in-a-new-era-for-web3-social-media-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1g07ddf/blabberix_launches_token_presale_pioneering_web3/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1g07ddf/blabberix_launches_token_presale_pioneering_web3/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/10/taroNvd9.webp)

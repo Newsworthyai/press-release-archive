@@ -38,9 +38,17 @@ Contact Information:
 
 Adam Reiser, CEO / FounderVerity One Ltd.2 56 Street,Dubai InvestmentsPark, Dubai, UAE 18383 62829Linkedin:  https://www.linkedin.com/company/verity/Facebook: https://www.facebook.com/veritytruthmattersTwitter:https://twitter.com/verity_mattersTelegram: https://t.me/verityoneltd 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/verity-one-leads-with-first-blockchain-nutrient-credits-for-chesapeake-oysters)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bnm0mq/verity_one_launches_first_blockchainbased/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bnm0mq/verity_one_launches_first_blockchainbased/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/25/numbTIRE.webp)

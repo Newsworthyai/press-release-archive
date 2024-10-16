@@ -28,9 +28,17 @@ Telegram: https://t.me/ramsenaI
 
 Instagram: https://www.instagram.com/ramsena.io/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/launching-into-the-future-ramsenas-ido-on-xtcom)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avdt5s/ramsena_coin_to_launch_on_xtcom_exchange_for/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avdt5s/ramsena_coin_to_launch_on_xtcom_exchange_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/glowW0Iu.webp)

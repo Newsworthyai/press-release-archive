@@ -54,9 +54,17 @@ Company Websitehttps://www.standardfleet.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/standard-fleet-and-up-fit-partner-to-modernize-government-electric-vehicle-fleet-management-814138548 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/standard-fleet-and-up-fit-partner-to-modernize-government-electric-vehicle-fleet-management-814138548)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e4rtx0/standard_fleet_and_upfit_partner_to_enhance/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e4rtx0/standard_fleet_and_upfit_partner_to_enhance/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/16/seek8m_m.webp)

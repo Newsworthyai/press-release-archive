@@ -28,9 +28,17 @@ oliver@cspeed.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/danmarks-blomstrende-spille-og-casino-scene-nye-innovationer-og-ansvarligt-spil-333161836 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/danmarks-blomstrende-spille-og-casino-scene-nye-innovationer-og-ansvarligt-spil-333161836)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1fx6iaq/danish_gaming_and_casino_scene_new_innovations/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1fx6iaq/danish_gaming_and_casino_scene_new_innovations/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/6/beans2wT.webp)

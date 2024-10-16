@@ -40,9 +40,17 @@ Company Websitehttps://autonomix.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/autonomixs-trial-results-show-meaningful-reduction-in-pain-for-patients-suffering-from-pancreatic-cancer-233035284 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/autonomixs-trial-results-show-meaningful-reduction-in-pain-for-patients-suffering-from-pancreatic-cancer-233035284)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eaanbr/autonomix_medicals_trial_shows_promising_results/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eaanbr/autonomix_medicals_trial_shows_promising_results/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/12/iris2CKR.webp)

@@ -12,9 +12,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cyprium-metals-confirms-economic-viability-of-nifty-surface-mine-892516368 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cyprium-metals-confirms-economic-viability-of-nifty-surface-mine-892516368)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cz0fnz/cyprium_metals_confirms_economic_viability_of/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cz0fnz/cyprium_metals_confirms_economic_viability_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/23/hushhHtL.webp)

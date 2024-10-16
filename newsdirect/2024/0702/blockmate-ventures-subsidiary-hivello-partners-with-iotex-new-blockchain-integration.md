@@ -20,9 +20,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/blockmate-ventures-subsidiary-hivello-partners-with-iotex-new-blockchain-integration-772354424 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/blockmate-ventures-subsidiary-hivello-partners-with-iotex-new-blockchain-integration-772354424)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dtpih2/blockmate_ventures_and_hivello_partner_with_iotex/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dtpih2/blockmate_ventures_and_hivello_partner_with_iotex/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/2/bendsWXZ.webp)

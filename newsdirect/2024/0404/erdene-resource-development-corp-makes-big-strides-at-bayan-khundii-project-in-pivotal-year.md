@@ -20,9 +20,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/erdene-resource-development-corp-makes-big-strides-at-bayan-khundii-project-in-pivotal-year-406582529 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/erdene-resource-development-corp-makes-big-strides-at-bayan-khundii-project-in-pivotal-year-406582529)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bvslq8/erdene_resource_development_corp_makes_big/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bvslq8/erdene_resource_development_corp_makes_big/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/4/mintQlbx.webp)

@@ -72,9 +72,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-future-of-medicine-key-biotech-stocks-to-watch-245954060 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-future-of-medicine-key-biotech-stocks-to-watch-245954060)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1exl0io/the_future_of_medicine_key_biotech_stocks_to_watch/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1exl0io/the_future_of_medicine_key_biotech_stocks_to_watch/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/21/jokeB7l4.webp)

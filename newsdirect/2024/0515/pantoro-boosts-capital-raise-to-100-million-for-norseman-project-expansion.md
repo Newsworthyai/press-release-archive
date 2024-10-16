@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pantoro-boosts-capital-raise-to-100-million-for-norseman-project-expansion-626533763 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pantoro-boosts-capital-raise-to-100-million-for-norseman-project-expansion-626533763)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1csnje3/pantoro_increases_capital_raise_to_100_million/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1csnje3/pantoro_increases_capital_raise_to_100_million/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/vibeVQPv.webp)

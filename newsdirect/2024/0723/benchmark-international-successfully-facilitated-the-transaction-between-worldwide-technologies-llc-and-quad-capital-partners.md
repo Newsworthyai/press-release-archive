@@ -32,9 +32,17 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-worldwide-technologies-llc-and-quad-capital-partners-704182707 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-worldwide-technologies-llc-and-quad-capital-partners-704182707)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1eac01p/quad_capital_partners_acquires_worldwide/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1eac01p/quad_capital_partners_acquires_worldwide/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/23/pitapicoP17d.webp)

@@ -40,9 +40,17 @@ Company Websitehttps://www.tkckitchens.co.uk/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tkc-kitchens-announces-launch-of-ai-enhanced-custom-kitchen-design-services-765663893 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tkc-kitchens-announces-launch-of-ai-enhanced-custom-kitchen-design-services-765663893)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1decu5b/tkc_kitchens_revolutionizes_kitchen_design_with/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1decu5b/tkc_kitchens_revolutionizes_kitchen_design_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/12/cornzmCa.webp)

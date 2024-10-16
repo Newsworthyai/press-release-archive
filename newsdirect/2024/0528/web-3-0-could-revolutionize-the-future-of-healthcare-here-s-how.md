@@ -50,9 +50,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/web-3-0-could-revolutionize-the-future-of-healthcare-heres-how-612086022 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/web-3-0-could-revolutionize-the-future-of-healthcare-heres-how-612086022)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d2j4dm/web_30_revolutionizing_healthcare_elevate_health/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d2j4dm/web_30_revolutionizing_healthcare_elevate_health/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/28/rushbWzE.webp)

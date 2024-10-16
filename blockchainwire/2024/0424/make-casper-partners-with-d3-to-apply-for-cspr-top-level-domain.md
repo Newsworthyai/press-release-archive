@@ -32,9 +32,17 @@ D3 Global is a digital infrastructure provider that delivers secure, decentraliz
 
 Learn more about D3 at [https://www.d3.app/](https://d3.app/?utm_source=shibvic&utm_medium=pr&utm_campaign=pr2&utm_content=pr&sub=) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/make-casper-partners-with-d3-to-apply-for-cspr-top-level-domain)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cbz2if/blockchain_firm_make_partners_with_d3_global_to/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cbz2if/blockchain_firm_make_partners_with_d3_global_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/24/lineEosR.webp)

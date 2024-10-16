@@ -26,9 +26,17 @@ Cepton (NASDAQ: CPTN), a Silicon Valley innovator and leader in high-performanc
 
  TechMediaWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/cepton-nasdaq-cptn-releases-results-of-q2-2024-financial-business-operations/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1f2gk8b/cepton_reports_q2_results_and_koito_acquisition/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f2gk8b/cepton_reports_q2_results_and_koito_acquisition/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/pond6dms.webp)

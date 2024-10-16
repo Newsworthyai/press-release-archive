@@ -53,9 +53,17 @@ Callum.b@frontfanz.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-fanx-frontfanz-listing-on-xtcom)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avc881/xtcom_lists_fanx_token_on_its_platform_ushering/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avc881/xtcom_lists_fanx_token_on_its_platform_ushering/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/19/neonx1Lz.webp)

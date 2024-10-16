@@ -18,9 +18,17 @@ This decision and strategy undoubtedly illuminate a new direction for the entire
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/heart-of-finance-soul-of-society-baoruis-grand-blueprint-for-green-finance)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1b6rr3t/baorui_renews_commitment_to_social_responsibility/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1b6rr3t/baorui_renews_commitment_to_social_responsibility/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/26/bend7IiO.webp)

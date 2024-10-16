@@ -25,9 +25,17 @@ CannaBlendz offers four formulations—MasterMind, Recovery, Performance, and Go
 
 About CannaBlendzCannaBlendz is the first supplement that enhances cannabis to boost mental and physical abilities in the body, while also promoting a healthier high. Its scientifically formulated blends of botanicals, adaptogens, and nootropics are designed to support focus, and physical recovery and boost energy and social confidence. CannaBlendz products can be used alone or in complement with consumers' cannabis consumption. For more information on CannaBlendz, visit cannablendz.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202408061225/introducing-cannablendz-the-worlds-first-cannabis-enhancer-that-boosts-physical-and-mental-powers-by-amplifying-brain-neurotransmitters)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1elhf0a/cannablendz_launches_botanical_supplements_in_new/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1elhf0a/cannablendz_launches_botanical_supplements_in_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/248/6/knotKkRg.webp)

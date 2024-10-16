@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ai-specialist-rezolve-ai-forges-strategic-alliance-and-co-sell-support-with-microsoft-to-transform-the-retail-industry-379759345 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ai-specialist-rezolve-ai-forges-strategic-alliance-and-co-sell-support-with-microsoft-to-transform-the-retail-industry-379759345)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1g193cy/rezolve_ai_limited_partners_with_microsoft_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1g193cy/rezolve_ai_limited_partners_with_microsoft_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/11/neonJkH7.webp)

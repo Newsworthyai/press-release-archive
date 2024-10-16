@@ -20,9 +20,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gold-terra-resources-drilling-intersects-con-shear-and-gold-in-hanging-wall-at-con-mine-property-468355554 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/gold-terra-resources-drilling-intersects-con-shear-and-gold-in-hanging-wall-at-con-mine-property-468355554)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c73yf2/gold_terra_resources_unveils_significant_gold/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c73yf2/gold_terra_resources_unveils_significant_gold/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/18/chipgmuC.webp)

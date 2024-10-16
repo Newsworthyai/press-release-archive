@@ -38,9 +38,17 @@ Company Websitehttps://www.getmaxim.ai/
 
 View source version on newsdirect.com: https://newsdirect.com/news/ai-evaluation-start-up-maxim-ai-raises-3m-from-elevation-capital-to-help-enterprises-test-and-rapidly-ship-ai-products-617447474 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ai-evaluation-start-up-maxim-ai-raises-3m-from-elevation-capital-to-help-enterprises-test-and-rapidly-ship-ai-products-617447474)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eboris/maxim_ai_secures_3m_funding_and_launches_ga/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eboris/maxim_ai_secures_3m_funding_and_launches_ga/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/18/rubyJ4KW.webp)

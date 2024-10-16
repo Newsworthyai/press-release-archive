@@ -36,9 +36,17 @@ Recently, Dr. Bowen He has been appointed as the most significant contributor in
 
  This article has been amplified by NewsRamp in collaboration with Evertise Studios. 
 
+---
+
 [Original/Source Press Release](https://evertise.net/dr-bowen-he-leading-the-digital-transformation-of-climate-mitigation-solutions-in-u-s-metro-cities/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1fpy9ln/dr_bowen_he_leads_digital_solutions_for_urban/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1fpy9ln/dr_bowen_he_leads_digital_solutions_for_urban/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/249/26/odorQBLi.webp)

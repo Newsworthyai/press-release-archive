@@ -16,9 +16,17 @@ About SOAR AISOAR AI is an industry leader in developing AI-powered solutions de
 
 For more information, visit soar.com 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202410091308/chris-higbee-named-ceo-of-workplace-ai-leading-innovation-in-ai-powered-workplace-solutions)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fzowtn/workplace_ai_appoints_chris_higbee_as_new_ceo_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fzowtn/workplace_ai_appoints_chris_higbee_as_new_ceo_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2410/9/ovalDluW.webp)

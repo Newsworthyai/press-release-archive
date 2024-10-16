@@ -22,9 +22,17 @@ Head of Marketing at Biptap
 
 penny@biptap.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/biptap-is-set-to-disrupt-the-financial-industry-after-2-million-funding)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1f74hfe/biptap_secures_2m_funding_to_revolutionize/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f74hfe/biptap_secures_2m_funding_to_revolutionize/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/2/swimiu7t.webp)

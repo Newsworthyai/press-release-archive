@@ -54,9 +54,17 @@ Company Websitehttps://adin.ai/
 
 View source version on newsdirect.com: https://newsdirect.com/news/adin-avertising-technology-announces-ai-based-approach-to-digital-media-planning-adin-ai-624516634 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/adin-avertising-technology-announces-ai-based-approach-to-digital-media-planning-adin-ai-624516634)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1boahcm/adinai_revolutionizes_media_planning_with_aibased/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1boahcm/adinai_revolutionizes_media_planning_with_aibased/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/bendrrB6.webp)

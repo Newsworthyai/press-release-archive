@@ -46,9 +46,17 @@ Company Websitehttps://surety.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/sfaa-members-elect-new-board-honor-outgoing-chair-at-annual-meeting-414483426 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sfaa-members-elect-new-board-honor-outgoing-chair-at-annual-meeting-414483426)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cnybxd/sfaa_holds_annual_meeting_elects_new_board_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cnybxd/sfaa_holds_annual_meeting_elects_new_board_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/9/joinCd4P.webp)

@@ -44,9 +44,17 @@ Company Websitehttps://humanityinvestments.co
 
 View source version on newsdirect.com: https://newsdirect.com/news/humanity-protocol-spearheading-blockchain-innovation-with-palm-scan-verification-in-emerging-markets-426922278 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/humanity-protocol-spearheading-blockchain-innovation-with-palm-scan-verification-in-emerging-markets-426922278)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bzysod/humanity_protocol_pioneers_blockchain_innovation/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bzysod/humanity_protocol_pioneers_blockchain_innovation/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/9/dunezzCZ.webp)

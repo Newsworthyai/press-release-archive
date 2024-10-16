@@ -24,9 +24,17 @@ For more information on how to start earning real Bitcoin with GDMining, visit h
 
 About GDMiningGDMining is a leading cloud mining platform specializing in providing secure, efficient, and easy-to-use solutions for cryptocurrency mining. With cutting-edge technology and a commitment to transparency, GDMining helps users worldwide mine Bitcoin and other cryptocurrencies without the complexity of traditional mining setups. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-launches-latest-cloud-mining-solution-easily-earn-real-bitcoin)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fj80xg/gdmining_unveils_advanced_cloud_mining_solution/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fj80xg/gdmining_unveils_advanced_cloud_mining_solution/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/17/chip61De.webp)

@@ -58,9 +58,17 @@ Company Websitehttps://www.teads.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/teads-global-report-reveals-new-auto-buying-landscape-459510117 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/teads-global-report-reveals-new-auto-buying-landscape-459510117)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cr1sk0/teads_global_report_unveils_new_auto_buying/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cr1sk0/teads_global_report_unveils_new_auto_buying/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/noraMYkS.webp)

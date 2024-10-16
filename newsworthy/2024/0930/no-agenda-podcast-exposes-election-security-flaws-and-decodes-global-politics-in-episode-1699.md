@@ -41,9 +41,17 @@ For those interested in supporting the show or learning more about No Agenda, vi
 
 About No Agenda: The No Agenda Show is a bi-weekly podcast hosted by Adam Curry and John C. Dvorak, offering in-depth analysis of current events, politics, and media narratives. Known for its independent stance and listener-supported model, the show has built a dedicated global audience over its long-running history. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202409301290/no-agenda-podcast-exposes-election-security-flaws-and-decodes-global-politics-in-episode-1699)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fsucg5/no_agenda_shows_1699th_episode_climate_politics/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fsucg5/no_agenda_shows_1699th_episode_climate_politics/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/249/30/irisupaH.webp)

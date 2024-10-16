@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gold-basin-resources-ceo-shares-view-of-project-as-company-drills-its-stealth-deposit-630414044 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/gold-basin-resources-ceo-shares-view-of-project-as-company-drills-its-stealth-deposit-630414044)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1di3bkp/gold_basin_resources_ceo_shares_insights_on/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1di3bkp/gold_basin_resources_ceo_shares_insights_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/17/boldgv6V.webp)

@@ -40,9 +40,17 @@ Twitter: SHIBA BUDZ "$BUDZ" (@ShibaBudz) / X
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/shiba-inu-drops-15-as-shib-holders-join-new-cryptocurrency-meme)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1buvwix/shiba_inu_shib_faces_15_drop_as_shiba_budz_budz/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1buvwix/shiba_inu_shib_faces_15_drop_as_shiba_budz_budz/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/3/odorO9WP.webp)

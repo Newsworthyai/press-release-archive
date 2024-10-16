@@ -40,9 +40,17 @@ Telegram: https://t.me/zchains_io
 
 Instagram: https://www.instagram.com/zchains.io/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/meet-zchains-innovating-at-the-web3-frontier)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvj8l5/zchains_revolutionizing_blockchain_with_pos/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvj8l5/zchains_revolutionizing_blockchain_with_pos/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/13/flaxzMm1.webp)

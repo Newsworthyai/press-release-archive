@@ -66,9 +66,17 @@ Company Websitehttp://www.ourcrowd.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-can-small-investors-access-private-deals-with-big-potential-640148157 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/how-can-small-investors-access-private-deals-with-big-potential-640148157)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/StartupBusinessNews/comments/1cj873w/ourcrowd_enables_small_investors_to_access/
+
+
+[Reddit Post](https://www.reddit.com/r/StartupBusinessNews/comments/1cj873w/ourcrowd_enables_small_investors_to_access/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/3/bossr_Lt.webp)

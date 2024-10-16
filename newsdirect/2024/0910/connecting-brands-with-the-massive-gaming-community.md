@@ -28,9 +28,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/connecting-brands-with-the-massive-gaming-community-578998697 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/connecting-brands-with-the-massive-gaming-community-578998697)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1fdha4x/gamesquare_ceo_justin_kenna_talks_revolutionizing/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1fdha4x/gamesquare_ceo_justin_kenna_talks_revolutionizing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/10/taroe2Ui.webp)

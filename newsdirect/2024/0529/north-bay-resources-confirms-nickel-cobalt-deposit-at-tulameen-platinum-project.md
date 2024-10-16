@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/north-bay-resources-confirms-nickel-cobalt-deposit-at-tulameen-platinum-project-243027741 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/north-bay-resources-confirms-nickel-cobalt-deposit-at-tulameen-platinum-project-243027741)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1d3m44v/north_bay_resources_confirms_multimetal_deposit/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1d3m44v/north_bay_resources_confirms_multimetal_deposit/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/29/bests77m.webp)

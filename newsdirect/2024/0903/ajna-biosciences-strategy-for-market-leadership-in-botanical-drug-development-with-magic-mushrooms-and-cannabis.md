@@ -60,9 +60,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ajna-biosciences-strategy-for-market-leadership-in-botanical-drug-development-with-magic-mushrooms-and-cannabis-858873025 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ajna-biosciences-strategy-for-market-leadership-in-botanical-drug-development-with-magic-mushrooms-and-cannabis-858873025)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AlternativeHealthNews/comments/1f80jkc/ajna_biosciences_leading_botanical_drug/
+
+
+[Reddit Post](https://www.reddit.com/r/AlternativeHealthNews/comments/1f80jkc/ajna_biosciences_leading_botanical_drug/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/3/mendwY0x.webp)

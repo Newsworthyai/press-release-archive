@@ -16,9 +16,17 @@ About Arhasi
 
 Arhasi, a Google Cloud and Redis partner and an Alpha Transform Holdings portfolio company, has platforms and products to enable secure, governed, and industry-oriented AI Agents to improve organization productivity and automation. Its mission is to bring integrity to AI solutions to address the needs of enterprises. Discover more at www.arhasi.com. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/lifeworks-launches-a-human-resources-ai-agent-to-improve-productivity)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HRnews/comments/1e6izr4/lifeworks_unveils_groundbreaking_ai_employee/
+
+
+[Reddit Post](https://www.reddit.com/r/HRnews/comments/1e6izr4/lifeworks_unveils_groundbreaking_ai_employee/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/18/irisb7o9.webp)

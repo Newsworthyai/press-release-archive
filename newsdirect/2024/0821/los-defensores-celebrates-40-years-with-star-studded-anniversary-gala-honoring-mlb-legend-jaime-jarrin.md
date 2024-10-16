@@ -26,9 +26,17 @@ marco@magopr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/los-defensores-celebrates-40-years-with-star-studded-anniversary-gala-honoring-mlb-legend-jaime-jarrin-690535148 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/los-defensores-celebrates-40-years-with-star-studded-anniversary-gala-honoring-mlb-legend-jaime-jarrin-690535148)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1exsqj6/los_defensores_celebrates_40_years_with/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1exsqj6/los_defensores_celebrates_40_years_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/21/glowVuoA.webp)

@@ -36,9 +36,17 @@ About Horys Horys is a premier hardware and software solutions company that buil
 
 Disclaimer: This article combines insights from both human expertise and AI technology to provide informational content. It is for informational purposes only and should not be interpreted as financial advice or a recommendation to invest. Virtual asset investments are inherently volatile and risky. Horys provides no guarantee of accuracy or completeness for the information herein. Independent research and professional advice are recommended before engaging in any investment activity. Horys bears no liability for investment decisions based on this article. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/horys-technologies-unveils-groundbreaking-sustainability-initiatives-in-the-tech-industry)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1d7mmm6/horys_technologies_unveils_revolutionary/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1d7mmm6/horys_technologies_unveils_revolutionary/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/pondcKiU.webp)

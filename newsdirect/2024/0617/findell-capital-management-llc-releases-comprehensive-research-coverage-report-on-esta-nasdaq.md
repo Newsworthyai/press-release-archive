@@ -24,9 +24,17 @@ info@findell.us
 
 View source version on newsdirect.com: https://newsdirect.com/news/findell-capital-management-llc-releases-comprehensive-research-coverage-report-on-esta-nasdaq-290204588 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/findell-capital-management-llc-releases-comprehensive-research-coverage-report-on-esta-nasdaq-290204588)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dhw8jy/investment_management_firm_releases_report_on/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dhw8jy/investment_management_firm_releases_report_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/17/pondktP8.webp)

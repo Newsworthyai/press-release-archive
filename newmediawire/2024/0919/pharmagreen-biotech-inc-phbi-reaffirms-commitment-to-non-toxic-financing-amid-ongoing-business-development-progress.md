@@ -44,9 +44,17 @@ Online Store: www.maxgenomicproducts.com
 
 Corporate Website: www.pharmagreen.ca 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/pharmagreen-biotech-inc-phbi-reaffirms-commitment-to-non-toxic-financing-amid-ongoing-business-development-progress-7076068)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fkiz1d/pharmagreen_biotech_inc_announces_collaboration/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fkiz1d/pharmagreen_biotech_inc_announces_collaboration/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/19/hintH53_.webp)

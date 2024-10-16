@@ -38,9 +38,17 @@ Website link: https://sameergroup.org/
 
 Follow us on Twitter | LinkedIn | CrunchBase | Founder & CEO Profile 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/sameer-group-llc-ramps-up-crypto-investment-with-30m-commitment-to-solana-memecoin-michi)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fqvrd7/sameer_group_increases_investment_in_michi/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fqvrd7/sameer_group_increases_investment_in_michi/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/27/idea2Tku.webp)

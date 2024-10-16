@@ -30,9 +30,17 @@ Company Websitehttps://www.flashparking.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/flash-puts-parking-on-the-map-with-google-search-google-maps-and-now-waze-760207756 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/flash-puts-parking-on-the-map-with-google-search-google-maps-and-now-waze-760207756)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1exryqc/flash_and_waze_collaborate_to_offer_reservable/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1exryqc/flash_and_waze_collaborate_to_offer_reservable/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/21/pear9Acr.webp)

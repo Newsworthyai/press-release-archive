@@ -38,9 +38,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/quantum-biopharma-ltd-nasdaq-qntm-pioneering-alcohol-metabolism-support-with-unbuzzd-914254463 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/quantum-biopharma-ltd-nasdaq-qntm-pioneering-alcohol-metabolism-support-with-unbuzzd-914254463)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1g449ov/quantum_biopharma_ltd_nasdaq_qntm_cse_qntm/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1g449ov/quantum_biopharma_ltd_nasdaq_qntm_cse_qntm/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/15/elleqjJj.webp)

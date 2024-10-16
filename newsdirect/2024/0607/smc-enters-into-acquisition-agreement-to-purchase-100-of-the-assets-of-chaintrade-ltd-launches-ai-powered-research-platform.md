@@ -38,9 +38,17 @@ Erik Blum / CEO
 
 View source version on newsdirect.com: https://newsdirect.com/news/smc-enters-into-acquisition-agreement-to-purchase-100-of-the-assets-of-chaintrade-ltd-launches-ai-powered-research-platform-605137089 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/smc-enters-into-acquisition-agreement-to-purchase-100-of-the-assets-of-chaintrade-ltd-launches-ai-powered-research-platform-605137089)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dabfka/smc_announces_acquisition_of_chaintrade_ltd_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dabfka/smc_announces_acquisition_of_chaintrade_ltd_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/7/iconblQP.webp)

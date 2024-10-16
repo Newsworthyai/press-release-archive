@@ -34,9 +34,17 @@ Become a part of HR.com’s HR research influencer panel today. Participate in s
 
 Contact: info@hr.com HR.com Newsroom 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202409261285/hr-com-announces-formation-of-2025-advisory-board-for-future-of-hr-skills-and-strategies)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1fpungi/hrcom_launches_2025_future_of_hr_skills_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1fpungi/hrcom_launches_2025_future_of_hr_skills_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/249/26/lime_gb4.webp)

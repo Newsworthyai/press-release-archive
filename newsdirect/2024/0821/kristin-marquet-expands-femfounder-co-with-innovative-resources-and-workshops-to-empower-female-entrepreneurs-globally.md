@@ -44,9 +44,17 @@ Company Websitehttps://www.marquet.company/
 
 View source version on newsdirect.com: https://newsdirect.com/news/kristin-marquet-expands-femfounder-co-with-innovative-resources-and-workshops-to-empower-female-entrepreneurs-globally-264122768 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kristin-marquet-expands-femfounder-co-with-innovative-resources-and-workshops-to-empower-female-entrepreneurs-globally-264122768)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/MarketingNewsramp/comments/1f1r8e7/kristin_marquet_expands_femfounderco_to_empower/
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1f1r8e7/kristin_marquet_expands_femfounderco_to_empower/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/21/limeHsQw.webp)

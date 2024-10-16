@@ -14,9 +14,17 @@ Jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/anteris-technologies-achieves-breakthrough-in-triple-valve-replacement-using-duravr-141304101 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/anteris-technologies-achieves-breakthrough-in-triple-valve-replacement-using-duravr-141304101)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1ctkc7j/anteris_technologies_achieves_breakthrough_in/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1ctkc7j/anteris_technologies_achieves_breakthrough_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/16/open2pVm.webp)

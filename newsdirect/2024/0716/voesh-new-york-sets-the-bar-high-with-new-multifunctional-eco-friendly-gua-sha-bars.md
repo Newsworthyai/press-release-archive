@@ -28,9 +28,17 @@ Company Websitehttps://voesh.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/voesh-new-york-sets-the-bar-high-with-new-multifunctional-and-eco-friendly-gua-sha-bars-360491103 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/voesh-new-york-sets-the-bar-high-with-new-multifunctional-and-eco-friendly-gua-sha-bars-360491103)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1e4n1h8/voesh_new_york_launches_ecofriendly_gua_sha_bars/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1e4n1h8/voesh_new_york_launches_ecofriendly_gua_sha_bars/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/16/keepuSsR.webp)

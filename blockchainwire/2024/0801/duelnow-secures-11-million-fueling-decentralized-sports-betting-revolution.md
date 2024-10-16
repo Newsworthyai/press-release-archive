@@ -22,9 +22,17 @@ About GEM Digital Limited
 
 GEM Digital Limited is a digital asset investment firm based in The Bahamas. The firm actively sources, structures, and invests in utility tokens listed on over 30 CEXs and DEXs globally. Global Emerging Markets (GEM) is a $3.4 billion alternative investment group with offices in Paris, New York, and The Bahamas. GEM manages a diverse set of investment vehicles focused on emerging markets and has completed over 530 transactions in 72 countries. Each investment vehicle has a different degree of operational control, risk-adjusted return, and liquidity profile. GEM's family of funds and investment vehicles provides exposure to Small-Mid Cap Management Buyouts, Private Investments in Public Equities, and select venture investments. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/duelnow-secures-11-million-fueling-decentralized-sports-betting-revolution)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ehiu04/duelnow_secures_10m_investment_to_empower_sports/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ehiu04/duelnow_secures_10m_investment_to_empower_sports/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/1/faceEyrc.webp)

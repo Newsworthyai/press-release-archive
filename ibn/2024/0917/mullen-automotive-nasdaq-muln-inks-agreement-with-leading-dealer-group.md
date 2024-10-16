@@ -20,9 +20,17 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, i
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-inks-agreement-with-leading-dealer-group/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fj4o32/mullen_automotive_partners_with_papé_kenworth_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fj4o32/mullen_automotive_partners_with_papé_kenworth_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/249/17/dash9RLg.webp)

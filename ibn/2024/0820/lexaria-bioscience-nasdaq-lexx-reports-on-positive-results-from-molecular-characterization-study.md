@@ -28,9 +28,17 @@ Lexaria Bioscience (NASDAQ: LEXX, LEXXW), a global innovator in drug-delivery pl
 
  CannabisNewsWire is powered by IBN 
 
+---
+
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-bioscience-nasdaq-lexx-reports-on-positive-results-from-molecular-characterization-study/)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f2gs7z/lexaria_bioscience_releases_positive_findings/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f2gs7z/lexaria_bioscience_releases_positive_findings/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/wallxn_G.webp)

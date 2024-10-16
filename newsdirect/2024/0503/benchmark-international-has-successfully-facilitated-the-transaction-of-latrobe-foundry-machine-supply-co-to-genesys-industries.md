@@ -34,9 +34,17 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-has-successfully-facilitated-the-transaction-of-latrobe-foundry-machine-and-supply-co-to-genesys-industries-111918780 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-has-successfully-facilitated-the-transaction-of-latrobe-foundry-machine-and-supply-co-to-genesys-industries-111918780)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cjbzph/genesys_industries_acquires_latrobe_foundry/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cjbzph/genesys_industries_acquires_latrobe_foundry/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/3/coolG6Ax.webp)

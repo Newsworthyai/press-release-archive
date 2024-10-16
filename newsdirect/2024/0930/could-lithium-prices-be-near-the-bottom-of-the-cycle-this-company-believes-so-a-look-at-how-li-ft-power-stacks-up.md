@@ -76,9 +76,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/could-lithium-prices-be-near-the-bottom-of-the-cycle-this-company-believes-so-a-look-at-how-li-ft-power-stacks-up-785628588 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/could-lithium-prices-be-near-the-bottom-of-the-cycle-this-company-believes-so-a-look-at-how-li-ft-power-stacks-up-785628588)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fsujsm/lithium_market_dynamics_and_lift_powers/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fsujsm/lithium_market_dynamics_and_lift_powers/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/30/oxenvveP.webp)

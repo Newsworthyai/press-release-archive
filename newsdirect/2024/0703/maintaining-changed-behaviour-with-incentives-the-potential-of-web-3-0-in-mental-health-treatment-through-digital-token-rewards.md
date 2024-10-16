@@ -38,9 +38,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/maintaining-changed-behaviour-with-incentives-the-potential-of-web-3-0-in-mental-health-treatment-through-digital-token-rewards-828977872 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/maintaining-changed-behaviour-with-incentives-the-potential-of-web-3-0-in-mental-health-treatment-through-digital-token-rewards-828977872)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1dudz9y/elevate_health_and_wellness_explores_web_30_and/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1dudz9y/elevate_health_and_wellness_explores_web_30_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/3/bakePk1a.webp)

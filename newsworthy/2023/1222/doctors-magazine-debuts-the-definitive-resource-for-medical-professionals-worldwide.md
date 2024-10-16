@@ -18,9 +18,17 @@ A beacon for medical professionals globally, Doctors Magazine is more than just 
 
 Connect, learn, and lead with www.DoctorsMagazine.co 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231222809/doctors-magazine-debuts-the-definitive-resource-for-medical-professionals-worldwide)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcvty/introducing_doctors_magazine_a_comprehensive_hub/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcvty/introducing_doctors_magazine_a_comprehensive_hub/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/tiletWHi.webp)

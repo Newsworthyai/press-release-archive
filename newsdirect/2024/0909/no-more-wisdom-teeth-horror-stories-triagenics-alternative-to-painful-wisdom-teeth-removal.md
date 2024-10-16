@@ -56,9 +56,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/no-more-wisdom-teeth-horror-stories-triagenics-alternative-to-painful-wisdom-teeth-removal-906655691 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/no-more-wisdom-teeth-horror-stories-triagenics-alternative-to-painful-wisdom-teeth-removal-906655691)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fcon9a/triagenics_disrupts_wisdom_teeth_removal_with/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fcon9a/triagenics_disrupts_wisdom_teeth_removal_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/9/nukeS2oK.webp)

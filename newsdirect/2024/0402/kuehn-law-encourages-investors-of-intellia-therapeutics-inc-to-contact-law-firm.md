@@ -24,9 +24,17 @@ Company Websitehttps://www.kuehn.law/
 
 View source version on newsdirect.com: https://newsdirect.com/news/kuehn-law-encourages-investors-of-intellia-therapeutics-inc-to-contact-law-firm-739759807 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kuehn-law-encourages-investors-of-intellia-therapeutics-inc-to-contact-law-firm-739759807)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bu0n0s/kuehn_law_investigates_potential_breach_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bu0n0s/kuehn_law_investigates_potential_breach_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/2/ideaDl0a.webp)

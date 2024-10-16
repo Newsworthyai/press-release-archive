@@ -14,9 +14,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/golden-shield-resources-announces-acquisition-of-tucano-gold-103676876 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/golden-shield-resources-announces-acquisition-of-tucano-gold-103676876)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eb57i1/golden_shield_resources_announces_acquisition_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eb57i1/golden_shield_resources_announces_acquisition_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/24/cooluEJl.webp)

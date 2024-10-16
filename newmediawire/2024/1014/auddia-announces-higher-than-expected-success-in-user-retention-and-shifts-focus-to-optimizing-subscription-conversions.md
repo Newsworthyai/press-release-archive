@@ -34,9 +34,17 @@ faidr 30-day retention has grown from 5% to 12% in the last year, 2% above Auddi
 
  www.pcgadvisory.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/auddia-announces-higher-than-expected-success-in-user-retention-and-shifts-focus-to-optimizing-subscription-conversions-7076211)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1g3f26d/auddia_exceeds_30day_user_retention_goal_shifts/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1g3f26d/auddia_exceeds_30day_user_retention_goal_shifts/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/14/oxenewDf.webp)

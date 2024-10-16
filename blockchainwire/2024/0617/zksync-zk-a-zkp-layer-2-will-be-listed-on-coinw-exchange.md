@@ -34,9 +34,17 @@ About ZK (zkSync Era)
 
 [zkSync Era](https://zksync.io/) is a Layer 2 scaling solution that retains the security properties of the underlying blockchain by utilizing the latest generation of succinct zero-knowledge proofs. All funds within zkSync are held by smart contracts on the main chain, while computation and storage are performed off-chain. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/zksync-zk-a-zkp-layer-2-will-be-listed-on-coinw-exchange)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1di0rzn/coinw_to_list_zk_on_layer_2_zone_celebrates_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1di0rzn/coinw_to_list_zk_on_layer_2_zone_celebrates_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/17/cake4XQI.webp)

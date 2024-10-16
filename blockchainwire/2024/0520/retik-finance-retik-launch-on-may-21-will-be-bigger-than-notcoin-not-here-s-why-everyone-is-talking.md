@@ -26,9 +26,17 @@ Telegram: www.t.me/retikfinance
 
 Media Contact:Team Retik[bd@retik.com](mailto:bd@retik.com)[https://retik.com/](https://retik.com/)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/retik-finance-retik-launch-on-may-21-will-be-bigger-than-notcoin-not-heres-why-everyone-is-talking)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cweb3o/retik_finance_retik_launch_generates_unparalleled/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cweb3o/retik_finance_retik_launch_generates_unparalleled/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/20/takeN_fq.webp)

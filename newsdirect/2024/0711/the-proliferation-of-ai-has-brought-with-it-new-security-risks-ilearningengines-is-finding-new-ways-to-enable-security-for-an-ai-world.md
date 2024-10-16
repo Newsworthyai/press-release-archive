@@ -40,9 +40,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-proliferation-of-ai-has-brought-with-it-new-security-risks-ilearningengines-is-finding-new-ways-to-enable-security-for-an-ai-world-192263286 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-proliferation-of-ai-has-brought-with-it-new-security-risks-ilearningengines-is-finding-new-ways-to-enable-security-for-an-ai-world-192263286)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e0nzft/ilearningengines_addresses_ai_security_concerns/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e0nzft/ilearningengines_addresses_ai_security_concerns/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/11/quizosso.webp)

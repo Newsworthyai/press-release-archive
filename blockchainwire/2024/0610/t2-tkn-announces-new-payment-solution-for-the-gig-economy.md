@@ -70,9 +70,17 @@ Coinstore Social Media
 
 Twitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Telegram Announcement 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/t2-tkn-announces-new-payment-solution-for-the-gig-economy)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dcu3r0/revolutionizing_transactions_t2_tkns_new_payment/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dcu3r0/revolutionizing_transactions_t2_tkns_new_payment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/10/poemgqeF.webp)

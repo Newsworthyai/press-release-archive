@@ -40,9 +40,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/menopause-is-a-600-billion-market-opportunity-for-companies-like-rootless-that-are-looking-to-provide-women-much-needed-solutions-589599186 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/menopause-is-a-600-billion-market-opportunity-for-companies-like-rootless-that-are-looking-to-provide-women-much-needed-solutions-589599186)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cqym55/rootless_revolutionizes_womens_health_with/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cqym55/rootless_revolutionizes_womens_health_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/fondr7iQ.webp)

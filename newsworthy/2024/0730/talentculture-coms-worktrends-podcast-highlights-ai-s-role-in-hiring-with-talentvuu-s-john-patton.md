@@ -30,9 +30,17 @@ About John Patton
 
 John Patton, a Stanford-educated serial tech entrepreneur based in Seattle, Washington, is the co-founder of TalentVUU. At TalentVUU, Patton leverages large language models to revolutionize candidate screening and interviews, making the process more efficient and insightful. His expertise and innovative approach position him as a leading voice in the integration of AI into talent management. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202407301220/talentculture-coms-worktrends-podcast-highlights-ai-s-role-in-hiring-with-talentvuu-s-john-patton)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HRnews/comments/1efsy7p/ai_revolutionizing_screening_interviewing_a_deep/
+
+
+[Reddit Post](https://www.reddit.com/r/HRnews/comments/1efsy7p/ai_revolutionizing_screening_interviewing_a_deep/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/247/30/veil4px5.webp)

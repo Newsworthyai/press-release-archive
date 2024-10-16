@@ -4,9 +4,17 @@ Launched on March 18th on the Solana blockchain, $KERMIT has experienced unbelie
 
 With the right concept at the right time, an experienced team, a community of enthusiasts growing every day, and effective marketing, $KERMIT looks like it's just starting its journey. We must again highlight the fact that it has been a meme widely loved before becoming a memecoin, which means that its potential is tremendous. However, potential investors should conduct their research before investing. Trade safely, and don't forget that frog memes are the best!Socials:Website: [https://kermitfrog.lol/](https://kermitfrog.lol/)X(Twitter): [https://x.com/kermitcoin_sol](https://x.com/kermitcoin_sol)Telegram: [t.me/kermit_sol](//t.me/kermit_sol)Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/kermit-what-is-this-new-memecoin-that-everyone-is-talking-about)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bl0ids/unbelievable_price_growth_for_kermit_memecoin_on/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bl0ids/unbelievable_price_growth_for_kermit_memecoin_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/22/knotOsMV.webp)

@@ -54,9 +54,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/izea-nasdaq-izea-defied-critics-and-naysayers-as-it-helped-pioneer-influencer-marketing-in-2004-heres-what-it-sees-next-in-the-industrys-evolution-170455468 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/izea-nasdaq-izea-defied-critics-and-naysayers-as-it-helped-pioneer-influencer-marketing-in-2004-heres-what-it-sees-next-in-the-industrys-evolution-170455468)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cfyf28/the_evolution_of_influencer_marketing_a/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cfyf28/the_evolution_of_influencer_marketing_a/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/29/daveSsTB.webp)

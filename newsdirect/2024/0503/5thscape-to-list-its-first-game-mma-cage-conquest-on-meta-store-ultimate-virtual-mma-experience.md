@@ -28,9 +28,17 @@ Company Websitehttps://5thscape.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/5thscape-to-list-its-first-game-mma-cage-conquest-on-meta-store-ultimate-virtual-mma-experience-860418103 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/5thscape-to-list-its-first-game-mma-cage-conquest-on-meta-store-ultimate-virtual-mma-experience-860418103)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1cj607e/5th_scape_unveils_mma_cage_conquest_ultimate/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1cj607e/5th_scape_unveils_mma_cage_conquest_ultimate/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/3/zeroKvWF.webp)

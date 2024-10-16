@@ -46,9 +46,17 @@ Company Websitehttps://briefly.bio/
 
 View source version on newsdirect.com: https://newsdirect.com/news/briefly-bio-launches-with-1-2m-funding-to-help-scientists-reproduce-complex-experiments-557826042 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/briefly-bio-launches-with-1-2m-funding-to-help-scientists-reproduce-complex-experiments-557826042)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e5gm6e/briefly_bio_launches_with_12m_funding_to_help/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e5gm6e/briefly_bio_launches_with_12m_funding_to_help/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/17/chefFl92.webp)

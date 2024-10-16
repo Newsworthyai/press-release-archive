@@ -1,52 +1,8 @@
 # TEAM 1144's New Initiative lead by Nesty Delgado: Launch of the Project Management & Transformational Leadership Institute
 
-PR Content Nesty Delgado // CONTENT BRIEFSEO
+![](https://public.newsdirect.com/914959035/NsSBN504.jpg)
 
-Page title /heading
-
-Meta desc.
-
-Slug (URL)
-
-Word count
-
-Main keywords
-
-Nesty Delgado
-
-Website
-
-News Direct
-
-BYLINE
-
-Levitated Media
-
-WRITING GUIDELINES
-
-Purpose of content
-
-Rank in organic search for primary keywords.
-
-Increase conversions.
-
-What will the post be about?
-
-1. El lanzamiento del Project Management & Transformational Leadership Institute con la Universidad de Puerto Rico Mayaguez. Aquí puedes ver la información: https://team1144.com/pmtl-institute.En la sección de preguntas frecuentes https://team1144.com/q%26a-pmtl-institute encontrarás mas información y la presentación formal del PMTL Institute
-2. Extra contexto: La UPR-Mayagüez es la mejor universidad en PR y la mas destacado por su Escuela de Ingeniería. Es mi Alma Mater de donde me gradué como ingeniero civil, así que el orgullo que siento de que hallamos firmado un acuerdo para el lanzamiento de nuestro Instituto es enorme.La firma del Acuerdo entre TEAM 1144 y la UPR-Mayagüez lo firmé yo con el Rector el Dr. Agustín Rullán Toro quien apoya el proyecto grandemente. El promotor it principal del Proyecto en EDUCON dentro del Colegio de Administración de Empresas y su Decano el Dr. Roberto Seijo.
-3. Extra contexto: Esta iniciativa tiene un gran impacto para Puerto Rico en la preparación de profesionales para que puedan liderar los miles de proyectos de reconstrucción y resiliencia que se están desarrollando en la Isla.
-
-Propósito:
-
-1. de ayudar en mi reputation management pero también destacar esta iniciativa a nivel de los EEUU
-
-Desired Tone
-
-2nd person, conversational
-
-![](https://public.newsdirect.com/977980562/NsSBN504.jpg)
-
-TEAM 1144's New Initiative lead by Nesty Delgado: Launch of the Project Management & Transformational Leadership InstituteIn a landmark partnership, TEAM 1144, led by project management international speaker, educator, and consultant Nesty Delgado, and the University of Puerto Rico-Mayagüez (UPR-Mayagüez) have joined forces to launch the Project Management & Transformational Leadership Institute (PMTL Institute). This collaboration represents a significant advancement in Puerto Rico’s educational landscape, specifically in project management and transformational leadership, two fields critical to the island’s future.
+In a landmark partnership, TEAM 1144, led by project management international speaker, educator, and consultant Nesty Delgado, and the University of Puerto Rico-Mayagüez (UPR-Mayagüez) have joined forces to launch the Project Management & Transformational Leadership Institute (PMTL Institute). This collaboration represents a significant advancement in Puerto Rico’s educational landscape, specifically in project management and transformational leadership, two fields critical to the island’s future.
 
 UPR-Mayagüez, celebrated for its outstanding School of Engineering, is the ideal partner for this initiative. The university’s reputation as the top academic institution in Puerto Rico and its commitment to excellence made it the perfect collaborator for TEAM 1144’s vision. Nesty Delgado, a proud alumnus of UPR-Mayagüez and founder of TEAM 1144, personally signed the agreement with the university’s Rector, Dr. Agustín Rullán Toro, and Dr. Roberto Seijo, Dean of the College of Business Administration. This moment marked not just a professional achievement, but a deeply personal one for Nesty Delgado, who has long held his alma mater in high regard.
 
@@ -112,11 +68,19 @@ Contact DetailsNesty Delgado
 
 info@team1144.com
 
-View source version on newsdirect.com: https://newsdirect.com/news/team-1144s-new-initiative-lead-by-nesty-delgado-launch-of-the-project-management-and-transformational-leadership-institute-977980562 
+View source version on newsdirect.com: https://newsdirect.com/news/team-1144s-new-initiative-lead-by-nesty-delgado-launch-of-the-project-management-and-transformational-leadership-institute-914959035 
 
-[Original/Source Press Release](https://newsdirect.com/news/team-1144s-new-initiative-lead-by-nesty-delgado-launch-of-the-project-management-and-transformational-leadership-institute-977980562)
+---
+
+[Original/Source Press Release](https://newsdirect.com/news/team-1144s-new-initiative-lead-by-nesty-delgado-launch-of-the-project-management-and-transformational-leadership-institute-914959035)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1ff2cku/team_1144s_new_initiative_lead_by_nesty_delgado/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ff681u/nesty_delgado_and_uprmayagüez_launch_project/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/12/diveuP6a.webp)

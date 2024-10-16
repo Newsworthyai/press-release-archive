@@ -44,9 +44,17 @@ Are you ready to be part of the next wave of iGaming innovation? iGaming Launche
 
 PR Contact:Media Teaminfo@igaminglauncher.comhttps://www.igaminglauncher.com/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/breaking-barriers-in-igaming-with-web-30---discover-igaming-launcher)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d9mjmn/revolutionizing_the_igaming_industry_with_igaming/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d9mjmn/revolutionizing_the_igaming_industry_with_igaming/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/6/calmfCea.webp)

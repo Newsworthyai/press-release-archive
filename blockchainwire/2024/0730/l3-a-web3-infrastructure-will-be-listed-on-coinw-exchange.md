@@ -36,9 +36,17 @@ About L3
 
 [Layer3](https://layer3.xyz/) is a platform where anyone from anywhere in the world can contribute to Web3. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/l3-a-web3-infrastructure-will-be-listed-on-coinw-exchange)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1efxccj/coinw_to_list_layer3_on_web_30_zone_with_5000/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1efxccj/coinw_to_list_layer3_on_web_30_zone_with_5000/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/30/bean8wEj.webp)

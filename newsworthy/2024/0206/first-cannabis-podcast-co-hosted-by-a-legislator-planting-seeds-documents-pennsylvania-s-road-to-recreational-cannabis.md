@@ -40,9 +40,17 @@ About Wana Brands
 
 With North America’s largest distribution footprint, cannabis edibles producer Wana Brands is a top international brand available in 16 U.S. states, the U.S. territory of Puerto Rico, and nine Canadian provinces and territories, generating close to $300 million in retail sales annually across more than 3,000 dispensaries. Through industry-leading innovation, Wana is developing cutting-edge use-case formulations and recipes, such as Wana Quick Fast-Acting Gummies, the top-selling quick-onset edible, and the Optimals Fast Asleep formulation. Wana is committed to the communities it serves by supporting more than 50 charitable organizations in the markets where the company operates. For more information or to subscribe to Wana’s e-newsletter, visit www.wanabrands.com. Follow Wana on Instagram, LinkedIn, or Twitter. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402061055/first-cannabis-podcast-co-hosted-by-a-legislator-planting-seeds-documents-pennsylvania-s-road-to-recreational-cannabis)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1avlgv4/pennsylvania_senator_cohosts_cannabis_podcast/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1avlgv4/pennsylvania_senator_cohosts_cannabis_podcast/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/tileFogu.webp)

@@ -24,9 +24,17 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/emmerson-advances-on-environmental-approval-for-khemisset-project-following-key-enhancements-252776395 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/emmerson-advances-on-environmental-approval-for-khemisset-project-following-key-enhancements-252776395)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bzqgoo/emmerson_advances_on_environmental_approval_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bzqgoo/emmerson_advances_on_environmental_approval_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/9/fileAUIV.webp)

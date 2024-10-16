@@ -24,9 +24,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/x-officially-made-xpayments-x-account-speculation-of-crypto-integration-and-memecoin-xpay-surges-10000)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avjth6/elon_musks_everything_app_x_creates_dedicated/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avjth6/elon_musks_everything_app_x_creates_dedicated/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/tintZD4K.webp)

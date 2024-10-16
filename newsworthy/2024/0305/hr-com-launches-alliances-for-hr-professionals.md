@@ -30,9 +30,17 @@ About HR.com
 
 HR.com, the largest network of HR professionals, is committed to helping HR professionals advance and build meaningful careers. Over 2 million HR professionals rely on HR.com for career development, networking, and compliance 24/7/365. (How could that many people be wrong!) Offerings include 220+ leading-edge HR Research Institute industry studies, monthly HR-themed magazines, innovative professional education with 500+ annual webcasts and virtual courses, the most comprehensive HR exam prep program for SHRM/HRCI certification (prepare for a salary increase!), in-person HR conferences, HR tools, and legal compliance updates. Visit [www.HR.com](http://www.hr.com) to maximize your potential! 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202403051107/hr-com-launches-alliances-for-hr-professionals)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HRnews/comments/1b9vmwm/hrcom_launches_hr_alliances_for_professionals_and/
+
+
+[Reddit Post](https://www.reddit.com/r/HRnews/comments/1b9vmwm/hrcom_launches_hr_alliances_for_professionals_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/243/5/chefgvi3.webp)

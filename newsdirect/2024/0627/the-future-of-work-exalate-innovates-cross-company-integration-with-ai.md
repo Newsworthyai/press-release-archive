@@ -36,9 +36,17 @@ pr@exalate.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-future-of-work-exalate-innovates-cross-company-integration-with-ai-154643338 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-future-of-work-exalate-innovates-cross-company-integration-with-ai-154643338)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dpr0gi/exalate_innovates_crosscompany_integration_with_ai/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dpr0gi/exalate_innovates_crosscompany_integration_with_ai/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/27/rainBxnW.webp)

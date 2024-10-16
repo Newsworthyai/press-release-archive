@@ -24,9 +24,17 @@ Website: www.mashash.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/mashash-launches-an-efficient-ethereum-mining-plan-helping-you-earn-2000-daily)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fnjn3u/mashash_announces_enhanced_support_for_ethereum/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fnjn3u/mashash_announces_enhanced_support_for_ethereum/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/23/silkIJGN.webp)

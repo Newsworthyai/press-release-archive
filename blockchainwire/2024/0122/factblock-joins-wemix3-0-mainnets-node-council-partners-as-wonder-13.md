@@ -18,9 +18,17 @@ About WEMIX Blockchain Mega-Ecosystem
 
 The WEMIX blockchain mega-ecosystem features innovative services including WEMIX, the native coin and bridge that connects all components of the WEMIX mega-ecosystem; WEMIX$, the native fully collateralized stablecoin for the WEMIX3.0 blockchain; WEMIX PLAY, the world's biggest blockchain gaming platform; NILE (NFT Is Life Evolution), a DAO & NFT platform based on the WEMIX3.0 mainnet; WEMIX.Fi, the official Decentralized Finance (DeFi) platform providing exchange, deposit, asset management, and investment services; Kurrency, a decentralized financial service designed to offer greater ease-of-use, transparency and reliability; the KLEVA DeFi protocol, decentralized exchanges and other DeFi services on multi-chains. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/factblock-joins-wemix30-mainnets-node-council-partners-as-wonder-13)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avdt3b/factblock_joins_wemix30_mainnet_as_wonder_13_in/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avdt3b/factblock_joins_wemix30_mainnet_as_wonder_13_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/riceBO5M.webp)

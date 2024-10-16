@@ -26,9 +26,17 @@ About PUPPIES
 
 [$PUPPIES](https://ilovepuppies.cc/) is a meme coin inspired by the love for puppies. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/puppies-a-meme-coin-will-be-listed-on-coinw-exchange)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1eewza1/coinw_to_list_puppies_meme_coin_on_innovation/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1eewza1/coinw_to_list_puppies_meme_coin_on_innovation/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/29/neonKllO.webp)

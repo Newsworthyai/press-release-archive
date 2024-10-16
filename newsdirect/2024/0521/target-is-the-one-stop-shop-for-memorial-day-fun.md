@@ -48,9 +48,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/target-is-the-one-stop-shop-for-memorial-day-fun-950109838 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/target-is-the-one-stop-shop-for-memorial-day-fun-950109838)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cxh83r/affordable_summer_fun_tips_from_meaghan_b_murphy/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cxh83r/affordable_summer_fun_tips_from_meaghan_b_murphy/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/21/yogaAYhw.webp)

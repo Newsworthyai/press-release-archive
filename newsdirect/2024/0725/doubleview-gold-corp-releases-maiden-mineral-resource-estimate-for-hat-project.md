@@ -14,9 +14,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/doubleview-gold-corp-releases-maiden-mineral-resource-estimate-for-hat-project-716393707 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/doubleview-gold-corp-releases-maiden-mineral-resource-estimate-for-hat-project-716393707)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1ecgu8e/doubleview_gold_corp_announces_maiden_mineral/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ecgu8e/doubleview_gold_corp_announces_maiden_mineral/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/26/lendyFTR.webp)

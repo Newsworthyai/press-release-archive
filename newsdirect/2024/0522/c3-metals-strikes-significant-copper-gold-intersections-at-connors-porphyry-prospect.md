@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/c3-metals-strikes-significant-copper-gold-intersections-at-connors-porphyry-prospect-392568473 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/c3-metals-strikes-significant-copper-gold-intersections-at-connors-porphyry-prospect-392568473)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cy4jse/c3_metals_strikes_significant_coppergold/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cy4jse/c3_metals_strikes_significant_coppergold/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/pitapicoSpdU.webp)

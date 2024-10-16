@@ -54,9 +54,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/abaxx-and-minehub-forge-strategic-partnership-to-revolutionize-commodities-markets-253876223 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/abaxx-and-minehub-forge-strategic-partnership-to-revolutionize-commodities-markets-253876223)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1ehfo00/minehub_and_abaxx_forge_strategic_partnership_to/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1ehfo00/minehub_and_abaxx_forge_strategic_partnership_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/1/noon0wzi.webp)

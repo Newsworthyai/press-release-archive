@@ -46,9 +46,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-rise-of-alternative-investments-how-arta-finance-is-bringing-private-investing-to-10x-more-people-895284521 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-rise-of-alternative-investments-how-arta-finance-is-bringing-private-investing-to-10x-more-people-895284521)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1fyzchy/arta_finance_opening_the_door_to_private/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1fyzchy/arta_finance_opening_the_door_to_private/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/8/clubG3S7.webp)

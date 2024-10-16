@@ -22,9 +22,17 @@ In the meantime, Gate.io has also collaborated with Hacken, a global leader in s
 
 Gate.io's latest reserve value in March 2024 reached a new high, highlighting its steady growth and exceptional strength in the digital asset trading field. Through ongoing technological innovation and deep collaboration with security auditing firms, Gate.io will continue to maintain its leading position, offering a safer and more reliable trading environment for global digital asset traders. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gateio-proof-of-reserves-exceed-6-billion-additional-800-million-stored)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bd0wah/gateio_releases_recordbreaking_proof_of_reserve/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bd0wah/gateio_releases_recordbreaking_proof_of_reserve/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/12/bend4nDj.webp)

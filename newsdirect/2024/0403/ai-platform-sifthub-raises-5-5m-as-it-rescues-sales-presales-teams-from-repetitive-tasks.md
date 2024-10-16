@@ -48,9 +48,17 @@ Company Websitehttps://www.sifthub.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/ai-platform-sifthub-raises-5-5m-as-it-rescues-sales-and-presales-teams-from-repetitive-tasks-606622955 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ai-platform-sifthub-raises-5-5m-as-it-rescues-sales-and-presales-teams-from-repetitive-tasks-606622955)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1busbhm/ai_platform_sifthub_raises_55m_to_rescue_sales/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1busbhm/ai_platform_sifthub_raises_55m_to_rescue_sales/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/3/gainPaDg.webp)

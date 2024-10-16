@@ -22,9 +22,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ramp-metals-launches-drilling-program-in-pursuit-of-high-grade-nickel-in-saskatchewan-471500906 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ramp-metals-launches-drilling-program-in-pursuit-of-high-grade-nickel-in-saskatchewan-471500906)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bu3qe8/ramp_metals_launches_drilling_program_in_pursuit/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bu3qe8/ramp_metals_launches_drilling_program_in_pursuit/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/2/lark23S3.webp)

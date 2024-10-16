@@ -24,9 +24,17 @@ Email: support@blyxultra.com/
 
 Address:  Bleidenstraße 2, Frankfurt am Main, Germany 60311 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/blyx-ultra-combining-cutting-edge-technology-and-expertise-for-optimal-trading-outcomes)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1fi72w4/blyx_ultra_leading_financial_platform_with/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1fi72w4/blyx_ultra_leading_financial_platform_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/11/vibeulXU.webp)

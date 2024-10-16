@@ -34,9 +34,17 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-wallet-unveils-200-000-meme-coin-fiesta-following-its-meme-coin-launch-949201591 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitget-wallet-unveils-200-000-meme-coin-fiesta-following-its-meme-coin-launch-949201591)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1c1b0vh/bitget_wallet_unveils_200000_meme_coin_fiesta/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1c1b0vh/bitget_wallet_unveils_200000_meme_coin_fiesta/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/fastktm3.webp)

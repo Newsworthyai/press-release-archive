@@ -26,9 +26,17 @@ About LynexLynex is a leading decentralized exchange (DEX) and liquidity marketp
 
 About LineaLinea is a Layer 2 blockchain developed by ConsenSys, the company behind MetaMask. It offers a scalable and secure platform for EVM decentralized applications (dApps) and decentralized finance (DeFi) projects. Linea's rapid growth and increasing Total Value Locked (TVL) reflect its potential to become a leading blockchain for DeFi and beyond. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/linea-going-from-strength-to-strength-with-lynex-on-the-front-lines-2)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c77ccw/lynex_drives_linea_blockchain_growth_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c77ccw/lynex_drives_linea_blockchain_growth_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/18/nora3eNi.webp)

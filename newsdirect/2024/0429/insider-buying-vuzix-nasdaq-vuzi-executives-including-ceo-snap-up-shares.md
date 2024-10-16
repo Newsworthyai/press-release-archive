@@ -42,9 +42,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/insider-buying-vuzix-nasdaq-vuzi-executives-including-ceo-snap-up-shares-510830373 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/insider-buying-vuzix-nasdaq-vuzi-executives-including-ceo-snap-up-shares-510830373)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cfxt9m/vuzix_corp_nasdaq_vuzi_executives_including_ceo/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cfxt9m/vuzix_corp_nasdaq_vuzi_executives_including_ceo/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/29/milkMf4u.webp)

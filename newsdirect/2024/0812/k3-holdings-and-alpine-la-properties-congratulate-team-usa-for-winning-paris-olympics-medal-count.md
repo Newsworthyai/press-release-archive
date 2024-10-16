@@ -26,9 +26,17 @@ Company Websitehttps://k3holdings.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/k3-holdings-and-alpine-la-properties-congratulate-team-usa-for-winning-paris-olympics-medal-count-594732340 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/k3-holdings-and-alpine-la-properties-congratulate-team-usa-for-winning-paris-olympics-medal-count-594732340)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eqh0q2/k3_holdings_and_alpine_la_properties_congratulate/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eqh0q2/k3_holdings_and_alpine_la_properties_congratulate/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/12/quiz3mjp.webp)

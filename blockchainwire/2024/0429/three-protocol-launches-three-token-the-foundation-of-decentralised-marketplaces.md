@@ -32,9 +32,17 @@ Website | Twitter | Telegram | LinkedIn | YouTube
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/three-protocol-launches-three-token-the-foundation-of-decentralised-marketplaces)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cfzhs4/three_protocol_launches_three_token_for/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cfzhs4/three_protocol_launches_three_token_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/29/miel15co.webp)

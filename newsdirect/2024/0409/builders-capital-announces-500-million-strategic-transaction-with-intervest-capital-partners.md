@@ -34,9 +34,17 @@ Company Websitehttps://builderscapital.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/builders-capital-announces-500-million-strategic-transaction-with-intervest-capital-partners-557382464 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/builders-capital-announces-500-million-strategic-transaction-with-intervest-capital-partners-557382464)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bzqnue/builders_capital_announces_500_million_strategic/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bzqnue/builders_capital_announces_500_million_strategic/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/9/quizQvlo.webp)

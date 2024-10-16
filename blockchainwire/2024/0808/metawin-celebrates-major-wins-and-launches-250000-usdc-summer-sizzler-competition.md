@@ -24,9 +24,17 @@ Join our community: Telegram Discord
 
  Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/metawin-celebrates-major-wins-and-launches-250000-usdc-summer-sizzler-competition)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1enhfwy/metawin_announces_250000_usdc_summer_sizzler/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1enhfwy/metawin_announces_250000_usdc_summer_sizzler/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/8/ovalzvfz.webp)

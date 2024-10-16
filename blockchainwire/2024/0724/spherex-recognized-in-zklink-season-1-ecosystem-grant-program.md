@@ -26,9 +26,17 @@ About SphereX
 
 SphereX is a cutting-edge decentralized exchange (DEX) designed to make crypto trading accessible, secure, and user-friendly for everyone. By prioritizing decentralization, SphereX ensures that users have full control over their assets with transparent and low-cost transactions. Committed to fostering a welcoming and inclusive community, SphereX embodies the spirit of Robin Hood, providing financial opportunities for all. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/spherex-recognized-in-zklink-season-1-ecosystem-grant-program)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1ebcd7m/spherex_receives_zklink_season_1_ecosystem_grant/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1ebcd7m/spherex_receives_zklink_season_1_ecosystem_grant/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/24/jadengv9.webp)

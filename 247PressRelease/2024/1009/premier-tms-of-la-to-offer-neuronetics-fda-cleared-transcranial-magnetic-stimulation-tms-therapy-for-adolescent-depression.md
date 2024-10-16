@@ -2,9 +2,17 @@
 
 BEVERLY HILLS, CA, October 09, 2024 /24-7PressRelease/ -- Premier TMS of LA, a leading provider of Transcranial Magnetic Stimulation (TMS) therapy, is pleased to announce the availability of Neuronetics' innovative TMS technology for the treatment of adolescent major depressive disorder (MDD). Neuronetics recently received 510(k) clearance from the U.S. Food and Drug Administration (FDA) for the use of its TMS device in adolescents aged 15 to 21 years.  This authorization marks a significant advancement in the treatment landscape for adolescent depression. Dr. John Deirmenjian, CEO of Premier TMS of LA, expressed enthusiasm about the potential impact of this development on patient care: "The FDA clearance of Neuronetics' TMS device for adolescent major depressive disorder represents a crucial milestone in mental health treatment. With this technology available at Premier TMS of LA, we are empowered to provide effective, non-invasive therapy options to adolescents struggling with depression."  Transcranial Magnetic Stimulation (TMS) therapy offers a non-invasive and targeted approach to treating depression, providing an alternative for patients who have not experienced sufficient improvement with traditional antidepressant medications. With this latest clearance, Neuronetics expands the reach of TMS therapy to adolescents, offering hope to those who may have previously faced limited treatment options.  Dr. Deirmenjian emphasized the significance of this clearance for patient care: "This clearance not only broadens the treatment landscape for adolescent depression but also underscores our commitment to providing innovative and effective mental health solutions. At Premier TMS of LA, we are dedicated to delivering personalized care that addresses the unique needs of each patient."  Premier TMS of LA, with locations in Beverly Hills, Glendale, and Long Beach, California, continues to lead the way in advancing mental health care through cutting-edge treatments such as TMS therapy. The addition of Neuronetics' FDA-cleared TMS technology further strengthens Premier TMS of LA's commitment to providing comprehensive and effective care for individuals struggling with depression.  For more information about Premier TMS of LA and its services, please visit https://www.premiertmslosangeles.com/  About Premier TMS of LA  Premier TMS of LA, led by esteemed psychiatrist Dr. John Deirmenjian, boasts over 30 years of expertise in adult outpatient treatment of mood disorders, Attention Deficit-Hyperactivity Disorder (ADHD), women's psychiatric disorders across the reproductive cycle, and geriatric psychiatry. As the pioneer psychiatrist in Beverly Hills offering Transcranial Magnetic Stimulation (TMS) therapy, Dr. Deirmenjian utilizes the innovative NeuroStar TMS Therapy system to provide cutting-edge depression treatment. With locations in Beverly Hills, Glendale, and Long Beach, California, Premier TMS of LA remains at the forefront of mental health care, delivering compassionate and effective solutions to improve the lives of patients. 
 
+---
+
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515086/premier-tms-of-la-to-offer-neuronetics-fda-cleared-transcranial-magnetic-stimulation-tms-therapy-for-adolescent-depression)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1fzlu4u/premier_tms_of_la_announces_availability_of/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1fzlu4u/premier_tms_of_la_announces_availability_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/9/zerosH7D.webp)

@@ -30,9 +30,17 @@ Company Websitehttps://caddiscloud.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/caddis-cloud-solutions-and-ultrascale-digital-infrastructure-forge-strategic-alliance-to-revolutionize-data-center-technology-143237801 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/caddis-cloud-solutions-and-ultrascale-digital-infrastructure-forge-strategic-alliance-to-revolutionize-data-center-technology-143237801)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1ewvtw1/caddis_cloud_solutions_and_ultrascale_digital/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1ewvtw1/caddis_cloud_solutions_and_ultrascale_digital/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/20/rainFwje.webp)

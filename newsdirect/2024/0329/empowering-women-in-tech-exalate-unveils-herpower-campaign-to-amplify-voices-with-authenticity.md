@@ -34,9 +34,17 @@ pr@exalate.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/empowering-women-in-tech-exalate-unveils-herpower-campaign-to-amplify-voices-with-authenticity-618785462 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/empowering-women-in-tech-exalate-unveils-herpower-campaign-to-amplify-voices-with-authenticity-618785462)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1bqt2d4/exalate_launches_herpower_campaign_to_empower/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1bqt2d4/exalate_launches_herpower_campaign_to_empower/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/29/lambzcqU.webp)

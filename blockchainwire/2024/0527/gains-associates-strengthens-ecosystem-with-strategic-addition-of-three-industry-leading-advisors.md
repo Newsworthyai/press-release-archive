@@ -40,9 +40,17 @@ Instagram: https://www.instagram.com/gainsassociate
 
 Medium: https://medium.com/gains-associates 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/gains-associates-strengthens-ecosystem-with-strategic-addition-of-three-industry-leading-advisors)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ez6hy9/gains_associates_welcomes_three_new_advisors_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ez6hy9/gains_associates_welcomes_three_new_advisors_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/sageFV2Z.webp)

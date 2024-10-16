@@ -32,9 +32,17 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-satex-plumbing-inc-and-bleuwave-general-contracting-llc-471726751 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-satex-plumbing-inc-and-bleuwave-general-contracting-llc-471726751)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dtxeqg/benchmark_international_facilitates_transaction/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dtxeqg/benchmark_international_facilitates_transaction/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/2/wamcoBaw.webp)

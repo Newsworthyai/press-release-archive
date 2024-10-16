@@ -20,9 +20,17 @@ Media Contact: Shawn Gabrielshawn@beldex.ioBeldex International
 
 For more information, visit[Beldex.io](https://beldex.io).Join us on: [Telegram](http://t.me/beldexcoin) | [Discord](https://discord.com/invite/Hj4MAmA5gs) | [Medium](https://beldexcoin.medium.com/) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/hermes-hardfork-to-elevate-beldex-networks-privacy-and-decentralization)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvcixy/beldex_to_launch_hermes_hardfork_advancing/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvcixy/beldex_to_launch_hermes_hardfork_advancing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/26/calmZK3D.webp)

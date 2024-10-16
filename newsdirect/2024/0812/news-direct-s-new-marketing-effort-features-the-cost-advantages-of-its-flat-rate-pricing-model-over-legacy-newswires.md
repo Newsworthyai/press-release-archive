@@ -12,9 +12,17 @@ Company Websitehttp://www.newsdirect.com
 
 View original content to download multimedia: https://newsdirect.com/news/news-directs-new-marketing-effort-features-the-cost-advantages-of-its-flat-rate-pricing-model-over-legacy-newswires-447587566 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/news-directs-new-marketing-effort-features-the-cost-advantages-of-its-flat-rate-pricing-model-over-legacy-newswires-447587566)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/MarketingNewsramp/comments/1eqghuz/news_direct_launches_new_marketing_campaign/
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1eqghuz/news_direct_launches_new_marketing_campaign/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/12/fernjNih.webp)

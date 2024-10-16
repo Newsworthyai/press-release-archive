@@ -94,9 +94,17 @@ Email: info@upcx.io
 
 Website: https://upcx.io/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/upcx-wallet-testnet-launch-imminent-exploring-the-future-of-digital-payments)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ff2eew/upcx_wallet_launches_public_testnet_redefining/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ff2eew/upcx_wallet_launches_public_testnet_redefining/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/12/bake0i_z.webp)

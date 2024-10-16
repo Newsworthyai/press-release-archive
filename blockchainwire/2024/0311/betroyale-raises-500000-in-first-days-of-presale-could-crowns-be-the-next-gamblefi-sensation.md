@@ -103,9 +103,17 @@ Disclaimer
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/betroyale-raises-500000-in-first-days-of-presale-could-crowns-be-the-next-gamblefi-sensation)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bcg128/betroyales_bcrn_preseed_sale_exceeds_500000/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bcg128/betroyales_bcrn_preseed_sale_exceeds_500000/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/11/icygnbV.webp)

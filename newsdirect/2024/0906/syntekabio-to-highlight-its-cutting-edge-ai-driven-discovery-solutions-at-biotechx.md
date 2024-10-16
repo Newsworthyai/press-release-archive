@@ -54,9 +54,17 @@ Company Websitehttp://www.syntekabio.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/syntekabio-to-highlight-its-cutting-edge-ai-driven-discovery-solutions-at-biotechx-159411527 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/syntekabio-to-highlight-its-cutting-edge-ai-driven-discovery-solutions-at-biotechx-159411527)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1faea1z/syntekabio_to_showcase_aidriven_discovery/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1faea1z/syntekabio_to_showcase_aidriven_discovery/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/6/quizfhpU.webp)

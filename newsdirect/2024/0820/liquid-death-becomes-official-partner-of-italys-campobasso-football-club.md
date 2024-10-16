@@ -38,9 +38,17 @@ Company Websitehttps://n6clubunderdog.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/liquid-death-becomes-official-partner-of-italys-campobasso-football-club-975678858 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/liquid-death-becomes-official-partner-of-italys-campobasso-football-club-975678858)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ewzpqk/liquid_death_partners_with_campobasso_football/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ewzpqk/liquid_death_partners_with_campobasso_football/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/20/swimXDU6.webp)

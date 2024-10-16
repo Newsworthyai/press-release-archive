@@ -79,9 +79,17 @@ Company Websitehttps://moneywise.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-biden-administration-just-finalized-a-controversial-new-retirement-rule-here-are-5-things-you-need-to-know-now-720049106 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-biden-administration-just-finalized-a-controversial-new-retirement-rule-here-are-5-things-you-need-to-know-now-720049106)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1dg09f8/biden_administrations_new_retirement_rule_5_key/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1dg09f8/biden_administrations_new_retirement_rule_5_key/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/14/pinkiajf.webp)

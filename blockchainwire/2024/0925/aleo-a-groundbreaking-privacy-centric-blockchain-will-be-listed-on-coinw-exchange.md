@@ -28,9 +28,17 @@ About ALEO
 
 [Aleo](https://aleo.org/) is the first platform to offer fully private applications, achieving this by utilizing decentralized systems and zero-knowledge cryptography to protect user data on the network. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/aleo-a-groundbreaking-privacy-centric-blockchain-will-be-listed-on-coinw-exchange)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fp3jhd/coinw_to_list_aleo_privacycentric_blockchain_for/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fp3jhd/coinw_to_list_aleo_privacycentric_blockchain_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/25/vibe0aFy.webp)

@@ -50,9 +50,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/oil-demand-isnt-going-away-but-does-it-have-to-be-at-the-expense-of-the-environment-sky-quarry-says-no-812889858 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/oil-demand-isnt-going-away-but-does-it-have-to-be-at-the-expense-of-the-environment-sky-quarry-says-no-812889858)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1elgxil/sky_quarry_inc_revolutionizes_clean_energy_with/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1elgxil/sky_quarry_inc_revolutionizes_clean_energy_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/6/evenME2x.webp)

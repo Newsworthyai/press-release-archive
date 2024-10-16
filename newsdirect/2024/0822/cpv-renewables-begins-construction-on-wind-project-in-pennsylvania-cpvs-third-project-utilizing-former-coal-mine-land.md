@@ -50,9 +50,17 @@ Company Websitehttp://www.cpv.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cpv-renewables-begins-construction-on-wind-project-in-pennsylvania-cpvs-third-project-utilizing-former-coal-mine-land-442592696 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cpv-renewables-begins-construction-on-wind-project-in-pennsylvania-cpvs-third-project-utilizing-former-coal-mine-land-442592696)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eyldwj/cpv_renewables_begins_construction_on_wind/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eyldwj/cpv_renewables_begins_construction_on_wind/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/22/boldhQ7w.webp)

@@ -128,9 +128,17 @@ Company Websitehttps://prioritygold.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/gold-vs-digital-currencies-why-tangible-assets-still-matter-713325948 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/gold-vs-digital-currencies-why-tangible-assets-still-matter-713325948)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ekmr11/gold_vs_digital_currencies_why_tangible_assets/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ekmr11/gold_vs_digital_currencies_why_tangible_assets/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/5/larkkt06.webp)

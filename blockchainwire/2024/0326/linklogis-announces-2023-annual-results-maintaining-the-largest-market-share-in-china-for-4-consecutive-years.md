@@ -34,9 +34,17 @@ In 2023, Linklogis collaborated with a number of financial institutions to promo
 
 Charles Song, the founder, chairman and CEO of Linklogis, said, “Looking ahead to 2024, Linklogis will focus more on its core business of sustainable high growth, expedite the replacement of old growth drivers with new ones and steer toward a new stage of high-quality development. While ensuring swift customer acquisition, we will also cater to the needs of our existing customers, and focus on increasing customer value. We will embrace the opportunities brought by the wave of AIGC, continuously explore new technologies and applications, and continue to improve operational efficiencies and cost reductions. Linklogis will continue to enhance shareholder returns through cash dividends and share repurchases. Linklogis is embarking on a new journey with confidence, poised to create even greater value for both customers and shareholders in the future." 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/linklogis-announces-2023-annual-results-maintaining-the-largest-market-share-in-china-for-4-consecutive-years)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bo7jxo/linklogis_inc_reports_152_increase_in_2023/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bo7jxo/linklogis_inc_reports_152_increase_in_2023/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/26/flaxYN7T.webp)

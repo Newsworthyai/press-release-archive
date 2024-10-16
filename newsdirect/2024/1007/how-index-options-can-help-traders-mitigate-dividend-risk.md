@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-index-options-can-help-traders-mitigate-dividend-risk-203931959 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/how-index-options-can-help-traders-mitigate-dividend-risk-203931959)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1fy6wfo/options_trading_volume_rises_impact_of_dividends/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1fy6wfo/options_trading_volume_rises_impact_of_dividends/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/7/plumeM6E.webp)

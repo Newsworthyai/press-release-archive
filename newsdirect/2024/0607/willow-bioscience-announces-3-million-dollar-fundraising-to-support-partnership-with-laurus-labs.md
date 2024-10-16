@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/willow-bioscience-announces-3-million-dollar-fundraising-to-support-partnership-with-laurus-labs-489522777 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/willow-bioscience-announces-3-million-dollar-fundraising-to-support-partnership-with-laurus-labs-489522777)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dafamk/willow_bioscience_to_raise_3_million_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dafamk/willow_bioscience_to_raise_3_million_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/7/yawn7MNR.webp)

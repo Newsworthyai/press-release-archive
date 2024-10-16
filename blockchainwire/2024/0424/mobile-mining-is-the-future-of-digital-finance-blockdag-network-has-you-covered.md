@@ -40,9 +40,17 @@ Discord: https://discord.gg/Q7BxghMVyu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/mobile-mining-is-the-future-of-digital-finance-blockdag-network-has-you-covered)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cc1mq3/revolutionizing_cryptocurrency_mining_with_mobile/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cc1mq3/revolutionizing_cryptocurrency_mining_with_mobile/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/24/fernd1Vd.webp)

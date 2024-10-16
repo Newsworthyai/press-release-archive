@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kodal-minerals-reports-significant-progress-at-bougouni-lithium-project-in-mali-148897823 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kodal-minerals-reports-significant-progress-at-bougouni-lithium-project-in-mali-148897823)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bp0vrg/kodal_minerals_ceo_discusses_milestones_at/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bp0vrg/kodal_minerals_ceo_discusses_milestones_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/boldNiIG.webp)

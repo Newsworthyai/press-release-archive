@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/alkane-resources-boosts-confidence-in-gold-copper-property-following-kaiser-resource-update-199136254 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/alkane-resources-boosts-confidence-in-gold-copper-property-following-kaiser-resource-update-199136254)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cg7wbj/alkane_resources_boosts_confidence_in_goldcopper/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cg7wbj/alkane_resources_boosts_confidence_in_goldcopper/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/29/markob98.webp)

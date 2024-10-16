@@ -32,9 +32,17 @@ ltilbor@rellmc.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/dr-paul-nassif-honored-in-newsweeks-2024-ranking-of-americas-best-plastic-surgeons-245161454 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/dr-paul-nassif-honored-in-newsweeks-2024-ranking-of-americas-best-plastic-surgeons-245161454)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1eaa7jb/dr_paul_nassif_honored_in_newsweeks_2024_ranking/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1eaa7jb/dr_paul_nassif_honored_in_newsweeks_2024_ranking/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/23/duney7FR.webp)

@@ -26,9 +26,17 @@ About CoinDesk: CoinDesk is the most trusted media, events, indices, and data co
 
 Published by [Proficient PR](https://proficientpr.com/) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/independent-presidential-candidate-robert-f-kennedy-jr-joins-consensus-as-a-headline-speaker)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cnjynn/robert_f_kennedy_jr_to_speak_at_consensus_2024/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cnjynn/robert_f_kennedy_jr_to_speak_at_consensus_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/9/jokeEWzS.webp)

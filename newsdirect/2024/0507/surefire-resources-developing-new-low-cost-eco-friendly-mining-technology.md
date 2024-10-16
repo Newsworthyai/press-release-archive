@@ -14,9 +14,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/surefire-resources-developing-new-low-cost-eco-friendly-mining-technology-650541838 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/surefire-resources-developing-new-low-cost-eco-friendly-mining-technology-650541838)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cmnwhd/surefire_resources_developing_new_lowcost/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cmnwhd/surefire_resources_developing_new_lowcost/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/loftoLVv.webp)

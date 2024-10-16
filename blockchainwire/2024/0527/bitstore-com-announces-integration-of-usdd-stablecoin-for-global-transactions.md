@@ -27,9 +27,17 @@ Website
 
  | Youtube 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitstorecom-announces-integration-of-usdd-stablecoin-for-global-transactions)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvngew/bitstorecom_partners_with_usdd_to_bring/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvngew/bitstorecom_partners_with_usdd_to_bring/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/faceaMbG.webp)

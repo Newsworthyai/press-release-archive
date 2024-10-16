@@ -54,9 +54,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/closure-of-lithium-mine-in-china-sees-uptick-in-lithium-prices-760981283 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/closure-of-lithium-mine-in-china-sees-uptick-in-lithium-prices-760981283)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1g3f247/lithium_mine_closure_in_china_sparks_surge_in/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1g3f247/lithium_mine_closure_in_china_sparks_surge_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/14/gulfyjnX.webp)

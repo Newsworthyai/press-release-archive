@@ -22,9 +22,17 @@ Disclaimer at the end always - All product and company names herein may be trad
 
 Metaverse contact: https://netvrk.link/discord   Media Contact: netvrk@transformgroup.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/netvrk-launches-token-swap-to-netvr-expands-vision-toward-vr-xr-ai-powered-metaverse)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avdryl/netvrk_launches_token_swap_and_bridge_between/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avdryl/netvrk_launches_token_swap_and_bridge_between/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/lily98Ck.webp)

@@ -39,9 +39,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/benzinga-virtual-events-digging-deeper-the-future-of-mining-768912278 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/benzinga-virtual-events-digging-deeper-the-future-of-mining-768912278)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1en6967/benzinga_hosts_virtual_event_34the_future_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1en6967/benzinga_hosts_virtual_event_34the_future_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/8/lossDsrd.webp)

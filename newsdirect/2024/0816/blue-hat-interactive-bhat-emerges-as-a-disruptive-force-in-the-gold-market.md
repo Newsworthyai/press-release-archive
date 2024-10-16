@@ -56,9 +56,17 @@ Company Websitehttps://digitalcoinstandard.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/blue-hat-interactive-bhat-emerges-as-a-disruptive-force-in-the-gold-market-871321276 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/blue-hat-interactive-bhat-emerges-as-a-disruptive-force-in-the-gold-market-871321276)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1etuorh/blue_hat_interactive_nasdaq_bhat_disrupts_gold/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1etuorh/blue_hat_interactive_nasdaq_bhat_disrupts_gold/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/16/tiletFLr.webp)

@@ -42,9 +42,17 @@ Company Websitehttps://forumhealth.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/world-renowned-neurologist-and-bestselling-author-joins-forum-healths-annual-integrative-medicine-summit-480491927 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/world-renowned-neurologist-and-bestselling-author-joins-forum-healths-annual-integrative-medicine-summit-480491927)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cb40lc/dr_dale_bredesen_to_keynote_forum_health_summit/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cb40lc/dr_dale_bredesen_to_keynote_forum_health_summit/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/23/vastaTIQ.webp)

@@ -46,9 +46,17 @@ Company Websitehttps://bobecoin.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bobe-introduces-new-crypto-facilities-for-elite-world-of-memes-and-wealth-919944721 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bobe-introduces-new-crypto-facilities-for-elite-world-of-memes-and-wealth-919944721)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cjhdp7/introducing_bobe_the_elite_world_of_memes_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cjhdp7/introducing_bobe_the_elite_world_of_memes_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/3/tarolH0C.webp)

@@ -62,9 +62,17 @@ Company Websitehttps://www.scrut.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/scrut-automation-raises-10m-in-growth-capital-from-lightspeed-and-massmutual-ventures-to-accelerate-growth-in-north-america-239522860 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/scrut-automation-raises-10m-in-growth-capital-from-lightspeed-and-massmutual-ventures-to-accelerate-growth-in-north-america-239522860)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1btygvv/scrut_automation_raises_10m_in_growth_capital_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1btygvv/scrut_automation_raises_10m_in_growth_capital_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/2/gleeaNQI.webp)

@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sealminer-bitdeers-randd-roadmap-promises-innovation-and-transparency-in-bitcoin-mining-345761529 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sealminer-bitdeers-randd-roadmap-promises-innovation-and-transparency-in-bitcoin-mining-345761529)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1e1go9x/bitdeer_unveils_sealminer_technology_roadmap/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1e1go9x/bitdeer_unveils_sealminer_technology_roadmap/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/12/wamcszlj.webp)

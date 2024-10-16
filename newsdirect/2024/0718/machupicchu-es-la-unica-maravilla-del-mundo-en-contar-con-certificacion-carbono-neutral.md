@@ -24,9 +24,17 @@ Company Websitehttps://www.promperu.gob.pe
 
 View source version on newsdirect.com: https://newsdirect.com/news/machupicchu-es-la-unica-maravilla-del-mundo-en-contar-con-certificacion-carbono-neutral-249463393 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/machupicchu-es-la-unica-maravilla-del-mundo-en-contar-con-certificacion-carbono-neutral-249463393)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1e6jald/santuario_histórico_de_machupicchu_en_perú/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1e6jald/santuario_histórico_de_machupicchu_en_perú/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/18/isleYyyt.webp)

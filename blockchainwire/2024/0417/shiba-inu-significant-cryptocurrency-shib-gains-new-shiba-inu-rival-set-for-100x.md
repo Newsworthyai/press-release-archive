@@ -38,9 +38,17 @@ Twitter: SHIBA BUDZ "$BUDZ" (@ShibaBudz) / X
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/shiba-inu-significant-cryptocurrency-shib-gains-new-shiba-inu-rival-set-for-100x)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c6bpwd/shiba_inu_faces_new_competition_from_shiba_budz/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c6bpwd/shiba_inu_faces_new_competition_from_shiba_budz/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/17/apexdc5J.webp)

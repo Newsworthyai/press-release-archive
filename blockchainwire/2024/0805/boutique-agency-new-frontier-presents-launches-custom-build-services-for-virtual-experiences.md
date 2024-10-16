@@ -14,9 +14,17 @@ Trolley Problem for American Philosophical Association The vision for NFP focuse
 
 The Race Club Web3 Gaming​For more information on Jeff Buesing and New Frontier Presents’ custom build services, visit New Frontier Presents or Jeff Buesing's Website. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/boutique-agency-new-frontier-presents-launches-custom-build-services-for-virtual-experiences)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ekrr7q/new_frontier_presents_expands_service_portfolio/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ekrr7q/new_frontier_presents_expands_service_portfolio/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/5/irisevch.webp)

@@ -28,9 +28,17 @@ It is a proud distinction for World of Dypians to be a recurrent name on Binance
 
 You can learn more about World of Dypians and stay up-to-date with its development at these links: Website | Twitter | Discord | Telegram | GitHub | YouTube | Download on Epic Games | 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/world-of-dypians-reaches-new-prestige-level-by-making-binances-latest-industry-report)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fqi10i/world_of_dypians_featured_in_binances_latest/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fqi10i/world_of_dypians_featured_in_binances_latest/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/27/kissHnNf.webp)

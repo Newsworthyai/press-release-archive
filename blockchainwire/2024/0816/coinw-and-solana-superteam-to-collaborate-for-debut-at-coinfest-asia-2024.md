@@ -10,9 +10,17 @@ As part of their partnership, [CoinW](https://www.coinw.com/) and Solana Superte
 
 Asia plays a pivotal role in driving the resurgence of the crypto market. According to CCData, since the end of last year, Korea has surpassed the US as the world's largest crypto trading country by volume. The recent Bitcoin breakthrough during Asian trading hours underscores the growing significance of retail trading volumes in Asia.Reflecting on CoinW's Expedition Trek initiative, the first half of their journey has established a strong presence in the US and European markets, including participation in Consensus, Money2020, and Proof of Talk. However, as one of the world's pioneering cryptocurrency exchanges, CoinW has always retained its connection to Asia, where it first gained market recognition. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-and-solana-superteam-to-collaborate-for-debut-at-coinfest-asia-2024)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1etm8ju/coinw_team_to_unveil_new_product_propw_at/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1etm8ju/coinw_team_to_unveil_new_product_propw_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/16/mint4YqF.webp)

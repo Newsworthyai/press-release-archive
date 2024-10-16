@@ -34,9 +34,17 @@ The Boom ecosystem consists of the Boom blockchain as the layer 1 payments and s
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/boom-launches-its-defi-ecosystem-to-lead-the-unbanked-generation)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1flil17/boom_technologies_launches_decentralized_finance/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1flil17/boom_technologies_launches_decentralized_finance/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/20/mail59vo.webp)

@@ -27,9 +27,17 @@ X (Twitter) | Telegram | Discord
 
 Disclaimer: This is a press release and does not contain any financial advice. Readers should do their own research before taking any actions related to the company mentioned. You are solely responsible, directly or indirectly, for any damage or loss caused or alleged to be caused by or in connection with the use of or reliance on any content, goods, or services mentioned in the press release. Cryptocurrency is volatile. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/solblock-ai-announces-fair-launch-on-pinksale-for-ai-driven-community-token-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1ca64xi/solblock_ai_unveils_token_fair_launch_on_pinksale/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1ca64xi/solblock_ai_unveils_token_fair_launch_on_pinksale/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/22/ninaMcFz.webp)

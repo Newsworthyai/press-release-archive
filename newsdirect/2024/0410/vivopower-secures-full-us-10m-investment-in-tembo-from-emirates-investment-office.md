@@ -28,9 +28,17 @@ Company Websitehttps://vivopower.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/vivopower-secures-full-us-10m-investment-in-tembo-from-emirates-investment-office-794478409 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/vivopower-secures-full-us-10m-investment-in-tembo-from-emirates-investment-office-794478409)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c0j7w1/vivopower_secures_full_us10m_investment_in_tembo/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c0j7w1/vivopower_secures_full_us10m_investment_in_tembo/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/10/bossGFAW.webp)

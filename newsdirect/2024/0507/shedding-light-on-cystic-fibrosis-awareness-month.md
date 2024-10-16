@@ -34,9 +34,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/shedding-light-on-cystic-fibrosis-awareness-month-366568427 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/shedding-light-on-cystic-fibrosis-awareness-month-366568427)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cmc2bt/cystic_fibrosis_foundation_board_chair_kc_white/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cmc2bt/cystic_fibrosis_foundation_board_chair_kc_white/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/icon_LZR.webp)

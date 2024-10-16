@@ -64,9 +64,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/emerging-entertainment-powerhouse-sportsquest-otc-spqs-and-huayi-cinemas-forge-ai-driven-merger-547638478 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/emerging-entertainment-powerhouse-sportsquest-otc-spqs-and-huayi-cinemas-forge-ai-driven-merger-547638478)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1c1alxc/sportsquest_inc_otc_spqs_and_huayi_cinemas_forge/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1c1alxc/sportsquest_inc_otc_spqs_and_huayi_cinemas_forge/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/davedyZJ.webp)

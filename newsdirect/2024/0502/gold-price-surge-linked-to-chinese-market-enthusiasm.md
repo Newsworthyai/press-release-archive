@@ -80,9 +80,17 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gold-price-surge-linked-to-chinese-market-enthusiasm-493580278 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/gold-price-surge-linked-to-chinese-market-enthusiasm-493580278)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1cienn9/gold_price_surge_linked_to_chinese_market/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1cienn9/gold_price_surge_linked_to_chinese_market/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/2/oxen0a2l.webp)

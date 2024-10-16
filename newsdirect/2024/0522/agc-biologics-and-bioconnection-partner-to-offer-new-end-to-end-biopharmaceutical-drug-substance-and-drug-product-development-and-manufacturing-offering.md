@@ -50,9 +50,17 @@ Company Websitehttps://www.agcbio.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/agc-biologics-and-bioconnection-partner-to-offer-new-end-to-end-biopharmaceutical-drug-substance-and-drug-product-development-and-manufacturing-offering-961424576 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/agc-biologics-and-bioconnection-partner-to-offer-new-end-to-end-biopharmaceutical-drug-substance-and-drug-product-development-and-manufacturing-offering-961424576)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cxwpdy/agc_biologics_and_bioconnection_announce/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cxwpdy/agc_biologics_and_bioconnection_announce/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/22/eacheft1.webp)

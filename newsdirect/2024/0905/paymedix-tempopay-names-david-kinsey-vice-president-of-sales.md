@@ -32,9 +32,17 @@ Company Websitehttps://paymedix.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/paymedix-tempopay-names-david-kinsey-vice-president-of-sales-757645407 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/paymedix-tempopay-names-david-kinsey-vice-president-of-sales-757645407)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f9rhuv/paymedixtempopay_names_david_kinsey_vice/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f9rhuv/paymedixtempopay_names_david_kinsey_vice/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/5/pear_jFH.webp)

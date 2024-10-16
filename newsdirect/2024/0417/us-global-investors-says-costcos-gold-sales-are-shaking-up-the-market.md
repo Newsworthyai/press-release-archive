@@ -24,9 +24,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/us-global-investors-says-costcos-gold-sales-are-shaking-up-the-market-692699741 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/us-global-investors-says-costcos-gold-sales-are-shaking-up-the-market-692699741)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1c6hyf9/us_global_investors_ceo_discusses_enduring_allure/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1c6hyf9/us_global_investors_ceo_discusses_enduring_allure/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/17/riftKTvh.webp)

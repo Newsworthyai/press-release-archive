@@ -34,9 +34,17 @@ Company Websitehttps://www.mybluepeak.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bluepeak-to-invest-more-than-19-5-million-to-bring-fiber-optic-internet-to-the-city-of-muskogee-603984693 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bluepeak-to-invest-more-than-19-5-million-to-bring-fiber-optic-internet-to-the-city-of-muskogee-603984693)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d43ot6/bluepeak_to_invest_195_million_in_fiber_optic/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d43ot6/bluepeak_to_invest_195_million_in_fiber_optic/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/30/leanGaHh.webp)

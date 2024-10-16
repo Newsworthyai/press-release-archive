@@ -34,9 +34,17 @@ https://apeterminal.io/project/ponder
 
 You can learn more about Ponder at these links: Website | X (Twitter) | Telegram | Medium 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ponder-launches-beta-swapping-bridging-across-20-chains-and-community-race-airdrop-with-15k-prize-pool-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1eb3hxz/ponder_beta_launch_simplifying_asset_swapping_and/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1eb3hxz/ponder_beta_launch_simplifying_asset_swapping_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/23/volthqOv.webp)

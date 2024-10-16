@@ -38,9 +38,17 @@ For more information on Everready and Jiritsu Proof:
 
 Everready Website 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/jiritsu-blockchain-powered-by-zk-mpc-uses-avalanche-to-verify-real-world-assets-on-chain)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cdpc16/jiritsu_network_launches_layer_1_with_avalanches/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cdpc16/jiritsu_network_launches_layer_1_with_avalanches/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/26/ellaHckM.webp)

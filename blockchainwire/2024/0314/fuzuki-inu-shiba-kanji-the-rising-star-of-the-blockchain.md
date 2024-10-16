@@ -22,9 +22,17 @@ Invest with heart and grow compassion alongside Fuzuki Inu, laying the groundwor
 
 Step into Fuzuki Inu, where innovation meets finance in a bold new way. Launching soon, this project is all about turning the crypto market around with a focus on community strength and creating progress. Join the revolution with Fuzuki Inu: The Shiba Kanji!Stay connected and join our community on:https://www.facebook.com/fuzuki.inu https://twitter.com/Fuzuki_Inu https://discord.gg/dN9rgVET fuzuki_Inu (u/fuzuki_Inu) - Reddit https://t.me/fuzukitokenFor the latest updates, make sure to follow us right here! "Disclaimer: The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency." 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/fuzuki-inu-shiba-kanji-the-rising-star-of-the-blockchain)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1beoz13/fuzuki_inu_shiba_kanji_the_rising_star_of_the/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1beoz13/fuzuki_inu_shiba_kanji_the_rising_star_of_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/14/wait1Z2K.webp)

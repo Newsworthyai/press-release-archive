@@ -26,9 +26,17 @@ Yala connects Bitcoin liquidity with a meta-yield stablecoin. Designed as both a
 
 For media inquiries, please contact media@yala.org. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/yala-unveils-vision-to-revolutionize-defi-with-bitcoin)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c25p2z/yala_unveils_vision_for_defi_on_bitcoin_with_yu/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c25p2z/yala_unveils_vision_for_defi_on_bitcoin_with_yu/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/12/ideas4y3.webp)

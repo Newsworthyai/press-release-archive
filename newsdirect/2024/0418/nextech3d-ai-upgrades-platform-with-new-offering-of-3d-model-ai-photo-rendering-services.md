@@ -20,9 +20,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-upgrades-platform-with-new-offering-of-3d-model-ai-photo-rendering-services-491104320 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-upgrades-platform-with-new-offering-of-3d-model-ai-photo-rendering-services-491104320)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1c78bjj/nextech3dai_unveils_new_digital_photography_and/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1c78bjj/nextech3dai_unveils_new_digital_photography_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/18/open3fDs.webp)

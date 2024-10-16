@@ -28,9 +28,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-rolls-out-btc-futures-trade-to-earn-2-experience-enhanced-reward-ratios-and-daily-share-of-100-000-usdt-prize-pool-with-negative-fee-trading-210010844 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-rolls-out-btc-futures-trade-to-earn-2-experience-enhanced-reward-ratios-and-daily-share-of-100-000-usdt-prize-pool-with-negative-fee-trading-210010844)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bpw3dx/htx_launches_future_34trade_to_earn34_event_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bpw3dx/htx_launches_future_34trade_to_earn34_event_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/28/openHV4L.webp)

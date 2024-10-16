@@ -36,9 +36,17 @@
 
  heart.org and stroke.org 
 
+---
+
 [Original/Source Press Release](http://www.newmediawire.com/news/hundreds-learn-cpr-skills-at-ford-field-7076084)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1frcayp/detroit_lions_and_american_heart_association_host/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1frcayp/detroit_lions_and_american_heart_association_host/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/28/gainXtfK.webp)

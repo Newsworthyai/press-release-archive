@@ -18,9 +18,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ecora-resources-reports-strong-q1-as-it-benefits-from-volume-growth-and-rising-commodity-prices-709023184 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ecora-resources-reports-strong-q1-as-it-benefits-from-volume-growth-and-rising-commodity-prices-709023184)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cc0eec/ecora_resources_reports_strong_q1_performance/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cc0eec/ecora_resources_reports_strong_q1_performance/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/24/loftcyxN.webp)

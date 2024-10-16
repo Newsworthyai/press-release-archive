@@ -16,9 +16,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/g-mining-ventures-corp-provides-positive-update-on-tocantinzinho-gold-project-975228408 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/g-mining-ventures-corp-provides-positive-update-on-tocantinzinho-gold-project-975228408)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dkhz4o/g_mining_ventures_corp_ceo_shares_positive_update/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dkhz4o/g_mining_ventures_corp_ceo_shares_positive_update/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/20/lenddfl7.webp)

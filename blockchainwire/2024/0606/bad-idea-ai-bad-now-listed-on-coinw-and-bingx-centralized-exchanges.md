@@ -19,9 +19,17 @@ Event Details for CoinW Listing To celebrate the listing on CoinW, Bad Idea AI h
 
  Bad Idea AI invites the crypto community to join in celebrating this exciting new chapter as it continues to push the boundaries of what is possible in the intersection of AI and blockchain technology.Risk Warning and DisclaimerDisclaimer: The information provided in this press release is not intended as, and shall not be construed as, investment advice. The information herein is provided for informational purposes only and does not constitute an offer to sell, a solicitation to buy, or a recommendation for any security by Bad Idea AI or any third party. Users are advised to conduct their own due diligence and consult with a qualified financial advisor before making any investment decisions. Bad Idea AI does not endorse or recommend any commercial products, processes, or services. The views and opinions of authors expressed on Bad Idea AI's websites do not necessarily state or reflect those of Bad Idea AI, and they may not be used for advertising or product endorsement purposes. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bad-idea-ai-bad-now-listed-on-coinw-and-bingx-centralized-exchanges)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1d9qa1j/bad_idea_ai_listed_on_coinw_and_bingx_exchanges/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1d9qa1j/bad_idea_ai_listed_on_coinw_and_bingx_exchanges/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/6/bossIFAG.webp)

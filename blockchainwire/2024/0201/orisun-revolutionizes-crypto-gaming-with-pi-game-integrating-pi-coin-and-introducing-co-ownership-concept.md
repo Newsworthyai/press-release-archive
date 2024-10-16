@@ -36,9 +36,17 @@ Website: https://orisun.club/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/orisun-revolutionizes-crypto-gaming-with-pigame-integrating-pi-coin-and-introducing-co-ownership-concept)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1avjw3y/orisun_introduces_pigame_revolutionary_gaming/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1avjw3y/orisun_introduces_pigame_revolutionary_gaming/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/wamcc_D8.webp)

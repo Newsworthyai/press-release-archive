@@ -22,9 +22,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/i3-energy-announces-strategic-refinancing-and-positive-reserves-update-664930597 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/i3-energy-announces-strategic-refinancing-and-positive-reserves-update-664930597)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bp0oj0/i3_energy_ceo_discusses_positive_refinancing_and/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bp0oj0/i3_energy_ceo_discusses_positive_refinancing_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/wamcFSxB.webp)

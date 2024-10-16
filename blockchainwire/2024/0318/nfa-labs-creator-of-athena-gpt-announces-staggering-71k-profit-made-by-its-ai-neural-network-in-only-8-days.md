@@ -22,9 +22,17 @@ Website - https://nfa.ai/
 
 Telegram - [https://t.me/nfalabs](https://t.me/nfalabs)X - [https://twitter.com/nfalabs](https://twitter.com/nfalabs)Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/nfa-labs-creator-of-athena-gpt-announces-staggering-71k-profit-made-by-its-ai-neural-network-in-only-8-days)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1bi6hbu/nfa_labs_unveils_athena_algorithm_and_nfai_token/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1bi6hbu/nfa_labs_unveils_athena_algorithm_and_nfai_token/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/19/fineRLJH.webp)

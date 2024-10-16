@@ -12,9 +12,17 @@ Security and control are paramount in Bit.Store's offering, with the Bit.Store V
 
 In essence, the Bit.Store Visa® Virtual Crypto Card is more than a mere payment option—it's a symbol of Bitcoin's burgeoning role in the global financial ecosystem. With the card's launch, Bit.Store reaffirms its commitment to bridging the gap between the potential of Web3 and the established mechanisms of traditional finance, fostering a more inclusive, efficient, and transparent financial environment. As we witness Bitcoin's continued growth, the Bit.Store Visa® Virtual Crypto Card stands as a beacon of innovation, empowering users to convert their digital assets into a potent instrument for both expenditure and earning. Register your card now and spend Bitcoin and other cryptocurrencies just like cash: cryptocard.bit.store. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/harnessing-bitcoins-growth-with-bitstore-card-a-new-era-of-spending-and-earning)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avdsq4/bitstore_launches_visa_virtual_crypto_card/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avdsq4/bitstore_launches_visa_virtual_crypto_card/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/bakeiONd.webp)

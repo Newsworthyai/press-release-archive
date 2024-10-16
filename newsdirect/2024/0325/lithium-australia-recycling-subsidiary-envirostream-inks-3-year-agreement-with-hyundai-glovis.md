@@ -18,9 +18,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lithium-australia-recycling-subsidiary-envirostream-inks-3-year-agreement-with-hyundai-glovis-863848908 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/lithium-australia-recycling-subsidiary-envirostream-inks-3-year-agreement-with-hyundai-glovis-863848908)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bnue0y/lithium_australias_envirostream_inks_3year/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bnue0y/lithium_australias_envirostream_inks_3year/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/jinxvl92.webp)

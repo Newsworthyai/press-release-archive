@@ -26,9 +26,17 @@ These perks include:
 
 To learn more, join the Crypto Hub community for an upcoming Ask Me Anything (AMA) session with Areon Network. Register on Luma and collect rewards on Galxe to learn more about this partnership. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/crypto-hub-announces-partnership-with-areon-network-becoming-the-first-official-areon-launchpad)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cbljz5/crypto_hub_announces_strategic_partnership_with/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cbljz5/crypto_hub_announces_strategic_partnership_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/24/ulnaN2eV.webp)

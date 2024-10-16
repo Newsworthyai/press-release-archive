@@ -52,9 +52,17 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/hedera-price-jumps-kangamoon-nears-6m-is-a-500-breakout-possible-for-ltc-128193804 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/hedera-price-jumps-kangamoon-nears-6m-is-a-500-breakout-possible-for-ltc-128193804)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cf1oi9/kangamoon_kang_new_investors_get_a_20_bonus_on/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cf1oi9/kangamoon_kang_new_investors_get_a_20_bonus_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/28/keepf8ft.webp)

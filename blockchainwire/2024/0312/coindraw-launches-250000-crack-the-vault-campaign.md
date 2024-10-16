@@ -6,9 +6,17 @@ Coindraw leads the way as the premier cryptocurrency settlement gateway, offerin
 
 With a solid foundation of commitment to security, efficiency, and client contentment, Coindraw leads the charge in transforming crypto transactions. Learn more about our innovative solutions at Coindraw.ai. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/coindraw-launches-250000-crack-the-vault-campaign)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bd15gl/coindraw_and_raging_bull_slots_announce_250000/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bd15gl/coindraw_and_raging_bull_slots_announce_250000/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/12/irisoM8B.webp)

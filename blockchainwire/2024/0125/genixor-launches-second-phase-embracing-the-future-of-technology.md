@@ -36,9 +36,17 @@ Contact Person: Alejandro Jennings
 
 Email: [info@genixor.com](mailto:info@genixor.com) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/genixor-launches-second-phase-embracing-the-future-of-technology)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1avxheo/genixor_commences_second_phase_with_token_price/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1avxheo/genixor_commences_second_phase_with_token_price/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/ovalvTM1.webp)

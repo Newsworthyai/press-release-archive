@@ -58,9 +58,17 @@ MIAMI, FL - (NewMediaWire) - August 27, 2024 - Luminar Media Group, Inc. (OTC M
 
  Follow us on X @FortunCorp 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/fortun-reports-a-245-surge-in-business-advances-since-june-2024-7075967)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1f7lorj/luminar_media_group_inc_reports_245_growth_in/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1f7lorj/luminar_media_group_inc_reports_245_growth_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/2/bean1nor.webp)

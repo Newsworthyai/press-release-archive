@@ -34,9 +34,17 @@ leanne@cleancloud.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cleancloud-revolutionizes-online-presence-for-laundromats-and-dry-cleaners-with-a-powerful-user-friendly-website-builder-524942151 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cleancloud-revolutionizes-online-presence-for-laundromats-and-dry-cleaners-with-a-powerful-user-friendly-website-builder-524942151)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cb0w0j/cleancloud_launches_revolutionary_website_builder/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cb0w0j/cleancloud_launches_revolutionary_website_builder/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/23/roam0w_H.webp)

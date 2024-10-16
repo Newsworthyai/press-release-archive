@@ -48,9 +48,17 @@ KFC - KOREAN FRIED CHICKEN
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-kfc-korean-chicken-protocol-listing-on-xtcom)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1c73yq7/xtcom_lists_kfc_token_for_korean_chicken_protocol/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1c73yq7/xtcom_lists_kfc_token_for_korean_chicken_protocol/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/18/quizp4Yj.webp)

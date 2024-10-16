@@ -28,9 +28,17 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/casinu-inu-vitalik-buterins-groundbreaking-venture-into-meme-coin-creation)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avjzq2/ethereum_cofounder_vitalik_buterin_launches/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avjzq2/ethereum_cofounder_vitalik_buterin_launches/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/tintZ39H.webp)

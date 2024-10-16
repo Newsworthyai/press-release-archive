@@ -18,9 +18,17 @@ Email: info@boundlesspay.com
 
 Website: BoundlessPay 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cryptohub-announces-boundlesspay-private-sale-incubation)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fviadj/cryptohub_announces_incubation_of_boundlesspay/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fviadj/cryptohub_announces_incubation_of_boundlesspay/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/15/zealHzDM.webp)

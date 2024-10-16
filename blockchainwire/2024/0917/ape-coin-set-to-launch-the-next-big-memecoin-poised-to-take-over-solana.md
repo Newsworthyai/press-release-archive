@@ -43,9 +43,17 @@ For more information, please visit Original Ape Coin’s website at https://ori
 
 Website | Twitter | Telegram 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ape-coin-set-to-launch-the-next-big-memecoin-poised-to-take-over-solana)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fj9tu1/groundbreaking_ape_coin_set_to_dominate_memecoin/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fj9tu1/groundbreaking_ape_coin_set_to_dominate_memecoin/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/17/kissYIs1.webp)

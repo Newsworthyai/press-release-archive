@@ -54,9 +54,17 @@ Justin@tcg.world
 
 View source version on newsdirect.com: https://newsdirect.com/news/tcg-world-proudly-announces-partnership-with-styngr-and-downtown-446137227 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tcg-world-proudly-announces-partnership-with-styngr-and-downtown-446137227)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1c0guni/tcg_world_partners_with_styngr_and_downtown_to/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1c0guni/tcg_world_partners_with_styngr_and_downtown_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/10/wamc2JQp.webp)

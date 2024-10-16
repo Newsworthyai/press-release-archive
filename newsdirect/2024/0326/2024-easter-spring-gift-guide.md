@@ -40,9 +40,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/2024-easter-and-spring-gift-guide-320747891 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/2024-easter-and-spring-gift-guide-320747891)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1boeeew/musthave_easter_spring_2024_toys_for_kids_toy/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1boeeew/musthave_easter_spring_2024_toys_for_kids_toy/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/cakeVEpg.webp)

@@ -26,9 +26,17 @@ ppage@vocatusllc.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/own-up-and-move-forward-from-a-crisis-reputation-expert-ray-hennessey-explores-elements-of-a-lasting-apology-in-a-new-book-beyond-sorry-405630657 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/own-up-and-move-forward-from-a-crisis-reputation-expert-ray-hennessey-explores-elements-of-a-lasting-apology-in-a-new-book-beyond-sorry-405630657)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BookNews/comments/1cna2hv/reputation_expert_ray_hennessey_releases_new_book/
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1cna2hv/reputation_expert_ray_hennessey_releases_new_book/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/8/quipsnnj.webp)

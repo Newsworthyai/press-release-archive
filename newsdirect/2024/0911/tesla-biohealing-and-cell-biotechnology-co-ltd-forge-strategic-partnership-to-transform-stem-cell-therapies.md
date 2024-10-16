@@ -66,9 +66,17 @@ Company Websitehttps://www.teslabiohealing.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tesla-biohealing-and-cell-biotechnology-co-ltd-forge-strategic-partnership-to-transform-stem-cell-therapies-802847013 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tesla-biohealing-and-cell-biotechnology-co-ltd-forge-strategic-partnership-to-transform-stem-cell-therapies-802847013)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1feoayz/tesla_biohealing_cell_biotechnology_co_ltd_forge/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1feoayz/tesla_biohealing_cell_biotechnology_co_ltd_forge/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/11/pitapicoVkut.webp)

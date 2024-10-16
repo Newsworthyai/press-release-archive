@@ -42,9 +42,17 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-invests-in-babylon-to-advance-trustless-bitcoin-staking-896300314 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/htx-ventures-invests-in-babylon-to-advance-trustless-bitcoin-staking-896300314)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1d5dw9h/htx_ventures_invests_in_babylon_to_advance/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1d5dw9h/htx_ventures_invests_in_babylon_to_advance/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/1/envyxeTK.webp)

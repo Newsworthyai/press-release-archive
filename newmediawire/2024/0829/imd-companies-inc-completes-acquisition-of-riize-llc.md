@@ -46,9 +46,17 @@ iMD Companies, Inc.
 
 info@imdcompaniesinc.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/imd-companies-inc-completes-acquisition-of-riize-llc-7075978)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Leadership_Management/comments/1f7lp7c/imd_companies_inc_completes_acquisition_of_riize/
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1f7lp7c/imd_companies_inc_completes_acquisition_of_riize/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/2/ellezRzb.webp)

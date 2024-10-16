@@ -30,9 +30,17 @@ Company Websitehttps://www.teads.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/teads-unveils-next-generation-contextual-and-identity-graph-built-for-the-premium-open-internet-and-ctv-919351655 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/teads-unveils-next-generation-contextual-and-identity-graph-built-for-the-premium-open-internet-and-ctv-919351655)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1dfqki4/teads_unveils_nextgeneration_contextual_and/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1dfqki4/teads_unveils_nextgeneration_contextual_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/14/fastjBS0.webp)

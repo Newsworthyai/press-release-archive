@@ -58,9 +58,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/geopolitical-strategist-and-best-selling-author-peter-zeihan-to-speak-on-cutting-through-chaos-at-crossroads-summit-sponsored-by-tradestation-group-393676401 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/geopolitical-strategist-and-best-selling-author-peter-zeihan-to-speak-on-cutting-through-chaos-at-crossroads-summit-sponsored-by-tradestation-group-393676401)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f4wlwe/crossroads_summit_navigating_the_changing_world/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f4wlwe/crossroads_summit_navigating_the_changing_world/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/30/wolfrT7b.webp)

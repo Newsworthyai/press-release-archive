@@ -54,9 +54,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/why-you-may-want-to-consider-linqto-as-your-go-to-pre-ipo-investing-platform-883258227 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/why-you-may-want-to-consider-linqto-as-your-go-to-pre-ipo-investing-platform-883258227)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1f462ce/linqto_revolutionizes_private_equity_investing/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f462ce/linqto_revolutionizes_private_equity_investing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/29/corngl_6.webp)

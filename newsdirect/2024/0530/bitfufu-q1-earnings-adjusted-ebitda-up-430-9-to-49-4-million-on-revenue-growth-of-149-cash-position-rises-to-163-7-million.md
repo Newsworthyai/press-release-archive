@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitfufu-q1-earnings-adjusted-ebitda-up-430-9-to-49-4-million-on-revenue-growth-of-149-cash-position-rises-to-163-7-million-862656802 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitfufu-q1-earnings-adjusted-ebitda-up-430-9-to-49-4-million-on-revenue-growth-of-149-cash-position-rises-to-163-7-million-862656802)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d43a4a/bitfufu_inc_reports_149_revenue_growth_in_q1/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d43a4a/bitfufu_inc_reports_149_revenue_growth_in_q1/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/30/even4hwM.webp)

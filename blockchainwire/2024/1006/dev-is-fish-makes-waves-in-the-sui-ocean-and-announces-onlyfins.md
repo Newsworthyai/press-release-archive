@@ -38,9 +38,17 @@ With Devo leading the charge, Dev is Fish is set to continue making waves in the
 
 Telegram Community: [https://t.me/deviscto](https://t.me/deviscto)Twitter X: [https://twitter.com/Devisfishsui](https://twitter.com/Devisfishsui)Website : [https://devisfish.xyz/](https://devisfish.xyz/)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/dev-is-fish-makes-waves-in-the-sui-ocean-and-announces-onlyfins)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1g3kr5b/devo_the_goldfish_developer_making_waves_in_the/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1g3kr5b/devo_the_goldfish_developer_making_waves_in_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/14/pond1u0x.webp)

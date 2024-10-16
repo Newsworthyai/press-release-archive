@@ -14,9 +14,17 @@ In conclusion, TradeTide.net is a leading platform for Forex and cryptocurrency 
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/tradetidenet--leading-the-way-in-trading-excellence)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1fvdne0/tradetidenet_leading_the_future_of_forex_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1fvdne0/tradetidenet_leading_the_future_of_forex_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/4/vastQjbL.webp)

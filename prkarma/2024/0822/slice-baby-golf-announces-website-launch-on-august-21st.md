@@ -32,9 +32,17 @@ United States
 
 NA 
 
+---
+
 [Original/Source Press Release](https://newsroom.prkarma.com/slicebabygolf_newsroom/news_release/1536)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1f6i61q/slice_baby_golf_launches_bold_new_era_in_golf/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1f6i61q/slice_baby_golf_launches_bold_new_era_in_golf/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/249/1/milk2TqD.webp)

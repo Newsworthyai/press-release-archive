@@ -47,9 +47,17 @@ About M-PowerM-Power is an AI-powered financial ecosystem that transforms digita
 
 Press Contact:Catherina PawlickPublic Relations Officer, M-PowerEmail: catherina.pawlick@mpower.aiPhone: +1 (234) 567-890 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/m-power-launches-unleashing-the-future-of-financial-freedom-with-ai-and-the-unique-leadership-of-sameer-ma-sahmound)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dnbxur/mpower_aipowered_financial_revolution_led_by/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dnbxur/mpower_aipowered_financial_revolution_led_by/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/246/24/coolfxXp.webp)

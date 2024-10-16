@@ -28,9 +28,17 @@ Company Websitehttp://www.promperu.gob.pe
 
 View source version on newsdirect.com: https://newsdirect.com/news/peru-introduced-ten-new-routes-to-access-the-historic-sanctuary-of-machupicchu-324671666 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/peru-introduced-ten-new-routes-to-access-the-historic-sanctuary-of-machupicchu-324671666)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/TravelAndLeisureNews/comments/1dki830/peru_introduces_new_routes_to_machupicchu_and/
+
+
+[Reddit Post](https://www.reddit.com/r/TravelAndLeisureNews/comments/1dki830/peru_introduces_new_routes_to_machupicchu_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/20/nukex_RI.webp)

@@ -18,9 +18,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/standard-uranium-set-to-begin-inaugural-drill-program-on-canary-project-792966149 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/standard-uranium-set-to-begin-inaugural-drill-program-on-canary-project-792966149)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1ch31xj/standard_uranium_to_begin_inaugural_drill_program/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1ch31xj/standard_uranium_to_begin_inaugural_drill_program/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/30/fernnML_.webp)

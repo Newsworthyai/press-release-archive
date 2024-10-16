@@ -16,9 +16,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/volta-metals-begins-next-phase-of-exploration-at-falcon-west-lithium-property-476696679 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/volta-metals-begins-next-phase-of-exploration-at-falcon-west-lithium-property-476696679)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1do3hrw/volta_metals_ceo_announces_2024_exploration/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1do3hrw/volta_metals_ceo_announces_2024_exploration/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/25/jadeDND4.webp)

@@ -80,9 +80,17 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-hosted-the-tron-builder-tour-at-columbia-university-with-blockchain-at-columbia-and-boston-university-blockchain-337428181 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tron-dao-hosted-the-tron-builder-tour-at-columbia-university-with-blockchain-at-columbia-and-boston-university-blockchain-337428181)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fzwx7u/tron_dao_hosts_successful_builder_tour_at/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fzwx7u/tron_dao_hosts_successful_builder_tour_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/2410/9/rendStep.webp)

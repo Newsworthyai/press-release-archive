@@ -36,9 +36,17 @@ Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/pandoshi-pambo-stage-3-sold-out-and-launches-defi-wallet)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avdt7s/pandoshi_pambo_stage_3_sold_out_defi_wallet/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avdt7s/pandoshi_pambo_stage_3_sold_out_defi_wallet/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/roam2ylq.webp)

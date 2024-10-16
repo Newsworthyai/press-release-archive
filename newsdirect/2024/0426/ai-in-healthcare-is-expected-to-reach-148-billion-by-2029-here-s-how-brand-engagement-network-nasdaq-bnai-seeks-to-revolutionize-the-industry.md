@@ -38,9 +38,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ai-in-healthcare-is-expected-to-reach-148-billion-by-2029-heres-how-brand-engagement-network-nasdaq-bnai-seeks-to-revolutionize-the-industry-952685956 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ai-in-healthcare-is-expected-to-reach-148-billion-by-2029-heres-how-brand-engagement-network-nasdaq-bnai-seeks-to-revolutionize-the-industry-952685956)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cdkseq/ai_in_healthcare_revolution_brand_engagement/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cdkseq/ai_in_healthcare_revolution_brand_engagement/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/26/lily7SQn.webp)

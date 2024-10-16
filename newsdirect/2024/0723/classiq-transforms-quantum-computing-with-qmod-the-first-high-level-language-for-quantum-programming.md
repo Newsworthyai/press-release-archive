@@ -36,9 +36,17 @@ Company Websitehttp://www.classiq.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/classiq-transforms-quantum-computing-with-qmod-the-first-high-level-language-for-quantum-programming-589443299 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/classiq-transforms-quantum-computing-with-qmod-the-first-high-level-language-for-quantum-programming-589443299)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1eaa7tu/classiq_launches_qmod_the_first_highlevel/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1eaa7tu/classiq_launches_qmod_the_first_highlevel/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/23/quipuyV9.webp)

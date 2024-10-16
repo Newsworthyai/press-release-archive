@@ -52,9 +52,17 @@ Company Websitehttps://www.debt.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/americans-financial-regrets-revealed-debt-com-survey-highlights-credit-card-overspending-as-top-concern-698455557 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/americans-financial-regrets-revealed-debt-com-survey-highlights-credit-card-overspending-as-top-concern-698455557)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1cmgxef/survey_reveals_startling_financial_regrets_among/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1cmgxef/survey_reveals_startling_financial_regrets_among/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/calmXZTs.webp)

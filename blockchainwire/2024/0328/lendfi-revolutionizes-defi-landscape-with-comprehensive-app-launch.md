@@ -26,9 +26,17 @@ Twitter: https://x.com/LendFi_Finance
 
 Whitepaper: LendFi 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/lendfi-revolutionizes-defi-landscape-with-comprehensive-app-launch)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bpsxpu/lendfi_launches_innovative_defi_app_with_exciting/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bpsxpu/lendfi_launches_innovative_defi_app_with_exciting/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/28/zestbCfV.webp)

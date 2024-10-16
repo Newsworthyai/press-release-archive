@@ -60,9 +60,17 @@ Unless otherwise provided in a separate agreement, Alpha Sigma Capital does not 
 
 Crypto and/or digital currencies involve substantial risk, are speculative in nature, and may not perform as expected. Many digital currency platforms are not subject to regulatory supervision, unlike regulated exchanges. Some platforms may commingle customer assets in shared accounts and provide inadequate custody, which may affect whether or how investors can withdraw their currency and/or subject them to money laundering. Digital currencies may be vulnerable to hacks and cyber fraud as well as significant volatility and price swings. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/asc-artificial-intelligence-20-index-now-available-to-all-investors-on-upwealthio)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ecq09m/alpha_sigma_capital_index_products_now_available/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ecq09m/alpha_sigma_capital_index_products_now_available/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/26/zestcmQV.webp)

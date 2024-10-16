@@ -10,9 +10,17 @@ At Prime Psychiatry, patients have access to an array of mental health services 
 
 For more information about TMS Therapy and the services offered at Prime Psychiatry, individuals can visit their website at www.primepsychiatrymd.com. Prime Psychiatry has two convenient office locations in Frisco and Plano, Texas, and their friendly staff is available during office hours to assist with scheduling and inquiries. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402201076/transcranial-magnetic-stimulation-tms-therapy-offers-new-hope-for-patients-with-treatment-resistant-depression-at-prime-psychiatry-in-frisco-tx)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avwyp3/prime_psychiatry_introduces_groundbreaking_tms/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avwyp3/prime_psychiatry_introduces_groundbreaking_tms/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/20/numbHRu3.webp)

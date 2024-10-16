@@ -39,9 +39,17 @@ Company Websitehttps://graphlinq.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/graphlinq-secures-investment-from-dwf-labs-to-expand-ecosystem-811620045 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/graphlinq-secures-investment-from-dwf-labs-to-expand-ecosystem-811620045)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bob6lw/graphlinq_secures_strategic_investment_from_dwf/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bob6lw/graphlinq_secures_strategic_investment_from_dwf/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/26/seekfvfX.webp)

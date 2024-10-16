@@ -30,9 +30,17 @@ Email: info@3dxindustries.com
 
 Visit the 3DX Industries, Inc. web site at www.3dxindustries.com.  Information included on the Company's website is not incorporated herein by reference or otherwise. 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/3dx-industries-inc-demonstrates-resilience-amidst-industry-consolidation-reports-steady-progress-and-strategic-focus-in-update-to-shareholders-7076147)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fx6htc/3dx_industries_inc_otcm_dddx_showcases_resilience/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fx6htc/3dx_industries_inc_otcm_dddx_showcases_resilience/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/6/lamb9h4A.webp)

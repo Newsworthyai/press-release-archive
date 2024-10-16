@@ -28,9 +28,17 @@ About BitMart
 
 BitMart is the premier global digital asset trading platform. With millions of users worldwide and ranked among the top crypto exchanges on CoinGecko, it currently offers 1500+ trading pairs with competitive trading fees. Constantly evolving and growing, BitMart is interested in crypto’s potential to drive innovation and promote financial inclusion. To learn more about BitMart, visit its website, follow its Twitter or join its Telegram for updates, news and promotions. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-launches-meme-coin-season-carnival-campaign-to-celebrate-crypto-communitys-creativity-and-innovation)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cr8yhn/bitmart_launches_meme_coin_season_carnival/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cr8yhn/bitmart_launches_meme_coin_season_carnival/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/13/zerorNUI.webp)

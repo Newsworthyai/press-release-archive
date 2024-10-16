@@ -22,9 +22,17 @@ Website: https://sageuniverse.meme/Telegram: https://t.me/sage_universeX [Twitte
 
 Disclaimer: The Loaf token is not endorsed by and has no affiliation with any specific blockchain entities or companies. The information provided in this article is for informational purposes only and is not intended as a solicitation for investment. It should not be considered investment, financial, or trading advice. Investments in cryptocurrency are subject to market risks. Readers are strongly advised to conduct their own due diligence, including consultation with a professional financial advisor, before making any investment decisions or trading in cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/sage-universe-launches-pfp-generator-and-announces-exciting-airdrops)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dz3dll/sage_universe_announces_pfp_generator_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dz3dll/sage_universe_announces_pfp_generator_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/9/tintdN_d.webp)

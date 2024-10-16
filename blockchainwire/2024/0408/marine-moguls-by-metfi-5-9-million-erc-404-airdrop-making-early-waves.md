@@ -44,9 +44,17 @@ CoinMarketCap: https://coinmarketcap.com/currencies/metfi2
 
 CoinGecko: https://www.coingecko.com/en/coins/metfiInstagram: https://instagram.com/metfidao 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/marine-moguls-by-metfi-59-million-erc-404-airdrop-making-early-waves)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bytdww/marine_moguls_airdrop_revolutionizing_token_and/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bytdww/marine_moguls_airdrop_revolutionizing_token_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/8/frogdQaE.webp)

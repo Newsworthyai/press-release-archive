@@ -52,9 +52,17 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/kangamoon-makes-waves-in-the-altcoin-space-while-solana-and-toncoin-experience-market-shifts-314985993 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kangamoon-makes-waves-in-the-altcoin-space-while-solana-and-toncoin-experience-market-shifts-314985993)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1cdjy5s/kangamoon_emerges_as_a_rising_altcoin_contender/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1cdjy5s/kangamoon_emerges_as_a_rising_altcoin_contender/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/26/riftboqW.webp)

@@ -18,9 +18,17 @@ Led by innovators such as Jeff Buesing and Adam Cable, NFP continues to explore 
 
 To visit the "Trolley Problem" virtual experience go to: [https://nfp.land/apa/](https://nfp.land/apa/)[NFP Token](https://newfrontierpresents.io/nfp-token/) is a metaverse utility token allowing users to create multiple layers of entertainment, earnings, rewards and partnerships. To contact [New Frontier Presents](https://newfrontierpresents.io) (NFP) email [info@newfrontierpresents.io](mailto:info@newfrontierpresents.io) or, for the latest updates follow them on X [@newfrontier](https://twitter.com/newfrontier). 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/new-frontier-presents-unveils-pioneering-vr-education-initiative-with-the-trolley-problem-virtual-experience-at-american-philosophical-association-meeting-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1bd7aqj/new_frontier_presents_introduces_vr_experience/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1bd7aqj/new_frontier_presents_introduces_vr_experience/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/12/daveZ6fs.webp)

@@ -68,9 +68,17 @@ Website: https://betfury.com/
 
 Company Email: [pr@betfury.com](mailto:pr@betfury.com)Links on social media: [Twitter](https://twitter.com/betfury_gaming), [Telegram](https://t.me/betfuryofficialchannel), [Discord](https://discord.com/invite/betfury), [Reddit](https://www.reddit.com/r/BETFURY_gaming/), [TikTok](https://www.tiktok.com/@betfury.official), [YouTube](https://www.youtube.com/channel/UCTlThuhFNg6yFw8hak4upDw), [DeBank](https://debank.com/official-account/112452), [Bitcointalk](https://bitcointalk.org/index.php?topic=5276159). 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/betfury-presents-new-deflationary-mechanism--100-projects-revenue-for-bfg-support)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1crpljq/betfury_renews_bfg_tokenomics_deflationary/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1crpljq/betfury_renews_bfg_tokenomics_deflationary/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/14/mint_69i.webp)

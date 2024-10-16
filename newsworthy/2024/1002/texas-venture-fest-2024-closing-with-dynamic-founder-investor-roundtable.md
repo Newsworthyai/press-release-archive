@@ -35,9 +35,17 @@ Join Us at Texas Venture Fest 2024Don’t miss your chance to be part of this im
 
 Register today at kerredc.com/tvf. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202410021295/texas-venture-fest-2024-closing-with-dynamic-founder-investor-roundtable)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/StartupBusinessNews/comments/1fuophj/bridging_the_gap_founder_investor_roundtable_at/
+
+
+[Reddit Post](https://www.reddit.com/r/StartupBusinessNews/comments/1fuophj/bridging_the_gap_founder_investor_roundtable_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2410/2/bakeYdDS.webp)

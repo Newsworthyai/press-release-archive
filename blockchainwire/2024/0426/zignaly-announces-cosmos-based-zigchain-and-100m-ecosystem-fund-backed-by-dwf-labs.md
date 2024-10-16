@@ -32,9 +32,17 @@ About ZignalyZignaly was founded in 2018 to provide equal investment opportuniti
 
 You can learn more about Zignaly at these links: Website | X (Twitter) | Telegram | Medium 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/zignaly-announces-cosmos-based-zigchain-and-100m-ecosystem-fund-backed-by-dwf-labs)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cdkkyj/zignaly_launches_zigchain_and_100_million/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cdkkyj/zignaly_launches_zigchain_and_100_million/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/26/glue7pNs.webp)

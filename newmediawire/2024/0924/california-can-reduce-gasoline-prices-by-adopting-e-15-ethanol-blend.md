@@ -50,9 +50,17 @@ Todd Waltz
 
 investors@aemetis.com 
 
+---
+
 [Original/Source Press Release](http://www.newmediawire.com/news/california-can-reduce-gasoline-prices-by-adopting-e-15-ethanol-blend-7076081)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1frcarr/aemetis_urges_california_to_adopt_e15_ethanol/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1frcarr/aemetis_urges_california_to_adopt_e15_ethanol/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/28/irisgtPK.webp)

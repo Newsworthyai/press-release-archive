@@ -36,9 +36,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/justin-suns-message-on-htxs-11th-anniversary-a-crypto-pioneers-unwavering-commitment-to-user-experience-463402592 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/justin-suns-message-on-htxs-11th-anniversary-a-crypto-pioneers-unwavering-commitment-to-user-experience-463402592)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1eowgba/htx_11thanniversary_event_justin_suns_unwavering/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1eowgba/htx_11thanniversary_event_justin_suns_unwavering/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/10/numbBNrs.webp)

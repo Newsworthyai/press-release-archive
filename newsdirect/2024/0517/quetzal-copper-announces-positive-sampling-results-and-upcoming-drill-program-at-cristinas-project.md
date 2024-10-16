@@ -20,9 +20,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/quetzal-copper-announces-positive-sampling-results-and-upcoming-drill-program-at-cristinas-project-118840566 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/quetzal-copper-announces-positive-sampling-results-and-upcoming-drill-program-at-cristinas-project-118840566)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1cu8jcz/quetzal_copper_ceo_announces_positive_results_at/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1cu8jcz/quetzal_copper_ceo_announces_positive_results_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/17/jazzpD1q.webp)

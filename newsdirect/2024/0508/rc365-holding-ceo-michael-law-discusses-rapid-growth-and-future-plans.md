@@ -20,9 +20,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/rc365-holding-ceo-michael-law-discusses-rapid-growth-and-future-plans-753724463 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/rc365-holding-ceo-michael-law-discusses-rapid-growth-and-future-plans-753724463)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cn3vid/rc365_holding_ceo_michael_law_discusses_rapid/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cn3vid/rc365_holding_ceo_michael_law_discusses_rapid/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/8/apexjK4a.webp)

@@ -32,9 +32,17 @@ Company Websitehttp://www.cpv.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/competitive-power-ventures-cpv-announces-leadership-changes-823868504 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/competitive-power-ventures-cpv-announces-leadership-changes-823868504)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cqz1ht/competitive_power_ventures_announces_leadership/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cqz1ht/competitive_power_ventures_announces_leadership/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/boldvbnL.webp)

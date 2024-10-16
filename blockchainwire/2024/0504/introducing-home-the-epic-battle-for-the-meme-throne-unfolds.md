@@ -56,9 +56,17 @@ Anthony Paulo
 
 London, United Kingdom 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/-introducing-home-the-epic-battle-for-the-meme-throne-unfolds)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1ckbwsc/epic_meme_battle_unfolds_in_nojeet_join_the_five/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1ckbwsc/epic_meme_battle_unfolds_in_nojeet_join_the_five/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/245/4/echorhXd.webp)

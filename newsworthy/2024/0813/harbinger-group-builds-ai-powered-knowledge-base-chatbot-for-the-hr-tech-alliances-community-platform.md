@@ -34,9 +34,17 @@ HR Tech Alliances serves as a global community platform for those involved in al
 
 For more information, visit HRTechAlliances.com. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20240813389/harbinger-group-builds-ai-powered-knowledge-base-chatbot-for-hr-tech-alliances)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1er8vqs/harbinger_group_develops_aipowered_knowledgebased/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1er8vqs/harbinger_group_develops_aipowered_knowledgebased/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/248/13/riftlmKL.webp)

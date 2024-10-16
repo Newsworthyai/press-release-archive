@@ -30,9 +30,17 @@ About Green Global FX
 
 Green Global FX is a leading cryptocurrency trading platform known for its advanced technology, robust security measures, and commitment to providing a seamless trading experience across all devices. The platform caters to traders of all levels, offering a comprehensive suite of tools and features designed to help users succeed in the dynamic world of cryptocurrency trading. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/green-global-fx-launches-multi-platform-access-revolutionizing-trading-flexibility)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f3hco9/green_global_fx_launches_new_multiplatform_access/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f3hco9/green_global_fx_launches_new_multiplatform_access/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/28/camc5D2o.webp)

@@ -20,9 +20,17 @@ TMS treatment is non-invasive and non-systemic, making it a preferred choice for
 
 If you or a loved one is searching for TMS providers near you, look no further than Optimum TMS. With their compassionate and knowledgeable staff, state-of-the-art facilities, and groundbreaking treatments, they are committed to guiding patients towards a brighter future. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231122888/optimum-tms-offering-innovative-tms-treatment-for-ocd-depression-and-more)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcrwq/optimum_tms_revolutionizes_treatment_for_ocd_and/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcrwq/optimum_tms_revolutionizes_treatment_for_ocd_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/silk5yG5.webp)

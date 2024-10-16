@@ -642,9 +642,17 @@ mzitko@freelancer.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/freelance-jobs-grow-despite-ai-finds-new-data-from-freelancer-com-116679759 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/freelance-jobs-grow-despite-ai-finds-new-data-from-freelancer-com-116679759)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e68s9e/freelance_jobs_grow_despite_ai_finds_new_data/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e68s9e/freelance_jobs_grow_despite_ai_finds_new_data/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/18/lilyujYe.webp)

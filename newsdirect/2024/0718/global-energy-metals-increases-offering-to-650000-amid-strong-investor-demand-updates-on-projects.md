@@ -20,9 +20,17 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/global-energy-metals-increases-offering-to-650-000-amid-strong-investor-demand-updates-on-projects-216586810 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/global-energy-metals-increases-offering-to-650-000-amid-strong-investor-demand-updates-on-projects-216586810)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1e6jitf/global_energy_metals_ceo_increases_offering_to/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1e6jitf/global_energy_metals_ceo_increases_offering_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/18/isle74eQ.webp)

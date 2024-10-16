@@ -30,9 +30,17 @@ Company: VP Marketing Garden Society
 
 Email: info@thegardensociety.com 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402221098/garden-society-expands-portfolio-with-the-strategic-acquisition-of-craft-cannabis-brand-chemistry)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1ay4rlw/garden_society_acquires_chemistry_expanding/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1ay4rlw/garden_society_acquires_chemistry_expanding/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/22/loftHpZY.webp)

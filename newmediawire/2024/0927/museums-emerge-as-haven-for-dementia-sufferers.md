@@ -22,9 +22,17 @@
 
  If you are an organization that works with a variety of dementia, Alzheimer’s, or mentally challenged groups, please feel free to contact the museum at info@MAmuseum.com. 
 
+---
+
 [Original/Source Press Release](http://www.newmediawire.com/news/museums-emerge-as-haven-for-dementia-sufferers-7076109)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1frcdvm/museums_as_essential_resources_for_individuals/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1frcdvm/museums_as_essential_resources_for_individuals/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/28/frogooJz.webp)

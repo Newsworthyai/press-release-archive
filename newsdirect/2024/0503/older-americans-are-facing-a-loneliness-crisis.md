@@ -34,9 +34,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/older-americans-are-facing-a-loneliness-crisis-360104654 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/older-americans-are-facing-a-loneliness-crisis-360104654)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Lifestyle_Culture/comments/1cje5p3/americorps_seniors_addressing_loneliness_crisis/
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1cje5p3/americorps_seniors_addressing_loneliness_crisis/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/3/faceAoBY.webp)

@@ -10,9 +10,17 @@ In addition to the treatment itself, Lone Peak Psychiatry offers comprehensive g
 
 As pioneers in the field, Lone Peak Psychiatry also plays an instrumental role in educating other psychiatric providers in the community. They offer training programs to help expand the understanding and application of ketamine therapy, ultimately benefiting a greater number of individuals struggling with mental health conditions. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231223941/lone-peak-psychiatry-leads-the-way-in-ketamine-therapy-offering-hope-to-patients)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/PsychedelicsNews/comments/1avcvz3/lone_peak_psychiatry_leading_the_way_in/
+
+
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1avcvz3/lone_peak_psychiatry_leading_the_way_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/flaxxpqB.webp)

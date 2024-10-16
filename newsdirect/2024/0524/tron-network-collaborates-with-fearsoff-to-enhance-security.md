@@ -32,9 +32,17 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tron-network-collaborates-with-fearsoff-to-enhance-security-136869791 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tron-network-collaborates-with-fearsoff-to-enhance-security-136869791)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1czqbb5/tron_network_collaborates_with_fearsoff_to/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1czqbb5/tron_network_collaborates_with_fearsoff_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/24/joineNP3.webp)

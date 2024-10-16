@@ -26,9 +26,17 @@ Company Websitehttps://anzen.finance/
 
 View source version on newsdirect.com: https://newsdirect.com/news/anzen-finance-raises-4m-seed-round-from-mechanism-capital-circle-ventures-frax-arca-and-more-to-bring-the-benefits-of-real-world-assets-rwa-into-defi-224294890 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/anzen-finance-raises-4m-seed-round-from-mechanism-capital-circle-ventures-frax-arca-and-more-to-bring-the-benefits-of-real-world-assets-rwa-into-defi-224294890)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/StartupBusinessNews/comments/1d2qvrs/anzen_finance_raises_4m_seed_round_to_integrate/
+
+
+[Reddit Post](https://www.reddit.com/r/StartupBusinessNews/comments/1d2qvrs/anzen_finance_raises_4m_seed_round_to_integrate/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/28/limeOnZg.webp)

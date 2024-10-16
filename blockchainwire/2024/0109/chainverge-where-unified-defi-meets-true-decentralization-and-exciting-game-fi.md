@@ -53,9 +53,17 @@ Official Website: https://chainverge.net/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/chainverge-where-unified-defi-meets-true-decentralization-and-exciting-game-fi)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1avdpoi/chainverge_unifies_defi_and_gamefi_for_a/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1avdpoi/chainverge_unifies_defi_and_gamefi_for_a/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/hikeju4Q.webp)

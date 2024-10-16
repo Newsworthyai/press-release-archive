@@ -18,9 +18,17 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nexus-minerals-announces-significant-expansion-of-crusader-templar-resource-179194079 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/nexus-minerals-announces-significant-expansion-of-crusader-templar-resource-179194079)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1chnhip/nexus_minerals_announces_significant_expansion_of/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1chnhip/nexus_minerals_announces_significant_expansion_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/voltOcsU.webp)

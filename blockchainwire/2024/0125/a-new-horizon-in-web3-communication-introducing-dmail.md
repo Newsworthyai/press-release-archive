@@ -42,9 +42,17 @@ In conclusion, Dmail stands as a paragon of multi-chain applications, with its g
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/a-new-horizon-in-web3-communication-introducing-dmail)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1avxh8x/okx_jumpstart_announces_launch_of_dmail_a/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1avxh8x/okx_jumpstart_announces_launch_of_dmail_a/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/iristjju.webp)

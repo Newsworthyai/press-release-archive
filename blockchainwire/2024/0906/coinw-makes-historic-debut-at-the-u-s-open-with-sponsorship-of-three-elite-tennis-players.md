@@ -16,9 +16,17 @@ The U.S. Open, one of the four prestigious Grand Slam tournaments, is recognized
 
 Since its founding, CoinW has been at the forefront of integrating cryptocurrency with global sports. In 2022, CoinW became the first cryptocurrency exchange to sponsor La Liga, Spain’s premier football league, and in 2023, the company appointed football legend Andrea Pirlo as its global brand ambassador. The sponsorship of these tennis champions is the latest step in CoinW’s mission to be the world’s most trusted crypto ally, providing innovative financial solutions and empowering users across the globe. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/coinw-makes-historic-debut-at-the-us-open-with-sponsorship-of-three-elite-tennis-players)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1foczh8/coinw_sponsors_tennis_athletes_at_2024_us_open/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1foczh8/coinw_sponsors_tennis_athletes_at_2024_us_open/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/11/paveT4dH.webp)

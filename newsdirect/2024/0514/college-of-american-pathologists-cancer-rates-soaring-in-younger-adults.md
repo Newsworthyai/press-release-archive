@@ -34,9 +34,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/college-of-american-pathologists-cancer-rates-soaring-in-younger-adults-451755505 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/college-of-american-pathologists-cancer-rates-soaring-in-younger-adults-451755505)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1crsixt/cancer_rates_soaring_in_younger_adults_expert/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1crsixt/cancer_rates_soaring_in_younger_adults_expert/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/14/seekwrf6.webp)

@@ -47,9 +47,17 @@ Company Websitehttps://italianfoundersfund.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/italian-founders-fund-raises-inaugural-eu50m-for-seed-and-pre-seed-startups-343771634 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/italian-founders-fund-raises-inaugural-eu50m-for-seed-and-pre-seed-startups-343771634)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dcjyto/italian_founders_fund_launches_50m_fund_to/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dcjyto/italian_founders_fund_launches_50m_fund_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/10/larkKji6.webp)

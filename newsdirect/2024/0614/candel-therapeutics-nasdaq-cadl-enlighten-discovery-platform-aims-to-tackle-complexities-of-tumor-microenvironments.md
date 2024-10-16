@@ -42,9 +42,17 @@ Company Websitehttps://www.candeltx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/candel-therapeutics-nasdaq-cadl-enlighten-discovery-platform-aims-to-tackle-complexities-of-tumor-microenvironments-800566721 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/candel-therapeutics-nasdaq-cadl-enlighten-discovery-platform-aims-to-tackle-complexities-of-tumor-microenvironments-800566721)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1dfpyj8/candel_therapeutics_enlighten_discovery_platform/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1dfpyj8/candel_therapeutics_enlighten_discovery_platform/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/14/roam8lb3.webp)

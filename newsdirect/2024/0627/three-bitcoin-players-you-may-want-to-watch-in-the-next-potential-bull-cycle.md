@@ -38,9 +38,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/three-bitcoin-players-you-may-want-to-watch-in-the-next-potential-bull-cycle-107716565 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/three-bitcoin-players-you-may-want-to-watch-in-the-next-potential-bull-cycle-107716565)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1dpqpnz/potential_bitcoin_mining_leaders_marathon_riot/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1dpqpnz/potential_bitcoin_mining_leaders_marathon_riot/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/27/lilyFrxq.webp)

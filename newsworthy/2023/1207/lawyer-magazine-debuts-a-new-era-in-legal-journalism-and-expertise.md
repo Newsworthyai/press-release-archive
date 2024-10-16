@@ -18,9 +18,17 @@ Lawyer Magazine is positioned as a frontline resource in the legal industry, ded
 
 Stay updated with the latest in legal trends and insights at www.LawyerMagazine.co. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231207837/lawyer-magazine-debuts-a-new-era-in-legal-journalism-and-expertise)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avx2al/new_lawyer_magazine_launches_to_demystify_legal/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avx2al/new_lawyer_magazine_launches_to_demystify_legal/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/12/cakeEc19.webp)

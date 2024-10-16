@@ -44,9 +44,17 @@ Telegram: https://t.me/babychitatokenofficial
 
 Disclaimer: The information presented in this press release is not a solicitation for investment and is not intended as investment advice, financial advice, or trading advice. It is strongly recommended that you conduct due diligence, including consulting a professional financial advisor, before investing or trading in cryptocurrencies and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/press-release-babychita-and-chitaverse-set-to-revolutionize-play-to-earn-and-metaverse-gaming-with-their-official-launch)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f3h43y/chitaverse_launches_as_the_dynamic_hub_of_the/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f3h43y/chitaverse_launches_as_the_dynamic_hub_of_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/28/hintFjfc.webp)

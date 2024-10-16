@@ -60,9 +60,17 @@ markrmckelvie@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/4-stocks-for-a-decarbonized-future-349994051 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/4-stocks-for-a-decarbonized-future-349994051)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c1alyv/investing_in_a_decarbonized_future_key_players/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c1alyv/investing_in_a_decarbonized_future_key_players/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/rainw2Qy.webp)

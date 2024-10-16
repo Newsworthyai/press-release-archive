@@ -30,9 +30,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cboe-vp-shares-his-view-on-the-power-of-defined-outcome-etfs-899888361 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cboe-vp-shares-his-view-on-the-power-of-defined-outcome-etfs-899888361)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e4o1bz/cboe_vp_discusses_rise_of_definedoutcome_etfs/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e4o1bz/cboe_vp_discusses_rise_of_definedoutcome_etfs/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/16/bende_to.webp)

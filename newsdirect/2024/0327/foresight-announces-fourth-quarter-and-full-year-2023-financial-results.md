@@ -841,9 +841,17 @@ Company Websitehttps://www.foresightauto.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/foresight-announces-fourth-quarter-and-full-year-2023-financial-results-906241274 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/foresight-announces-fourth-quarter-and-full-year-2023-financial-results-906241274)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bpd97l/foresight_autonomous_holdings_ltd_announces/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bpd97l/foresight_autonomous_holdings_ltd_announces/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/takedrma.webp)

@@ -65,9 +65,17 @@ Company Websitehttps://bravo.hprausa.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/hpra-announces-2024-bravo-award-finalists-707280746 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/hpra-announces-2024-bravo-award-finalists-707280746)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1eracr0/hpra_announces_finalists_for_2024_bravo_awards/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1eracr0/hpra_announces_finalists_for_2024_bravo_awards/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/13/lambvpPS.webp)

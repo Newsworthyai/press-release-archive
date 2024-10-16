@@ -40,9 +40,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/atlas-lithium-nasdaq-atlx-secures-game-changing-30-000-000-strategic-investment-from-mitsui-and-co-365997172 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/atlas-lithium-nasdaq-atlx-secures-game-changing-30-000-000-strategic-investment-from-mitsui-and-co-365997172)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1bty4sj/atlas_lithium_nasdaq_atlx_secures_gamechanging/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1bty4sj/atlas_lithium_nasdaq_atlx_secures_gamechanging/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/2/kissBqtJ.webp)

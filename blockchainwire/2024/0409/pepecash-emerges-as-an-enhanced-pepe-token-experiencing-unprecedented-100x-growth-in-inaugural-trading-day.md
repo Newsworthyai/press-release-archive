@@ -22,9 +22,17 @@ Pepecash is a leading force in the realm of the digital finance landscape. The p
 
 Website | X | Github | Telegram 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/pepecash-emerges-as-an-enhanced-pepe-token-experiencing-unprecedented-100x-growth-in-inaugural-trading-day)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bzrx5k/pepecash_emerges_as_enhanced_pepe_token_surges/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bzrx5k/pepecash_emerges_as_enhanced_pepe_token_surges/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/9/archApWE.webp)

@@ -41,9 +41,17 @@ Website | Twitter | Telegram | Docs
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/embracing-the-future-solcraft-announces-soft-token-launch-and-web3-minecraft-server-blending-blockchain-with-gameplay)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1c1j3mk/solcraft_to_launch_soft_token_and_web3_minecraft/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1c1j3mk/solcraft_to_launch_soft_token_and_web3_minecraft/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/11/maskl9cS.webp)

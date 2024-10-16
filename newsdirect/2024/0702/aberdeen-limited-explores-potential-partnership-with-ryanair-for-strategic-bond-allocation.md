@@ -26,9 +26,17 @@ Company Websitehttps://aberdeen-ltd.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/aberdeen-limited-explores-potential-partnership-with-ryanair-for-strategic-bond-allocation-820159630 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/aberdeen-limited-explores-potential-partnership-with-ryanair-for-strategic-bond-allocation-820159630)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dtpdwm/aberdeen_limited_explores_potential_partnership/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dtpdwm/aberdeen_limited_explores_potential_partnership/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/2/elle6W6y.webp)

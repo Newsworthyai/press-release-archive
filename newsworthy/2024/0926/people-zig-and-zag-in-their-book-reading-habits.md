@@ -12,9 +12,17 @@ While The Zig Zag print and ebooks were published last month, The Zig Zag audiob
 
 “I want people to be able to read or listen to my books wherever they are,” Christiansen said. “I do a lot of driving and appreciate when I can listen to my favorite authors while I am in my car or traveling. I want to be able to help readers and the people I mentor ignite flow in their businesses and in their lives.” 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202409261282/people-zig-and-zag-in-their-book-reading-habits)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BookNews/comments/1fpunko/author_rich_christiansen_embraces_multiformat/
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1fpunko/author_rich_christiansen_embraces_multiformat/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/249/26/glowefyp.webp)

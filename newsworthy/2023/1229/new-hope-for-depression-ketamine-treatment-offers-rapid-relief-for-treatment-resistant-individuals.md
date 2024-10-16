@@ -10,9 +10,17 @@ While the exact mechanisms through which Ketamine works in depression are not ye
 
 This groundbreaking treatment offers renewed possibilities for individuals who have previously found little solace in traditional therapeutic approaches. With a success rate unparalleled by conventional interventions, Ketamine treatment for depression represents a much-needed lifeline for those with treatment-resistant symptoms. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231229952/new-hope-for-depression-ketamine-treatment-offers-rapid-relief-for-treatment-resistant-individuals)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcwmb/innovative_ketamine_treatment_offers_hope_for/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcwmb/innovative_ketamine_treatment_offers_hope_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/mailXLD5.webp)

@@ -34,9 +34,17 @@ brenda.christmon@rackroom.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/rack-room-shoes-announces-winners-of-the-2024-teacher-of-the-year-contest-887085972 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/rack-room-shoes-announces-winners-of-the-2024-teacher-of-the-year-contest-887085972)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1diw8s5/rack_room_shoes_announces_winners_of_2024_teacher/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1diw8s5/rack_room_shoes_announces_winners_of_2024_teacher/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/18/lush6fc5.webp)

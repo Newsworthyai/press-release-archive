@@ -28,9 +28,17 @@ About NewsRamp.com
 
 NewsRamp is a media technology platform that helps press release newswires amplify the reach and engagement of press releases by transforming press releases into multiple content formats and syndicating the content through NewsRamp's proprietary network of news sites, forums, newsletters, podcasts, and social media. NewsRamp gives newswires a simple API infrastructure to enhance the newswire's press release and help counter the duplicate content penalties and 'Search and Answer' trends of major search engines that negatively impact press release visibility and reduce website traffic. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202408261246/newsworthy-ai-announces-full-integration-with-newsramp-com-enhancing-press-release-distribution-and-engagement)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f1rnra/newsworthyai_and_newsrampcom_announce_full/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f1rnra/newsworthyai_and_newsrampcom_announce_full/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/248/26/noraIdKX.webp)

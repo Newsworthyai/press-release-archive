@@ -34,9 +34,17 @@ Email: support@ccpayment.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/ccpayment-unveils-swap-api-pioneering-the-next-era-of-cryptocurrency-transactions)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1ecgxer/ccpayment_launches_innovative_swap_api_for/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ecgxer/ccpayment_launches_innovative_swap_api_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/26/rifthKOT.webp)

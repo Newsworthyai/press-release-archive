@@ -61,9 +61,17 @@ Whether you're a beginner or an experienced trader, Trade24Seven is here to supp
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/-trade24sevencom-review---empowering-traders-in-india-and-japan-with-a-robust-platform-and-financial-education-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1fganvz/empowering_traders_in_india_and_japan_with/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1fganvz/empowering_traders_in_india_and_japan_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/249/14/veilzGBH.webp)

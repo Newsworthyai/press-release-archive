@@ -22,9 +22,17 @@ writers.australia@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/suvo-strategic-sees-growth-in-kaolin-sales-and-strong-good-progress-in-geopolymer-concrete-930626159 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/suvo-strategic-sees-growth-in-kaolin-sales-and-strong-good-progress-in-geopolymer-concrete-930626159)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1ci0avj/suvo_strategic_minerals_sees_growth_in_kaolin/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ci0avj/suvo_strategic_minerals_sees_growth_in_kaolin/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/lunaj1nc.webp)

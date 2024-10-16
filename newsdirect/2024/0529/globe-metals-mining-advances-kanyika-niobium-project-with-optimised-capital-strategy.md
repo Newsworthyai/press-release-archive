@@ -12,9 +12,17 @@ writers.australia@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/globe-metals-and-mining-advances-kanyika-niobium-project-with-optimised-capital-strategy-514740003 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/globe-metals-and-mining-advances-kanyika-niobium-project-with-optimised-capital-strategy-514740003)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1d3m1hz/globe_metals_mining_advances_kanyika_niobium/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1d3m1hz/globe_metals_mining_advances_kanyika_niobium/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/29/harpTLFi.webp)

@@ -44,9 +44,17 @@ Rebecca Lui, PR Lead, Lui Communications (rebecca@luicomms.com)
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/nodle-is-launching-on-zksync-to-bring-the-fastest-growing-depin-to-ethereum)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c70qed/nodle_launches_on_zksync_era_to_bring_digital/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c70qed/nodle_launches_on_zksync_era_to_bring_digital/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/18/navyjjZV.webp)

@@ -32,9 +32,17 @@ Switzerland
 
 Company Website: https://north-capital-partners.com/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/north-capital-partners-unveils-comprehensive-trading-platform-with-advanced-ai-tools-for-investors-of-all-levels)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ewy77z/north_capital_partners_launches_comprehensive/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ewy77z/north_capital_partners_launches_comprehensive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/20/lime1KKm.webp)

@@ -10,9 +10,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pulsar-helium-inc-ceo-thomas-abraham-james-discusses-high-helium-concentrations-and-future-plans-504927228 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pulsar-helium-inc-ceo-thomas-abraham-james-discusses-high-helium-concentrations-and-future-plans-504927228)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1e005e6/pulsar_helium_inc_ceo_thomas_abrahamjames/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1e005e6/pulsar_helium_inc_ceo_thomas_abrahamjames/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/10/rendrtqL.webp)

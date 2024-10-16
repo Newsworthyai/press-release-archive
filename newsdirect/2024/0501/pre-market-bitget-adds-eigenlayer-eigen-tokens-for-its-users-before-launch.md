@@ -30,9 +30,17 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/pre-market-bitget-adds-eigenlayer-eigen-tokens-for-its-users-before-launch-612369264 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pre-market-bitget-adds-eigenlayer-eigen-tokens-for-its-users-before-launch-612369264)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1chgg9x/bitget_adds_eigenlayer_eigen_tokens_for_premarket/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1chgg9x/bitget_adds_eigenlayer_eigen_tokens_for_premarket/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/1/jokeeiGQ.webp)

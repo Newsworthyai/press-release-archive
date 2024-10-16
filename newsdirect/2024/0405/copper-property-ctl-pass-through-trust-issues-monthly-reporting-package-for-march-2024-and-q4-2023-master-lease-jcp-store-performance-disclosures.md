@@ -26,9 +26,17 @@ Company Websitehttps://ctltrust.net/about/default.aspx
 
 View source version on newsdirect.com: https://newsdirect.com/news/copper-property-ctl-pass-through-trust-issues-monthly-reporting-package-for-march-2024-and-q4-2023-master-lease-jcp-store-performance-disclosures-253858599 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/copper-property-ctl-pass-through-trust-issues-monthly-reporting-package-for-march-2024-and-q4-2023-master-lease-jcp-store-performance-disclosures-253858599)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1bwsl9a/copper_property_ctl_trust_issues_monthly_report/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1bwsl9a/copper_property_ctl_trust_issues_monthly_report/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/5/airyTw9w.webp)

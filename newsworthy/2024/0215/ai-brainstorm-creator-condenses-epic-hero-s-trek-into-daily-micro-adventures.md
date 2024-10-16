@@ -24,9 +24,17 @@ aibrainstormcreator.net
 
 Facebook Group | Facebook | Linkedin | X (Twitter) |Instagram | Pinterest 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202402151091/ai-brainstorm-creator-condenses-epic-hero-s-trek-into-daily-micro-adventures)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1avwzag/nonprofit_launches_program_to_tap_into_inner_hero/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1avwzag/nonprofit_launches_program_to_tap_into_inner_hero/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/16/dual6W29.webp)

@@ -14,9 +14,17 @@ About CloudbenchCloudbench is at the forefront of value-driven vertical AI solut
 
 Contact:Tom RicherCEOinvestorrelations@cloudbench.net 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/cloudbench-launches-work-ai-business-unit-with-google-cloud-veteran-at-helm)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dubsyb/cloudbench_launches_work_ai_business_unit_led_by/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dubsyb/cloudbench_launches_work_ai_business_unit_led_by/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/3/quizcHQt.webp)

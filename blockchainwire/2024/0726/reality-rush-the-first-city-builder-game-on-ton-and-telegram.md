@@ -36,9 +36,17 @@ Media:![](https://blockchainwire.s3.amazonaws.com/RealityNFTLimited/editor_image
 
 ![](https://blockchainwire.s3.amazonaws.com/RealityNFTLimited/editor_image/f38aa9e5-d941-4de6-9bfd-8a6f26b66ce7.png) 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/-reality-rush-the-first-city-builder-game-on-ton-and-telegram)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1ecnpyi/reality_rush_the_first_city_builder_game_on_ton/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1ecnpyi/reality_rush_the_first_city_builder_game_on_ton/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/26/isleIp0S.webp)

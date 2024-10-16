@@ -40,9 +40,17 @@ Company Websitehttp://www.cpv.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cpv-expands-partnership-with-harrison-street-announces-investment-in-cpv-renewables-609705313 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/cpv-expands-partnership-with-harrison-street-announces-investment-in-cpv-renewables-609705313)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1f1r8mt/cpv_group_and_harrison_street_expand_strategic/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1f1r8mt/cpv_group_and_harrison_street_expand_strategic/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/18/fastbO5w.webp)

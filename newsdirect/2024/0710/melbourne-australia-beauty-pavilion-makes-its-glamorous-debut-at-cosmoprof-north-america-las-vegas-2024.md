@@ -56,9 +56,17 @@ mildred.ruizleal@global.vic.gov.au
 
 View source version on newsdirect.com: https://newsdirect.com/news/melbourne-australia-beauty-pavilion-makes-its-glamorous-debut-at-cosmoprof-north-america-las-vegas-2024-886532792 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/melbourne-australia-beauty-pavilion-makes-its-glamorous-debut-at-cosmoprof-north-america-las-vegas-2024-886532792)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/eventNews/comments/1dzu6x7/melbourne_australia_beauty_pavilion_shines_at/
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1dzu6x7/melbourne_australia_beauty_pavilion_shines_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/10/ellerMQb.webp)

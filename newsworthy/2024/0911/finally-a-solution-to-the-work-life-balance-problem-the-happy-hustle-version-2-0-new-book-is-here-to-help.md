@@ -47,9 +47,17 @@ Testimonials
 
 “Getting to do the work that you love, with the people that you love, when you want do it is The Happy Hustle. Knowing that happiness is available to you at any moment that it’s your choice to really claim it.” – Amberly Lago, Peak Performance Coach, TEDx Speaker, Podcaster, Best-Selling Author, Leading Expert on Resilience and Transformation 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/202409111258/finally-a-solution-to-the-work-life-balance-problem-the-happy-hustle-version-2-0-new-book-is-here-to-help)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BookNews/comments/1fdz8se/the_happy_hustle_announces_release_of_the_happy/
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1fdz8se/the_happy_hustle_announces_release_of_the_happy/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/249/11/lunaqnmR.webp)

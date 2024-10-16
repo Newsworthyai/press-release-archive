@@ -54,9 +54,17 @@ Lastly, Three Protocol uses a unique blend of privacy, self-custody, and decentr
 
 Follow the project for the latest development updates at these links: Website | X (Twitter) | Telegram | LinkedIn | 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/introducing-three-protocol-building-an-alternative-to-centralized-digital-ids-and-kyc-with-no-kyc-zero-knowledge-proof-decentralized-digital-ids)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fvfn3r/three_protocol_building_alternative_to/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fvfn3r/three_protocol_building_alternative_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/18/chef5ioT.webp)

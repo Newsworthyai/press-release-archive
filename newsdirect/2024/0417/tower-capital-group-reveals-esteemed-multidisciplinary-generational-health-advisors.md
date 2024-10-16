@@ -26,9 +26,17 @@ contact@towercapital.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/tower-capital-group-reveals-esteemed-multidisciplinary-generational-health-advisors-235772037 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/tower-capital-group-reveals-esteemed-multidisciplinary-generational-health-advisors-235772037)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1c6cg4u/tower_capital_group_expands_advisory_team_to/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1c6cg4u/tower_capital_group_expands_advisory_team_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/17/mailekIE.webp)

@@ -16,9 +16,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sonoro-gold-corp-updates-shareholders-on-mexican-mining-policy-and-cerro-caliche-project-prospects-461903947 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/sonoro-gold-corp-updates-shareholders-on-mexican-mining-policy-and-cerro-caliche-project-prospects-461903947)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1e005bb/sonoro_gold_corp_chairman_discusses_new_mining/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1e005bb/sonoro_gold_corp_chairman_discusses_new_mining/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/10/deepI18U.webp)

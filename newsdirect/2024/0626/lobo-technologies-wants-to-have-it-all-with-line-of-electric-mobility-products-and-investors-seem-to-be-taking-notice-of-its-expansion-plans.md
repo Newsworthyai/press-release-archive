@@ -48,9 +48,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lobo-technologies-wants-to-have-it-all-with-line-of-electric-mobility-products-and-investors-seem-to-be-taking-notice-of-its-expansion-plans-905880352 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/lobo-technologies-wants-to-have-it-all-with-line-of-electric-mobility-products-and-investors-seem-to-be-taking-notice-of-its-expansion-plans-905880352)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1doxr50/lobo_technologies_aims_to_dominate_electric/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1doxr50/lobo_technologies_aims_to_dominate_electric/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/26/calmA6I9.webp)

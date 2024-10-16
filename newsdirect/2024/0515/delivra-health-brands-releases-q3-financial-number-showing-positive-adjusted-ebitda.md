@@ -14,9 +14,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/delivra-health-brands-releases-q3-financial-number-showing-positive-adjusted-ebitda-501502181 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/delivra-health-brands-releases-q3-financial-number-showing-positive-adjusted-ebitda-501502181)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1csohor/delivra_health_brands_reports_strong_q3_financial/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1csohor/delivra_health_brands_reports_strong_q3_financial/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/fastuMUv.webp)

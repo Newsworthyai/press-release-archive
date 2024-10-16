@@ -22,9 +22,17 @@ Don't miss this incredible opportunity to be part of the decentralized future. S
 
 Note: The last date to send in your application is Friday, the 8th of March - so hurry up and reserve your spot for Internet Computer glory! For complete details on eligibility requirements, judging criteria, and project ideas you can build on the Internet Computer Hackathon, visit https://build-on-icp-portugal.super.site/ 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/portugals-first-ever-icp-hackathon-unleashes-decentralized-innovation)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1b9vn6r/portugals_first_icp_hackathon_join_the/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1b9vn6r/portugals_first_icp_hackathon_join_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/7/navyHI0m.webp)

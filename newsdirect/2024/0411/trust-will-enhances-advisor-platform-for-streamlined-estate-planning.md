@@ -51,9 +51,17 @@ Company Websitehttps://trustandwill.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/trust-and-will-enhances-advisor-platform-for-streamlined-estate-planning-771950259 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/trust-and-will-enhances-advisor-platform-for-streamlined-estate-planning-771950259)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c1cgwz/trust_will_enhances_advisor_platform_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c1cgwz/trust_will_enhances_advisor_platform_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/11/isleTXvd.webp)

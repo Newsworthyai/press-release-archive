@@ -54,9 +54,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/continuous-blood-glucose-monitoring-can-materially-improve-the-quality-of-life-for-people-with-diabetes-glucotrack-wants-to-make-it-easier-527397850 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/continuous-blood-glucose-monitoring-can-materially-improve-the-quality-of-life-for-people-with-diabetes-glucotrack-wants-to-make-it-easier-527397850)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1exop5q/continuous_blood_glucose_monitoring_a_gamechanger/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1exop5q/continuous_blood_glucose_monitoring_a_gamechanger/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/21/gleemDDG.webp)

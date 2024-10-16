@@ -36,9 +36,17 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitcoins-4th-halving-is-approaching-vie-for-30-000-usdt-in-htxs-bitcoin-halving-themed-trading-contest-328519299 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitcoins-4th-halving-is-approaching-vie-for-30-000-usdt-in-htxs-bitcoin-halving-themed-trading-contest-328519299)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c6xses/bitcoin_halvingthemed_trading_contest_with_30000/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c6xses/bitcoin_halvingthemed_trading_contest_with_30000/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/18/zestGmC3.webp)

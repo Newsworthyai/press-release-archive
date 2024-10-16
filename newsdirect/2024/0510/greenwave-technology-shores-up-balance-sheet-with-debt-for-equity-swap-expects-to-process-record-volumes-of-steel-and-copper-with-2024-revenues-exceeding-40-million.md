@@ -44,9 +44,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/greenwave-technology-shores-up-balance-sheet-with-debt-for-equity-swap-expects-to-process-record-volumes-of-steel-and-copper-with-2024-revenues-exceeding-40-million-152698355 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/greenwave-technology-shores-up-balance-sheet-with-debt-for-equity-swap-expects-to-process-record-volumes-of-steel-and-copper-with-2024-revenues-exceeding-40-million-152698355)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1copawq/greenwave_technology_solutions_cleans_up_balance/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1copawq/greenwave_technology_solutions_cleans_up_balance/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/10/flax9Yvk.webp)

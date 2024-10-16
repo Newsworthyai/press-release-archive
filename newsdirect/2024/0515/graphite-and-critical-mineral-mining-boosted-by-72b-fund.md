@@ -80,9 +80,17 @@ Company Websitehttps://www.valuethemarkets.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/graphite-and-critical-mineral-mining-boosted-by-72b-fund-400817092 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/graphite-and-critical-mineral-mining-boosted-by-72b-fund-400817092)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1csi9kr/biden_administration_supports_critical_mineral/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1csi9kr/biden_administration_supports_critical_mineral/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/15/urgeQDFg.webp)

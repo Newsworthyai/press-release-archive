@@ -40,9 +40,17 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/ethereum-could-hit-14k-in-2025-as-per-standard-chartered-ali-martinez-predicts-bitcoin-will-reach-72k-kangamoon-price-surges-655749455 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/ethereum-could-hit-14k-in-2025-as-per-standard-chartered-ali-martinez-predicts-bitcoin-will-reach-72k-kangamoon-price-surges-655749455)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bu4d8a/ethereum_and_bitcoin_price_predictions_soar/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bu4d8a/ethereum_and_bitcoin_price_predictions_soar/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/2/iconxFOD.webp)

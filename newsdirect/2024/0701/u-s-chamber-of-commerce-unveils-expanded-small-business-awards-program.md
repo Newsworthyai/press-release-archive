@@ -34,9 +34,17 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/u-s-chamber-of-commerce-unveils-expanded-small-business-awards-program-882833815 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/u-s-chamber-of-commerce-unveils-expanded-small-business-awards-program-882833815)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/AwardsAndRecognition/comments/1dsysst/us_chamber_of_commerce_unveils_expanded_small/
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1dsysst/us_chamber_of_commerce_unveils_expanded_small/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/1/voltmxsO.webp)

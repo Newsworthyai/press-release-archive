@@ -46,9 +46,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-versatility-of-nickel-makes-it-an-essential-element-in-batteries-and-energy-storage-496645591 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/the-versatility-of-nickel-makes-it-an-essential-element-in-batteries-and-energy-storage-496645591)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/FinancialNewsramp/comments/1en4x6p/the_versatility_of_nickel_essential_element_in/
+
+
+[Reddit Post](https://www.reddit.com/r/FinancialNewsramp/comments/1en4x6p/the_versatility_of_nickel_essential_element_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/8/divehL_x.webp)

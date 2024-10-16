@@ -31,9 +31,17 @@ TUSD's daily attestation by MooreHK, a leading global accounting firm, and its i
 
 Media Contact:pr@bit.store 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/bitstore-enhances-crypto-card-services-with-trueusd-integration)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1avdsku/bitstore_announces_collaboration_with_trueusd_to/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1avdsku/bitstore_announces_collaboration_with_trueusd_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/ables9mO.webp)

@@ -12,9 +12,17 @@ Dr. Tola's dedication to patient satisfaction is echoed by the overwhelmingly po
 
 With a strong emphasis on mental health, wellness, living, and relationships, Dr. Tola's practice offers a holistic approach to emotional well-being. In addition to TMS Therapy, Dr. Tola specializes in various aesthetic services, such as Ultherapy, and features a shop for wellness products on their website. 
 
+---
+
 [Original/Source Press Release](https://newsworthy.ai/news/20231229969/leading-psychiatrist-dr-tola-introduces-revolutionary-tms-therapy-for-depression-treatment)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdocj/revolutionary_tms_therapy_offers_noninvasive/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdocj/revolutionary_tms_therapy_offers_noninvasive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/242/11/openZTXq.webp)

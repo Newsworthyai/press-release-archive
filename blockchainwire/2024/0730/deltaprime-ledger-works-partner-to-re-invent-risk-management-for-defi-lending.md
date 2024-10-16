@@ -57,9 +57,17 @@ For more information, visit: https://deltaprime.io
 
 Media Contact:Daniel@deltaprime.io 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/deltaprime--ledger-works-partner-to-re-invent-risk-management-for-defi-lending)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/BlockchainWeb3New/comments/1fven4r/deltaprime_and_ledger_works_partner_to_reinvent/
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1fven4r/deltaprime_and_ledger_works_partner_to_reinvent/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/247/30/wamcRjST.webp)

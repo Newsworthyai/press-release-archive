@@ -35,9 +35,17 @@ kat@joinadro.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/adro-selects-stearns-bank-as-sponsor-bank-to-bridge-financial-services-gap-for-international-students-793284173 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/adro-selects-stearns-bank-as-sponsor-bank-to-bridge-financial-services-gap-for-international-students-793284173)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1cx7qtw/adro_selects_stearns_bank_as_sponsor_bank_for/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1cx7qtw/adro_selects_stearns_bank_as_sponsor_bank_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/21/noteKV7n.webp)

@@ -14,9 +14,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kodal-minerals-ceo-provides-update-on-bougouni-lithium-project-development-222589985 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/kodal-minerals-ceo-provides-update-on-bougouni-lithium-project-development-222589985)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/StartupBusinessNews/comments/1d3m25u/kodal_minerals_ceo_updates_on_bougouni_lithium/
+
+
+[Reddit Post](https://www.reddit.com/r/StartupBusinessNews/comments/1d3m25u/kodal_minerals_ceo_updates_on_bougouni_lithium/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/29/numb_cmW.webp)

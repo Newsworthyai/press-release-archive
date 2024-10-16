@@ -30,9 +30,17 @@ Contact DetailsBryan Feinberg, CEO
 
 View source version on newsdirect.com: https://newsdirect.com/news/happy-bermuda-shorts-day-web-3-style-544352542 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/happy-bermuda-shorts-day-web-3-style-544352542)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1btgimh/bsdnfts_celebrating_bermuda_shorts_day_in_web3/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1btgimh/bsdnfts_celebrating_bermuda_shorts_day_in_web3/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/1/numbmPeS.webp)

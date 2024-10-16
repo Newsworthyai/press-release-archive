@@ -32,9 +32,17 @@ Company Websitehttps://www.hansleyjoseph.ca/
 
 View source version on newsdirect.com: https://newsdirect.com/news/hansleyjoseph-ca-launches-with-a-focus-on-gaming-expertise-and-community-empowerment-176869598 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/hansleyjoseph-ca-launches-with-a-focus-on-gaming-expertise-and-community-empowerment-176869598)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1esy1sw/hansleyjosephca_launches_as_ultimate_resource_for/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1esy1sw/hansleyjosephca_launches_as_ultimate_resource_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/15/mailtTPZ.webp)

@@ -78,9 +78,17 @@ Company Websitehttps://www.zingly.ai/
 
 View source version on newsdirect.com: https://newsdirect.com/news/zingly-launches-a-bold-ai-driven-future-of-customer-experience-for-a-world-beyond-1-800-calls-and-chatbots-916452925 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/zingly-launches-a-bold-ai-driven-future-of-customer-experience-for-a-world-beyond-1-800-calls-and-chatbots-916452925)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1d8qwhx/exavaya_five9_glia_and_talkdesk_leaders_launch/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1d8qwhx/exavaya_five9_glia_and_talkdesk_leaders_launch/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/246/5/roamg1xE.webp)

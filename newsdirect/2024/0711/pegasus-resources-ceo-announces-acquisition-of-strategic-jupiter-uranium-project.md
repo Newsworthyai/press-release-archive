@@ -14,9 +14,17 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pegasus-resources-ceo-announces-acquisition-of-strategic-jupiter-uranium-project-110888241 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/pegasus-resources-ceo-announces-acquisition-of-strategic-jupiter-uranium-project-110888241)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1e0qcpj/pegasus_resources_ceo_announces_acquisition_of/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1e0qcpj/pegasus_resources_ceo_announces_acquisition_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/11/riftqbIb.webp)

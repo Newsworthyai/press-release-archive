@@ -52,9 +52,17 @@ Discord: https://discord.gg/Q7BxghMVyu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-network-introduces-major-updates-and-dev-releases-while-bitcoin-halving-approaches-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bvsltg/bitcoin_2024_halving_analysts_predict_bullish/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bvsltg/bitcoin_2024_halving_analysts_predict_bullish/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/4/glue2PPD.webp)

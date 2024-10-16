@@ -18,9 +18,17 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/premier-african-minerals-reaches-milestone-at-zulu-lithium-plant-with-saleable-spodumene-concentrate-910322539 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/premier-african-minerals-reaches-milestone-at-zulu-lithium-plant-with-saleable-spodumene-concentrate-910322539)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1cr13ic/premier_african_minerals_reaches_milestone_at/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1cr13ic/premier_african_minerals_reaches_milestone_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/13/barnQCuT.webp)

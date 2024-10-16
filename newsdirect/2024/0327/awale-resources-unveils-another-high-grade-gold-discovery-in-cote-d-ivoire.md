@@ -18,9 +18,17 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/awale-resources-unveils-another-high-grade-gold-discovery-in-cote-divoire-519304947 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/awale-resources-unveils-another-high-grade-gold-discovery-in-cote-divoire-519304947)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/RealEstate_NewsRamp/comments/1bp0hsf/awale_resources_unveils_highgrade_gold_discovery/
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1bp0hsf/awale_resources_unveils_highgrade_gold_discovery/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/243/27/yarn6zpy.webp)

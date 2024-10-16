@@ -38,9 +38,17 @@ Twitter: SHIBA BUDZ "$BUDZ" (@ShibaBudz) / X
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/eth-whales-drop-ethereum-profits-into-new-budz-cryptocurrency-positioned-for-green-rally)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1bnjqwd/ethereum_whales_shift_focus_to_shiba_budz_budz_in/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1bnjqwd/ethereum_whales_shift_focus_to_shiba_budz_budz_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/25/roamutEG.webp)

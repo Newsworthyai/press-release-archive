@@ -44,9 +44,17 @@ Unless otherwise provided in a separate agreement, Alpha Sigma Capital does not 
 
 Crypto and/or digital currencies involve substantial risk, are speculative in nature, and may not perform as expected. Many digital currency platforms are not subject to regulatory supervision, unlike regulated exchanges. Some platforms may commingle customer assets in shared accounts and provide inadequate custody, which may affect whether or how investors can withdraw their currency and/or subject them to money laundering. Digital currencies may be vulnerable to hacks and cyber fraud as well as significant volatility and price swings. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/alpha-transform-holdings-releases-new-research-on-gryphon-digital-mining--announces-price-target-of-337-per-share-nasdaq-gryp)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bc2t4b/alpha_transform_holdings_releases_research_on/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bc2t4b/alpha_transform_holdings_releases_research_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/243/11/loft7puu.webp)

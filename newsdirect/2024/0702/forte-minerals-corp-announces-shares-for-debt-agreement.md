@@ -42,9 +42,17 @@ Company Websitehttps://forteminerals.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/forte-minerals-corp-announces-shares-for-debt-agreement-426918332 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/forte-minerals-corp-announces-shares-for-debt-agreement-426918332)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1dtwh7f/forte_minerals_corp_announces_sharesfordebt/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1dtwh7f/forte_minerals_corp_announces_sharesfordebt/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/247/2/joltq7Fl.webp)

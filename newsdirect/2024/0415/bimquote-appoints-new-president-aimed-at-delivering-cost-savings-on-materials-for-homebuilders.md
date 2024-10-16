@@ -34,9 +34,17 @@ Company Websitehttps://builderscapital.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bimquote-appoints-new-president-aimed-at-delivering-cost-savings-on-materials-for-homebuilders-659039839 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bimquote-appoints-new-president-aimed-at-delivering-cost-savings-on-materials-for-homebuilders-659039839)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1c4kpfs/bimquote_appoints_new_president_to_deliver_cost/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1c4kpfs/bimquote_appoints_new_president_to_deliver_cost/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/15/ablevyxc.webp)

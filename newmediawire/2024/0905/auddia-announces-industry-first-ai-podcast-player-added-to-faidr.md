@@ -34,9 +34,17 @@ ksmith@pcgadvisory.com
 
 www.pcgadvisory.com 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/auddia-announces-industry-first-ai-podcast-player-added-to-faidr-7076002)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/newsramp/comments/1f9rl8o/auddia_inc_introduces_new_features_for_podcast/
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1f9rl8o/auddia_inc_introduces_new_features_for_podcast/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/249/5/echoXpCG.webp)

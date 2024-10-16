@@ -82,9 +82,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/4-20-cannabis-stocks-key-players-in-the-growing-market-958886339 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/4-20-cannabis-stocks-key-players-in-the-growing-market-958886339)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CannabisNewsInfo/comments/1c8749q/420_cannabis_stocks_key_players_in_the_growing/
+
+
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1c8749q/420_cannabis_stocks_key_players_in_the_growing/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/19/mend_zLs.webp)

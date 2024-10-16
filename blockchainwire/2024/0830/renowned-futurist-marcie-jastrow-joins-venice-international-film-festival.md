@@ -20,9 +20,17 @@ Disclaimer: The information provided in this press release is not a solicitatio
 
 Media Contact: xenia@transformgroup.com 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/renowned-futurist-marcie-jastrow-joins-venice-international-film-festival-)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1f5v28s/marcie_jastrow_to_moderate_panel_on_blockchain/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1f5v28s/marcie_jastrow_to_moderate_panel_on_blockchain/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/248/31/chefkZw5.webp)

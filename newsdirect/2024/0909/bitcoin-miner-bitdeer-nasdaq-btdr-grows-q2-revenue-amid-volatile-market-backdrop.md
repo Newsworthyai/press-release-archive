@@ -56,8 +56,15 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitcoin-miner-bitdeer-nasdaq-btdr-grows-q2-revenue-amid-volatile-market-backdrop-126618518 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/bitcoin-miner-bitdeer-nasdaq-btdr-grows-q2-revenue-amid-volatile-market-backdrop-126618518)
                     
 
 [Newsramp.com TLDR](None) 
 
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/249/9/fernvLPu.webp)

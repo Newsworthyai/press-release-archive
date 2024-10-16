@@ -38,9 +38,17 @@ ClearThink IRbloper@clearthink.capital
 
 602-785-4120 
 
+---
+
 [Original/Source Press Release](https://www.newmediawire.com/news/one-world-products-secures-first-order-for-hemp-based-reusable-containers-pioneers-renewable-materials-for-the-automotive-industry-7076225)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1g45uop/one_world_products_showcases_hempbased_molded/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1g45uop/one_world_products_showcases_hempbased_molded/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/2410/15/dunerO27.webp)

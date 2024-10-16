@@ -52,9 +52,17 @@ Email address: Listing@xt.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/discover-the-aipc-artificial-intelligent-platform-coin-listing-on-xtcom)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/CryptoNewsInfo/comments/1c0jk59/xtcom_announces_listing_of_aipc_on_socially/
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1c0jk59/xtcom_announces_listing_of_aipc_on_socially/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/10/odorf27O.webp)

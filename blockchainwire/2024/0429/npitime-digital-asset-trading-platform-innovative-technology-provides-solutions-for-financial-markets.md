@@ -32,9 +32,17 @@ E-mail: service@npitime.net
 
 Location: SingaporeDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/npitime-digital-asset-trading-platform-innovative-technology-provides-solutions-for-financial-markets)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1cg1ndv/npitime_introduces_innovative_technology_for/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1cg1ndv/npitime_introduces_innovative_technology_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/29/ellap6jv.webp)

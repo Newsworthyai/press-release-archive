@@ -51,9 +51,17 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/regenerative-medicine-technology-group-otc-mssv-capitalizing-on-the-growth-in-regenerative-medicine-329846562 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/regenerative-medicine-technology-group-otc-mssv-capitalizing-on-the-growth-in-regenerative-medicine-329846562)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Business_NewsRamp/comments/1ekk4l1/regenerative_medicine_technology_group_otc_mssv/
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ekk4l1/regenerative_medicine_technology_group_otc_mssv/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/248/5/fineAC31.webp)

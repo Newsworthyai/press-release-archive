@@ -28,9 +28,17 @@ Website: https://foghashing.io
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/revolutionizing-bitcoin-mining-foghashings-eco-friendly-solution-on-empower)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/technology_press/comments/1bu2mgr/fog_hashing_unveils_solarpowered_immersion/
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1bu2mgr/fog_hashing_unveils_solarpowered_immersion/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/244/2/xenoEKSl.webp)

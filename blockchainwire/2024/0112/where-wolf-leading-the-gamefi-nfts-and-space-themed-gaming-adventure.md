@@ -58,9 +58,17 @@ Telegram - Announcements: https://t.me/spacealpacachannel
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
+---
+
 [Original/Source Press Release](https://blockchainwire.io/press-release/where-wolf-leading-the-gamefi-nfts-and-space-themed-gaming-adventure-1)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/GamingNewsRamp/comments/1avdqvt/intense_battle_of_life_and_death_in_new/
+
+
+[Reddit Post](https://www.reddit.com/r/GamingNewsRamp/comments/1avdqvt/intense_battle_of_life_and_death_in_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/242/11/quiz0_u5.webp)

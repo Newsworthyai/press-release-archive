@@ -66,9 +66,17 @@ Company Websitehttps://cardiodiagnosticsinc.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-study-shows-cardio-diagnostics-nasdaq-cdio-precisionchd-test-could-save-health-insurers-over-113-million-annually-870971063 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/new-study-shows-cardio-diagnostics-nasdaq-cdio-precisionchd-test-could-save-health-insurers-over-113-million-annually-870971063)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/HealthCareNewsInfo/comments/1cmb8au/new_study_shows_cardio_diagnostics_nasdaq_cdio/
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1cmb8au/new_study_shows_cardio_diagnostics_nasdaq_cdio/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/245/7/healrbYr.webp)

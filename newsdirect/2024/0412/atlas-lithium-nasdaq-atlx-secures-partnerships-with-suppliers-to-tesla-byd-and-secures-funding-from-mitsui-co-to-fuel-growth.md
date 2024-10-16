@@ -38,9 +38,17 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/atlas-lithium-nasdaq-atlx-secures-partnerships-with-suppliers-to-tesla-byd-and-secures-funding-from-mitsui-and-co-to-fuel-growth-711131343 
 
+---
+
 [Original/Source Press Release](https://newsdirect.com/news/atlas-lithium-nasdaq-atlx-secures-partnerships-with-suppliers-to-tesla-byd-and-secures-funding-from-mitsui-and-co-to-fuel-growth-711131343)
                     
 
 [Newsramp.com TLDR](None) 
 
-https://www.reddit.com/r/Energy_Climate_News/comments/1c27u5s/atlas_lithium_secures_partnerships_with_suppliers/
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1c27u5s/atlas_lithium_secures_partnerships_with_suppliers/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/244/12/mailpqvc.webp)
