@@ -38,9 +38,6 @@ View source version on newsdirect.com: https://newsdirect.com/news/symphion-r-te
 [Newsramp.com TLDR](https://newsramp.com/curated-news/symphion-technology-to-help-gynecologists-mitigate-nationwide-saline-shortage/13471509ab22782e6eeb043272b9363d) 
 
  
-
-
-
 [Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1g51puj/symphion_technology_to_help_gynecologists/) 
 
 
