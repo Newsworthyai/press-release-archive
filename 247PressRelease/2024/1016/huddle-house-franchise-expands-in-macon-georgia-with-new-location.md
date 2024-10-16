@@ -1,0 +1,20 @@
+# Huddle House Franchise Expands in Macon, Georgia with New Location
+
+MACON, GA, October 16, 2024 /24-7PressRelease/ -- The wait is over! Huddle House, serving freshly prepared, home-style food since 1964, is now open in Macon, Georgia. Franchise owner Will Harrington has officially opened the doors at 4900 Ocmulgee E Blvd. Guests have quickly embraced the brand's iconic Golden Waffles and beloved all-day breakfast favorites, making the new Huddle House a go-to spot for comfort food in Macon.   "We couldn't be more excited to introduce Huddle House to Macon," said Wil Harrington, owner of Huddle House Macon. "This will be a great addition to Macon as a foundational gathering spot where families and friends can come together to enjoy delicious food and a welcoming environment. We look forward to being part of this community!"   Huddle House operates nearly 300 restaurants across the United States, with more in development. Each location serves as a popular gathering spot where friends and families can enjoy hearty, homestyle meals. The brand is celebrated for its warm hospitality, generous portions, and 24-hour service, making it a staple in many communities.   "As we expand into new markets, our focus is on partnering with dedicated franchisees, such as Wil, who align with our mission to build long-term success. We hope to continue building on this momentum looking ahead for 2025 and beyond," said Natalie Hansen, Senior Director of Franchise Development with Ascent Hospitality Management. "We look forward to seeing Huddle House become an essential gathering spot for the Macon community."   Huddle House Macon will be open daily from 6 a.m. to 10 p.m. Whether you're in the mood for hearty Breakfast Platters, juicy Burgers, or the new MVP Waffle Tacos, Huddle House offers a diverse menu to satisfy any craving.   "Georgia is one of our key markets, and we're eager to continue building on this momentum of expansion across the state and beyond," said Peter Ortiz, Chief Development Officer at Ascent Hospitality Management. "We're partnering with franchisees who are not only dedicated and reliable but also deeply committed to their local communities. We look forward to seeing Huddle House become a cornerstone dining establishment in Macon."   For more information about Huddle House, including locations and franchising opportunities, visit HuddleHouse.com or follow them on social @HuddleHouse.  About Huddle House  All Day, Your Way. Huddle House shares that spirit of hometown togetherness, creating that warm atmosphere where everyone feels welcome. Huddle House has been serving freshly prepared, home-style food since 1964. We're the champions of enjoying big without spending big because at Huddle House, flavor, fun, and value always go hand in hand.   Huddle House Inc. is an Ascent Hospitality Management brand with nearly 300 locations open or in development. It has been named one of the Top 200+ Franchises by Franchise Times, ranked among Thrillist's list of "Regional Breakfast Chains that Should Be Everywhere," and named a Top 500 Chain Restaurant by Restaurant Business.   Huddle House is an Ascent Hospitality Management brand, which is on a mission to build an amazing workplace, create customers for life, and become a franchisor of choice. To learn more about Huddle House franchise opportunities, visit https://huddlehousefranchising.com and for more information about the brand, visit the company website at huddlehouse.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515335/huddle-house-franchise-expands-in-macon-georgia-with-new-location)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/huddle-house-opens-new-location-in-macon-georgia/eb8c75c8489e3a3ac9b91004f62ba8c1) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1g58u3b/huddle_house_opens_new_location_in_macon_georgia/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/16/gainORZy.webp)
