@@ -40,6 +40,9 @@ Verity One TRUTH MATTERS™ has solved the FAKE Problem:https://verity.one/the-v
 
 ![](https://api.blockchainwire.io/uploads/VerityOneLtd/editor_image/0637991a-1b6e-4b8e-a4db-3442578f772a.jpeg) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/verity-one-truth-matters-solves-the-fake-luxury-watch-problem-using-ai-blockchain-with-vrty-token-binance-bsc-polygon-matic-ibm-hyperledger) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/verity-one-truth-matters-solves-the-fake-luxury-watch-problem-using-ai-blockchain-with-vrty-token-binance-bsc-polygon-matic-ibm-hyperledger)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1avdqxh/verity_one_introduces_vrty_token_to_combat/

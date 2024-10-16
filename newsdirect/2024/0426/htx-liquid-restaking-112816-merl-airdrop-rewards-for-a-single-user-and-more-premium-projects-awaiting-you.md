@@ -36,6 +36,9 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-liquid-restaking-112-816-merl-airdrop-rewards-for-a-single-user-and-more-premium-projects-awaiting-you-749889831 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-liquid-restaking-112-816-merl-airdrop-rewards-for-a-single-user-and-more-premium-projects-awaiting-you-749889831) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-liquid-restaking-112-816-merl-airdrop-rewards-for-a-single-user-and-more-premium-projects-awaiting-you-749889831)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cdg790/htx_liquid_restaking_112816_merl_airdrop_rewards/

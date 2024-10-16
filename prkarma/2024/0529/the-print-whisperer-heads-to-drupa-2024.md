@@ -46,6 +46,9 @@ Visit Our Blog
 * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1470) 
+[Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1470)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BookNews/comments/1d8xqgm/printing_industry_influencer_warren_werbitt_to/

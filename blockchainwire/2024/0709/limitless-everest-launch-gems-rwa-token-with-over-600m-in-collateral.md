@@ -40,6 +40,9 @@ THE Foundation is a non-profit organization governed as a DAO that is dedicated 
 
 Contact: [contact@everlaunch.org](mailto:contact@everlaunch.org) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/limitless--everest-launch-gems-rwa-token-with-over-600m-in-collateral) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/limitless--everest-launch-gems-rwa-token-with-over-600m-in-collateral)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dzdo18/limitless_and_everest_launch_gems_tokens_backed/

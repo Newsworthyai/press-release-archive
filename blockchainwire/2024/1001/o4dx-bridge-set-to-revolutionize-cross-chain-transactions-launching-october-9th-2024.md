@@ -56,6 +56,9 @@ Telegram Official Chat: https://t.me/OrangeDx_Official_Chat
 
 Telegram Official Announcement: https://t.me/Orangedx_Official 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/o4dx-bridge-set-to-revolutionize-cross-chain-transactions-launching-october-9th-2024) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/o4dx-bridge-set-to-revolutionize-cross-chain-transactions-launching-october-9th-2024)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1g3kluy/orangedx_to_launch_o4dx_bridge_revolutionizing/

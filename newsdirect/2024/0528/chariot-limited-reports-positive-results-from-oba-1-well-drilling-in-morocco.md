@@ -18,6 +18,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/chariot-limited-reports-positive-results-from-oba-1-well-drilling-in-morocco-284035148 
 
-[Original/Source Press Release](https://newsdirect.com/news/chariot-limited-reports-positive-results-from-oba-1-well-drilling-in-morocco-284035148) 
+[Original/Source Press Release](https://newsdirect.com/news/chariot-limited-reports-positive-results-from-oba-1-well-drilling-in-morocco-284035148)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d2jr5u/chariot_limited_reports_positive_results_from/

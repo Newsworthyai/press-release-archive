@@ -34,6 +34,9 @@ Company Websitehttps://stealthex.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/stealthex-integrates-with-exchange-flow-for-seamless-swaps-914648477 
 
-[Original/Source Press Release](https://newsdirect.com/news/stealthex-integrates-with-exchange-flow-for-seamless-swaps-914648477) 
+[Original/Source Press Release](https://newsdirect.com/news/stealthex-integrates-with-exchange-flow-for-seamless-swaps-914648477)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1eg4md3/stealthex_partners_with_exchange_flow_for/

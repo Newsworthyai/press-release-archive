@@ -16,6 +16,9 @@ About RChilli
 
 RChilli resume parser for ERP recruiting simplifies the recruitment process across 50+ countries through smart automation, with features that streamline hiring. Powered by deep learning, RChilli’s multilingual parsing solution and enhanced taxonomy, parses resumes in 27+ languages, enhances positive candidate and recruiter experience, and processes 4.1 billion+ docs per year. Enabling Oracle, PeopleSoft, & Salesforce clients to hire better and faster since 2021, RChilli is ISO 27001:2013, SOC 2 Type II, and HIPAA certified, and GDPR compliant. Powered by deep learning, RChilli’s resume parsing app is available on Oracle Cloud Marketplace and Salesforce AppExchange. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202403111114/innovative-browser-extension-elevates-rchilli-s-sap-successfactors-presence) 
+[Original/Source Press Release](https://newsworthy.ai/news/202403111114/innovative-browser-extension-elevates-rchilli-s-sap-successfactors-presence)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bc1o6h/rchilli_introduces_innovative_browser_extension/

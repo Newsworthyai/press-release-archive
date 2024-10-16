@@ -60,6 +60,9 @@ Company Websitehttp://razorPitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tembo-e-lv-838-million-spac-ipo-set-to-unlock-shareholder-value-for-vivopower-nasdaq-vvpr-976288874 
 
-[Original/Source Press Release](https://newsdirect.com/news/tembo-e-lv-838-million-spac-ipo-set-to-unlock-shareholder-value-for-vivopower-nasdaq-vvpr-976288874) 
+[Original/Source Press Release](https://newsdirect.com/news/tembo-e-lv-838-million-spac-ipo-set-to-unlock-shareholder-value-for-vivopower-nasdaq-vvpr-976288874)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cmbnr5/vivopower_international_plc_tembo_elv_838_million/

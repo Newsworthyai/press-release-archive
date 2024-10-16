@@ -32,6 +32,9 @@ Forward-Looking Statement
 
 This press release contains forward-looking statements that are subject to risks and uncertainties. Actual results may differ materially from those expressed in these statements. 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/supercloud-global-holdings-inc-subsidiary-supercloud-international-inc-raises-23-million-in-funding-to-fuel-expansion-of-revolutionary-5g-entertainment-platform-and-content-production-studio-7076046) 
+[Original/Source Press Release](https://www.newmediawire.com/news/supercloud-global-holdings-inc-subsidiary-supercloud-international-inc-raises-23-million-in-funding-to-fuel-expansion-of-revolutionary-5g-entertainment-platform-and-content-production-studio-7076046)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ff2ij1/supercloud_global_holdings_inc_raises_23_million/

@@ -36,6 +36,9 @@ Company Websitehttps://timbercladdingspecialists.co.uk/
 
 View source version on newsdirect.com: https://newsdirect.com/news/timber-cladding-specialists-introduces-new-wood-cladding-manufacturing-techniques-to-the-uk-market-893933714 
 
-[Original/Source Press Release](https://newsdirect.com/news/timber-cladding-specialists-introduces-new-wood-cladding-manufacturing-techniques-to-the-uk-market-893933714) 
+[Original/Source Press Release](https://newsdirect.com/news/timber-cladding-specialists-introduces-new-wood-cladding-manufacturing-techniques-to-the-uk-market-893933714)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1ctbhhw/timber_cladding_specialists_introduces_innovative/

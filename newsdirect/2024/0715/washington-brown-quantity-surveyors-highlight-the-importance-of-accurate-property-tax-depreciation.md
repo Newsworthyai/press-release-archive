@@ -32,6 +32,9 @@ Company Websitehttps://www.washingtonbrown.com.au/
 
 View source version on newsdirect.com: https://newsdirect.com/news/washington-brown-quantity-surveyors-highlight-the-importance-of-accurate-property-tax-depreciation-350447758 
 
-[Original/Source Press Release](https://newsdirect.com/news/washington-brown-quantity-surveyors-highlight-the-importance-of-accurate-property-tax-depreciation-350447758) 
+[Original/Source Press Release](https://newsdirect.com/news/washington-brown-quantity-surveyors-highlight-the-importance-of-accurate-property-tax-depreciation-350447758)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e3pzfw/washington_brown_quantity_surveyors_navigating/

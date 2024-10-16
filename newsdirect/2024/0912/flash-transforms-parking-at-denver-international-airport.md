@@ -24,6 +24,9 @@ Company Websitehttps://www.flashparking.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/flash-transforms-parking-at-denver-international-airport-146874367 
 
-[Original/Source Press Release](https://newsdirect.com/news/flash-transforms-parking-at-denver-international-airport-146874367) 
+[Original/Source Press Release](https://newsdirect.com/news/flash-transforms-parking-at-denver-international-airport-146874367)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ff3mhv/flash_transforms_parking_at_denver_international/

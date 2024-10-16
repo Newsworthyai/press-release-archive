@@ -51,6 +51,9 @@ Anyone curious about how Light & Shadow works and its plans for the real estate 
 
 X (Twitter) | Telegram | Instagram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/light--shadow-introduces-crypto-features-and-benefits-for-real-estate-investors) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/light--shadow-introduces-crypto-features-and-benefits-for-real-estate-investors)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1eau9bo/light_38_shadow_launches_cryptofriendly_real/

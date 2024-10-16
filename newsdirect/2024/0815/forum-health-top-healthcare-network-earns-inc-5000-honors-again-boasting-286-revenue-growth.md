@@ -32,6 +32,9 @@ Company Websitehttps://forumhealth.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/forum-health-top-healthcare-network-earns-inc-5000-honors-again-boasting-286-revenue-growth-588072054 
 
-[Original/Source Press Release](https://newsdirect.com/news/forum-health-top-healthcare-network-earns-inc-5000-honors-again-boasting-286-revenue-growth-588072054) 
+[Original/Source Press Release](https://newsdirect.com/news/forum-health-top-healthcare-network-earns-inc-5000-honors-again-boasting-286-revenue-growth-588072054)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1esuodk/forum_health_earns_inc_5000_honors_again_boasting/

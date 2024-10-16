@@ -32,6 +32,9 @@ Copper.co: matthew.owen@portland-communications.com
 
 Core: core@transformgroup.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/copper-partners-with-core-offering-custody-and-staking-support-for-institutions) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/copper-partners-with-core-offering-custody-and-staking-support-for-institutions)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1en9zxd/core_foundation_announces_strategic_partnership/

@@ -28,6 +28,9 @@ Company Websitehttps://invest.melaartisans.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/mela-artisans-launches-capital-raise-to-fuel-expansion-and-empower-global-artisans-712983972 
 
-[Original/Source Press Release](https://newsdirect.com/news/mela-artisans-launches-capital-raise-to-fuel-expansion-and-empower-global-artisans-712983972) 
+[Original/Source Press Release](https://newsdirect.com/news/mela-artisans-launches-capital-raise-to-fuel-expansion-and-empower-global-artisans-712983972)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bnue4c/mela_artisans_launches_capital_raise_to_fuel/

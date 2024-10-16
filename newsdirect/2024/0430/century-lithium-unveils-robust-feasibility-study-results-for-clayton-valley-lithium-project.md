@@ -20,6 +20,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/century-lithium-unveils-robust-feasibility-study-results-for-clayton-valley-lithium-project-584664960 
 
-[Original/Source Press Release](https://newsdirect.com/news/century-lithium-unveils-robust-feasibility-study-results-for-clayton-valley-lithium-project-584664960) 
+[Original/Source Press Release](https://newsdirect.com/news/century-lithium-unveils-robust-feasibility-study-results-for-clayton-valley-lithium-project-584664960)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cgx9mb/century_lithium_unveils_promising_feasibility/

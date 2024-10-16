@@ -48,6 +48,9 @@ About Talus NetworkTalus Network is a next-generation L1 blockchain for buildin
 
 Stay up-to-date with the latest developments by following Talus on Twitter, Discord, and GitHub. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/polychain-backed-talus-network-launches-nexus-the-first-fully-onchain-agentic-framework-for-autonomous-ai-on-blockchain) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/polychain-backed-talus-network-launches-nexus-the-first-fully-onchain-agentic-framework-for-autonomous-ai-on-blockchain)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1fsucdz/talus_network_launches_nexus_the_worlds_first/

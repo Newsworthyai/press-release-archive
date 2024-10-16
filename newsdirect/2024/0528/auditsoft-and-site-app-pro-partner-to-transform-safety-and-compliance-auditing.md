@@ -32,6 +32,9 @@ peter.spence@auditsoft.co
 
 View source version on newsdirect.com: https://newsdirect.com/news/auditsoft-and-site-app-pro-partner-to-transform-safety-and-compliance-auditing-130490289 
 
-[Original/Source Press Release](https://newsdirect.com/news/auditsoft-and-site-app-pro-partner-to-transform-safety-and-compliance-auditing-130490289) 
+[Original/Source Press Release](https://newsdirect.com/news/auditsoft-and-site-app-pro-partner-to-transform-safety-and-compliance-auditing-130490289)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Leadership_Management/comments/1d2mzfq/auditsoft_partners_with_site_app_pro_to/

@@ -40,6 +40,9 @@ Company Websitehttp://RazorPitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/therma-brights-investment-case-just-got-stronger-as-approval-on-permanent-insurance-codes-gets-closer-290186438 
 
-[Original/Source Press Release](https://newsdirect.com/news/therma-brights-investment-case-just-got-stronger-as-approval-on-permanent-insurance-codes-gets-closer-290186438) 
+[Original/Source Press Release](https://newsdirect.com/news/therma-brights-investment-case-just-got-stronger-as-approval-on-permanent-insurance-codes-gets-closer-290186438)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1de3322/therma_brights_venowave_set_for_major_growth_with/

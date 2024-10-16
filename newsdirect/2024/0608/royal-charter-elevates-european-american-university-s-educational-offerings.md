@@ -30,6 +30,9 @@ Company Websitehttps://europeanamerican.university/
 
 View source version on newsdirect.com: https://newsdirect.com/news/royal-charter-elevates-european-american-universitys-educational-offerings-388208847 
 
-[Original/Source Press Release](https://newsdirect.com/news/royal-charter-elevates-european-american-universitys-educational-offerings-388208847) 
+[Original/Source Press Release](https://newsdirect.com/news/royal-charter-elevates-european-american-universitys-educational-offerings-388208847)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dbajk5/europeanamerican_university_receives_royal/

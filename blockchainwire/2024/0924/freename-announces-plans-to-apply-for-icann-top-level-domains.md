@@ -14,6 +14,9 @@ About Freename: Freename is the leading multichain Web3 Namespace where users ca
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/freename-announces-plans-to-apply-for-icann-top-level-domains) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/freename-announces-plans-to-apply-for-icann-top-level-domains)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fuott0/freename_to_participate_in_icann_gtld/

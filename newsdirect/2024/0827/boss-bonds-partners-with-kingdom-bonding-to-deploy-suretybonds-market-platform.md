@@ -40,6 +40,9 @@ Company Websitehttps://www.bossbonds.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/boss-bonds-partners-with-kingdom-bonding-to-deploy-suretybonds-market-platform-589924758 
 
-[Original/Source Press Release](https://newsdirect.com/news/boss-bonds-partners-with-kingdom-bonding-to-deploy-suretybonds-market-platform-589924758) 
+[Original/Source Press Release](https://newsdirect.com/news/boss-bonds-partners-with-kingdom-bonding-to-deploy-suretybonds-market-platform-589924758)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f386m8/boss_bonds_partners_with_kingdom_bonding_to/

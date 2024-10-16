@@ -18,6 +18,9 @@ Serving as a beacon for the data community, BigDataInterviews.com is committed t
 
 Unearth the world of data science like never before at www.BigDataInterviews.com. Where curiosity meets expertise, and insights come alive. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231208781/bigdatainterviews-com-goes-live-the-forefront-of-data-science-insights-and-discussions) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231208781/bigdatainterviews-com-goes-live-the-forefront-of-data-science-insights-and-discussions)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1avx2q6/bigdatainterviewscom_revolutionizing_access_to/

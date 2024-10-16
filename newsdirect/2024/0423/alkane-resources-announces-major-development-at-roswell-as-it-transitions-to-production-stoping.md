@@ -18,6 +18,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/alkane-resources-announces-major-development-at-roswell-as-it-transitions-to-production-stoping-806564043 
 
-[Original/Source Press Release](https://newsdirect.com/news/alkane-resources-announces-major-development-at-roswell-as-it-transitions-to-production-stoping-806564043) 
+[Original/Source Press Release](https://newsdirect.com/news/alkane-resources-announces-major-development-at-roswell-as-it-transitions-to-production-stoping-806564043)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cbizqa/alkane_resources_announces_major_development_at/

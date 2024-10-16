@@ -97,6 +97,9 @@ Company Websitehttps://money.ca/
 
 View source version on newsdirect.com: https://newsdirect.com/news/hey-gals-here-are-the-worst-mistakes-youre-making-with-money-597052139 
 
-[Original/Source Press Release](https://newsdirect.com/news/hey-gals-here-are-the-worst-mistakes-youre-making-with-money-597052139) 
+[Original/Source Press Release](https://newsdirect.com/news/hey-gals-here-are-the-worst-mistakes-youre-making-with-money-597052139)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d4yua3/survey_reveals_20_of_canadian_spouses_rely_on/

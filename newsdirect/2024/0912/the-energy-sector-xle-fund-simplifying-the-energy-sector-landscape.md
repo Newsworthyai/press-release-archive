@@ -77,6 +77,9 @@ Company Websitehttps://www.sectorspdrs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-energy-sector-xle-fund-simplifying-the-energy-sector-landscape-150126011 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-energy-sector-xle-fund-simplifying-the-energy-sector-landscape-150126011) 
+[Original/Source Press Release](https://newsdirect.com/news/the-energy-sector-xle-fund-simplifying-the-energy-sector-landscape-150126011)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1fey7my/energy_select_sector_spdr_fund_engaging_with_the/

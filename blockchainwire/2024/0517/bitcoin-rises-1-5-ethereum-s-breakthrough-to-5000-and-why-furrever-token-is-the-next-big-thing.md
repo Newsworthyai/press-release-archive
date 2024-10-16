@@ -34,6 +34,9 @@ Furrever Token has gained organic growth with nearly 4,000 members in its active
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-rises-15-ethereums-breakthrough-to-5000-and-why-furrever-token-is-the-next-big-thing) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-rises-15-ethereums-breakthrough-to-5000-and-why-furrever-token-is-the-next-big-thing)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cu2lhw/bitcoin_and_ethereum_surge_furrever_token_emerges/

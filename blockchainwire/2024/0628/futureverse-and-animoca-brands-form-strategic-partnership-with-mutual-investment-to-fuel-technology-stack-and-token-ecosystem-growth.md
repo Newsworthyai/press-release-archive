@@ -38,6 +38,9 @@ Futureverse: futureverse@wearetheuntold.com
 
 Animoca Brands: [press@animocabrands.com](mailto:press@animocabrands.com) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/futureverse-and-animoca-brands-form-strategic-partnership-with-mutual-investment-to-fuel-technology-stack-and-token-ecosystem-growth) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/futureverse-and-animoca-brands-form-strategic-partnership-with-mutual-investment-to-fuel-technology-stack-and-token-ecosystem-growth)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1dqi569/futureverse_and_animoca_brands_enter_strategic/

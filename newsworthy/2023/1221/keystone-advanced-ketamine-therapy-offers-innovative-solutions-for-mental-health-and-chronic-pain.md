@@ -8,6 +8,9 @@ Testimonials from satisfied clients reflect the success of ketamine therapy offe
 
 The comprehensive care provided at Keystone Advanced Ketamine Therapy is designed to address a multitude of conditions conveniently under one roof. With specialized treatments available for depression, PTSD, chronic pain, and fibromyalgia, patients can find relief that may not have been possible through traditional methods. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231221916/keystone-advanced-ketamine-therapy-offers-innovative-solutions-for-mental-health-and-chronic-pain) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231221916/keystone-advanced-ketamine-therapy-offers-innovative-solutions-for-mental-health-and-chronic-pain)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avcvda/revolutionary_ketamine_therapy_for_mental_health/

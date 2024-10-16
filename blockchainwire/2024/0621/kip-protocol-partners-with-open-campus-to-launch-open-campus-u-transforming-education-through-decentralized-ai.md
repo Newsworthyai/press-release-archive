@@ -53,6 +53,9 @@ Website: https://www.opencampus.xyz/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/kip-protocol-partners-with-open-campus-to-launch-open-campus-u-transforming-education-through-decentralized-ai) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/kip-protocol-partners-with-open-campus-to-launch-open-campus-u-transforming-education-through-decentralized-ai)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dmpdzw/kip_protocol_and_open_campus_launch_open_campus_u/

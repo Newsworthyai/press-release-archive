@@ -24,6 +24,9 @@ About Arhasi:
 
 Arhasi is a pioneering AI startup focused on the rapid development of secure, governed, and compliant GenAI solutions. Our strategic frameworks streamline use case rationalization, risk management, and operational readiness for your AI endeavors. For more information, visit www.arhasi.ai.Copyright © 2024 Arhasi. All rights reserved. Arhasi and its logo are trademarks of Arhasi.The information presented here is intended for general purposes only and should not be considered a substitute for consulting with our consultants. This document makes reference to trademarks owned by third parties, and all these third-party marks belong to their respective owners. There is no intention, express or implied, for sponsorship, endorsement, or approval of this content by the owners of the mentioned marks. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/arhasis-confidentiality-concierge-redefines-ai-chatbot-security) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/arhasis-confidentiality-concierge-redefines-ai-chatbot-security)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cb1uzq/arhasi_introduces_groundbreaking_confidentiality/

@@ -24,6 +24,9 @@ kchaney@babson.edu
 
 View source version on newsdirect.com: https://newsdirect.com/news/babson-college-enhances-the-student-experience-with-ai-powered-tools-and-grants-for-ai-experimentation-368198315 
 
-[Original/Source Press Release](https://newsdirect.com/news/babson-college-enhances-the-student-experience-with-ai-powered-tools-and-grants-for-ai-experimentation-368198315) 
+[Original/Source Press Release](https://newsdirect.com/news/babson-college-enhances-the-student-experience-with-ai-powered-tools-and-grants-for-ai-experimentation-368198315)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1fi48na/babson_college_empowers_students_with_ai_tools/

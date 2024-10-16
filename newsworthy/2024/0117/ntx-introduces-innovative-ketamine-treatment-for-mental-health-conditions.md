@@ -10,6 +10,9 @@ In the case of OCD, ketamine therapy can offer relief by reducing hyperconnectiv
 
 With a dedicated team of professionals and a wide range of services, NTX stands committed to providing high-quality care and innovative treatment options to individuals seeking support for their mental health. In addition to ketamine therapy, their services include individual therapy, group therapy, ADHD testing, genetic testing, neuropsychological testing, medication management, and early autism screening. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20240117987/ntx-introduces-innovative-ketamine-treatment-for-mental-health-conditions) 
+[Original/Source Press Release](https://newsworthy.ai/news/20240117987/ntx-introduces-innovative-ketamine-treatment-for-mental-health-conditions)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avdp0k/leading_mental_health_treatment_center_ntx_offers/

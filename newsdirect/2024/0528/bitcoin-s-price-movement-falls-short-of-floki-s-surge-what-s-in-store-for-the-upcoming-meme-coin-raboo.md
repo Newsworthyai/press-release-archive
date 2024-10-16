@@ -42,6 +42,9 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitcoins-price-movement-falls-short-of-flokis-surge-whats-in-store-for-the-upcoming-meme-coin-raboo-127964280 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitcoins-price-movement-falls-short-of-flokis-surge-whats-in-store-for-the-upcoming-meme-coin-raboo-127964280) 
+[Original/Source Press Release](https://newsdirect.com/news/bitcoins-price-movement-falls-short-of-flokis-surge-whats-in-store-for-the-upcoming-meme-coin-raboo-127964280)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1d2vnmw/crypto_market_analysis_floki_and_raboo_shake_up/

@@ -28,6 +28,9 @@ Company Websitehttps://holsper.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/holsper-launches-new-line-of-luxury-bedding-to-redefine-sleep-experience-282672744 
 
-[Original/Source Press Release](https://newsdirect.com/news/holsper-launches-new-line-of-luxury-bedding-to-redefine-sleep-experience-282672744) 
+[Original/Source Press Release](https://newsdirect.com/news/holsper-launches-new-line-of-luxury-bedding-to-redefine-sleep-experience-282672744)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fzwxb4/holsper_launches_new_line_of_luxury_bedding_to/

@@ -12,6 +12,9 @@ For individuals battling obsessive-compulsive disorder (OCD), ketamine has been 
 
 NTX is proud to give individuals in Eugene, OR, access to cutting-edge ketamine treatment, empowering them on their journey toward better mental health. With its remarkable impact and rapid results, ketamine treatment is bringing new possibilities to individuals grappling with these mental health conditions. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402191072/ntx-presents-ketamine-treatment-a-promising-solution-for-mental-health-conditions-in-eugene-or) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402191072/ntx-presents-ketamine-treatment-a-promising-solution-for-mental-health-conditions-in-eugene-or)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avc7i8/innovative_ketamine_treatment_offers_hope_for/

@@ -72,6 +72,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mainz-biomed-seeks-fda-approval-for-colorectal-cancer-test-it-says-is-nearly-twice-as-sensitive-as-others-a-look-at-pipeline-and-milestones-769794932 
 
-[Original/Source Press Release](https://newsdirect.com/news/mainz-biomed-seeks-fda-approval-for-colorectal-cancer-test-it-says-is-nearly-twice-as-sensitive-as-others-a-look-at-pipeline-and-milestones-769794932) 
+[Original/Source Press Release](https://newsdirect.com/news/mainz-biomed-seeks-fda-approval-for-colorectal-cancer-test-it-says-is-nearly-twice-as-sensitive-as-others-a-look-at-pipeline-and-milestones-769794932)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1f80jhd/mainz_biomed_develops_breakthrough_colorectal/

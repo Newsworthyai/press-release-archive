@@ -60,6 +60,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-horizon-aircraft-nasdaq-hovr-poised-for-growth-with-hybrid-aircraft-technology-amid-small-cap-strength-716098326 
 
-[Original/Source Press Release](https://newsdirect.com/news/new-horizon-aircraft-nasdaq-hovr-poised-for-growth-with-hybrid-aircraft-technology-amid-small-cap-strength-716098326) 
+[Original/Source Press Release](https://newsdirect.com/news/new-horizon-aircraft-nasdaq-hovr-poised-for-growth-with-hybrid-aircraft-technology-amid-small-cap-strength-716098326)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fkk55f/new_horizon_puts_pedal_to_the_metal_on_evtol/

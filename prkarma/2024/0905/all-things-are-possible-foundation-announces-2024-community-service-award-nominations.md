@@ -34,6 +34,9 @@ Visit Our Website
 * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/atapfoundation/news_release/1554) 
+[Original/Source Press Release](https://newsroom.prkarma.com/atapfoundation/news_release/1554)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f9ve2e/annual_atap_community_service_awards_in/

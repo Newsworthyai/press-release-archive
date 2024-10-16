@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/santacruz-silver-mining-executive-chairman-arturo-prestamo-provides-production-update-663644868 
 
-[Original/Source Press Release](https://newsdirect.com/news/santacruz-silver-mining-executive-chairman-arturo-prestamo-provides-production-update-663644868) 
+[Original/Source Press Release](https://newsdirect.com/news/santacruz-silver-mining-executive-chairman-arturo-prestamo-provides-production-update-663644868)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dco385/santacruz_silver_mining_executive_provides/

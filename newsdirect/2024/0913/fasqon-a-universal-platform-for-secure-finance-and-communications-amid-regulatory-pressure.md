@@ -54,6 +54,9 @@ Company Websitehttps://fasqon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/fasqon-a-universal-platform-for-secure-finance-and-communications-amid-regulatory-pressure-758856284 
 
-[Original/Source Press Release](https://newsdirect.com/news/fasqon-a-universal-platform-for-secure-finance-and-communications-amid-regulatory-pressure-758856284) 
+[Original/Source Press Release](https://newsdirect.com/news/fasqon-a-universal-platform-for-secure-finance-and-communications-amid-regulatory-pressure-758856284)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1fg2xl1/fasqon_introduces_revolutionary_aidriven_platform/

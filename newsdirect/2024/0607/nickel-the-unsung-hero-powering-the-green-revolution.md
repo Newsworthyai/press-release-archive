@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nickel-the-unsung-hero-powering-the-green-revolution-114044203 
 
-[Original/Source Press Release](https://newsdirect.com/news/nickel-the-unsung-hero-powering-the-green-revolution-114044203) 
+[Original/Source Press Release](https://newsdirect.com/news/nickel-the-unsung-hero-powering-the-green-revolution-114044203)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1daaa9z/nickel_the_unsung_hero_powering_the_green/

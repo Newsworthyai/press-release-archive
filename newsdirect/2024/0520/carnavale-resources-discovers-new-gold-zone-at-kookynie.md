@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/carnavale-resources-discovers-new-gold-zone-at-kookynie-869785142 
 
-[Original/Source Press Release](https://newsdirect.com/news/carnavale-resources-discovers-new-gold-zone-at-kookynie-869785142) 
+[Original/Source Press Release](https://newsdirect.com/news/carnavale-resources-discovers-new-gold-zone-at-kookynie-869785142)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cwn951/carnavale_resources_discovers_new_gold_zone_at/

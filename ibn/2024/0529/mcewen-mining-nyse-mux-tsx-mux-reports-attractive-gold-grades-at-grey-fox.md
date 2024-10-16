@@ -22,6 +22,9 @@ McEwen Mining (NYSE: MUX) (TSX: MUX) yesterday announced promising new assay re
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-reports-attractive-gold-grades-at-grey-fox/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-reports-attractive-gold-grades-at-grey-fox/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2px3q/mcewen_mining_announces_promising_gold_assay/

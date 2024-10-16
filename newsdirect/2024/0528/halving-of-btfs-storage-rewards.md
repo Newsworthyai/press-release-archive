@@ -42,6 +42,9 @@ press@bittorrent.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/halving-of-btfs-storage-rewards-721081393 
 
-[Original/Source Press Release](https://newsdirect.com/news/halving-of-btfs-storage-rewards-721081393) 
+[Original/Source Press Release](https://newsdirect.com/news/halving-of-btfs-storage-rewards-721081393)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1d2yt6a/btfs_implements_halving_of_storage_rewards_to/

@@ -30,6 +30,9 @@ Company Websitehttps://www.smartsourcellc.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/smartsource-llc-transforming-outsourcing-industry-standards-804421526 
 
-[Original/Source Press Release](https://newsdirect.com/news/smartsource-llc-transforming-outsourcing-industry-standards-804421526) 
+[Original/Source Press Release](https://newsdirect.com/news/smartsource-llc-transforming-outsourcing-industry-standards-804421526)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eck5by/smartsource_llc_transforming_the_outsourcing/

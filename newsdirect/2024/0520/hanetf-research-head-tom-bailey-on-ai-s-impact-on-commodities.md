@@ -22,6 +22,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hanetf-research-head-tom-bailey-on-ais-impact-on-commodities-307222551 
 
-[Original/Source Press Release](https://newsdirect.com/news/hanetf-research-head-tom-bailey-on-ais-impact-on-commodities-307222551) 
+[Original/Source Press Release](https://newsdirect.com/news/hanetf-research-head-tom-bailey-on-ais-impact-on-commodities-307222551)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cw9kao/hanetf_research_head_tom_bailey_discusses_ais/

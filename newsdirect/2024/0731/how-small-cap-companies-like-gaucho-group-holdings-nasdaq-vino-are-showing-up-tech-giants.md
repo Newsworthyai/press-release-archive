@@ -48,6 +48,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-small-cap-companies-like-gaucho-group-holdings-nasdaq-vino-are-showing-up-tech-giants-914499621 
 
-[Original/Source Press Release](https://newsdirect.com/news/how-small-cap-companies-like-gaucho-group-holdings-nasdaq-vino-are-showing-up-tech-giants-914499621) 
+[Original/Source Press Release](https://newsdirect.com/news/how-small-cap-companies-like-gaucho-group-holdings-nasdaq-vino-are-showing-up-tech-giants-914499621)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1egmkze/small_caps_surge_gaucho_group_holdings_positioned/

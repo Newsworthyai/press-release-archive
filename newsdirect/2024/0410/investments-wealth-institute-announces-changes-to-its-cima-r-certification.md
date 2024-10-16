@@ -44,6 +44,9 @@ Company Websitehttps://investmentsandwealth.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/investments-and-wealth-institute-announces-changes-to-its-cima-r-certification-839963048 
 
-[Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-institute-announces-changes-to-its-cima-r-certification-839963048) 
+[Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-institute-announces-changes-to-its-cima-r-certification-839963048)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1c0sv0m/investments_wealth_institute_announces_updates_to/

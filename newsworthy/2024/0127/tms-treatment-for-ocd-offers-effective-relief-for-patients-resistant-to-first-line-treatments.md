@@ -10,6 +10,9 @@ Optimum TMS provides personalized treatment plans for individuals seeking relief
 
 As pioneers in TMS therapy, Optimum TMS is dedicated to advancing the field through ongoing clinical research. Their studies consistently demonstrate the efficacy of TMS treatment for OCD, even in patients who have failed multiple medications and therapy. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401271039/tms-treatment-for-ocd-offers-effective-relief-for-patients-resistant-to-first-line-treatments) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401271039/tms-treatment-for-ocd-offers-effective-relief-for-patients-resistant-to-first-line-treatments)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlg9j/innovative_ocd_treatment_option_introduced_by/

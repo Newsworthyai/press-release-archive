@@ -66,6 +66,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/frog-themed-apu-apustaja-apu-token-wins-over-crypto-market-community-with-positive-blockchain-mission-815893515 
 
-[Original/Source Press Release](https://newsdirect.com/news/frog-themed-apu-apustaja-apu-token-wins-over-crypto-market-community-with-positive-blockchain-mission-815893515) 
+[Original/Source Press Release](https://newsdirect.com/news/frog-themed-apu-apustaja-apu-token-wins-over-crypto-market-community-with-positive-blockchain-mission-815893515)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1eb17ly/apu_apustaja_the_rising_star_of_meme_coins/

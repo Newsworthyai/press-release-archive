@@ -30,6 +30,9 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-wisconic-inc-and-manufacturing-revitalization-corporation-of-america-243384248 
 
-[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-wisconic-inc-and-manufacturing-revitalization-corporation-of-america-243384248) 
+[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-wisconic-inc-and-manufacturing-revitalization-corporation-of-america-243384248)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1e1e1mv/manufacturing_revitalization_corporation_of/

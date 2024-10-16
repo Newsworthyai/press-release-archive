@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/oncotelic-therapeutics-otc-otlc-inks-deal-with-mosaic-immunoengineering-to-sell-clinical-stage-necroptosis-cancer-therapy-assets-350987041 
 
-[Original/Source Press Release](https://newsdirect.com/news/oncotelic-therapeutics-otc-otlc-inks-deal-with-mosaic-immunoengineering-to-sell-clinical-stage-necroptosis-cancer-therapy-assets-350987041) 
+[Original/Source Press Release](https://newsdirect.com/news/oncotelic-therapeutics-otc-otlc-inks-deal-with-mosaic-immunoengineering-to-sell-clinical-stage-necroptosis-cancer-therapy-assets-350987041)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d3manv/global_retinoblastoma_treatment_market_to_reach/

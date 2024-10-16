@@ -50,6 +50,9 @@ Website: www.axiomesh.io
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/timc-driven-modular-blockchain---axiomesh-dedicated-to-building-a-new-paradigm-of-mass-commercial-adoption) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/timc-driven-modular-blockchain---axiomesh-dedicated-to-building-a-new-paradigm-of-mass-commercial-adoption)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bhvzto/axiomesh_revolutionizes_web3_with_timc_protocol/

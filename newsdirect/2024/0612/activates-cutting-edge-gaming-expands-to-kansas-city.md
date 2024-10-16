@@ -50,6 +50,9 @@ Company Websitehttps://playactivate.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/activates-cutting-edge-gaming-expands-to-kansas-city-505425099 
 
-[Original/Source Press Release](https://newsdirect.com/news/activates-cutting-edge-gaming-expands-to-kansas-city-505425099) 
+[Original/Source Press Release](https://newsdirect.com/news/activates-cutting-edge-gaming-expands-to-kansas-city-505425099)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1de6x4s/activate_expands_to_kansas_city_with_unique/

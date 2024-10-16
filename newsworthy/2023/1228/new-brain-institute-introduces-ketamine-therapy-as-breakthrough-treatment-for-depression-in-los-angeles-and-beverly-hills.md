@@ -10,6 +10,9 @@ A recent clinical study demonstrated that adults with treatment-resistant depres
 
 "We encourage patients who have not responded to at least two antidepressants to consider SPRAVATO™ as a potential life-changing treatment," said Dr. Thompson. "Depression can be debilitating, and it is important to explore all available options for those in need." 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231228945/new-brain-institute-introduces-ketamine-therapy-as-breakthrough-treatment-for-depression-in-los-angeles-and-beverly-hills) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231228945/new-brain-institute-introduces-ketamine-therapy-as-breakthrough-treatment-for-depression-in-los-angeles-and-beverly-hills)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcwc9/new_brain_institute_introduces_spravato_nasal/

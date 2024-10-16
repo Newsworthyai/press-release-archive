@@ -14,6 +14,9 @@ About CryptoHubCryptoHub is a leading launchpad dedicated to nurturing innovativ
 
 For more information, visit the Hit Zone Whitepaper and CryptoHub’s website. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/cryptohub-announced-the-incubation-of-hit-zone-pre-seed--the-new-frontier-in-pvp-play-to-earn-gaming) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/cryptohub-announced-the-incubation-of-hit-zone-pre-seed--the-new-frontier-in-pvp-play-to-earn-gaming)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvhg4f/cryptohub_announces_incubation_of_hit_zone_a_new/

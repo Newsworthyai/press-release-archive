@@ -20,6 +20,9 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/mullen-nasdaq-muln-subsidiary-to-begin-production-of-all-new-class-4-commercial-truck-in-september/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/mullen-nasdaq-muln-subsidiary-to-begin-production-of-all-new-class-4-commercial-truck-in-september/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1f2g8u9/mullen_automotives_bollinger_motors_to_start/

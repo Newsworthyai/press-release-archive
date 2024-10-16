@@ -31,6 +31,9 @@ Company Websitehttps://www.greenlanternsolar.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/green-lantern-solar-sells-community-solar-projects-in-maine-to-madison-energy-infrastructure-710100096 
 
-[Original/Source Press Release](https://newsdirect.com/news/green-lantern-solar-sells-community-solar-projects-in-maine-to-madison-energy-infrastructure-710100096) 
+[Original/Source Press Release](https://newsdirect.com/news/green-lantern-solar-sells-community-solar-projects-in-maine-to-madison-energy-infrastructure-710100096)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1dzv7er/green_lantern_solar_sells_community_solar/

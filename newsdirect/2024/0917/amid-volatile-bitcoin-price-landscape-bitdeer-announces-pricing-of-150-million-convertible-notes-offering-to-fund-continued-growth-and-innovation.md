@@ -41,6 +41,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/amid-volatile-bitcoin-price-landscape-bitdeer-announces-pricing-of-150-million-convertible-notes-offering-to-fund-continued-growth-and-innovation-113636058 
 
-[Original/Source Press Release](https://newsdirect.com/news/amid-volatile-bitcoin-price-landscape-bitdeer-announces-pricing-of-150-million-convertible-notes-offering-to-fund-continued-growth-and-innovation-113636058) 
+[Original/Source Press Release](https://newsdirect.com/news/amid-volatile-bitcoin-price-landscape-bitdeer-announces-pricing-of-150-million-convertible-notes-offering-to-fund-continued-growth-and-innovation-113636058)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fiya2i/bitdeer_announces_pricing_of_150_million/

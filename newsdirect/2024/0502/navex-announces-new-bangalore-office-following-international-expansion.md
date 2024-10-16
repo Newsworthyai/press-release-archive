@@ -28,6 +28,9 @@ Company Websitehttps://navex.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/navex-announces-new-bangalore-office-following-international-expansion-561353859 
 
-[Original/Source Press Release](https://newsdirect.com/news/navex-announces-new-bangalore-office-following-international-expansion-561353859) 
+[Original/Source Press Release](https://newsdirect.com/news/navex-announces-new-bangalore-office-following-international-expansion-561353859)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cif9wo/navex_expands_into_south_asia_with_new_bangalore/

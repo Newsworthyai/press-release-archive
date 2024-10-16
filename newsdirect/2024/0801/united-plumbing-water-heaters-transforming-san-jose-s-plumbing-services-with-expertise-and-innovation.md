@@ -55,6 +55,9 @@ Company Websitehttps://plumbing-united.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/united-plumbing-and-water-heaters-transforming-san-joses-plumbing-services-with-expertise-and-innovation-158322095 
 
-[Original/Source Press Release](https://newsdirect.com/news/united-plumbing-and-water-heaters-transforming-san-joses-plumbing-services-with-expertise-and-innovation-158322095) 
+[Original/Source Press Release](https://newsdirect.com/news/united-plumbing-and-water-heaters-transforming-san-joses-plumbing-services-with-expertise-and-innovation-158322095)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ehcuma/united_plumbing_water_heaters_revolutionizing_san/

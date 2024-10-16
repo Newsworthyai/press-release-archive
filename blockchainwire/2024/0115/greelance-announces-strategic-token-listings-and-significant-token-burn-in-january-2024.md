@@ -42,6 +42,9 @@ About Greelance
 
 Greelance is revolutionizing the freelance industry by seamlessly integrating AI and blockchain technology. It aims to redefine traditional market dynamics by offering lower fees, incentivizing loyalty, and using a native token to align the interests of all participants in its community-driven ecosystem. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/greelance-announces-strategic-token-listings-and-significant-token-burn-in-january-2024) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/greelance-announces-strategic-token-listings-and-significant-token-burn-in-january-2024)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avdr13/greelance_announces_key_token_listings_and_token/

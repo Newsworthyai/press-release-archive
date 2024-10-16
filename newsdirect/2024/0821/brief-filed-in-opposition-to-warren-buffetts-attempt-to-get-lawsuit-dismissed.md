@@ -34,6 +34,9 @@ Company Websitehttp://www.nlpc.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/brief-filed-in-opposition-to-warren-buffetts-attempt-to-get-lawsuit-dismissed-359657178 
 
-[Original/Source Press Release](https://newsdirect.com/news/brief-filed-in-opposition-to-warren-buffetts-attempt-to-get-lawsuit-dismissed-359657178) 
+[Original/Source Press Release](https://newsdirect.com/news/brief-filed-in-opposition-to-warren-buffetts-attempt-to-get-lawsuit-dismissed-359657178)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1exwsse/nlpc_opposes_warren_buffetts_attempt_to_dismiss/

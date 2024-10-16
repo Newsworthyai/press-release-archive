@@ -43,6 +43,9 @@ markrmckelvie@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/does-vivopower-international-nasdaq-vvpr-still-have-more-upside-426459519 
 
-[Original/Source Press Release](https://newsdirect.com/news/does-vivopower-international-nasdaq-vvpr-still-have-more-upside-426459519) 
+[Original/Source Press Release](https://newsdirect.com/news/does-vivopower-international-nasdaq-vvpr-still-have-more-upside-426459519)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bytdtk/vivopower_international_shares_surge_after_merger/

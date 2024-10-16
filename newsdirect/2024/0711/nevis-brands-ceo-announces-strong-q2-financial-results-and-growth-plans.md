@@ -14,6 +14,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nevis-brands-ceo-announces-strong-q2-financial-results-and-growth-plans-714374713 
 
-[Original/Source Press Release](https://newsdirect.com/news/nevis-brands-ceo-announces-strong-q2-financial-results-and-growth-plans-714374713) 
+[Original/Source Press Release](https://newsdirect.com/news/nevis-brands-ceo-announces-strong-q2-financial-results-and-growth-plans-714374713)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1e0qcjm/nevis_brands_ceo_announces_strong_q2_financial/

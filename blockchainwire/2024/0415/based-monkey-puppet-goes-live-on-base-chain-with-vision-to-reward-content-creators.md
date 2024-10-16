@@ -43,6 +43,9 @@ Anyone curious to find out more about the project can easily access all informat
 
 X (Twitter) | Telegram | Instagram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/based-monkey-puppet-goes-live-on-base-chain-with-vision-to-reward-content-creators-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/based-monkey-puppet-goes-live-on-base-chain-with-vision-to-reward-content-creators-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1c4t80l/based_monkey_puppet_launches_new_token_on_base/

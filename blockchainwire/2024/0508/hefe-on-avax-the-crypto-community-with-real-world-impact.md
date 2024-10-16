@@ -38,6 +38,9 @@ For media inquiries, please contact via https://linktr.ee/AvaxHefe
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/hefe-on-avax--the-crypto-community-with-real-world-impact) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/hefe-on-avax--the-crypto-community-with-real-world-impact)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cn3hih/hefeavax_achieves_1_million_dollar_market_cap_and/

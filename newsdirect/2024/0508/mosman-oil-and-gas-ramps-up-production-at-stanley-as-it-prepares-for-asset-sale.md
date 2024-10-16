@@ -16,6 +16,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mosman-oil-and-gas-ramps-up-production-at-stanley-as-it-prepares-for-asset-sale-746486192 
 
-[Original/Source Press Release](https://newsdirect.com/news/mosman-oil-and-gas-ramps-up-production-at-stanley-as-it-prepares-for-asset-sale-746486192) 
+[Original/Source Press Release](https://newsdirect.com/news/mosman-oil-and-gas-ramps-up-production-at-stanley-as-it-prepares-for-asset-sale-746486192)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cn2w21/mosman_oil_and_gas_ceo_discusses_production/

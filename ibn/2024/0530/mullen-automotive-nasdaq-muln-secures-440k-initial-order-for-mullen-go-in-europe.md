@@ -18,6 +18,9 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle (“EV”) manufacturer, t
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-secures-440k-initial-order-for-mullen-go-in-europe/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mullen-automotive-nasdaq-muln-secures-440k-initial-order-for-mullen-go-in-europe/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2pwbk/mullen_automotive_secures_new_european_purchase/

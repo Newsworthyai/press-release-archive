@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/major-indexes-crashed-on-recession-fears-weeks-before-gold-hit-another-all-time-high-how-you-can-protect-your-wealth-with-the-precious-metal-168763179 
 
-[Original/Source Press Release](https://newsdirect.com/news/major-indexes-crashed-on-recession-fears-weeks-before-gold-hit-another-all-time-high-how-you-can-protect-your-wealth-with-the-precious-metal-168763179) 
+[Original/Source Press Release](https://newsdirect.com/news/major-indexes-crashed-on-recession-fears-weeks-before-gold-hit-another-all-time-high-how-you-can-protect-your-wealth-with-the-precious-metal-168763179)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1f9rhe1/gold_emerges_as_safehaven_asset_amid_market/

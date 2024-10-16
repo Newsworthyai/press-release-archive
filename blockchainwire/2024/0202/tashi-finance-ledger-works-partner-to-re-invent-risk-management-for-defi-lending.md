@@ -52,6 +52,9 @@ info@tashi.finance
 
 ### 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/tashi-finance--ledger-works-partner-to-re-invent-risk-management-for-defi-lending) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/tashi-finance--ledger-works-partner-to-re-invent-risk-management-for-defi-lending)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1avjwr0/tashi_finance_partners_with_ledger_works_for/

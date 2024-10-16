@@ -64,6 +64,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/transforming-oncology-stocks-to-watch-in-the-oncology-sector-287138863 
 
-[Original/Source Press Release](https://newsdirect.com/news/transforming-oncology-stocks-to-watch-in-the-oncology-sector-287138863) 
+[Original/Source Press Release](https://newsdirect.com/news/transforming-oncology-stocks-to-watch-in-the-oncology-sector-287138863)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1fez1t4/innovative_oncology_companies_leading_the_charge/

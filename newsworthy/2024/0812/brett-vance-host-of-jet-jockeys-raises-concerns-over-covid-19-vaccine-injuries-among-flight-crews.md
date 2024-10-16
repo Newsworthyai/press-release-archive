@@ -22,6 +22,9 @@ Brett Vance has significantly contributed to aviation safety and innovation in t
 
 For more information about Brett Vance and Jet Jockeys, click here: https://www.youtube.com/@jetjockeystv 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202408121231/brett-vance-host-of-jet-jockeys-raises-concerns-over-covid-19-vaccine-injuries-among-flight-crews) 
+[Original/Source Press Release](https://newsworthy.ai/news/202408121231/brett-vance-host-of-jet-jockeys-raises-concerns-over-covid-19-vaccine-injuries-among-flight-crews)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1eqhs1m/jet_jockeys_host_raises_concerns_about_covid19/

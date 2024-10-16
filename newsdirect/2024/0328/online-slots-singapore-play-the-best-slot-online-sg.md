@@ -164,6 +164,9 @@ Company Websitehttps://topasiacasinos.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/online-slots-singapore-play-the-best-slot-online-sg-274336181 
 
-[Original/Source Press Release](https://newsdirect.com/news/online-slots-singapore-play-the-best-slot-online-sg-274336181) 
+[Original/Source Press Release](https://newsdirect.com/news/online-slots-singapore-play-the-best-slot-online-sg-274336181)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bpogxc/discover_the_best_real_money_slot_games_in/

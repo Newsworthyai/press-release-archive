@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/at-the-nexus-of-bitcoin-and-ai-this-vertically-integrated-miner-has-big-news-838649787 
 
-[Original/Source Press Release](https://newsdirect.com/news/at-the-nexus-of-bitcoin-and-ai-this-vertically-integrated-miner-has-big-news-838649787) 
+[Original/Source Press Release](https://newsdirect.com/news/at-the-nexus-of-bitcoin-and-ai-this-vertically-integrated-miner-has-big-news-838649787)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ebuibd/bitdeers_chief_strategy_officer_reveals/

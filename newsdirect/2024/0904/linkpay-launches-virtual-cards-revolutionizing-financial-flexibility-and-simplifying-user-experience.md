@@ -24,6 +24,9 @@ Company Websitehttps://linkpay.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/linkpay-launches-virtual-cards-revolutionizing-financial-flexibility-and-simplifying-user-experience-295007574 
 
-[Original/Source Press Release](https://newsdirect.com/news/linkpay-launches-virtual-cards-revolutionizing-financial-flexibility-and-simplifying-user-experience-295007574) 
+[Original/Source Press Release](https://newsdirect.com/news/linkpay-launches-virtual-cards-revolutionizing-financial-flexibility-and-simplifying-user-experience-295007574)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1f8qglk/linkpay_launches_virtual_cards_revolutionizing/

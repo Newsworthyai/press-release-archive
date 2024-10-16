@@ -110,6 +110,9 @@ nomvelo@intelligiants.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/celebrate-canada-day-with-15-quirky-canadian-terms-and-phrases-325122044 
 
-[Original/Source Press Release](https://newsdirect.com/news/celebrate-canada-day-with-15-quirky-canadian-terms-and-phrases-325122044) 
+[Original/Source Press Release](https://newsdirect.com/news/celebrate-canada-day-with-15-quirky-canadian-terms-and-phrases-325122044)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1dqjw54/celebrate_canada_day_with_15_quirky_canadian/

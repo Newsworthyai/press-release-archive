@@ -12,6 +12,9 @@ Individuals seeking TMS treatment can conveniently schedule appointments online 
 
 For more information or to schedule an appointment, please visit www.newdirectionfunctionalpsychiatry.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402161065/innovative-treatment-option-for-depression-transcranial-magnetic-stimulation-tms) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402161065/innovative-treatment-option-for-depression-transcranial-magnetic-stimulation-tms)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avc88j/innovative_mental_health_treatments_offered_at/

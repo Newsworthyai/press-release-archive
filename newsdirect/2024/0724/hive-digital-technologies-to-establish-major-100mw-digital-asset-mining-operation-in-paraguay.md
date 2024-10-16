@@ -16,6 +16,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hive-digital-technologies-to-establish-major-100mw-digital-asset-mining-operation-in-paraguay-192434489 
 
-[Original/Source Press Release](https://newsdirect.com/news/hive-digital-technologies-to-establish-major-100mw-digital-asset-mining-operation-in-paraguay-192434489) 
+[Original/Source Press Release](https://newsdirect.com/news/hive-digital-technologies-to-establish-major-100mw-digital-asset-mining-operation-in-paraguay-192434489)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1eb4q0q/hive_digital_technologies_to_establish_major/

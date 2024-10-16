@@ -20,6 +20,9 @@ synergist@kitehillpr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/synergist-technology-partners-with-microsoft-to-drive-ethical-and-compliant-ai-innovation-488202106 
 
-[Original/Source Press Release](https://newsdirect.com/news/synergist-technology-partners-with-microsoft-to-drive-ethical-and-compliant-ai-innovation-488202106) 
+[Original/Source Press Release](https://newsdirect.com/news/synergist-technology-partners-with-microsoft-to-drive-ethical-and-compliant-ai-innovation-488202106)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f45wsg/synergist_technology_partners_with_microsoft_to/

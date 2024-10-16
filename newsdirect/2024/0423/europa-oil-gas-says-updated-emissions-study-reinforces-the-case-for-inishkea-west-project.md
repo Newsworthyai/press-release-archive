@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/europa-oil-and-gas-says-updated-emissions-study-reinforces-the-case-for-inishkea-west-project-454274727 
 
-[Original/Source Press Release](https://newsdirect.com/news/europa-oil-and-gas-says-updated-emissions-study-reinforces-the-case-for-inishkea-west-project-454274727) 
+[Original/Source Press Release](https://newsdirect.com/news/europa-oil-and-gas-says-updated-emissions-study-reinforces-the-case-for-inishkea-west-project-454274727)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cb4xdn/europa_oil_gas_ceo_discusses_updated_emissions/

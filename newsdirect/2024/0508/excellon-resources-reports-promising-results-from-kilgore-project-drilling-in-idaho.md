@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/excellon-resources-reports-promising-results-from-kilgore-project-drilling-in-idaho-526369297 
 
-[Original/Source Press Release](https://newsdirect.com/news/excellon-resources-reports-promising-results-from-kilgore-project-drilling-in-idaho-526369297) 
+[Original/Source Press Release](https://newsdirect.com/news/excellon-resources-reports-promising-results-from-kilgore-project-drilling-in-idaho-526369297)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cndi23/excellon_resources_reports_promising_results_from/

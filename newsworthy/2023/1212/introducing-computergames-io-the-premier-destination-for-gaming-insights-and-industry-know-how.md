@@ -18,6 +18,9 @@ Born from a love for gaming and a respect for the industry, ComputerGames.io asp
 
 Unlock the universe of gaming. Start your quest at www.ComputerGames.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231212794/introducing-computergames-io-the-premier-destination-for-gaming-insights-and-industry-know-how) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231212794/introducing-computergames-io-the-premier-destination-for-gaming-insights-and-industry-know-how)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1avctr1/introducing_computergamesio_a_new_platform_for/

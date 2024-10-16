@@ -10,6 +10,9 @@ You can view Sasa’s portfolio here: Sasa Bralic Design Portfolio
 
 Book a meeting with Sasa here: Book Meeting with Sasa Bralic 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409301286/elevate-your-brand-elite-freelance-graphic-designer-sasa-bralic-now-available-for-contract-freelance-graphic-design-remote-projects) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409301286/elevate-your-brand-elite-freelance-graphic-designer-sasa-bralic-now-available-for-contract-freelance-graphic-design-remote-projects)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1fsucip/worldclass_graphic_designer_sasa_bralic_now/

@@ -20,6 +20,9 @@ Apotheka is a SaaS company utilizing transformative power of decentralized and a
 
 About athenahealth MarketplaceThe athenahealth Marketplace, the largest EHR app store, is where athenahealth customers find innovative healthcare IT solutions that extend athenahealth services and allow customers to create personalized experiences to support their organization’s specific needs. Customers use Marketplace partner solutions to boost practice efficiency, increase patient satisfaction, and engage patients in their own care. The Marketplace has over 400 solutions across more than 60 medical specialties and capabilities that are seamlessly integrated with athenaOne, athenahealth’s network-enabled platform. Learn more at www.athenahealth.com/solutions/marketplace-program. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/apothka-systems-inc-joins-athenahealths-marketplace-program-to-bring-the-cutting-edge-power-of-blockchain-and-artificial-intelligence-capabilities-to-physicians-and-patients-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/apothka-systems-inc-joins-athenahealths-marketplace-program-to-bring-the-cutting-edge-power-of-blockchain-and-artificial-intelligence-capabilities-to-physicians-and-patients-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bur3i7/apotheka_systems_inc_announces_integration/

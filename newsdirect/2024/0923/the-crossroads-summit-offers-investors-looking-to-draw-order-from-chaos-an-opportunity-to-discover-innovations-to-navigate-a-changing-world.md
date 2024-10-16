@@ -64,6 +64,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-crossroads-summit-offers-investors-looking-to-draw-order-from-chaos-an-opportunity-to-discover-innovations-to-navigate-a-changing-world-171418790 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-crossroads-summit-offers-investors-looking-to-draw-order-from-chaos-an-opportunity-to-discover-innovations-to-navigate-a-changing-world-171418790) 
+[Original/Source Press Release](https://newsdirect.com/news/the-crossroads-summit-offers-investors-looking-to-draw-order-from-chaos-an-opportunity-to-discover-innovations-to-navigate-a-changing-world-171418790)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1fnkpbo/crossroads_summit_navigating_chaos_in_a_changing/

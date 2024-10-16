@@ -28,6 +28,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/clean-power-provides-reliable-energy-during-peak-summer-months-524526153 
 
-[Original/Source Press Release](https://newsdirect.com/news/clean-power-provides-reliable-energy-during-peak-summer-months-524526153) 
+[Original/Source Press Release](https://newsdirect.com/news/clean-power-provides-reliable-energy-during-peak-summer-months-524526153)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1do6dw4/clean_power_reliable_energy_for_peak_summer_months/

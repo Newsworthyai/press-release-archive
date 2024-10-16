@@ -37,6 +37,9 @@ Anyone curious to learn more about the project can visit its website and read th
 
 X (Twitter) | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/memelon-tusk-announces-trading-latoken-competition-with-5000-usdt-worth-of-rewards) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/memelon-tusk-announces-trading-latoken-competition-with-5000-usdt-worth-of-rewards)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c26ivu/memelon_tusk_launches_trading_competition_on/

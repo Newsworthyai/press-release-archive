@@ -8,6 +8,9 @@ Brain Stim ensures that each patient receives a customized treatment plan tailor
 
 Individuals who suspect they may have PTSD are encouraged to contact the New Patient Coordinator at MeRT Therapy or fill out the form on the website to schedule a consultation and learn more about the treatment options available. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401241024/brain-stim-mert-therapy-introduces-groundbreaking-treatment-for-ptsd) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401241024/brain-stim-mert-therapy-introduces-groundbreaking-treatment-for-ptsd)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlezi/revolutionary_ptsd_treatment_using_mert_therapy/

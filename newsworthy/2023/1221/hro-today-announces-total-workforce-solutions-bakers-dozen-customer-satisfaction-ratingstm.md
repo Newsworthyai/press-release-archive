@@ -16,6 +16,9 @@ About HRO Today
 
 HRO Today and HRO Today Global are the properties of SharedXpertise Media and offer the broadest and deepest reach available anywhere in the HR industry. Our magazines, web portals, research, e-newsletters, events, and social networks reach senior-level HR decision-makers with rich, objective, game-changing content. Our No. 1 strength is our reach. HR leaders rely heavily on the HRO Today’s Baker’s Dozen rankings across six different categories when selecting an HR service provider. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231221920/hro-today-announces-total-workforce-solutions-bakers-dozen-customer-satisfaction-ratingstm) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231221920/hro-today-announces-total-workforce-solutions-bakers-dozen-customer-satisfaction-ratingstm)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx4xu/sharedxpertise_media_announces_hro_today_total/

@@ -72,6 +72,9 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/robot-dog-saves-lives-in-massachusetts-standoff-186274967 
 
-[Original/Source Press Release](https://newsdirect.com/news/robot-dog-saves-lives-in-massachusetts-standoff-186274967) 
+[Original/Source Press Release](https://newsdirect.com/news/robot-dog-saves-lives-in-massachusetts-standoff-186274967)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bvsmn6/robotic_dog_saves_lives_in_massachusetts_standoff/

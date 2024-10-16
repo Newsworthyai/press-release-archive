@@ -18,6 +18,9 @@ Manufacturing.press is dedicated to fostering an informed and connected manufact
 
 To stay updated with the pulse of manufacturing, visit www.Manufacturing.press. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231129840/manufacturing-press-debuts-as-premier-resource-for-manufacturing-industry-news-and-expertise) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231129840/manufacturing-press-debuts-as-premier-resource-for-manufacturing-industry-news-and-expertise)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1avx0ql/manufacturingpress_launches_as_the_ultimate_hub/

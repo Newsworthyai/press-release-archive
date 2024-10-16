@@ -22,6 +22,9 @@ Source: https://twitter.com/origin_trail/status/1786393541809250722
 
 Stay tuned for more developments from Trace Labs’ involvement in the NVIDIA Inception program, leveraging the power of OriginTrail DKG and AI to create a more transparent and trustworthy digital world. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/trace-labs-joins-nvidia-inception-program-to-advance-the-verifiable-internet-for-ai) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/trace-labs-joins-nvidia-inception-program-to-advance-the-verifiable-internet-for-ai)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cu9acq/trace_labs_joins_nvidia_inception_program_to/

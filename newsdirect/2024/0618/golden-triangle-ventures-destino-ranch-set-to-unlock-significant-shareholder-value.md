@@ -82,6 +82,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/golden-triangle-ventures-destino-ranch-set-to-unlock-significant-shareholder-value-902334574 
 
-[Original/Source Press Release](https://newsdirect.com/news/golden-triangle-ventures-destino-ranch-set-to-unlock-significant-shareholder-value-902334574) 
+[Original/Source Press Release](https://newsdirect.com/news/golden-triangle-ventures-destino-ranch-set-to-unlock-significant-shareholder-value-902334574)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1din6gj/golden_triangle_ventures_destino_ranch_project_to/

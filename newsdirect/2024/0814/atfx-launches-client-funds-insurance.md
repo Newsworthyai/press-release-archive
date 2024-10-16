@@ -32,6 +32,9 @@ Company Websitehttps://www.atfx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/atfx-launches-client-funds-insurance-208322201 
 
-[Original/Source Press Release](https://newsdirect.com/news/atfx-launches-client-funds-insurance-208322201) 
+[Original/Source Press Release](https://newsdirect.com/news/atfx-launches-client-funds-insurance-208322201)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1erwy1n/atfx_launches_client_funds_insurance_for_enhanced/

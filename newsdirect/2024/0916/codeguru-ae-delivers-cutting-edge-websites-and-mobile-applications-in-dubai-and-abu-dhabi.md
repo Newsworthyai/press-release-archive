@@ -28,6 +28,9 @@ Company Websitehttp://www.codeguru.ae
 
 View source version on newsdirect.com: https://newsdirect.com/news/codeguru-ae-delivers-cutting-edge-websites-and-mobile-applications-in-dubai-and-abu-dhabi-909980811 
 
-[Original/Source Press Release](https://newsdirect.com/news/codeguru-ae-delivers-cutting-edge-websites-and-mobile-applications-in-dubai-and-abu-dhabi-909980811) 
+[Original/Source Press Release](https://newsdirect.com/news/codeguru-ae-delivers-cutting-edge-websites-and-mobile-applications-in-dubai-and-abu-dhabi-909980811)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1fi36it/codeguruae_expands_to_dubai_and_abu_dhabi/

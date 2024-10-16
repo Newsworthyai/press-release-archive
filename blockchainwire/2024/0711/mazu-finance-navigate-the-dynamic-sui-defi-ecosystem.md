@@ -54,6 +54,9 @@ Coinstore Social Media
 
 Twitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Telegram Announcement 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/mazu-finance---navigate-the-dynamic-sui-defi-ecosystem) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/mazu-finance---navigate-the-dynamic-sui-defi-ecosystem)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1e0vjuu/mazu_finance_simplifying_defi_for_all_investors/

@@ -46,6 +46,9 @@ Some of the biggest brands in the gaming world and crypto landscape back Allianc
 
 You can learn more about Alliance Games and stay up-to-date with its developments here: Website | X (Twitter) | Discord | Medium 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/alliance-games-introduces-depin---a-chain-agnostic-solution-to-revolutionize-web3-gaming) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/alliance-games-introduces-depin---a-chain-agnostic-solution-to-revolutionize-web3-gaming)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1egr398/alliance_games_introduces_depin_network_for/

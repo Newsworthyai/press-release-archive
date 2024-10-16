@@ -42,6 +42,9 @@ Email: support@kucoin.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/openstamp-hits-50-million-valuation-in-seed-round-led-by-animoca-ventures-and-kucoin-ventures) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/openstamp-hits-50-million-valuation-in-seed-round-led-by-animoca-ventures-and-kucoin-ventures)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bl4k1s/openstamp_completes_50m_seed_round_with_animoca/

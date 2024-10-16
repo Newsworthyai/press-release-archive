@@ -38,6 +38,9 @@ Company Websitehttps://www.directvadvertising.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-research-from-directv-advertising-and-publicis-media-finds-97-of-consumers-view-long-form-as-preferred-premium-content-210918779 
 
-[Original/Source Press Release](https://newsdirect.com/news/new-research-from-directv-advertising-and-publicis-media-finds-97-of-consumers-view-long-form-as-preferred-premium-content-210918779) 
+[Original/Source Press Release](https://newsdirect.com/news/new-research-from-directv-advertising-and-publicis-media-finds-97-of-consumers-view-long-form-as-preferred-premium-content-210918779)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1expta5/new_study_reveals_97_of_consumers_prefer_longform/

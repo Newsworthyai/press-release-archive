@@ -20,6 +20,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sintana-energy-announces-major-oil-discoveries-and-strategic-partnerships-103874704 
 
-[Original/Source Press Release](https://newsdirect.com/news/sintana-energy-announces-major-oil-discoveries-and-strategic-partnerships-103874704) 
+[Original/Source Press Release](https://newsdirect.com/news/sintana-energy-announces-major-oil-discoveries-and-strategic-partnerships-103874704)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cijkxs/sintana_energy_announces_major_oil_discoveries/

@@ -52,6 +52,8 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitdeer-nasdaq-btdr-announces-strategic-ohio-land-deal-expands-power-capacity-to-2-5-gw-amid-ai-and-hpc-push-556756198 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitdeer-nasdaq-btdr-announces-strategic-ohio-land-deal-expands-power-capacity-to-2-5-gw-amid-ai-and-hpc-push-556756198) 
+[Original/Source Press Release](https://newsdirect.com/news/bitdeer-nasdaq-btdr-announces-strategic-ohio-land-deal-expands-power-capacity-to-2-5-gw-amid-ai-and-hpc-push-556756198)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+

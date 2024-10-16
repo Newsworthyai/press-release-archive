@@ -30,6 +30,9 @@ Twitter: https://x.com/hotdragontoken?s=21
 
 Telegram: https://t.me/HotDragontoken.Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/unleash-the-fire-and-fortune-with-house-of-the-dragon-hotd---its-your-time-to-shine-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/unleash-the-fire-and-fortune-with-house-of-the-dragon-hotd---its-your-time-to-shine-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c875k4/unleash_the_power_of_house_of_the_dragons/

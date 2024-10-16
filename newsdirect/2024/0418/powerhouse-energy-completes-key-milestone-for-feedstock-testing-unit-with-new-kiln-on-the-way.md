@@ -20,6 +20,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/powerhouse-energy-completes-key-milestone-for-feedstock-testing-unit-with-new-kiln-on-the-way-990807170 
 
-[Original/Source Press Release](https://newsdirect.com/news/powerhouse-energy-completes-key-milestone-for-feedstock-testing-unit-with-new-kiln-on-the-way-990807170) 
+[Original/Source Press Release](https://newsdirect.com/news/powerhouse-energy-completes-key-milestone-for-feedstock-testing-unit-with-new-kiln-on-the-way-990807170)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c72ubz/powerhouse_energy_completes_key_milestone_for/

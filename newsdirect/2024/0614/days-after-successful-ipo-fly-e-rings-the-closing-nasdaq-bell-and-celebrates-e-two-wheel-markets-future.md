@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/days-after-successful-ipo-fly-e-rings-the-closing-nasdaq-bell-and-celebrates-e-two-wheel-markets-future-521929340 
 
-[Original/Source Press Release](https://newsdirect.com/news/days-after-successful-ipo-fly-e-rings-the-closing-nasdaq-bell-and-celebrates-e-two-wheel-markets-future-521929340) 
+[Original/Source Press Release](https://newsdirect.com/news/days-after-successful-ipo-fly-e-rings-the-closing-nasdaq-bell-and-celebrates-e-two-wheel-markets-future-521929340)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dfq5nu/flye_group_inc_rings_nasdaq_bell_after_successful/

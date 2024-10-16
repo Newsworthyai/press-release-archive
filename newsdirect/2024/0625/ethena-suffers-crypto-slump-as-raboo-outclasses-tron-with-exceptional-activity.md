@@ -52,6 +52,9 @@ Company Websitehttps://rabootoken.com?&utm_source=marketing&utm_campaign=NDPR&ut
 
 View source version on newsdirect.com: https://newsdirect.com/news/ethena-suffers-crypto-slump-as-raboo-outclasses-tron-with-exceptional-activity-580573587 
 
-[Original/Source Press Release](https://newsdirect.com/news/ethena-suffers-crypto-slump-as-raboo-outclasses-tron-with-exceptional-activity-580573587) 
+[Original/Source Press Release](https://newsdirect.com/news/ethena-suffers-crypto-slump-as-raboo-outclasses-tron-with-exceptional-activity-580573587)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1do9vsa/defi_coins_in_decline_as_raboo_outclasses_tron/

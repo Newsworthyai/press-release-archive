@@ -52,6 +52,9 @@ Company Websitehttps://www.toolsgroup.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/toolsgroup-named-leader-in-seven-g2-categories-for-spring-2024-422616964 
 
-[Original/Source Press Release](https://newsdirect.com/news/toolsgroup-named-leader-in-seven-g2-categories-for-spring-2024-422616964) 
+[Original/Source Press Release](https://newsdirect.com/news/toolsgroup-named-leader-in-seven-g2-categories-for-spring-2024-422616964)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cignjt/toolsgroup_named_leader_in_seven_g2_categories/

@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/western-metallica-resources-prepares-for-inaugural-drilling-at-the-cana-brava-copper-project-214222418 
 
-[Original/Source Press Release](https://newsdirect.com/news/western-metallica-resources-prepares-for-inaugural-drilling-at-the-cana-brava-copper-project-214222418) 
+[Original/Source Press Release](https://newsdirect.com/news/western-metallica-resources-prepares-for-inaugural-drilling-at-the-cana-brava-copper-project-214222418)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dqt8tw/western_metallica_resources_ceo_discusses/

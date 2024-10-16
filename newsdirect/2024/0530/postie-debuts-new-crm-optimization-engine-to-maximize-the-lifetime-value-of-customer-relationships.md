@@ -32,6 +32,9 @@ postie@kitehillpr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/postie-debuts-new-crm-optimization-engine-to-maximize-the-lifetime-value-of-customer-relationships-417575727 
 
-[Original/Source Press Release](https://newsdirect.com/news/postie-debuts-new-crm-optimization-engine-to-maximize-the-lifetime-value-of-customer-relationships-417575727) 
+[Original/Source Press Release](https://newsdirect.com/news/postie-debuts-new-crm-optimization-engine-to-maximize-the-lifetime-value-of-customer-relationships-417575727)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1d43ovj/postie_launches_crm_optimization_engine_to/

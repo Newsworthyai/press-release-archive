@@ -20,6 +20,9 @@ sales.uk@atfx.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/atfxs-strategic-meeting-at-the-chinese-embassy-in-jordan-highlights-dedication-to-regional-economic-development-336910997 
 
-[Original/Source Press Release](https://newsdirect.com/news/atfxs-strategic-meeting-at-the-chinese-embassy-in-jordan-highlights-dedication-to-regional-economic-development-336910997) 
+[Original/Source Press Release](https://newsdirect.com/news/atfxs-strategic-meeting-at-the-chinese-embassy-in-jordan-highlights-dedication-to-regional-economic-development-336910997)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e1nwzz/atfxs_strategic_meeting_at_the_chinese_embassy_in/

@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/condor-resources-ceo-provides-updates-on-key-projects-and-community-engagement-792918876 
 
-[Original/Source Press Release](https://newsdirect.com/news/condor-resources-ceo-provides-updates-on-key-projects-and-community-engagement-792918876) 
+[Original/Source Press Release](https://newsdirect.com/news/condor-resources-ceo-provides-updates-on-key-projects-and-community-engagement-792918876)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1e0qcmt/condor_resources_ceo_provides_key_project_updates/

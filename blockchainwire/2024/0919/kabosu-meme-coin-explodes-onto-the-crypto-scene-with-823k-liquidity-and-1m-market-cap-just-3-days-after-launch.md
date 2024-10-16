@@ -50,6 +50,9 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/kabosu-meme-coin-explodes-onto-the-crypto-scene-with-823k-liquidity-and-1m-market-cap-just-3-days-after-launch) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/kabosu-meme-coin-explodes-onto-the-crypto-scene-with-823k-liquidity-and-1m-market-cap-just-3-days-after-launch)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1g3klrz/kabosu_coin_a_tribute_to_the_internets_favorite/

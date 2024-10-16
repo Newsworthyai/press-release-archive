@@ -18,6 +18,9 @@ After enduring some intense sell pressure after its phenomenal rise, DOLLUR curr
 
 Website: [https://www.dollur.xyz/](https://www.dollur.xyz/)Twitter X: [https://twitter.com/dollur_official](https://twitter.com/dollur_official)Telegram: [https://t.me/DOLLURonBase](https://t.me/DOLLURonBase)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/dollur-is-a-memecoin-inspired-by-the-us-dollar-and-its-up-10000) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/dollur-is-a-memecoin-inspired-by-the-us-dollar-and-its-up-10000)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bzrwxc/dollur_memecoin_launches_on_coinbases_base/

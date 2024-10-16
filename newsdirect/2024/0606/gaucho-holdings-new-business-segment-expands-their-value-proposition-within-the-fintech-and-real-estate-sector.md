@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gaucho-holdings-new-business-segment-expands-their-value-proposition-within-the-fintech-and-real-estate-sector-434340938 
 
-[Original/Source Press Release](https://newsdirect.com/news/gaucho-holdings-new-business-segment-expands-their-value-proposition-within-the-fintech-and-real-estate-sector-434340938) 
+[Original/Source Press Release](https://newsdirect.com/news/gaucho-holdings-new-business-segment-expands-their-value-proposition-within-the-fintech-and-real-estate-sector-434340938)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d9hahs/gaucho_holdings_expanding_the_value_proposition/

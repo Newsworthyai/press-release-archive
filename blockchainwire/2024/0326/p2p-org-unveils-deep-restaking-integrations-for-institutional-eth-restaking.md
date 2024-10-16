@@ -30,6 +30,9 @@ P2P.org embarked on its journey in 2018, fueled by a mission to shape a decentra
 
 Official Website: [https://p2p.org/products/eigenlayer](https://p2p.org/products/eigenlayer) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/p2porg-unveils-deep-restaking-integrations-for-institutional-eth-restaking-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/p2porg-unveils-deep-restaking-integrations-for-institutional-eth-restaking-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bo7jsh/p2porg_launches_restaking_via_eigenlayer_a/

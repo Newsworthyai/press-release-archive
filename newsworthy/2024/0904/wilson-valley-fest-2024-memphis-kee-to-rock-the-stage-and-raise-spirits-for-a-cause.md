@@ -36,6 +36,9 @@ Wilson Valley Mercantile Evans Ranch, Wilson Valley, Texas Email: john@evansranc
 
 About [Wilson Valley Mercantile](https://wilsonvalleyfest.com/):Wilson Valley Mercantile is Bell County’s first legal distillery, known for crafting whiskey from seed to sip at Evans Ranch. With a commitment to quality and Texas tradition, Wilson Valley Mercantile produces whiskeys that capture the essence of the Lone Star State. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409041253/wilson-valley-fest-2024-memphis-kee-to-rock-the-stage-and-raise-spirits-for-a-cause) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409041253/wilson-valley-fest-2024-memphis-kee-to-rock-the-stage-and-raise-spirits-for-a-cause)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1f9gupr/wilson_valley_fest_2024_music_whiskey_and/

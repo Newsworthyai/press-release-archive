@@ -72,6 +72,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/inflation-slows-small-cap-rally-but-smcp-etf-offers-strategic-entry-point-683293918 
 
-[Original/Source Press Release](https://newsdirect.com/news/inflation-slows-small-cap-rally-but-smcp-etf-offers-strategic-entry-point-683293918) 
+[Original/Source Press Release](https://newsdirect.com/news/inflation-slows-small-cap-rally-but-smcp-etf-offers-strategic-entry-point-683293918)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dssdrl/alphamark_actively_managed_small_cap_etf_smcp/

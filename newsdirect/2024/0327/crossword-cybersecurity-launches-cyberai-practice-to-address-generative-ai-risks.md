@@ -20,6 +20,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/crossword-cybersecurity-launches-cyberai-practice-to-address-generative-ai-risks-290755054 
 
-[Original/Source Press Release](https://newsdirect.com/news/crossword-cybersecurity-launches-cyberai-practice-to-address-generative-ai-risks-290755054) 
+[Original/Source Press Release](https://newsdirect.com/news/crossword-cybersecurity-launches-cyberai-practice-to-address-generative-ai-risks-290755054)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bp1i45/crossword_cybersecurity_launches_cyberai_practice/

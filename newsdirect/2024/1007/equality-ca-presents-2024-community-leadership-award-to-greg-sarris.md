@@ -21,6 +21,9 @@ Company Websitehttps://gratonrancheria.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/equality-ca-presents-2024-community-leadership-award-to-greg-sarris-958147408 
 
-[Original/Source Press Release](https://newsdirect.com/news/equality-ca-presents-2024-community-leadership-award-to-greg-sarris-958147408) 
+[Original/Source Press Release](https://newsdirect.com/news/equality-ca-presents-2024-community-leadership-award-to-greg-sarris-958147408)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1fyhxok/equality_ca_presents_2024_community_leadership/

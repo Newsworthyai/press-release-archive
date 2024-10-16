@@ -93,6 +93,9 @@ Statement Highlights:
 
  heart.org and stroke.org 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/interrelated-social-factors-may-affect-cardiovascular-health-in-asian-american-subgroups-7076054) 
+[Original/Source Press Release](https://www.newmediawire.com/news/interrelated-social-factors-may-affect-cardiovascular-health-in-asian-american-subgroups-7076054)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1figw1v/new_statement_highlights_social_determinants_of/

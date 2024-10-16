@@ -12,6 +12,9 @@ With its shorter 20-minute treatment sessions, Deep TMS provides more efficient 
 
 For more information on TMS NW and its Deep Transcranial Magnetic Stimulation services, please visit www.tmsnw.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402191074/tms-nw-introduces-deep-transcranial-magnetic-stimulation-for-depression-and-ocd-treatment) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402191074/tms-nw-introduces-deep-transcranial-magnetic-stimulation-for-depression-and-ocd-treatment)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avbyrg/tms_nw_introduces_deep_transcranial_magnetic/

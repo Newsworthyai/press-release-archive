@@ -19,6 +19,9 @@ The full paper offers an in-depth exploration of our methodology and results, pr
 
 Feel free to reach out to Ledger Works to access the full paper and discover how our cutting-edge methods can benefit your financial strategies. Contact Us. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/ledger-works-unveils-groundbreaking-inference-model) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/ledger-works-unveils-groundbreaking-inference-model)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1emnhsv/revolutionizing_cryptocurrency_risk_management/

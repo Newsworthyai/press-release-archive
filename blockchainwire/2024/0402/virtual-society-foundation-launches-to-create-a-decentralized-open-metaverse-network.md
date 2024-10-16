@@ -27,6 +27,9 @@ The Path Ahead:VSF's flagship project, Somnia Network, represents a significant 
 
 For more information, visit https://virtualsociety.foundation/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/virtual-society-foundation-launches-to-create-a-decentralized-open-metaverse-network) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/virtual-society-foundation-launches-to-create-a-decentralized-open-metaverse-network)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bu77t1/virtual_society_foundation_launches_to_create/

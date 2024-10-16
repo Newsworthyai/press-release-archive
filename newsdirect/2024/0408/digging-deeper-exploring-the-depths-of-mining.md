@@ -48,6 +48,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/digging-deeper-exploring-the-depths-of-mining-421356698 
 
-[Original/Source Press Release](https://newsdirect.com/news/digging-deeper-exploring-the-depths-of-mining-421356698) 
+[Original/Source Press Release](https://newsdirect.com/news/digging-deeper-exploring-the-depths-of-mining-421356698)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bz7jvr/benzinga_webinar_digging_deeper_into_the_mining/

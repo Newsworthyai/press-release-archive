@@ -50,6 +50,9 @@ LAS VEGAS, NV - (NewMediaWire) - August 26, 2024 - Golden Matrix Group Inc. (N
 
  Ana Ribeiro / Charlotte Page, St Brides Partners (U.K.) Ana@stbridespartners.co.uk / charlotte@stbridespartners.co.uk 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-subsidiary-meridianbet-shortlisted-for-exclusive-sports-betting-and-igaming-license-in-brazil-7075966) 
+[Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-subsidiary-meridianbet-shortlisted-for-exclusive-sports-betting-and-igaming-license-in-brazil-7075966)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f7looz/meridianbet_shortlisted_for_exclusive_gaming/

@@ -74,6 +74,9 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/air-new-zealands-electric-flight-initiative-prepares-for-takeoff-156368311 
 
-[Original/Source Press Release](https://newsdirect.com/news/air-new-zealands-electric-flight-initiative-prepares-for-takeoff-156368311) 
+[Original/Source Press Release](https://newsdirect.com/news/air-new-zealands-electric-flight-initiative-prepares-for-takeoff-156368311)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c873ja/air_new_zealand_and_surf_air_mobility_inc/

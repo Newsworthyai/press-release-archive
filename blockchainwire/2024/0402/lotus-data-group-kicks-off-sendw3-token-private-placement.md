@@ -28,6 +28,9 @@ Contact Information:
 
 For further details on the SENDW3 token, the ongoing private placement, and the forthcoming public ICO, please visit www.lotusdatagroup.com. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/lotus-data-group-kicks-off-sendw3-token-private-placement) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/lotus-data-group-kicks-off-sendw3-token-private-placement)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1btxbfv/lotus_data_group_launches_private_placement_for/

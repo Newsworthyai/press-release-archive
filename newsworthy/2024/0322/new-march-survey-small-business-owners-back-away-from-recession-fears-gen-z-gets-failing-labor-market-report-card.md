@@ -32,6 +32,9 @@ Key Takeaways
 
 There’s much more in the complete report of the Freedom Economy Index, which can be found here. To speak with the RedBalloon and PublicSquare team of experts, contact Isaac Lopez Isaac@redballoon.work. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20240322977/new-march-survey-small-business-owners-back-away-from-recession-fears-gen-z-gets-failing-labor-market-report-card) 
+[Original/Source Press Release](https://newsworthy.ai/news/20240322977/new-march-survey-small-business-owners-back-away-from-recession-fears-gen-z-gets-failing-labor-market-report-card)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bl33e9/small_business_owners_show_mixed_sentiment_in/

@@ -28,6 +28,9 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/-mad-hints-potential-partnership-with-iconic-ip-company-igniting-crypto-community-interest) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/-mad-hints-potential-partnership-with-iconic-ip-company-igniting-crypto-community-interest)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1f4osc6/memesafterdark_mad_teases_potential_collaboration/

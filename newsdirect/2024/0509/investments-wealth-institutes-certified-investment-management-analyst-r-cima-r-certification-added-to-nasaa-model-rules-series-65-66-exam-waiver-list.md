@@ -38,6 +38,9 @@ Company Websitehttps://investmentsandwealth.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/investments-and-wealth-institutes-certified-investment-management-analyst-r-cima-r-certification-added-to-nasaa-model-rules-series-65-66-exam-waiver-list-677720319 
 
-[Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-institutes-certified-investment-management-analyst-r-cima-r-certification-added-to-nasaa-model-rules-series-65-66-exam-waiver-list-677720319) 
+[Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-institutes-certified-investment-management-analyst-r-cima-r-certification-added-to-nasaa-model-rules-series-65-66-exam-waiver-list-677720319)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1co1k7z/investments_wealth_institutes_cima_certification/

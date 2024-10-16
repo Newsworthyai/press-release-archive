@@ -20,6 +20,9 @@ BOB is a state-of-the-art layer-2 solution that bridges the gap between Bitcoin 
 
 Visit: [www.gobob.xyz](http://www.gobob.xyz)BOB@transformgroup.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/sovryn-the-biggest-dapp-in-bitcoin-defi-expands-to-bob-a-bitcoin-l2) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/sovryn-the-biggest-dapp-in-bitcoin-defi-expands-to-bob-a-bitcoin-l2)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bfexyo/sovryn_partners_with_bob_to_expand_bitcoin_defi/

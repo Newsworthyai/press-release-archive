@@ -46,6 +46,9 @@ matsushima-h@a2healthcare.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/japans-premier-clinical-cro-a2-healthcare-an-itochu-subsidiary-launches-us-expansion-952295734 
 
-[Original/Source Press Release](https://newsdirect.com/news/japans-premier-clinical-cro-a2-healthcare-an-itochu-subsidiary-launches-us-expansion-952295734) 
+[Original/Source Press Release](https://newsdirect.com/news/japans-premier-clinical-cro-a2-healthcare-an-itochu-subsidiary-launches-us-expansion-952295734)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1c68ay4/a2_healthcare_expands_to_us_to_transform_japanese/

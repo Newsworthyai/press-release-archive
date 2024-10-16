@@ -40,6 +40,9 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/top-of-the-meme-chain-troll-token-leads-the-charge-in-digital-humor-and-finance) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/top-of-the-meme-chain-troll-token-leads-the-charge-in-digital-humor-and-finance)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1bb4wwg/troll_face_inspires_creation_of_troll_meme_token/

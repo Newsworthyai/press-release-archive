@@ -32,6 +32,9 @@ About WEMADE
 
 Wemade is at the forefront of the next wave of Web3 game developers that are innovating with blockchain technology. Based on the WEMIX3.0 Mainnet, the WEMIX PLAY blockchain game platform is the world’s biggest with millions of users and a wide range of game genres from card, puzzle, simulation and strategy games; to first-person shooters, battle royale, MOBA, MMORPG, SNG, sports games and more. Visit www.wemix.com/communication for more information. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/da-games-srls-legends-of-elysium-brings-unique-mix-of-trading-card-board-and-strategy-game-elements-to-wemix-play) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/da-games-srls-legends-of-elysium-brings-unique-mix-of-trading-card-board-and-strategy-game-elements-to-wemix-play)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1avca4b/wemade_announces_launch_of_fantasy_strategy_card/

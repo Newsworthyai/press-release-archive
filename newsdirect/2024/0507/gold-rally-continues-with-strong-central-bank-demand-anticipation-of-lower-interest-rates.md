@@ -70,6 +70,9 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gold-rally-continues-with-strong-central-bank-demand-anticipation-of-lower-interest-rates-803602218 
 
-[Original/Source Press Release](https://newsdirect.com/news/gold-rally-continues-with-strong-central-bank-demand-anticipation-of-lower-interest-rates-803602218) 
+[Original/Source Press Release](https://newsdirect.com/news/gold-rally-continues-with-strong-central-bank-demand-anticipation-of-lower-interest-rates-803602218)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1cmh5y0/gold_rally_continues_with_strong_central_bank/

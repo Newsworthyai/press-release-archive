@@ -10,6 +10,9 @@ Beyond depression and chronic pain management, the center offers ketamine-assist
 
 RestoratIV Wellness & Infusion Center is dedicated to providing hope and help to individuals facing debilitating conditions. They encourage those seeking effective treatment options to take decisive action and trust in their comprehensive and personalized care. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402171067/restorativ-wellness-infusion-center-offers-ketamine-assisted-psychotherapy-for-depression-psychiatric-disorders-and-chronic-pain) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402171067/restorativ-wellness-infusion-center-offers-ketamine-assisted-psychotherapy-for-depression-psychiatric-disorders-and-chronic-pain)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avc897/restorativ_wellness_introduces_ketamine_therapy/

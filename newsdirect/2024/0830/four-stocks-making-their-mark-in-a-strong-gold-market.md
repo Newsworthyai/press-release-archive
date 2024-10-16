@@ -58,6 +58,9 @@ Company Websitehttps://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/four-stocks-making-their-mark-in-a-strong-gold-market-222443002 
 
-[Original/Source Press Release](https://newsdirect.com/news/four-stocks-making-their-mark-in-a-strong-gold-market-222443002) 
+[Original/Source Press Release](https://newsdirect.com/news/four-stocks-making-their-mark-in-a-strong-gold-market-222443002)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1f4smi0/four_stocks_making_their_mark_in_a_strong_gold/

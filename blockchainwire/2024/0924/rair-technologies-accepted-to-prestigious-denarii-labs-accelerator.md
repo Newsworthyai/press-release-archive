@@ -14,6 +14,9 @@ RAIR Technologies is paving the way for a more inclusive and collaborative futur
 
 ABOUT RAIR TECHRAIR Technologies enables enterprises to seamlessly navigate asset creation, DRM security, royalty tracking, and marketplace trade and execution within a secure white-label environment. RAIR is driving innovation with its open-source RAIRprotocol. RAIRprotocol fosters scalability and innovation through a distinctive token licensing model that allows full access to the underlying RAIR Technologies source code. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/rair-technologies-accepted-to-prestigious-denarii-labs-accelerator) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/rair-technologies-accepted-to-prestigious-denarii-labs-accelerator)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fo9vyg/rair_technologies_accepted_into_denarii_labs_web3/

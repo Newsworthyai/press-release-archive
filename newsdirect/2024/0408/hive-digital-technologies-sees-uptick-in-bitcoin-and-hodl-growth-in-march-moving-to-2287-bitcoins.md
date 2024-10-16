@@ -20,6 +20,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hive-digital-technologies-sees-uptick-in-bitcoin-and-hodl-growth-in-march-moving-to-2-287-bitcoins-653695730 
 
-[Original/Source Press Release](https://newsdirect.com/news/hive-digital-technologies-sees-uptick-in-bitcoin-and-hodl-growth-in-march-moving-to-2-287-bitcoins-653695730) 
+[Original/Source Press Release](https://newsdirect.com/news/hive-digital-technologies-sees-uptick-in-bitcoin-and-hodl-growth-in-march-moving-to-2-287-bitcoins-653695730)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1byvz35/hive_digital_technologies_sees_uptick_in_bitcoin/

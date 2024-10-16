@@ -60,6 +60,9 @@ Country: United States of America
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/asprofin-bank-introduces-quantum-dot-technology-with-quanta-infinitum-data-for-enhanced-package-tracking-and-certification-for-smes) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/asprofin-bank-introduces-quantum-dot-technology-with-quanta-infinitum-data-for-enhanced-package-tracking-and-certification-for-smes)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fypr4k/revolutionary_partnership_quanta_infinitum_data/

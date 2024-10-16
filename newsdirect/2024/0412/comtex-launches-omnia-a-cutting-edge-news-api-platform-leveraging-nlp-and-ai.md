@@ -36,6 +36,9 @@ sales@comtex.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/comtex-launches-omnia-a-cutting-edge-news-api-platform-leveraging-nlp-and-ai-118703194 
 
-[Original/Source Press Release](https://newsdirect.com/news/comtex-launches-omnia-a-cutting-edge-news-api-platform-leveraging-nlp-and-ai-118703194) 
+[Original/Source Press Release](https://newsdirect.com/news/comtex-launches-omnia-a-cutting-edge-news-api-platform-leveraging-nlp-and-ai-118703194)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1c2g5y5/comtex_launches_omnia_a_cuttingedge_news_api/

@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ai-in-orthopedic-surgery-how-leveraging-ai-could-improve-surgical-outcomes-399772598 
 
-[Original/Source Press Release](https://newsdirect.com/news/ai-in-orthopedic-surgery-how-leveraging-ai-could-improve-surgical-outcomes-399772598) 
+[Original/Source Press Release](https://newsdirect.com/news/ai-in-orthopedic-surgery-how-leveraging-ai-could-improve-surgical-outcomes-399772598)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cj7vxf/ai_in_orthopedic_surgery_how_leveraging_ai_could/

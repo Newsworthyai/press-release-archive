@@ -22,6 +22,9 @@ Company Websitehttps://www.prodigydisc.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/prodigy-disc-announces-the-launch-of-the-mx-2-midrange-disc-368735262 
 
-[Original/Source Press Release](https://newsdirect.com/news/prodigy-disc-announces-the-launch-of-the-mx-2-midrange-disc-368735262) 
+[Original/Source Press Release](https://newsdirect.com/news/prodigy-disc-announces-the-launch-of-the-mx-2-midrange-disc-368735262)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d1xof7/prodigy_disc_launches_new_mx2_midrange_disc/

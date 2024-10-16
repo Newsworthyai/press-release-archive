@@ -25,6 +25,9 @@ Visit: www.gobob.xyz Contact Information: BOB@transformgroup.com
 
 —- Visuals — 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/optimine-empowers-rollups-with-bitcoin-security-via-new-security-building-block) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/optimine-empowers-rollups-with-bitcoin-security-via-new-security-building-block)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjva0/bob_and_interlay_launch_optimine_for_enhanced/

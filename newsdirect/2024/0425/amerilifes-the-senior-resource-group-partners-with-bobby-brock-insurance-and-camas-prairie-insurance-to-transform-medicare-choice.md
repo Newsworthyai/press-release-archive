@@ -60,6 +60,9 @@ Company Websitehttps://amerilife.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/amerilifes-the-senior-resource-group-partners-with-bobby-brock-insurance-and-camas-prairie-insurance-to-transform-medicare-choice-644483474 
 
-[Original/Source Press Release](https://newsdirect.com/news/amerilifes-the-senior-resource-group-partners-with-bobby-brock-insurance-and-camas-prairie-insurance-to-transform-medicare-choice-644483474) 
+[Original/Source Press Release](https://newsdirect.com/news/amerilifes-the-senior-resource-group-partners-with-bobby-brock-insurance-and-camas-prairie-insurance-to-transform-medicare-choice-644483474)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ccvwpc/the_senior_resource_group_partners_with_bobby/

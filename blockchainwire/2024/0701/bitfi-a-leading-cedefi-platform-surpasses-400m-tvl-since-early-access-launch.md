@@ -72,6 +72,9 @@ dedicated to optimizing your asset returns safely and efficiently across multipl
 
 Website | Twitter 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bitfi-a-leading-cedefi-platform-surpasses-400m-tvl-since-early-access-launch) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bitfi-a-leading-cedefi-platform-surpasses-400m-tvl-since-early-access-launch)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dszrz2/bitfi_secures_over_400m_tvl_maximizing_btc_yield/

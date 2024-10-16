@@ -20,6 +20,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/immunic-phase-2-emphasis-trial-data-highlighted-in-peer-reviewed-neurology-journal-229179119 
 
-[Original/Source Press Release](https://newsdirect.com/news/immunic-phase-2-emphasis-trial-data-highlighted-in-peer-reviewed-neurology-journal-229179119) 
+[Original/Source Press Release](https://newsdirect.com/news/immunic-phase-2-emphasis-trial-data-highlighted-in-peer-reviewed-neurology-journal-229179119)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1chndkn/immunic_inc_ceo_shares_positive_trial_data_in/

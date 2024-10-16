@@ -18,6 +18,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/arway-ai-announces-acquisition-of-map-dynamics-to-accelerate-growth-and-expand-offerings-417326728 
 
-[Original/Source Press Release](https://newsdirect.com/news/arway-ai-announces-acquisition-of-map-dynamics-to-accelerate-growth-and-expand-offerings-417326728) 
+[Original/Source Press Release](https://newsdirect.com/news/arway-ai-announces-acquisition-of-map-dynamics-to-accelerate-growth-and-expand-offerings-417326728)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cxbmk2/arwayai_acquires_map_dynamics_to_revolutionize/

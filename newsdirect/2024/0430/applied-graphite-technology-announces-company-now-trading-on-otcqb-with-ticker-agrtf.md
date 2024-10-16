@@ -18,6 +18,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/applied-graphite-technology-announces-company-now-trading-on-otcqb-with-ticker-agrtf-723516622 
 
-[Original/Source Press Release](https://newsdirect.com/news/applied-graphite-technology-announces-company-now-trading-on-otcqb-with-ticker-agrtf-723516622) 
+[Original/Source Press Release](https://newsdirect.com/news/applied-graphite-technology-announces-company-now-trading-on-otcqb-with-ticker-agrtf-723516622)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cgx12z/applied_graphite_technology_ceo_announces/

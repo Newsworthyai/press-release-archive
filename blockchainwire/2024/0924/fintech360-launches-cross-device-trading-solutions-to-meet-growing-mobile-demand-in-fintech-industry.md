@@ -20,6 +20,9 @@ For more information about FinTech360 and its latest cross-device trading solu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/fintech360-launches-cross-device-trading-solutions-to-meet-growing-mobile-demand-in-fintech-industry) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/fintech360-launches-cross-device-trading-solutions-to-meet-growing-mobile-demand-in-fintech-industry)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1foh87b/fintech360_launches_new_crossdevice_trading/

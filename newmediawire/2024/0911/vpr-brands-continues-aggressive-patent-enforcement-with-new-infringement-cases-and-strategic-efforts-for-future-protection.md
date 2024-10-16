@@ -32,6 +32,9 @@ Contact: VPR Brands, LPInvestor RelationsPhone: (954) 715-7001
 
 Email: IR@vprbrands.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/vpr-brands-continues-aggressive-patent-enforcement-with-new-infringement-cases-and-strategic-efforts-for-future-protection-7076036) 
+[Original/Source Press Release](https://www.newmediawire.com/news/vpr-brands-continues-aggressive-patent-enforcement-with-new-infringement-cases-and-strategic-efforts-for-future-protection-7076036)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1fe9usb/vpr_brands_takes_legal_action_to_protect_vaping/

@@ -28,6 +28,9 @@ Company Websitehttps://curealz.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/cure-alzheimers-fund-presents-the-jeffrey-l-morby-prize-for-exceptional-research-130226209 
 
-[Original/Source Press Release](https://newsdirect.com/news/cure-alzheimers-fund-presents-the-jeffrey-l-morby-prize-for-exceptional-research-130226209) 
+[Original/Source Press Release](https://newsdirect.com/news/cure-alzheimers-fund-presents-the-jeffrey-l-morby-prize-for-exceptional-research-130226209)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d40jwl/cure_alzheimers_fund_honors_researchers_with/

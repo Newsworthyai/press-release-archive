@@ -18,6 +18,9 @@ SaaSPerspective.com stands at the forefront of SaaS knowledge dissemination, emp
 
 Embark on a journey of SaaS enlightenment at www.SaaSPerspective.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231207874/saasperspective-com-unveiling-a-resource-for-software-as-a-service-saas-insights) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231207874/saasperspective-com-unveiling-a-resource-for-software-as-a-service-saas-insights)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1avx2gg/introducing_saasperspectivecom_your_definitive/

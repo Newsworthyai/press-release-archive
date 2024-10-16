@@ -26,6 +26,9 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-at-istanbul-blockchain-week-2024-leading-a-new-wave-of-trading-781897967 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-at-istanbul-blockchain-week-2024-leading-a-new-wave-of-trading-781897967) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-at-istanbul-blockchain-week-2024-leading-a-new-wave-of-trading-781897967)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1esy1vd/htx_leads_new_wave_of_trading_at_istanbul/

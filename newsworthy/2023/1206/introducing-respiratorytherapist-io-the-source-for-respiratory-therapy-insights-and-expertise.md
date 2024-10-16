@@ -18,6 +18,9 @@ Designed for both budding and seasoned professionals, RespiratoryTherapist.io se
 
 Dive into a world of respiratory knowledge at www.RespiratoryTherapist.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231206872/introducing-respiratorytherapist-io-the-source-for-respiratory-therapy-insights-and-expertise) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231206872/introducing-respiratorytherapist-io-the-source-for-respiratory-therapy-insights-and-expertise)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avctee/newly_launched_respiratorytherapistio_provides/

@@ -32,6 +32,9 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-wallet-unveils-getdrop-an-exclusive-airdrop-platform-for-high-quality-projects-481200160 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitget-wallet-unveils-getdrop-an-exclusive-airdrop-platform-for-high-quality-projects-481200160) 
+[Original/Source Press Release](https://newsdirect.com/news/bitget-wallet-unveils-getdrop-an-exclusive-airdrop-platform-for-high-quality-projects-481200160)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1cqwwvz/bitget_wallet_unveils_exclusive_airdrop_platform/

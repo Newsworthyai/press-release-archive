@@ -12,6 +12,9 @@ TMS Therapy is covered by most insurances and Medicare, providing accessible tre
 
 TMS Therapy is a beacon of hope for individuals who have exhausted traditional avenues for combating mental health conditions. With minimal to no side effects, this groundbreaking treatment offers a new lease on life for patients who are committed to achieving long-term mental health. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402241090/innovative-tms-therapy-in-phoenix-az-provides-non-invasive-relief-for-depression-and-anxiety) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402241090/innovative-tms-therapy-in-phoenix-az-provides-non-invasive-relief-for-depression-and-anxiety)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1az5a3c/revolutionary_tms_therapy_changing_the_game_for/

@@ -32,6 +32,9 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-d-and-d-roofing-inc-and-bell-roofing-981464273 
 
-[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-d-and-d-roofing-inc-and-bell-roofing-981464273) 
+[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-d-and-d-roofing-inc-and-bell-roofing-981464273)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1embekv/benchmark_international_facilitates_transaction/

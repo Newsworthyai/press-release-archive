@@ -65,6 +65,9 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/the-future-of-crypto-loans-with-aitek-harnessing-the-power-of-smart-contracts-to-offer-a-better-loaning-system-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/the-future-of-crypto-loans-with-aitek-harnessing-the-power-of-smart-contracts-to-offer-a-better-loaning-system-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1b6rqsw/the_dawn_of_aitek_transforming_digital_assets/

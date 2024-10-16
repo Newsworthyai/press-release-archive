@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/crossword-cybersecurity-reports-strong-performance-of-cybersecurity-monitoring-service-in-caribbean-808226786 
 
-[Original/Source Press Release](https://newsdirect.com/news/crossword-cybersecurity-reports-strong-performance-of-cybersecurity-monitoring-service-in-caribbean-808226786) 
+[Original/Source Press Release](https://newsdirect.com/news/crossword-cybersecurity-reports-strong-performance-of-cybersecurity-monitoring-service-in-caribbean-808226786)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1c5do7g/crossword_cybersecuritys_nightingale_service/

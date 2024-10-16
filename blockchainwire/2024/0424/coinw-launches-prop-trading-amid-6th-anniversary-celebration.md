@@ -32,6 +32,9 @@ How to Join CoinW PropTrading
 
 CoinW PropTrading is now accepting applications and has launched the "Warriors of Next Phase Trading" competition. This competition aims to discover more talented traders in the market. The application period runs from April 17 to May 7 and the first 1,000 registrants for the "Warriors of Next Phase Trading" competition will be eligible for one-time free registration. More information is available at:https://www.coinw.com/frontweb/en_US/active/landingPage?aId=56&language=en_US 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-launches-prop-trading-amid-6th-anniversary-celebration-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-launches-prop-trading-amid-6th-anniversary-celebration-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cbwca7/coinw_exchange_marks_6th_year_with_rebranding_and/

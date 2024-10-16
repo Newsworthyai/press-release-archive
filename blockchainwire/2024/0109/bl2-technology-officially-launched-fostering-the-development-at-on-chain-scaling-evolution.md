@@ -34,6 +34,9 @@ In the ever-evolving blockchain landscape, Bitcoin's BL2 technology emerges as a
 
 Official Website: [https://bl2.live/](https://bl2.live/)Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bl2-technology-officially-launched-fostering-the-development-at-on-chain-scaling-evolution) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bl2-technology-officially-launched-fostering-the-development-at-on-chain-scaling-evolution)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1avx5zf/bl2_technology_officially_launches_pioneering/

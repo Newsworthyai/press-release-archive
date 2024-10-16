@@ -18,6 +18,9 @@ About Soulbound
 
 Soulbound is an avant-garde social gaming platform delivering revolutionary gamer identities, community interactions, and creator incentives. Soulbound was founded in 2022 with a mission to level up the gaming ecosystem and create cutting-edge digital experiences. Backed by top gaming and web3 VCs, Soulbound is onboarding the next generation of gamers, streamers, and creators into web3. Forge your gaming legacy at [www.soulbound.gg](https://soulbound.gg/)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/animoca-brands-backed-soulbound-raises-4-million-for-web3-social-gaming) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/animoca-brands-backed-soulbound-raises-4-million-for-web3-social-gaming)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eytln6/soulbound_raises_4m_to_empower_new_creator_economy/

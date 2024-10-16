@@ -54,6 +54,9 @@ Reef Chain
 
 cassie@reef.io 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/reef-announces-the-launch-of-reef-chain-wallet-and-reefswap) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/reef-announces-the-launch-of-reef-chain-wallet-and-reefswap)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvg6x1/reef_launches_reef_chain_wallet_and_reefswap/

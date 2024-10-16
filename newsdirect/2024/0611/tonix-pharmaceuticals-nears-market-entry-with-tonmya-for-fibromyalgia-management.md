@@ -14,6 +14,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tonix-pharmaceuticals-nears-market-entry-with-tonmya-for-fibromyalgia-management-830642927 
 
-[Original/Source Press Release](https://newsdirect.com/news/tonix-pharmaceuticals-nears-market-entry-with-tonmya-for-fibromyalgia-management-830642927) 
+[Original/Source Press Release](https://newsdirect.com/news/tonix-pharmaceuticals-nears-market-entry-with-tonmya-for-fibromyalgia-management-830642927)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1ddlh4z/tonix_pharmaceuticals_nears_market_entry_with/

@@ -48,6 +48,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/citius-pharmaceuticals-nasdaq-ctxr-advances-oncology-asset-paving-way-for-spin-out-of-advanced-t-cell-lymphoma-treatment-399624844 
 
-[Original/Source Press Release](https://newsdirect.com/news/citius-pharmaceuticals-nasdaq-ctxr-advances-oncology-asset-paving-way-for-spin-out-of-advanced-t-cell-lymphoma-treatment-399624844) 
+[Original/Source Press Release](https://newsdirect.com/news/citius-pharmaceuticals-nasdaq-ctxr-advances-oncology-asset-paving-way-for-spin-out-of-advanced-t-cell-lymphoma-treatment-399624844)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1c72mzp/citius_pharmaceuticals_advancing_oncology_asset/

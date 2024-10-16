@@ -64,6 +64,9 @@ Company Websitehttps://money.ca/
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-credit-cards-can-promote-responsible-spending-269174812 
 
-[Original/Source Press Release](https://newsdirect.com/news/how-credit-cards-can-promote-responsible-spending-269174812) 
+[Original/Source Press Release](https://newsdirect.com/news/how-credit-cards-can-promote-responsible-spending-269174812)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1e4lx9i/tips_for_responsible_credit_card_use/

@@ -22,6 +22,9 @@ About CoinW
 
 CoinW is a pioneering crypto trading platform that prioritizes security, transparency, and user-centric principles. With advanced technology, deep liquidity, and a wide range of supported cryptocurrencies, the company has amassed a broad user base to become one of the world’s most secure crypto exchanges. Committed to security, transparency, and compliance, the CoinW exchange upholds the highest regulatory standards and actively contributes to the advancement of the crypto industry. To learn more about CoinW, you can visit the official website, and follow CoinW's Twitter Account, Btok, and Telegram Group. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/sage-universe-a-meme-coin-will-be-initially-listed-on-coinw-exchange) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/sage-universe-a-meme-coin-will-be-initially-listed-on-coinw-exchange)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ec0bzg/coinw_to_list_sage_meme_coin_on_solana_ecosystem/

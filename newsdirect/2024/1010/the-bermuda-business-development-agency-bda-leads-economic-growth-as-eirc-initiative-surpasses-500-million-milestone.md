@@ -44,6 +44,9 @@ Company Websitehttps://bda.bm
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-bermuda-business-development-agency-bda-leads-economic-growth-as-eirc-initiative-surpasses-500-million-milestone-982416134 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-bermuda-business-development-agency-bda-leads-economic-growth-as-eirc-initiative-surpasses-500-million-milestone-982416134) 
+[Original/Source Press Release](https://newsdirect.com/news/the-bermuda-business-development-agency-bda-leads-economic-growth-as-eirc-initiative-surpasses-500-million-milestone-982416134)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1g0q7il/bermudas_eirc_initiative_surpasses_500_million/

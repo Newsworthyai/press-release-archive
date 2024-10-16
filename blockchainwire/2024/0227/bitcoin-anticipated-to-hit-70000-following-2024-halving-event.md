@@ -6,6 +6,9 @@ What Is Bitcoin Halving? Bitcoin Halving is an important event in the cryptocur
 
 Toobit, a leading global digital trading platform built by former core members of Huobi and the former executive of Bybit, aims to enable users to trade high-quality financial assets freely and equally across the globe. With thousands of satisfied users, Toobit offers exceptional connection speeds and a steadfast commitment to privacy. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-anticipated-to-hit-70000-following-2024-halving-event-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-anticipated-to-hit-70000-following-2024-halving-event-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1b6rpw4/bitcoin_surges_after_etf_approval_toobit_predicts/

@@ -28,6 +28,9 @@ Company Websitehttps://www.Hibbett.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hibbett-releases-inspirational-video-featuring-kevin-durant-and-chet-holmgren-for-nike-kd17-launch-292804280 
 
-[Original/Source Press Release](https://newsdirect.com/news/hibbett-releases-inspirational-video-featuring-kevin-durant-and-chet-holmgren-for-nike-kd17-launch-292804280) 
+[Original/Source Press Release](https://newsdirect.com/news/hibbett-releases-inspirational-video-featuring-kevin-durant-and-chet-holmgren-for-nike-kd17-launch-292804280)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cdl0lk/hibbett_launches_exclusive_video_campaign_for/

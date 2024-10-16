@@ -34,6 +34,9 @@ Company Websitehttp://www.aprubrands.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/apple-rush-company-inc-subsidiary-stotland-trucking-moves-into-new-headquarters-161083848 
 
-[Original/Source Press Release](https://newsdirect.com/news/apple-rush-company-inc-subsidiary-stotland-trucking-moves-into-new-headquarters-161083848) 
+[Original/Source Press Release](https://newsdirect.com/news/apple-rush-company-inc-subsidiary-stotland-trucking-moves-into-new-headquarters-161083848)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1f9gwl4/stotland_trucking_llc_acquires_new_headquarters/

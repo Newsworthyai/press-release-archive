@@ -18,6 +18,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/baron-oil-proposes-name-change-to-sunda-energy-reports-year-end-financial-results-214061152 
 
-[Original/Source Press Release](https://newsdirect.com/news/baron-oil-proposes-name-change-to-sunda-energy-reports-year-end-financial-results-214061152) 
+[Original/Source Press Release](https://newsdirect.com/news/baron-oil-proposes-name-change-to-sunda-energy-reports-year-end-financial-results-214061152)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Leadership_Management/comments/1d2he09/baron_oil_proposes_name_change_to_sunda_energy/

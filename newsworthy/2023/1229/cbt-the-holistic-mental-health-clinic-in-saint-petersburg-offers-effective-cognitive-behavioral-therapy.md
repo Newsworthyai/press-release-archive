@@ -14,6 +14,9 @@ About The Holistic Mental Health Clinic
 
 The Holistic Mental Health Clinic offers a unique patient-centered experience unlike any other. We specialize in evidence-based natural treatments for mental health. You will receive a Plan of Care that outlines your personalized goals, measures for success, and includes the number of recommended treatment hours. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231229949/cbt-the-holistic-mental-health-clinic-in-saint-petersburg-offers-effective-cognitive-behavioral-therapy) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231229949/cbt-the-holistic-mental-health-clinic-in-saint-petersburg-offers-effective-cognitive-behavioral-therapy)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcwj9/the_holistic_mental_health_clinic_empowers/

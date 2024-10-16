@@ -10,6 +10,9 @@ Tom Richer, CEO of Cloudbench, expressed confidence in Sam's ability to lead bot
 
 About CloudbenchCloudbench is at the forefront of value-driven emerging technology consulting, with a focus on Artificial Intelligence, empowering businesses to harness the limitless potential of AI and Data. Our mission is to rapidly help small and medium clients enable, embrace, and manage AI and Data to unlock innovation and drive growth. Cloudbench is an official Google Cloud partner, a member of the Google Cloud for Startups program, a portfolio company of Alpha Transform Holdings, and also partners with Microsoft, AWS, Snowflake, Databricks, UiPath, and Elastic. Learn more at www.cloudbench.net. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/cloudbench-announces-expanded-leadership-role) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/cloudbench-announces-expanded-leadership-role)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fn8rjh/cloudbench_appoints_sameh_ibrahim_as_chief/

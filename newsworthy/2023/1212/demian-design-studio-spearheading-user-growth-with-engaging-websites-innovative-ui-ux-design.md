@@ -12,6 +12,9 @@ In addition to aesthetic and functional excellence, Demian Design Studio's websi
 
 With this new initiative, Demian Design Studio is poised to set new benchmarks in website development and UI/UX design, helping brands unlock their full potential in the digital landscape. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231212907/demian-design-studio-spearheading-user-growth-with-engaging-websites-innovative-ui-ux-design) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231212907/demian-design-studio-spearheading-user-growth-with-engaging-websites-innovative-ui-ux-design)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx3be/demian_design_studio_unveils_new_initiative_to/

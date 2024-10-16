@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/etf-mastery-navigating-the-future-of-finance-225010738 
 
-[Original/Source Press Release](https://newsdirect.com/news/etf-mastery-navigating-the-future-of-finance-225010738) 
+[Original/Source Press Release](https://newsdirect.com/news/etf-mastery-navigating-the-future-of-finance-225010738)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1bp1i6d/benzinga_presents_etf_mastery_navigating_the/

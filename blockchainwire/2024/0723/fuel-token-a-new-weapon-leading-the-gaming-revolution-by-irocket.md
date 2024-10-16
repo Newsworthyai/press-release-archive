@@ -16,6 +16,9 @@ As FUEL prepares to launch on Deepcoin, the question on everyone’s mind is whe
 
 Disclaimer: This press release may contain forward-looking statements. Forward-looking statements describe future expectations, plans, results, or strategies (including product offerings, regulatory plans and business plans) and may change without notice. You are cautioned that such statements are subject to a multitude of risks and uncertainties that could cause future circumstances, events, or results to differ materially from those projected in the forward-looking statements, including the risks that actual results may differ materially from those projected in the forward-looking statements. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/fuel-token-a-new-weapon-leading-the-gaming-revolution-by-irocket) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/fuel-token-a-new-weapon-leading-the-gaming-revolution-by-irocket)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1eaa8i5/fuel_token_set_to_list_on_deepcoin_exchange/

@@ -26,6 +26,9 @@ For more information, visit https://newyorkcannabisretailassociation.org/
 
 For media inquiries, please contact: emily.vetter@biotrackthc.com 
 
-[Original/Source Press Release](http://www.newmediawire.com/news/alleaves-biotrack-announce-strategic-partnership-with-new-york-cannabis-retail-association-nycra-7076092) 
+[Original/Source Press Release](http://www.newmediawire.com/news/alleaves-biotrack-announce-strategic-partnership-with-new-york-cannabis-retail-association-nycra-7076092)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1frcbcs/advanced_technology_solutions_for_new_yorks/

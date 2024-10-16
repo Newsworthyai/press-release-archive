@@ -30,6 +30,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-next-6-months-could-be-big-for-this-lithium-miner-282967398 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-next-6-months-could-be-big-for-this-lithium-miner-282967398) 
+[Original/Source Press Release](https://newsdirect.com/news/the-next-6-months-could-be-big-for-this-lithium-miner-282967398)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1enynrl/lift_power_ceo_discusses_mineral_exploration/

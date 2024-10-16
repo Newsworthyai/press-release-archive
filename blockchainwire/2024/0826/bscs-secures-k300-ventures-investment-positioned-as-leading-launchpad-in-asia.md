@@ -63,6 +63,9 @@ This collaboration highlights the importance of strategic partnerships in the in
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bscs-secures-k300-ventures-investment-positioned-as-leading-launchpad-in-asia) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bscs-secures-k300-ventures-investment-positioned-as-leading-launchpad-in-asia)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1f1oomh/bscs_secures_strategic_investment_from_k300/

@@ -53,6 +53,9 @@ Company Websitehttps://geniusmonkey.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-media-agency-shift-genius-monkeys-assessment-213033689 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-media-agency-shift-genius-monkeys-assessment-213033689) 
+[Original/Source Press Release](https://newsdirect.com/news/the-media-agency-shift-genius-monkeys-assessment-213033689)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1chvnjm/the_media_agency_shift_genius_monkeys_assessment/

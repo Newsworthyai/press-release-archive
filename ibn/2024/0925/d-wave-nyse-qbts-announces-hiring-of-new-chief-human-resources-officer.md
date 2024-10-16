@@ -24,6 +24,9 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing 
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-announces-hiring-of-new-chief-human-resources-officer/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-announces-hiring-of-new-chief-human-resources-officer/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1fp6tmn/dwave_quantum_inc_appoints_sophie_ames_as_chief/

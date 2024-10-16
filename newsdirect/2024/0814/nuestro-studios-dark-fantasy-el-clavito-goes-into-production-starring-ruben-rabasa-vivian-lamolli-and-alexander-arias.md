@@ -26,6 +26,9 @@ Rameh@brillamedia.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nuestro-studios-dark-fantasy-el-clavito-goes-into-production-starring-ruben-rabasa-vivian-lamolli-and-alexander-arias-462507431 
 
-[Original/Source Press Release](https://newsdirect.com/news/nuestro-studios-dark-fantasy-el-clavito-goes-into-production-starring-ruben-rabasa-vivian-lamolli-and-alexander-arias-462507431) 
+[Original/Source Press Release](https://newsdirect.com/news/nuestro-studios-dark-fantasy-el-clavito-goes-into-production-starring-ruben-rabasa-vivian-lamolli-and-alexander-arias-462507431)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1esavyj/nuestro_studios_announces_production_of_dark/

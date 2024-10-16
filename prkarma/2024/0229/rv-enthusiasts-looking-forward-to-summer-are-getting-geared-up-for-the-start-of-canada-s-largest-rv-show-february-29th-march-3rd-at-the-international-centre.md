@@ -54,6 +54,9 @@ Visit Our Blog
 * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/thebigrvshow/news_release/1410) 
+[Original/Source Press Release](https://newsroom.prkarma.com/thebigrvshow/news_release/1410)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/TravelAndLeisureNews/comments/1bko8uy/excitement_grows_for_the_2024_toronto_spring/

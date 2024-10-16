@@ -46,6 +46,9 @@ Company Websitehttps://mybundle.tv/
 
 View source version on newsdirect.com: https://newsdirect.com/news/brightspeed-launches-mybundle-platform-to-provide-brightspeed-fiber-internet-customers-with-more-tv-choice-and-value-178718746 
 
-[Original/Source Press Release](https://newsdirect.com/news/brightspeed-launches-mybundle-platform-to-provide-brightspeed-fiber-internet-customers-with-more-tv-choice-and-value-178718746) 
+[Original/Source Press Release](https://newsdirect.com/news/brightspeed-launches-mybundle-platform-to-provide-brightspeed-fiber-internet-customers-with-more-tv-choice-and-value-178718746)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1ebvup2/mybundle_and_brightspeed_agreement_provides_more/

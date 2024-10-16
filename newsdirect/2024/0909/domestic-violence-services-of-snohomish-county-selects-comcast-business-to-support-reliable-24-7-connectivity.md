@@ -30,6 +30,9 @@ jack_follman@comcast.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/domestic-violence-services-of-snohomish-county-selects-comcast-business-to-support-reliable-24-7-connectivity-334187678 
 
-[Original/Source Press Release](https://newsdirect.com/news/domestic-violence-services-of-snohomish-county-selects-comcast-business-to-support-reliable-24-7-connectivity-334187678) 
+[Original/Source Press Release](https://newsdirect.com/news/domestic-violence-services-of-snohomish-county-selects-comcast-business-to-support-reliable-24-7-connectivity-334187678)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fcth0n/comcast_business_supports_domestic_violence/

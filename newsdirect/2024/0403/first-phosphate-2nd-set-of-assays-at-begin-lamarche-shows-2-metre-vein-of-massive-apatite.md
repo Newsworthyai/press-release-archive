@@ -22,6 +22,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/first-phosphate-2nd-set-of-assays-at-begin-lamarche-shows-2-metre-vein-of-massive-apatite-404031863 
 
-[Original/Source Press Release](https://newsdirect.com/news/first-phosphate-2nd-set-of-assays-at-begin-lamarche-shows-2-metre-vein-of-massive-apatite-404031863) 
+[Original/Source Press Release](https://newsdirect.com/news/first-phosphate-2nd-set-of-assays-at-begin-lamarche-shows-2-metre-vein-of-massive-apatite-404031863)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1buu5yg/first_phosphate_corp_ceo_and_chief_geologist/

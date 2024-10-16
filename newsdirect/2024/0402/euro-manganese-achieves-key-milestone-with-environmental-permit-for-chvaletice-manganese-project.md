@@ -26,6 +26,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/euro-manganese-achieves-key-milestone-with-environmental-permit-for-chvaletice-manganese-project-266918458 
 
-[Original/Source Press Release](https://newsdirect.com/news/euro-manganese-achieves-key-milestone-with-environmental-permit-for-chvaletice-manganese-project-266918458) 
+[Original/Source Press Release](https://newsdirect.com/news/euro-manganese-achieves-key-milestone-with-environmental-permit-for-chvaletice-manganese-project-266918458)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1bu1dou/euro_manganese_achieves_key_milestone_with/

@@ -62,6 +62,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/venhubs-wants-to-revolutionize-retail-through-its-fully-autonomous-retail-robots-but-some-have-objections-heres-why-consumers-may-not-need-to-worry-381620514 
 
-[Original/Source Press Release](https://newsdirect.com/news/venhubs-wants-to-revolutionize-retail-through-its-fully-autonomous-retail-robots-but-some-have-objections-heres-why-consumers-may-not-need-to-worry-381620514) 
+[Original/Source Press Release](https://newsdirect.com/news/venhubs-wants-to-revolutionize-retail-through-its-fully-autonomous-retail-robots-but-some-have-objections-heres-why-consumers-may-not-need-to-worry-381620514)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1er71yd/venhub_revolutionizes_retail_with_autonomous/

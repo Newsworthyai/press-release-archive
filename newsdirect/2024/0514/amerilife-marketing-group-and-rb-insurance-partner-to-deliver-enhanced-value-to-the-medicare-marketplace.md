@@ -55,6 +55,9 @@ Company Websitehttps://amerilife.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/amerilife-marketing-group-and-rb-insurance-partner-to-deliver-enhanced-value-to-the-medicare-marketplace-110611370 
 
-[Original/Source Press Release](https://newsdirect.com/news/amerilife-marketing-group-and-rb-insurance-partner-to-deliver-enhanced-value-to-the-medicare-marketplace-110611370) 
+[Original/Source Press Release](https://newsdirect.com/news/amerilife-marketing-group-and-rb-insurance-partner-to-deliver-enhanced-value-to-the-medicare-marketplace-110611370)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1crrvo4/amerilife_marketing_group_and_rb_insurance/

@@ -44,6 +44,9 @@
 
  heart.org and stroke.org 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/nfl-play-60-and-the-nation-of-lifesavers-programs-kickoff-for-2024-season-7075994) 
+[Original/Source Press Release](https://www.newmediawire.com/news/nfl-play-60-and-the-nation-of-lifesavers-programs-kickoff-for-2024-season-7075994)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f8bl8v/american_heart_association_kansas_city_chiefs_and/

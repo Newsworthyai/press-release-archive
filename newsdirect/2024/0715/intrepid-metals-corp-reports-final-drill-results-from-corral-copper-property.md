@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/intrepid-metals-corp-reports-final-drill-results-from-corral-copper-property-596283662 
 
-[Original/Source Press Release](https://newsdirect.com/news/intrepid-metals-corp-reports-final-drill-results-from-corral-copper-property-596283662) 
+[Original/Source Press Release](https://newsdirect.com/news/intrepid-metals-corp-reports-final-drill-results-from-corral-copper-property-596283662)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e3wop4/intrepid_metals_corp_ceo_shares_final_drill/

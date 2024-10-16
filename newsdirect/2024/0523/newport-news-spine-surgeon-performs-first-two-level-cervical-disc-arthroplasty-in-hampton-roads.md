@@ -26,6 +26,9 @@ Company Websitehttps://www.osc-ortho.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/newport-news-spine-surgeon-performs-first-two-level-cervical-disc-arthroplasty-in-hampton-roads-939927078 
 
-[Original/Source Press Release](https://newsdirect.com/news/newport-news-spine-surgeon-performs-first-two-level-cervical-disc-arthroplasty-in-hampton-roads-939927078) 
+[Original/Source Press Release](https://newsdirect.com/news/newport-news-spine-surgeon-performs-first-two-level-cervical-disc-arthroplasty-in-hampton-roads-939927078)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cyxaql/groundbreaking_twolevel_cervical_disc/

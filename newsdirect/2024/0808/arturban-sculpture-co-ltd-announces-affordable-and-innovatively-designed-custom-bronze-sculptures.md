@@ -60,6 +60,9 @@ Company Websitehttps://www.arturbanstatue.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/arturban-sculpture-co-ltd-announces-affordable-and-innovatively-designed-custom-bronze-sculptures-338261005 
 
-[Original/Source Press Release](https://newsdirect.com/news/arturban-sculpture-co-ltd-announces-affordable-and-innovatively-designed-custom-bronze-sculptures-338261005) 
+[Original/Source Press Release](https://newsdirect.com/news/arturban-sculpture-co-ltd-announces-affordable-and-innovatively-designed-custom-bronze-sculptures-338261005)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1en20q3/arturban_innovatively_designed_custom_bronze/

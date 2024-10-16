@@ -72,6 +72,9 @@ Company Websitehttps://www.kadimastem.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-world-prestigious-diabetes-research-institute-university-of-miami-announces-kadimastems-joint-project-as-breakthrough-transplantation-approach-for-the-treatment-of-type-1-diabetes-745310540 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-world-prestigious-diabetes-research-institute-university-of-miami-announces-kadimastems-joint-project-as-breakthrough-transplantation-approach-for-the-treatment-of-type-1-diabetes-745310540) 
+[Original/Source Press Release](https://newsdirect.com/news/the-world-prestigious-diabetes-research-institute-university-of-miami-announces-kadimastems-joint-project-as-breakthrough-transplantation-approach-for-the-treatment-of-type-1-diabetes-745310540)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dmp5wg/kadimastem_and_itolerance_announce_breakthrough/

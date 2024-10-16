@@ -67,6 +67,9 @@ The Skopos Approach, developed in 1984, serves an even more important function t
 
  This article has been amplified by NewsRamp in collaboration with Evertise Studios. 
 
-[Original/Source Press Release](https://evertise.net/pronto-translations-examines-how-to-achieve-precision-in-translation-the-role-of-the-quality-assurance/) 
+[Original/Source Press Release](https://evertise.net/pronto-translations-examines-how-to-achieve-precision-in-translation-the-role-of-the-quality-assurance/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1f7ev46/the_skopos_approach_navigating_translation/

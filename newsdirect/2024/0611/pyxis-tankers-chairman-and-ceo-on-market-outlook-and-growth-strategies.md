@@ -18,6 +18,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pyxis-tankers-chairman-and-ceo-on-market-outlook-and-growth-strategies-638931011 
 
-[Original/Source Press Release](https://newsdirect.com/news/pyxis-tankers-chairman-and-ceo-on-market-outlook-and-growth-strategies-638931011) 
+[Original/Source Press Release](https://newsdirect.com/news/pyxis-tankers-chairman-and-ceo-on-market-outlook-and-growth-strategies-638931011)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ddhgx0/pyxis_tankers_ceo_discusses_market_outlook_and/

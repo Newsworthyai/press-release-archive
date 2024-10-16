@@ -28,6 +28,9 @@ Tanisha Kohli
 
 tanisha@zkx.fi 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/first-social-decentralized-perpetual-exchange-raised-76m-in-total-introduces-governance-token-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/first-social-decentralized-perpetual-exchange-raised-76m-in-total-introduces-governance-token-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dyw83l/zkx_raises_76m_in_funding_launches_zkx_token_and/

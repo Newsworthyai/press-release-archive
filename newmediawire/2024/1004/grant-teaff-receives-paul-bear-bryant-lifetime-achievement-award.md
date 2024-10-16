@@ -54,6 +54,9 @@
 
  heart.org and stroke.org 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/grant-teaff-receives-paul-bear-bryant-lifetime-achievement-award-7076159) 
+[Original/Source Press Release](https://www.newmediawire.com/news/grant-teaff-receives-paul-bear-bryant-lifetime-achievement-award-7076159)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1fx6i6m/grant_teaff_to_receive_2025_paul_bear_bryant/

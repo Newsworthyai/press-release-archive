@@ -67,6 +67,9 @@ Besa Gaming Socials:
 
 Website: https://www.besagaming.comTelegram: https://t.me/GamingUmbrellaFacebook: https://bit.ly/besa-facebookTwitter: https://bit.ly/besa-twitterInstagram: https://bit.ly/besa-instagramDiscord: https://bit.ly/besa-discordTiktok: https://bit.ly/besa-tiktok 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/besa-gaming-revolutionizing-the-gaming-industry-with-blockchain) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/besa-gaming-revolutionizing-the-gaming-industry-with-blockchain)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1cinuny/besa_gaming_revolutionizing_blockchain_gaming/

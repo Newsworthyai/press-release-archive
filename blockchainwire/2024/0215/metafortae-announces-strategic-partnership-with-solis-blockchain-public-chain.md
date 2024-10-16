@@ -32,6 +32,9 @@ Email: cs@metafortae.com
 
 [https://x.com/solis_chain?t=UPUPEU4h9t0i4KCJ_y7XTg&s=09](https://x.com/solis_chain?t=UPUPEU4h9t0i4KCJ_y7XTg&s=09)admin@solischain.comWebsite: [https://solischain.com/](https://solischain.com/)Person Name: Michael Anthony VillarrealDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/metafortae-announces-strategic-partnership-with-solis-blockchain-public-chain) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/metafortae-announces-strategic-partnership-with-solis-blockchain-public-chain)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1avcaf7/metafortae_announces_strategic_collaboration_with/

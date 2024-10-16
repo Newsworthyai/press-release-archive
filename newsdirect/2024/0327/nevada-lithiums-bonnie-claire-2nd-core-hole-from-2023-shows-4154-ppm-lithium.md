@@ -20,6 +20,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nevada-lithiums-bonnie-claire-2nd-core-hole-from-2023-shows-4-154-ppm-lithium-177480639 
 
-[Original/Source Press Release](https://newsdirect.com/news/nevada-lithiums-bonnie-claire-2nd-core-hole-from-2023-shows-4-154-ppm-lithium-177480639) 
+[Original/Source Press Release](https://newsdirect.com/news/nevada-lithiums-bonnie-claire-2nd-core-hole-from-2023-shows-4-154-ppm-lithium-177480639)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1bp3iir/nevada_lithiums_bonnie_claire_project_reveals/

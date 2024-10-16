@@ -32,6 +32,9 @@ Company Websitehttp://www.vivosincusa.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/vivos-one-step-closer-to-transforming-cancer-treatment-with-fda-application-to-start-human-trials-for-pioneering-injectable-brachytherapy-device-653829222 
 
-[Original/Source Press Release](https://newsdirect.com/news/vivos-one-step-closer-to-transforming-cancer-treatment-with-fda-application-to-start-human-trials-for-pioneering-injectable-brachytherapy-device-653829222) 
+[Original/Source Press Release](https://newsdirect.com/news/vivos-one-step-closer-to-transforming-cancer-treatment-with-fda-application-to-start-human-trials-for-pioneering-injectable-brachytherapy-device-653829222)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dtlh44/vivos_seeks_fda_approval_to_start_human_trials/

@@ -22,6 +22,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/steppe-gold-enters-into-definitive-deal-to-acquire-boroo-gold-871704968 
 
-[Original/Source Press Release](https://newsdirect.com/news/steppe-gold-enters-into-definitive-deal-to-acquire-boroo-gold-871704968) 
+[Original/Source Press Release](https://newsdirect.com/news/steppe-gold-enters-into-definitive-deal-to-acquire-boroo-gold-871704968)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c4u8b3/steppe_golds_strategic_acquisition_and_expansion/

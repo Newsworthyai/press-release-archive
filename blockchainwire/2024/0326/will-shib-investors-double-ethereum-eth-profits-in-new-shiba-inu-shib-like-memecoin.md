@@ -38,6 +38,9 @@ Telegram: https://t.me/ShibaBudzP2E
 
 Twitter: [SHIBA BUDZ "$BUDZ" (@ShibaBudz) / X](https://twitter.com/ShibaBudz)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/will-shib-investors-double-ethereum-eth-profits-in-new-shiba-inu-shib-like-memecoin) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/will-shib-investors-double-ethereum-eth-profits-in-new-shiba-inu-shib-like-memecoin)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1boa8w5/shiba_budz_budz_the_next_big_investment/

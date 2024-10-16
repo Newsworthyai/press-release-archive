@@ -30,6 +30,9 @@ Investors and enthusiasts alike should closely monitor these developments, as th
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/how-bitcoin-btcs-regulation-ethereum-eths-updates-and-furrever-tokens-launch-could-transform-the-market) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/how-bitcoin-btcs-regulation-ethereum-eths-updates-and-furrever-tokens-launch-could-transform-the-market)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ez6ki9/bitcoin_ethereum_and_furrever_token_shaping_the/

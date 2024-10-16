@@ -72,6 +72,9 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fast-charging-lithium-batteries-could-send-ev-adoption-into-high-gear-487521769 
 
-[Original/Source Press Release](https://newsdirect.com/news/fast-charging-lithium-batteries-could-send-ev-adoption-into-high-gear-487521769) 
+[Original/Source Press Release](https://newsdirect.com/news/fast-charging-lithium-batteries-could-send-ev-adoption-into-high-gear-487521769)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1bu77pj/revolutionary_innovation_in_lithiumion_batteries/

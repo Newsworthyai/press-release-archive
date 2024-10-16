@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/northstar-gold-advances-exploration-with-successful-funding-and-promising-drill-targets-320198782 
 
-[Original/Source Press Release](https://newsdirect.com/news/northstar-gold-advances-exploration-with-successful-funding-and-promising-drill-targets-320198782) 
+[Original/Source Press Release](https://newsdirect.com/news/northstar-gold-advances-exploration-with-successful-funding-and-promising-drill-targets-320198782)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e6j4zo/northstar_gold_corp_ceo_brian_fowler_announces/

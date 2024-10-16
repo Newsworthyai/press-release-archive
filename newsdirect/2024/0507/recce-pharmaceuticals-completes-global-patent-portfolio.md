@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/recce-pharmaceuticals-completes-global-patent-portfolio-288735514 
 
-[Original/Source Press Release](https://newsdirect.com/news/recce-pharmaceuticals-completes-global-patent-portfolio-288735514) 
+[Original/Source Press Release](https://newsdirect.com/news/recce-pharmaceuticals-completes-global-patent-portfolio-288735514)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cmo568/recce_pharmaceuticals_secures_global_patent/

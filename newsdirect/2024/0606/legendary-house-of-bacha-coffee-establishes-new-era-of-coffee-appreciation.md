@@ -67,6 +67,9 @@ Company Websitehttps://bachacoffee.com/us/en/
 
 View source version on newsdirect.com: https://newsdirect.com/news/legendary-house-of-bacha-coffee-establishes-new-era-of-coffee-appreciation-982038188 
 
-[Original/Source Press Release](https://newsdirect.com/news/legendary-house-of-bacha-coffee-establishes-new-era-of-coffee-appreciation-982038188) 
+[Original/Source Press Release](https://newsdirect.com/news/legendary-house-of-bacha-coffee-establishes-new-era-of-coffee-appreciation-982038188)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d9he7s/bacha_coffee_a_legendary_collection_of_200/

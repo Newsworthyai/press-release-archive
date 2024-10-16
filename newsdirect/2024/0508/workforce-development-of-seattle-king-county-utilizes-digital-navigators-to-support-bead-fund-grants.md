@@ -40,6 +40,9 @@ Company Websitehttps://oregon.comcast.com/comcast-rise/
 
 View source version on newsdirect.com: https://newsdirect.com/news/workforce-development-of-seattle-king-county-utilizes-digital-navigators-to-support-bead-fund-grants-417641469 
 
-[Original/Source Press Release](https://newsdirect.com/news/workforce-development-of-seattle-king-county-utilizes-digital-navigators-to-support-bead-fund-grants-417641469) 
+[Original/Source Press Release](https://newsdirect.com/news/workforce-development-of-seattle-king-county-utilizes-digital-navigators-to-support-bead-fund-grants-417641469)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cn90a3/wdc_and_comcast_collaborate_to_bridge_the_digital/

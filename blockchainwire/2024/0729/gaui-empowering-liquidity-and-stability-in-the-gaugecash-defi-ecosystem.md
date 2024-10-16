@@ -34,6 +34,9 @@ Coinstore Social Media
 
 Twitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Telegram Announcement 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/gaui-empowering-liquidity-and-stability-in-the-gaugecash-defi-ecosystem) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/gaui-empowering-liquidity-and-stability-in-the-gaugecash-defi-ecosystem)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ef6guc/gaugecash_introduces_gaui_token_to_enhance/

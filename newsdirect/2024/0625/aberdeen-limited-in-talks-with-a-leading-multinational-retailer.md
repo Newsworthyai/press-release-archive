@@ -20,6 +20,9 @@ Company Websitehttps://aberdeen-ltd.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/aberdeen-limited-in-talks-with-a-leading-multinational-retailer-276279761 
 
-[Original/Source Press Release](https://newsdirect.com/news/aberdeen-limited-in-talks-with-a-leading-multinational-retailer-276279761) 
+[Original/Source Press Release](https://newsdirect.com/news/aberdeen-limited-in-talks-with-a-leading-multinational-retailer-276279761)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1doc0cx/aberdeen_ltd_in_negotiations_with_tesco_plc_for/

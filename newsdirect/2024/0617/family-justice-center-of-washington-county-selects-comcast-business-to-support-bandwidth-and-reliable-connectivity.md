@@ -22,6 +22,9 @@ jack_follman@comcast.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/family-justice-center-of-washington-county-selects-comcast-business-to-support-bandwidth-and-reliable-connectivity-229588611 
 
-[Original/Source Press Release](https://newsdirect.com/news/family-justice-center-of-washington-county-selects-comcast-business-to-support-bandwidth-and-reliable-connectivity-229588611) 
+[Original/Source Press Release](https://newsdirect.com/news/family-justice-center-of-washington-county-selects-comcast-business-to-support-bandwidth-and-reliable-connectivity-229588611)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1di205l/comcast_business_supports_family_justice_center/

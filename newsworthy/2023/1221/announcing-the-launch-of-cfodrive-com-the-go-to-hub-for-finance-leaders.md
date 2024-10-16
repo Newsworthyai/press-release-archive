@@ -18,6 +18,9 @@ CFODrive.com is a beacon for financial professionals worldwide, offering curated
 
 Unlock Financial Excellence. Dive into insights and more at www.CFODrive.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231221788/announcing-the-launch-of-cfodrive-com-the-go-to-hub-for-finance-leaders) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231221788/announcing-the-launch-of-cfodrive-com-the-go-to-hub-for-finance-leaders)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1avcvow/cfodrivecom_launches_as_premier_destination_for/

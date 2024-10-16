@@ -40,6 +40,9 @@ Company Websitehttps://www.hondogo.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/correcting-and-replacing-hondogo-strengthens-market-position-as-tesla-scales-back-its-ev-charging-team-188334812 
 
-[Original/Source Press Release](https://newsdirect.com/news/correcting-and-replacing-hondogo-strengthens-market-position-as-tesla-scales-back-its-ev-charging-team-188334812) 
+[Original/Source Press Release](https://newsdirect.com/news/correcting-and-replacing-hondogo-strengthens-market-position-as-tesla-scales-back-its-ev-charging-team-188334812)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cy16j7/hondogo_strengthens_market_position_as_tesla/

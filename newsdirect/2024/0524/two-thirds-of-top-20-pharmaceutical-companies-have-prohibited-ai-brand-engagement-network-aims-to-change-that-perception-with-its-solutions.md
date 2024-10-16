@@ -36,6 +36,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/two-thirds-of-top-20-pharmaceutical-companies-have-prohibited-ai-brand-engagement-network-aims-to-change-that-perception-with-its-solutions-139393567 
 
-[Original/Source Press Release](https://newsdirect.com/news/two-thirds-of-top-20-pharmaceutical-companies-have-prohibited-ai-brand-engagement-network-aims-to-change-that-perception-with-its-solutions-139393567) 
+[Original/Source Press Release](https://newsdirect.com/news/two-thirds-of-top-20-pharmaceutical-companies-have-prohibited-ai-brand-engagement-network-aims-to-change-that-perception-with-its-solutions-139393567)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1czjrw8/survey_reveals_ban_on_chatgpt_in_pharma_industry/

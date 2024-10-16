@@ -38,6 +38,9 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/unveiling-yod-a-chinese-new-year-themed-cryptocurrency-set-to-prosper-during-the-festive-season) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/unveiling-yod-a-chinese-new-year-themed-cryptocurrency-set-to-prosper-during-the-festive-season)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjwub/year_of_the_dragon_yod_cryptocurrency_meme_token/

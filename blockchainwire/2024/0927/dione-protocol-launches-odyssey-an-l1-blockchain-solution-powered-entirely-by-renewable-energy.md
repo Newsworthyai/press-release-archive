@@ -49,6 +49,9 @@ Dione Protocol’s commitment to minimizing the carbon footprint of blockchain t
 
 For more information about Odyssey and Dione Protocol’s mission, please visit https://www.dioneprotocol.com/ or contact pr@dioneprotocol.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/dione-protocol-launches-odyssey---an-l1-blockchain-solution-powered-entirely-by-renewable-energy) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/dione-protocol-launches-odyssey---an-l1-blockchain-solution-powered-entirely-by-renewable-energy)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1fqrn28/dione_protocol_launches_odyssey_blockchain_with/

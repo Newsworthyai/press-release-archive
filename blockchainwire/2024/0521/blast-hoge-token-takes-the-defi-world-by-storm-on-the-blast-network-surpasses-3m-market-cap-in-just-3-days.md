@@ -48,6 +48,9 @@ For more detailed token information and live trading updates on BLAST HOGE ($HOG
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/blast-hoge-token-takes-the-defi-world-by-storm-on-the-blast-network-surpasses-3m-market-cap-in-just-3-days-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/blast-hoge-token-takes-the-defi-world-by-storm-on-the-blast-network-surpasses-3m-market-cap-in-just-3-days-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cx866o/blast_hoge_token_launches_on_blasterswap_dex/

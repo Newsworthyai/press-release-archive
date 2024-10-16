@@ -52,6 +52,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/dispelling-misconceptions-about-options-363568321 
 
-[Original/Source Press Release](https://newsdirect.com/news/dispelling-misconceptions-about-options-363568321) 
+[Original/Source Press Release](https://newsdirect.com/news/dispelling-misconceptions-about-options-363568321)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1eaactz/dispelling_misconceptions_about_options_trading/

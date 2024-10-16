@@ -28,6 +28,9 @@ Click here to access ARrhasi’s Prompt Fabricator solution.
 
 About ArhasiArhasi is a boutique AI startup that is focused on the rapid development of AI solutions without compromising on security, governance, and compliance. Our curated strategy framework expedites use case rationalization, risk management, and operational readiness of your AI journey. Our technology platforms remove hurdles in confidently operationalizing AI. Visit us at www.arhasi.com.Copyright © 2024 Arhasi. All rights reserved. Arhasi and its logo are trademarks of Arhasi.The information presented here is intended for general purposes only and should not be considered a substitute for consulting with our consultants. This document makes reference to trademarks owned by third parties, and all these third-party marks belong to their respective owners. There is no intention, express or implied, for sponsorship, endorsement, or approval of this content by the owners of the mentioned marks. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/arhasi-launches-a-freely-accessible-prompt-fabricator-to-accelerate-prompt-engineering-tasks) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/arhasi-launches-a-freely-accessible-prompt-fabricator-to-accelerate-prompt-engineering-tasks)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bt1qol/arhasi_unveils_ai_chatbot_service_for_genai/

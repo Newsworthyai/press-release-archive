@@ -56,6 +56,9 @@ Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/halving-2024-how-bitcoin-btc-ethereum-eth-and-furrever-token-furrs-are-poised-to-transform-in-the-new-etf-driven-market-landscape) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/halving-2024-how-bitcoin-btc-ethereum-eth-and-furrever-token-furrs-are-poised-to-transform-in-the-new-etf-driven-market-landscape)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c4xbdx/bitcoin_btc_halving_a_new_chapter_in_crypto_with/

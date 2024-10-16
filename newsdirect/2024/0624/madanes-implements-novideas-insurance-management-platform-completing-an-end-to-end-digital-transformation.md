@@ -36,6 +36,9 @@ Company Websitehttps://novidea.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/madanes-implements-novideas-insurance-management-platform-completing-an-end-to-end-digital-transformation-716733395 
 
-[Original/Source Press Release](https://newsdirect.com/news/madanes-implements-novideas-insurance-management-platform-completing-an-end-to-end-digital-transformation-716733395) 
+[Original/Source Press Release](https://newsdirect.com/news/madanes-implements-novideas-insurance-management-platform-completing-an-end-to-end-digital-transformation-716733395)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dnc1fy/madanes_implements_novideas_insurance_management/

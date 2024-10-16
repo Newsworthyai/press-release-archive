@@ -16,6 +16,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-achieves-80-gross-profit-milestone-propelled-by-ai-and-strategic-shift-to-hyderabad-605780687 
 
-[Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-achieves-80-gross-profit-milestone-propelled-by-ai-and-strategic-shift-to-hyderabad-605780687) 
+[Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-achieves-80-gross-profit-milestone-propelled-by-ai-and-strategic-shift-to-hyderabad-605780687)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cin06s/nextech3dai_achieves_80_gross_profit_milestone/

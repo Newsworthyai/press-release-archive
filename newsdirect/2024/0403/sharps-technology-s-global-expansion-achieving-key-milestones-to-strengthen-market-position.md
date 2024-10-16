@@ -52,6 +52,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sharps-technologys-global-expansion-achieving-key-milestones-to-strengthen-market-position-713059693 
 
-[Original/Source Press Release](https://newsdirect.com/news/sharps-technologys-global-expansion-achieving-key-milestones-to-strengthen-market-position-713059693) 
+[Original/Source Press Release](https://newsdirect.com/news/sharps-technologys-global-expansion-achieving-key-milestones-to-strengthen-market-position-713059693)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1burop8/sharps_technology_and_roncadelle_operations/

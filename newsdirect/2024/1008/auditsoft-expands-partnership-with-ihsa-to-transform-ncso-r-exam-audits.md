@@ -34,6 +34,9 @@ peter.spence@auditsoft.co
 
 View source version on newsdirect.com: https://newsdirect.com/news/auditsoft-expands-partnership-with-ihsa-to-transform-ncso-r-exam-audits-527113075 
 
-[Original/Source Press Release](https://newsdirect.com/news/auditsoft-expands-partnership-with-ihsa-to-transform-ncso-r-exam-audits-527113075) 
+[Original/Source Press Release](https://newsdirect.com/news/auditsoft-expands-partnership-with-ihsa-to-transform-ncso-r-exam-audits-527113075)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fz1qhb/auditsoft_expands_partnership_with_ihsa_to/

@@ -52,6 +52,9 @@ info-media@acroudmedia.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/understanding-wagering-requirements-what-every-player-should-know-314559667 
 
-[Original/Source Press Release](https://newsdirect.com/news/understanding-wagering-requirements-what-every-player-should-know-314559667) 
+[Original/Source Press Release](https://newsdirect.com/news/understanding-wagering-requirements-what-every-player-should-know-314559667)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1g4318e/guide_to_understanding_online_casino_wagering/

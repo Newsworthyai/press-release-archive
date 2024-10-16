@@ -26,6 +26,9 @@ About Curbio
 
 Curbio is the leading general contractor working with real estate agents to get homes ready for sale reliably and without hassle. Curbio has modernized home improvement with an easy-to-use mobile app and a five-star project management team that streamlines project work and communication while eliminating the delays and uncertainties that have made home improvement so frustrating, especially for agents and home sellers. Our turnkey approach and fix now, pay later has made Curbio the most trusted contractor for real estate agents and brokerages nationwide, including eXp Realty, RE/MAX, HomeServices of America, Long & Foster, and many more. Curbio operates in more than 65 real estate markets across the US. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231208905/chicago-homeowners-life-changing-journey-with-curbio) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231208905/chicago-homeowners-life-changing-journey-with-curbio)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1avx2jg/curbio_helps_homeowner_sell_outdated_home_with/

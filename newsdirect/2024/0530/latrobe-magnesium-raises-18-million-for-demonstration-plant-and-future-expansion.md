@@ -12,6 +12,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/latrobe-magnesium-raises-18-million-for-demonstration-plant-and-future-expansion-956194893 
 
-[Original/Source Press Release](https://newsdirect.com/news/latrobe-magnesium-raises-18-million-for-demonstration-plant-and-future-expansion-956194893) 
+[Original/Source Press Release](https://newsdirect.com/news/latrobe-magnesium-raises-18-million-for-demonstration-plant-and-future-expansion-956194893)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d4bc43/latrobe_magnesium_raises_a18_million_for_future/

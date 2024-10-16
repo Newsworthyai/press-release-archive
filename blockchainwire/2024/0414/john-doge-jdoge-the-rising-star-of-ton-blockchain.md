@@ -13,6 +13,9 @@ Driving Forces Behind JDOGE:StonFi Partnership: JDOGE has secured a strategic pa
 
 To join the JDOGE community and participate in its growth journey:Download the Tonkeeper wallet or use the native Telegram wallet.Acquire $TON from various exchanges or bridge from other chains to TON.Swap $TON for $JDOGE on the StonFi DEX.Contract Address: EQCFWfg1ELLRkNQ1VgxCEOYKqLqxAuNJTrUXFXgkag7D2ssHFor more information, visit the official JDOGE website:[https://www.johndogeton.com/](https://www.johndogeton.com/)Join the JDOGE fam:[https://t.me/JohnDogeTON](https://t.me/JohnDogeTON)[https://linktr.ee/JohnDoge](https://linktr.ee/JohnDoge)[https://x.com/JohnDogeTON](https://x.com/JohnDogeTON)John Doge (JDOGE) is a thriving memecoin project on the TON chain, dedicated to creating a vibrant ecosystem of memes, utilities, and decentralized Telegram-based products. With a focus on community engagement and innovation, JDOGE aims to revolutionize the crypto landscape with its unique approach to decentralization and fun-filled experiences!Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/john-doge-jdoge-the-rising-star-of-ton-blockchain) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/john-doge-jdoge-the-rising-star-of-ton-blockchain)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c4kigl/jdoge_thriving_memecoin_project_poised_to/

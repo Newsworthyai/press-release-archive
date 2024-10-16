@@ -18,6 +18,9 @@ Curbio is the leading provider of home repairs and improvements for real estate 
 
 Media ContactJennifer Marchettipress@curbio.com 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409231276/curbio-appoints-robert-caputo-as-coo-to-lead-next-phase-of-growth-and-modernization-of-the-pre-listing-home-improvement-experience) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409231276/curbio-appoints-robert-caputo-as-coo-to-lead-next-phase-of-growth-and-modernization-of-the-pre-listing-home-improvement-experience)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fnppng/curbio_appoints_robert_caputo_as_chief_operating/

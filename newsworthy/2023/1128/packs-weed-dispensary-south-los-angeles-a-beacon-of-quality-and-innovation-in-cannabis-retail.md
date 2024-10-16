@@ -10,6 +10,9 @@ PACKS Weed Dispensary South Los Angeles boasts an array of carefully curated can
 
 As PACKS thrives and expands its presence, its unwavering commitment persists in upholding the pinnacle of standards within the cannabis retail sphere. This dedication contributes substantially to the burgeoning acceptance and deepening appreciation of cannabis within not just the South Los Angeles community but also resonates on a broader scale. Through its continued success, PACKS acts as a catalyst, fostering a culture of responsible and elevated cannabis consumption while playing a pivotal role in shifting perceptions and attitudes toward cannabis use in the wider societal landscape. This dedication extends beyond commerce, serving as a cornerstone in the ongoing normalization and integration of cannabis as a respected and valued facet of daily life. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231128901/packs-weed-dispensary-south-los-angeles-a-beacon-of-quality-and-innovation-in-cannabis-retail) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231128901/packs-weed-dispensary-south-los-angeles-a-beacon-of-quality-and-innovation-in-cannabis-retail)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1avcso4/packs_weed_dispensary_leading_the_evolution_of/

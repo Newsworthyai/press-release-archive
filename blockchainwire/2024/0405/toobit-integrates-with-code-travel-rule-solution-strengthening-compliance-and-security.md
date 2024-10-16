@@ -14,6 +14,9 @@ About Toobit
 
 Toobit is a premier cryptocurrency exchange platform, leading the industry with innovative features, user-friendly experiences, and an unwavering commitment to safety and compliance. Catering to millions of users worldwide, Toobit offers a wide array of trading options, setting new standards in the cryptocurrency exchange domain. Our mission is to empower traders and investors by providing access to the global digital asset economy in a secure and compliant environment. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/toobit-integrates-with-code-travel-rule-solution-strengthening-compliance-and-security) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/toobit-integrates-with-code-travel-rule-solution-strengthening-compliance-and-security)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bwtc7b/toobit_announces_integration_with_code_travel/

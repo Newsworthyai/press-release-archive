@@ -28,6 +28,9 @@ Editor@BestGrowthStocks.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bestgrowthstocks-com-issues-comprehensive-evaluation-of-xti-aerospace-inc-275762893 
 
-[Original/Source Press Release](https://newsdirect.com/news/bestgrowthstocks-com-issues-comprehensive-evaluation-of-xti-aerospace-inc-275762893) 
+[Original/Source Press Release](https://newsdirect.com/news/bestgrowthstocks-com-issues-comprehensive-evaluation-of-xti-aerospace-inc-275762893)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1burom0/best_growth_stocks_issues_comprehensive/

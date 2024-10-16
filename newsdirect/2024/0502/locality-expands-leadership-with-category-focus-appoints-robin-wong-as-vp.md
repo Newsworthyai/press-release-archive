@@ -22,6 +22,9 @@ mackenzie@kitehillpr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/locality-expands-leadership-with-category-focus-appoints-robin-wong-as-vp-367325016 
 
-[Original/Source Press Release](https://newsdirect.com/news/locality-expands-leadership-with-category-focus-appoints-robin-wong-as-vp-367325016) 
+[Original/Source Press Release](https://newsdirect.com/news/locality-expands-leadership-with-category-focus-appoints-robin-wong-as-vp-367325016)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cijtwn/locality_appoints_robin_wong_as_vice_president/

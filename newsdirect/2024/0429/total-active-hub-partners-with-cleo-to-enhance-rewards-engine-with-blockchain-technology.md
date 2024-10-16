@@ -37,6 +37,9 @@ Contact DetailsBryan Feinberg
 
 View source version on newsdirect.com: https://newsdirect.com/news/total-active-hub-partners-with-cleo-to-enhance-rewards-engine-with-blockchain-technology-580616136 
 
-[Original/Source Press Release](https://newsdirect.com/news/total-active-hub-partners-with-cleo-to-enhance-rewards-engine-with-blockchain-technology-580616136) 
+[Original/Source Press Release](https://newsdirect.com/news/total-active-hub-partners-with-cleo-to-enhance-rewards-engine-with-blockchain-technology-580616136)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cfpy6c/total_active_hub_partners_with_cleo_to_enhance/

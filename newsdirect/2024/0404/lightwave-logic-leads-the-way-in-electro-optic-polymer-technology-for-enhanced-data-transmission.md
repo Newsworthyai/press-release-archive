@@ -22,6 +22,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lightwave-logic-leads-the-way-in-electro-optic-polymer-technology-for-enhanced-data-transmission-596936007 
 
-[Original/Source Press Release](https://newsdirect.com/news/lightwave-logic-leads-the-way-in-electro-optic-polymer-technology-for-enhanced-data-transmission-596936007) 
+[Original/Source Press Release](https://newsdirect.com/news/lightwave-logic-leads-the-way-in-electro-optic-polymer-technology-for-enhanced-data-transmission-596936007)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bvsnca/lightwave_logic_leading_the_way_in_electrooptic/

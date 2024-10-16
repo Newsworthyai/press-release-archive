@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ioneer-moves-closer-to-construction-and-production-at-rhyolite-ridge-367174158 
 
-[Original/Source Press Release](https://newsdirect.com/news/ioneer-moves-closer-to-construction-and-production-at-rhyolite-ridge-367174158) 
+[Original/Source Press Release](https://newsdirect.com/news/ioneer-moves-closer-to-construction-and-production-at-rhyolite-ridge-367174158)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c5olxs/ioneer_reaches_crucial_phase_in_advancing/

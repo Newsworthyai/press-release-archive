@@ -14,6 +14,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-technologies-secures-contract-for-wam-v-to-offshore-contractor-in-sub-saharan-africa-356037888 
 
-[Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-secures-contract-for-wam-v-to-offshore-contractor-in-sub-saharan-africa-356037888) 
+[Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-secures-contract-for-wam-v-to-offshore-contractor-in-sub-saharan-africa-356037888)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d8w58a/ocean_power_technologies_secures_contract_for/

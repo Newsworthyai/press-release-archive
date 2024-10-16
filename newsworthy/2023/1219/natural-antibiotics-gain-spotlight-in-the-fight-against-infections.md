@@ -22,6 +22,9 @@ Hatch continues, "We believe in the power of nature to heal. Our products suppor
 
 Jampha’s three antibiotic and immune-boosting Tibetan Infusions are Turquoise Dragon, Blue Lotus Peacock, and Ly Fu Mo. With companies like Jampha Tibetan Wellness offering high-quality, plant-based alternatives, there is hope for a future where infections can be effectively managed without compromising our health or the environment. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231219912/natural-antibiotics-gain-spotlight-in-the-fight-against-infections) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231219912/natural-antibiotics-gain-spotlight-in-the-fight-against-infections)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcuob/jampha_tibetan_wellness_ceo_discusses_rising/

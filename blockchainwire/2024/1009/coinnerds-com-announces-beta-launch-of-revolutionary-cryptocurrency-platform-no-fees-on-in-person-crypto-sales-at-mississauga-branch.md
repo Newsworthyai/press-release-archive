@@ -47,6 +47,9 @@ By focusing on security, transparency, and user experience, CoinNerds.com is s
 
 [Explore the platform now!](https://www.coinnerds.com/) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/coinnerdscom-announces-beta-launch-of-revolutionary-cryptocurrency-platform-no-fees-on-in-person-crypto-sales-at-mississauga-branch) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/coinnerdscom-announces-beta-launch-of-revolutionary-cryptocurrency-platform-no-fees-on-in-person-crypto-sales-at-mississauga-branch)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fzsdhh/coinnerdscom_launches_nofee_inperson_crypto_sales/

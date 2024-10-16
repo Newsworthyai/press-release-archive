@@ -20,6 +20,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/arecor-therapeutics-reports-strong-2023-results-and-outlines-expanding-product-pipeline-886515454 
 
-[Original/Source Press Release](https://newsdirect.com/news/arecor-therapeutics-reports-strong-2023-results-and-outlines-expanding-product-pipeline-886515454) 
+[Original/Source Press Release](https://newsdirect.com/news/arecor-therapeutics-reports-strong-2023-results-and-outlines-expanding-product-pipeline-886515454)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ctzhvn/arecor_therapeutics_reports_strong_2023_results/

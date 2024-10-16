@@ -20,6 +20,9 @@ Clene (NASDAQ: CLNN), a late clinical-stage biopharmaceutical company focused on
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/clene-nasdaq-clnn-closes-on-direct-offering-concurrent-private-placements-totaling-7-3m/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/clene-nasdaq-clnn-closes-on-direct-offering-concurrent-private-placements-totaling-7-3m/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1fv8qn3/clene_nasdaq_clnn_closes_offering_and_placements/

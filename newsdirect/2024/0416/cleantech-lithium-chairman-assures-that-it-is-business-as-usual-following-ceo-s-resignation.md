@@ -20,6 +20,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cleantech-lithium-chairman-assures-that-it-is-business-as-usual-following-ceos-resignation-781367840 
 
-[Original/Source Press Release](https://newsdirect.com/news/cleantech-lithium-chairman-assures-that-it-is-business-as-usual-following-ceos-resignation-781367840) 
+[Original/Source Press Release](https://newsdirect.com/news/cleantech-lithium-chairman-assures-that-it-is-business-as-usual-following-ceos-resignation-781367840)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c5do9x/cleantech_lithium_chairman_assures_business_as/

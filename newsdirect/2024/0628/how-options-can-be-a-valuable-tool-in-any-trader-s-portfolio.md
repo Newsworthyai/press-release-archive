@@ -38,6 +38,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-options-can-be-a-valuable-tool-in-any-traders-portfolio-621728833 
 
-[Original/Source Press Release](https://newsdirect.com/news/how-options-can-be-a-valuable-tool-in-any-traders-portfolio-621728833) 
+[Original/Source Press Release](https://newsdirect.com/news/how-options-can-be-a-valuable-tool-in-any-traders-portfolio-621728833)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dqivm7/options_valuable_tools_for_every_trader/

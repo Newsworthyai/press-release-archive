@@ -50,6 +50,9 @@ max@edgeclear.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/personalized-support-and-cutting-edge-tools-what-sets-edgeclear-apart-in-futures-trading-191973632 
 
-[Original/Source Press Release](https://newsdirect.com/news/personalized-support-and-cutting-edge-tools-what-sets-edgeclear-apart-in-futures-trading-191973632) 
+[Original/Source Press Release](https://newsdirect.com/news/personalized-support-and-cutting-edge-tools-what-sets-edgeclear-apart-in-futures-trading-191973632)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1f9gu9h/edgeclear_personalized_support_and_cuttingedge/

@@ -30,6 +30,9 @@ About OpenFluxOpenFlux is an exciting launch for NFT artists and collectors seek
 
 Stay up to date with the project’s development and news on community events here: Website | Twitter | Discord | GitHub | 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/openflux-is-live-the-dypius-incubated-nft-marketplace-welcomes-artists-and-wod-players-worldwide) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/openflux-is-live-the-dypius-incubated-nft-marketplace-welcomes-artists-and-wod-players-worldwide)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dhvlsi/openflux_launches_as_first_nft_marketplace_on/

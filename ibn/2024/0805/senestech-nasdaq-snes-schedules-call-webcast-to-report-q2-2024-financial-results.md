@@ -24,6 +24,9 @@ SenesTech (NASDAQ: SNES), the leader in fertility control to manage animal-pest 
 
  InvestorWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestech-nasdaq-snes-schedules-call-webcast-to-report-q2-2024-financial-results/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestech-nasdaq-snes-schedules-call-webcast-to-report-q2-2024-financial-results/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1f2fxr6/senestech_announces_conference_call_to_review_q2/

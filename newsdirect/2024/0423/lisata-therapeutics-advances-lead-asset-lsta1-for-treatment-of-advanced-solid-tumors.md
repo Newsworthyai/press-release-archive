@@ -24,6 +24,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lisata-therapeutics-advances-lead-asset-lsta1-for-treatment-of-advanced-solid-tumors-574444570 
 
-[Original/Source Press Release](https://newsdirect.com/news/lisata-therapeutics-advances-lead-asset-lsta1-for-treatment-of-advanced-solid-tumors-574444570) 
+[Original/Source Press Release](https://newsdirect.com/news/lisata-therapeutics-advances-lead-asset-lsta1-for-treatment-of-advanced-solid-tumors-574444570)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cb6sss/lisata_therapeutics_advances_lead_asset_lsta1_for/

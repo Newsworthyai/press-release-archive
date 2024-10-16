@@ -32,6 +32,9 @@ alex@prnewsgroup.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-online-casino-site-instant-casino-partners-with-italian-serie-a-team-juventus-572339002 
 
-[Original/Source Press Release](https://newsdirect.com/news/new-online-casino-site-instant-casino-partners-with-italian-serie-a-team-juventus-572339002) 
+[Original/Source Press Release](https://newsdirect.com/news/new-online-casino-site-instant-casino-partners-with-italian-serie-a-team-juventus-572339002)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1czjyt6/juventus_partners_with_instant_casino_for/

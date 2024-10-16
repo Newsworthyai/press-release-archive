@@ -42,6 +42,9 @@ To join the Furrever Token community and experience the cuteness firsthand, visi
 
 Media Contact:Robert Smith[https://furrevertoken.com/](https://www.globenewswire.com/Tracker?data=k1O2786LJsO5eAZ7Zgs59axTwx69rMO4tZU5fb9ztKudAeaE96xMokl6WCnRoaiul-Vh3F49JBuO7aQ96TDPL-Jf0duDAt6m5P98U7L-5dA=)[support@furrevertoken.com](mailto:support@furrevertoken.com)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/furrever-token-furrs-presale-momentum-sets-the-stage-for-ethereum-eth-and-shiba-inu-shibs-promising-2024-returns) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/furrever-token-furrs-presale-momentum-sets-the-stage-for-ethereum-eth-and-shiba-inu-shibs-promising-2024-returns)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c0uu79/ethereum_and_shiba_inu_experience_volatility/

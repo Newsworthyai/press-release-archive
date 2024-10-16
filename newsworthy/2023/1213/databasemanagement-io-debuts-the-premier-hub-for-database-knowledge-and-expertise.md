@@ -18,6 +18,9 @@ DatabaseManagement.io seeks to empower professionals with cutting-edge resources
 
 Unlock the potential of modern database management at www.DatabaseManagement.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231213805/databasemanagement-io-debuts-the-premier-hub-for-database-knowledge-and-expertise) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231213805/databasemanagement-io-debuts-the-premier-hub-for-database-knowledge-and-expertise)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx3nl/databasemanagementio_launches_as_the/

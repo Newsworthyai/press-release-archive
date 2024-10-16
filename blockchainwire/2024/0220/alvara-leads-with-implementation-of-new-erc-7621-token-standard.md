@@ -25,6 +25,9 @@ Limitations* High gas fees: ERC-7621 token transactions like minting, contributi
 
 ConclusionThe ERC-7621 introduces a range of functionalities designed to enhance investment flexibility, simplify portfolio management, improve liquidity, and ensure transparency. By addressing the inherent challenges of centralized (or decentralized but “gate-kept”) solutions, ERC-7621 paves the way for a more efficient, adaptable, and user-friendly approach to tokenized investment fund creation, management and participation. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/alvara-leads-with-implementation-of-new-erc-7621-token-standard) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/alvara-leads-with-implementation-of-new-erc-7621-token-standard)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avwyef/erc7621_revolutionizing_fund_management_with_new/

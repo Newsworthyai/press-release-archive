@@ -33,6 +33,9 @@ info-media@acroudmedia.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/william-hill-vegas-partners-with-leading-game-developers-to-expand-its-casino-offering-539635420 
 
-[Original/Source Press Release](https://newsdirect.com/news/william-hill-vegas-partners-with-leading-game-developers-to-expand-its-casino-offering-539635420) 
+[Original/Source Press Release](https://newsdirect.com/news/william-hill-vegas-partners-with-leading-game-developers-to-expand-its-casino-offering-539635420)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1g17akz/william_hill_vegas_partners_with_light_wonder_inc/

@@ -36,6 +36,9 @@ Overall, Furrever Token's unique concept, transparent tokenomics, commitment to 
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/cryptocurrency-market-trends-bitcoin-btc-ethereum-eth-and-furrever-token-furr-present-compelling-investment-options) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/cryptocurrency-market-trends-bitcoin-btc-ethereum-eth-and-furrever-token-furr-present-compelling-investment-options)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bvspdk/cryptocurrency_rollercoaster_furrever_token/

@@ -24,6 +24,9 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-staque-join-forces-to-advance-annealing-quantum-computing-adoption-in-middle-east/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-staque-join-forces-to-advance-annealing-quantum-computing-adoption-in-middle-east/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1ftpqh5/dwave_and_staque_partner_to_advance_quantum/

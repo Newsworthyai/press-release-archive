@@ -30,6 +30,9 @@ Company Websitehttps://cwgmarkets.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/cwg-secures-best-copy-trading-platform-award-at-brokersview-expo-2024-in-dubai-980697552 
 
-[Original/Source Press Release](https://newsdirect.com/news/cwg-secures-best-copy-trading-platform-award-at-brokersview-expo-2024-in-dubai-980697552) 
+[Original/Source Press Release](https://newsdirect.com/news/cwg-secures-best-copy-trading-platform-award-at-brokersview-expo-2024-in-dubai-980697552)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1csmc46/cwg_markets_wins_best_copy_trading_platform_at/

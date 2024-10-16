@@ -12,6 +12,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/accelerate-resources-begins-maiden-drilling-at-prinsep-lithium-project-657418405 
 
-[Original/Source Press Release](https://newsdirect.com/news/accelerate-resources-begins-maiden-drilling-at-prinsep-lithium-project-657418405) 
+[Original/Source Press Release](https://newsdirect.com/news/accelerate-resources-begins-maiden-drilling-at-prinsep-lithium-project-657418405)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cxkbsx/accelerate_resources_commences_maiden_drilling_at/

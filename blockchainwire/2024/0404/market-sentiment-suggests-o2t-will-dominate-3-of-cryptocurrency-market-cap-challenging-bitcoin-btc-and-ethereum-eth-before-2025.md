@@ -40,6 +40,9 @@ https://twitter.com/Option2Trade (O2T)
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/market-sentiment-suggests-o2t-will-dominate-3-of-cryptocurrency-market-cap-challenging-bitcoin-btc-and-ethereum-eth-before-2025) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/market-sentiment-suggests-o2t-will-dominate-3-of-cryptocurrency-market-cap-challenging-bitcoin-btc-and-ethereum-eth-before-2025)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bvspq8/option2trade_o2t_poised_to_command_3_of/

@@ -18,6 +18,9 @@ Committed to illuminating the media realm, MediaRelations.io emerges as a pivota
 
 Dive into the future of media expertise at www.MediaRelations.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231124847/introducing-mediarelations-io-bridging-media-and-experts) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231124847/introducing-mediarelations-io-bridging-media-and-experts)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1avwzzo/mediarelationsio_launches_as_a_dynamic_new/

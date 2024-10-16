@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nano-one-materials-corp-forms-alliance-with-worley-chemetics-for-cathode-active-material-production-523572616 
 
-[Original/Source Press Release](https://newsdirect.com/news/nano-one-materials-corp-forms-alliance-with-worley-chemetics-for-cathode-active-material-production-523572616) 
+[Original/Source Press Release](https://newsdirect.com/news/nano-one-materials-corp-forms-alliance-with-worley-chemetics-for-cathode-active-material-production-523572616)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ciju2v/nano_one_materials_corp_forms_alliance_with/

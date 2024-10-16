@@ -24,6 +24,9 @@ Canada
 
 Visit Our Website 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/hsr/news_release/1549) 
+[Original/Source Press Release](https://newsroom.prkarma.com/hsr/news_release/1549)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1f6i6a6/happy_stans_recycling_services_ltd_hsr_launches/

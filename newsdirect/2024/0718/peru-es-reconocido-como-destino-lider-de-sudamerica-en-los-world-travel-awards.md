@@ -24,6 +24,9 @@ Company Websitehttps://www.promperu.gob.pe
 
 View source version on newsdirect.com: https://newsdirect.com/news/peru-es-reconocido-como-destino-lider-de-sudamerica-en-los-world-travel-awards-716532429 
 
-[Original/Source Press Release](https://newsdirect.com/news/peru-es-reconocido-como-destino-lider-de-sudamerica-en-los-world-travel-awards-716532429) 
+[Original/Source Press Release](https://newsdirect.com/news/peru-es-reconocido-como-destino-lider-de-sudamerica-en-los-world-travel-awards-716532429)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1e6jair/perú_named_top_destination_in_world_travel_awards/

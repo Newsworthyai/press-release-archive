@@ -79,6 +79,9 @@ Company Websitehttps://www.tradeweb.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/analyzing-execution-quality-in-portfolio-trading-587273413 
 
-[Original/Source Press Release](https://newsdirect.com/news/analyzing-execution-quality-in-portfolio-trading-587273413) 
+[Original/Source Press Release](https://newsdirect.com/news/analyzing-execution-quality-in-portfolio-trading-587273413)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cify1j/analyzing_execution_quality_in_portfolio_trading/

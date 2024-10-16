@@ -63,6 +63,9 @@ uShark is paving the way for a new era of startup investment by combining the wo
 
 X - [https://x.com/usharktokens](https://proficientpr.com/wp-json/wp-mail-smtp/v1/e/ZGF0YSU1QmVtYWlsX2xvZ19pZCU1RD0xMTk2JmRhdGElNUJldmVudF90eXBlJTVEPWNsaWNrLWxpbmsmZGF0YSU1Qm9iamVjdF9pZCU1RD0yMjAxJmRhdGElNUJ1cmwlNUQ9aHR0cHMlMjUzQSUyNTJGJTI1MkZ4LmNvbSUyNTJGdXNoYXJrdG9rZW5zJmhhc2g9MWJhOTNiODRmOTI1ZGZiMTk1YWVmNTY5YTYxZWY0NGQ4MmM5MmY2MDg3ZjgyNGRmYTU1Y2Y3Y2U0YjcxMjUzMw==)Linkedin - [https://www.linkedin.com/company/usharkorg](https://proficientpr.com/wp-json/wp-mail-smtp/v1/e/ZGF0YSU1QmVtYWlsX2xvZ19pZCU1RD0xMTk2JmRhdGElNUJldmVudF90eXBlJTVEPWNsaWNrLWxpbmsmZGF0YSU1Qm9iamVjdF9pZCU1RD0yMjAyJmRhdGElNUJ1cmwlNUQ9aHR0cHMlMjUzQSUyNTJGJTI1MkZ3d3cubGlua2VkaW4uY29tJTI1MkZjb21wYW55JTI1MkZ1c2hhcmtvcmcmaGFzaD1kMmNkMDAyNzc3NWMxMmRiNDFkODQzNWNmODQxNmExOGUxYThiNDA2ZTRkNTA1ZWZiMDIwYjJhODhiYWM4OTFl)Instagram - [https://www.instagram.com/usharkorg](https://proficientpr.com/wp-json/wp-mail-smtp/v1/e/ZGF0YSU1QmVtYWlsX2xvZ19pZCU1RD0xMTk2JmRhdGElNUJldmVudF90eXBlJTVEPWNsaWNrLWxpbmsmZGF0YSU1Qm9iamVjdF9pZCU1RD0yMjAzJmRhdGElNUJ1cmwlNUQ9aHR0cHMlMjUzQSUyNTJGJTI1MkZ3d3cuaW5zdGFncmFtLmNvbSUyNTJGdXNoYXJrb3JnJmhhc2g9NzUxMTVlYzM3OWM5N2RkN2NlODQwNzM5YTcwZTI5ZjY0ZWQzZmRlZDIzNDA1NTdjMTllYzJjMTMxNTU1NTZlNA==) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/ushark-bridging-startups-and-crypto-with-real-world-asset-opportunities) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/ushark-bridging-startups-and-crypto-with-real-world-asset-opportunities)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/StartupBusinessNews/comments/1dg05wt/revolutionizing_startup_investment_the_rise_of/

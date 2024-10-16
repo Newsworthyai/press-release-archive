@@ -36,6 +36,9 @@ Website: https://loaf.cat/Telegram: https://t.me/loafcat_solX (Twitter): http
 
 Disclaimer: The Loaf token is not endorsed by and has no affiliation with any specific blockchain entities or companies. The information provided in this article is for informational purposes only and is not intended as a solicitation for investment. It should not be considered investment, financial, or trading advice. Investments in cryptocurrency are subject to market risks. Readers are strongly advised to conduct their own due diligence, including consultation with a professional financial advisor, before making any investment decisions or trading in cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/loaf-cat-loaf-the-best-investment-of-2024-in-solanas-meme-coin-ecosystem) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/loaf-cat-loaf-the-best-investment-of-2024-in-solanas-meme-coin-ecosystem)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjuxf/loaf_cat_the_next_big_thing_in_cryptocurrency_and/

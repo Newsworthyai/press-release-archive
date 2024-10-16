@@ -20,6 +20,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-uk-small-cap-re-rating-opportunity-vt-downing-small-and-mid-cap-income-fund-764593393 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-uk-small-cap-re-rating-opportunity-vt-downing-small-and-mid-cap-income-fund-764593393) 
+[Original/Source Press Release](https://newsdirect.com/news/the-uk-small-cap-re-rating-opportunity-vt-downing-small-and-mid-cap-income-fund-764593393)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cc0nqp/vt_downing_small_midcap_income_fund_manager/

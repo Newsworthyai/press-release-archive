@@ -32,6 +32,9 @@ Company Websitehttps://www.nafa.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/nafas-second-annual-fleet-safety-symposium-uniting-fleet-professionals-for-safer-roads-466961927 
 
-[Original/Source Press Release](https://newsdirect.com/news/nafas-second-annual-fleet-safety-symposium-uniting-fleet-professionals-for-safer-roads-466961927) 
+[Original/Source Press Release](https://newsdirect.com/news/nafas-second-annual-fleet-safety-symposium-uniting-fleet-professionals-for-safer-roads-466961927)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d4bthr/nafa_hosts_second_annual_fleet_safety_symposium/

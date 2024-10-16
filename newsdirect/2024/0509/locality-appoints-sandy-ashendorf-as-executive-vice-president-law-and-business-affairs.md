@@ -20,6 +20,9 @@ mackenzie@kitehillpr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/locality-appoints-sandy-ashendorf-as-executive-vice-president-law-and-business-affairs-380341273 
 
-[Original/Source Press Release](https://newsdirect.com/news/locality-appoints-sandy-ashendorf-as-executive-vice-president-law-and-business-affairs-380341273) 
+[Original/Source Press Release](https://newsdirect.com/news/locality-appoints-sandy-ashendorf-as-executive-vice-president-law-and-business-affairs-380341273)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cnzxlo/locality_appoints_sandy_ashendorf_as_executive/

@@ -30,6 +30,9 @@ Company Websitehttps://saison-technology-intl.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/saison-technology-invests-in-dnx-ventures-fund-iv-u-s-fund-strengthening-technological-capabilities-and-human-resource-development-through-ai-saas-and-other-startup-collaborations-135707340 
 
-[Original/Source Press Release](https://newsdirect.com/news/saison-technology-invests-in-dnx-ventures-fund-iv-u-s-fund-strengthening-technological-capabilities-and-human-resource-development-through-ai-saas-and-other-startup-collaborations-135707340) 
+[Original/Source Press Release](https://newsdirect.com/news/saison-technology-invests-in-dnx-ventures-fund-iv-u-s-fund-strengthening-technological-capabilities-and-human-resource-development-through-ai-saas-and-other-startup-collaborations-135707340)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/StartupBusinessNews/comments/1dnerc4/saison_technology_invests_10m_in_dnx_ventures/

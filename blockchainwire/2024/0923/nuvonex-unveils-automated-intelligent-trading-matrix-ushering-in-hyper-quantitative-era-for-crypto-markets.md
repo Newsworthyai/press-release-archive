@@ -18,6 +18,9 @@ Choosing Nuvonex means staying at the forefront of global cryptocurrency trading
 
 Website:https://nuvonex.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/nuvonex-unveils-automated-intelligent-trading-matrix-ushering-in-hyper-quantitative-era-for-crypto-markets) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/nuvonex-unveils-automated-intelligent-trading-matrix-ushering-in-hyper-quantitative-era-for-crypto-markets)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fnhu0d/nuvonex_launches_revolutionary_intelligent/

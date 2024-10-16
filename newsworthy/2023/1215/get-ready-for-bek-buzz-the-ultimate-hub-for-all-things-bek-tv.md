@@ -32,6 +32,9 @@ BEK Buzz is here to revolutionize your digital experience. It’s where engageme
 
 Visit us now at BEK Buzz and get ready to be dazzled. This is just the beginning – the best is yet to come! 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231215911/get-ready-for-bek-buzz-the-ultimate-hub-for-all-things-bek-tv) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231215911/get-ready-for-bek-buzz-the-ultimate-hub-for-all-things-bek-tv)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1avxpgh/bek_tv_launches_revolutionary_new_website_bek/

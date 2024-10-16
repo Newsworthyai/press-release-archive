@@ -27,6 +27,9 @@ In conclusion, Ethereum's price predictions for 2024, as compiled by MEXC Resear
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/ethereum-price-predictions-for-2024-comprehensive-insights-with-mexc-research) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/ethereum-price-predictions-for-2024-comprehensive-insights-with-mexc-research)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avdqgy/ethereum_price_surge_after_bitcoin_etf_approval/

@@ -54,6 +54,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-tesla-of-the-skies-how-one-company-could-be-about-to-change-the-aviation-industry-forever-720052706 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-tesla-of-the-skies-how-one-company-could-be-about-to-change-the-aviation-industry-forever-720052706) 
+[Original/Source Press Release](https://newsdirect.com/news/the-tesla-of-the-skies-how-one-company-could-be-about-to-change-the-aviation-industry-forever-720052706)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e0o6l0/teslas_market_dominance_and_new_horizon_aircrafts/

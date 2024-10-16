@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/beyond-big-tech-how-brand-engagement-network-nasdaq-bnai-is-shaping-the-future-of-ai-413596581 
 
-[Original/Source Press Release](https://newsdirect.com/news/beyond-big-tech-how-brand-engagement-network-nasdaq-bnai-is-shaping-the-future-of-ai-413596581) 
+[Original/Source Press Release](https://newsdirect.com/news/beyond-big-tech-how-brand-engagement-network-nasdaq-bnai-is-shaping-the-future-of-ai-413596581)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bo7yhb/brand_engagement_network_nasdaq_bnai_leading_the/

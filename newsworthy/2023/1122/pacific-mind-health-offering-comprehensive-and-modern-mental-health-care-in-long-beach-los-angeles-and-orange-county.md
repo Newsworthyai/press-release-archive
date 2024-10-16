@@ -12,6 +12,9 @@ The team at Pacific Mind Health comprises highly qualified providers, including 
 
 Pacific Mind Health places great importance on personalized treatment plans designed to meet the unique needs of each patient. In addition to genetic testing and ADHD testing and treatment services, they also provide TMS informational sessions and offer a waitlist for Ketamine/Spravato Therapy. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231122889/pacific-mind-health-offering-comprehensive-and-modern-mental-health-care-in-long-beach-los-angeles-and-orange-county) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231122889/pacific-mind-health-offering-comprehensive-and-modern-mental-health-care-in-long-beach-los-angeles-and-orange-county)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcs8r/pacific_mind_health_offers_comprehensive_mental/

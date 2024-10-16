@@ -20,6 +20,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/one-media-ip-ceo-discusses-robust-2023-performance-and-innovations-in-music-rights-management-722712184 
 
-[Original/Source Press Release](https://newsdirect.com/news/one-media-ip-ceo-discusses-robust-2023-performance-and-innovations-in-music-rights-management-722712184) 
+[Original/Source Press Release](https://newsdirect.com/news/one-media-ip-ceo-discusses-robust-2023-performance-and-innovations-in-music-rights-management-722712184)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1chmwmp/one_media_ip_ceo_discusses_robust_2023/

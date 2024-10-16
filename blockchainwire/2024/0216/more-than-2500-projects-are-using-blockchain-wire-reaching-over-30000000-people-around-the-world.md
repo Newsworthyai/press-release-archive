@@ -30,6 +30,9 @@ Alpha Transform Holdings (ATH) is a digital asset organization dedicated to ushe
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/more-than-2500-projects-are-using-blockchain-wire-reaching-over-30000000-people-around-the-world) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/more-than-2500-projects-are-using-blockchain-wire-reaching-over-30000000-people-around-the-world)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avca2q/blockchain_wire_announces_over_2500_blockchain/

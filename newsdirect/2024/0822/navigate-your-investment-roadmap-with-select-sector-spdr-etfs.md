@@ -78,6 +78,9 @@ Company Websitehttps://www.sectorspdrs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/navigate-your-investment-roadmap-with-select-sector-spdr-etfs-326046283 
 
-[Original/Source Press Release](https://newsdirect.com/news/navigate-your-investment-roadmap-with-select-sector-spdr-etfs-326046283) 
+[Original/Source Press Release](https://newsdirect.com/news/navigate-your-investment-roadmap-with-select-sector-spdr-etfs-326046283)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1eyetbw/harnessing_the_power_of_sectorspecific/

@@ -24,6 +24,9 @@ SuperCom (NASDAQ: SPCB), a global provider of secured solutions for the e-govern
 
  TechMediaWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/supercom-nasdaq-spcb-tech-puresecurity-suite-offers-tools-to-address-domestic-violence-concerns/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/supercom-nasdaq-spcb-tech-puresecurity-suite-offers-tools-to-address-domestic-violence-concerns/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2ff42/supercoms_puresecurity_suite_utilized_to_combat/

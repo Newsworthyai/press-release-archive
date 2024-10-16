@@ -23,6 +23,9 @@ The book will be available in bookstores and online starting August 8, 2024. For
 
 About Mountain Grabbers Press:Mountain Grabbers Press is a leading publisher of business and living with purpose books, dedicated to providing readers with valuable insights and strategies for success. Our mission is to empower individuals and organizations through transformative ideas and practical guidance. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202408061226/mountain-grabbers-press-announces-the-release-of-the-second-edition-of-the-zig-zag-principle-by-rich-christiansen-new-edition-offers-enhanced) 
+[Original/Source Press Release](https://newsworthy.ai/news/202408061226/mountain-grabbers-press-announces-the-release-of-the-second-edition-of-the-zig-zag-principle-by-rich-christiansen-new-edition-offers-enhanced)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BookNews/comments/1elisp6/new_release_the_zig_zag_principle_second_edition/

@@ -28,6 +28,9 @@ Company Websitehttps://corex.solutions/
 
 View source version on newsdirect.com: https://newsdirect.com/news/core-x-solutions-headed-by-hani-saleh-introduces-innovative-gift-card-and-voucher-service-813059821 
 
-[Original/Source Press Release](https://newsdirect.com/news/core-x-solutions-headed-by-hani-saleh-introduces-innovative-gift-card-and-voucher-service-813059821) 
+[Original/Source Press Release](https://newsdirect.com/news/core-x-solutions-headed-by-hani-saleh-introduces-innovative-gift-card-and-voucher-service-813059821)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1f1ljfx/core_x_solutions_launches_innovative_gift_card/

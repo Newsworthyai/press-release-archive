@@ -46,6 +46,9 @@ Company Websitehttps://ignitefunding.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/why-trust-deed-investments-are-worth-a-deeper-look-707887574 
 
-[Original/Source Press Release](https://newsdirect.com/news/why-trust-deed-investments-are-worth-a-deeper-look-707887574) 
+[Original/Source Press Release](https://newsdirect.com/news/why-trust-deed-investments-are-worth-a-deeper-look-707887574)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1f9gt4h/demystifying_trust_deeds_ignite_funding_offers/

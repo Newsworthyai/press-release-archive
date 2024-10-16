@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/from-providing-cutting-edge-ai-traffic-management-tech-to-helping-manage-it-iteris-could-be-key-ally-for-government-agencies-revolutionizing-americas-roadways-682706837 
 
-[Original/Source Press Release](https://newsdirect.com/news/from-providing-cutting-edge-ai-traffic-management-tech-to-helping-manage-it-iteris-could-be-key-ally-for-government-agencies-revolutionizing-americas-roadways-682706837) 
+[Original/Source Press Release](https://newsdirect.com/news/from-providing-cutting-edge-ai-traffic-management-tech-to-helping-manage-it-iteris-could-be-key-ally-for-government-agencies-revolutionizing-americas-roadways-682706837)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c72fei/iteris_inc_revolutionizes_urban_mobility_with/

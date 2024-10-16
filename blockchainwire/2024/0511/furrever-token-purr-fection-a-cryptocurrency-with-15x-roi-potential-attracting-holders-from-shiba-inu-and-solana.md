@@ -36,6 +36,9 @@ Join Furrever Token Presale Now: Furrever Token Official Website  Join $20,000 F
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/furrever-token-purr-fection--a-cryptocurrency-with-15x-roi-potential-attracting-holders-from-shiba-inu-and-solana-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/furrever-token-purr-fection--a-cryptocurrency-with-15x-roi-potential-attracting-holders-from-shiba-inu-and-solana-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cpigda/cryptocurrency_market_update_shiba_inu_solana_and/

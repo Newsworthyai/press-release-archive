@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/aclara-expands-into-u-s-market-with-aclara-technologies-focusing-on-rare-earths-separation-192222792 
 
-[Original/Source Press Release](https://newsdirect.com/news/aclara-expands-into-u-s-market-with-aclara-technologies-focusing-on-rare-earths-separation-192222792) 
+[Original/Source Press Release](https://newsdirect.com/news/aclara-expands-into-u-s-market-with-aclara-technologies-focusing-on-rare-earths-separation-192222792)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c0tukl/aclara_expands_into_us_market_with_aclara/

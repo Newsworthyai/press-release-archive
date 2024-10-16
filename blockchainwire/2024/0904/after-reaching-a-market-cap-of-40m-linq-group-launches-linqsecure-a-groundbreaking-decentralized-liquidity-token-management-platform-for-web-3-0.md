@@ -30,6 +30,9 @@ This blockchain-based game functions like a slot machine, where users purchase t
 
 Explore LINQSecure and Pot of Greed now: [https://www.linqgroup.io](https://www.linqgroup.io/)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/after-reaching-a-market-cap-of-40m-linq-group-launches-linqsecure-a-groundbreaking-decentralized-liquidity-token-management-platform-for-web-30) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/after-reaching-a-market-cap-of-40m-linq-group-launches-linqsecure-a-groundbreaking-decentralized-liquidity-token-management-platform-for-web-30)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fjrbtd/linq_group_launches_innovative_token_management/

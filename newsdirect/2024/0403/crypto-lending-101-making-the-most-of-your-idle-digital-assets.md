@@ -42,6 +42,9 @@ Company Websitehttps://ledn.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/crypto-lending-101-making-the-most-of-your-idle-digital-assets-986440897 
 
-[Original/Source Press Release](https://newsdirect.com/news/crypto-lending-101-making-the-most-of-your-idle-digital-assets-986440897) 
+[Original/Source Press Release](https://newsdirect.com/news/crypto-lending-101-making-the-most-of-your-idle-digital-assets-986440897)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1burhd5/crypto_lending_101_making_the_most_of_your_idle/

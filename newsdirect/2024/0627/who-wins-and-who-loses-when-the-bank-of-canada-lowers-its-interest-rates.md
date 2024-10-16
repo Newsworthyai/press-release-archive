@@ -80,6 +80,9 @@ Company Websitehttps://money.ca/
 
 View source version on newsdirect.com: https://newsdirect.com/news/who-wins-and-who-loses-when-the-bank-of-canada-lowers-its-interest-rates-465248539 
 
-[Original/Source Press Release](https://newsdirect.com/news/who-wins-and-who-loses-when-the-bank-of-canada-lowers-its-interest-rates-465248539) 
+[Original/Source Press Release](https://newsdirect.com/news/who-wins-and-who-loses-when-the-bank-of-canada-lowers-its-interest-rates-465248539)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1dpx8f9/bank_of_canada_lowers_interest_rate_winners_and/

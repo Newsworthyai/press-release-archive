@@ -50,6 +50,9 @@ Company Websitehttps://fnxgrp.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/fenix-group-consulting-and-skbm-smart-technology-announce-strategic-partnership-to-revolutionize-smart-community-technology-in-multifamily-industry-311625694 
 
-[Original/Source Press Release](https://newsdirect.com/news/fenix-group-consulting-and-skbm-smart-technology-announce-strategic-partnership-to-revolutionize-smart-community-technology-in-multifamily-industry-311625694) 
+[Original/Source Press Release](https://newsdirect.com/news/fenix-group-consulting-and-skbm-smart-technology-announce-strategic-partnership-to-revolutionize-smart-community-technology-in-multifamily-industry-311625694)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cb55e1/fenix_group_consulting_and_skbm_smart_technology/

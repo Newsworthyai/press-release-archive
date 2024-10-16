@@ -28,6 +28,9 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-maximizes-your-earning-potential-with-simple-earn-and-shark-fin-products-timely-listings-and-high-apys-892178641 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-maximizes-your-earning-potential-with-simple-earn-and-shark-fin-products-timely-listings-and-high-apys-892178641) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-maximizes-your-earning-potential-with-simple-earn-and-shark-fin-products-timely-listings-and-high-apys-892178641)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1daebzd/crypto_market_bull_run_htx_launches_lucrative/

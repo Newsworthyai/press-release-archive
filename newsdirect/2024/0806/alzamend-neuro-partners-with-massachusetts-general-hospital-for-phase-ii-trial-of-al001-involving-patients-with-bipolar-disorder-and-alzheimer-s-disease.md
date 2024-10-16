@@ -84,6 +84,9 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/alzamend-neuro-partners-with-massachusetts-general-hospital-for-phase-ii-trial-of-al001-involving-patients-with-bipolar-disorder-and-alzheimers-disease-589457201 
 
-[Original/Source Press Release](https://newsdirect.com/news/alzamend-neuro-partners-with-massachusetts-general-hospital-for-phase-ii-trial-of-al001-involving-patients-with-bipolar-disorder-and-alzheimers-disease-589457201) 
+[Original/Source Press Release](https://newsdirect.com/news/alzamend-neuro-partners-with-massachusetts-general-hospital-for-phase-ii-trial-of-al001-involving-patients-with-bipolar-disorder-and-alzheimers-disease-589457201)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ellj3n/alzamend_neuro_partners_with_mgh_for_phase_ii/

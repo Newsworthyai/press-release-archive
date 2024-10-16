@@ -29,6 +29,9 @@
 
  BioMedWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bios-nyse-anvs-lead-compound-shows-synergistic-cognitive-enhancement/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bios-nyse-anvs-lead-compound-shows-synergistic-cognitive-enhancement/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2gch4/annovis_bios_buntanetap_shows_synergistic/

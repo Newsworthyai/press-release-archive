@@ -32,6 +32,9 @@ elizabeth@eahstrategiesllc.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/american-paper-plate-coalition-welcomes-preliminary-duties-on-imports-from-china-and-vietnam-162708537 
 
-[Original/Source Press Release](https://newsdirect.com/news/american-paper-plate-coalition-welcomes-preliminary-duties-on-imports-from-china-and-vietnam-162708537) 
+[Original/Source Press Release](https://newsdirect.com/news/american-paper-plate-coalition-welcomes-preliminary-duties-on-imports-from-china-and-vietnam-162708537)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1doq9j1/commerce_imposes_preliminary_duties_on_paper/

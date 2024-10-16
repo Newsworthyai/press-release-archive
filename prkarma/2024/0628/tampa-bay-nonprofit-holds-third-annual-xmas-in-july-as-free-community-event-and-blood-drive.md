@@ -20,6 +20,9 @@ United States
 
 Visit Our Website 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/BirthdayFundraiserInc/news_release/1500) 
+[Original/Source Press Release](https://newsroom.prkarma.com/BirthdayFundraiserInc/news_release/1500)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eg62z7/positive_difference_organization_hosts_third/

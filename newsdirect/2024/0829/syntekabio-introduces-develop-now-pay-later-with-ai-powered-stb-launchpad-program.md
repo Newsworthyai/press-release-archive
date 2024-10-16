@@ -30,6 +30,9 @@ Company Websitehttp://www.syntekabio.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/syntekabio-introduces-develop-now-pay-later-with-ai-powered-stb-launchpad-program-910598144 
 
-[Original/Source Press Release](https://newsdirect.com/news/syntekabio-introduces-develop-now-pay-later-with-ai-powered-stb-launchpad-program-910598144) 
+[Original/Source Press Release](https://newsdirect.com/news/syntekabio-introduces-develop-now-pay-later-with-ai-powered-stb-launchpad-program-910598144)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1f4oprq/syntekabio_introduces_develop_now_pay_later_with/

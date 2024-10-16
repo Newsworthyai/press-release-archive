@@ -30,6 +30,9 @@ GT Protocol is a Web3 AI execution protocol connecting users with access to CeFi
 
 https://www.gt-protocol.io/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/chaingpt-facilitates-the-launch-of-the-gt-protocol-bringing-ai-powered-auto-trading-to-crypto) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/chaingpt-facilitates-the-launch-of-the-gt-protocol-bringing-ai-powered-auto-trading-to-crypto)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avdsu4/chaingpt_launches_gt_protocol_for_aipowered/

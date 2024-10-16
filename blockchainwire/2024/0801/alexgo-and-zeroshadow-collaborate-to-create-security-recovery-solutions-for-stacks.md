@@ -29,6 +29,9 @@ ALEXGO is the technology provider behind the ALEX DeFi protocol, a pioneering pl
 
 ALEX offers a comprehensive suite of DeFi services, including a decentralized exchange (DEX), launchpad, liquidity mining, and yield farming. Their platform leverages the unique capabilities of the Stacks blockchain to harness the potential of Bitcoin for decentralized finance, providing secure and efficient financial solutions. For more information, visit https://alexgo.io/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/alexgo-and-zeroshadow-collaborate-to-create-security--recovery-solutions-for-stacks) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/alexgo-and-zeroshadow-collaborate-to-create-security--recovery-solutions-for-stacks)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvecub/alexgo_and_zeroshadow_partner_to_enhance_security/

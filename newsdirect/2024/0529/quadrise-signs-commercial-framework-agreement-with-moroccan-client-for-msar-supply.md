@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/quadrise-signs-commercial-framework-agreement-with-moroccan-client-for-msar-supply-744174200 
 
-[Original/Source Press Release](https://newsdirect.com/news/quadrise-signs-commercial-framework-agreement-with-moroccan-client-for-msar-supply-744174200) 
+[Original/Source Press Release](https://newsdirect.com/news/quadrise-signs-commercial-framework-agreement-with-moroccan-client-for-msar-supply-744174200)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/StartupBusinessNews/comments/1d3mbi3/quadrise_signs_commercial_framework_agreement/

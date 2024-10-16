@@ -36,6 +36,9 @@ Telegram: https://t.me/bbachain
 
 Twitter: https://x.com/bbachain_com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bbachain-unveils-a-groundbreaking-layer-1-technology-for-blockchain-based-elections) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bbachain-unveils-a-groundbreaking-layer-1-technology-for-blockchain-based-elections)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1do88is/bbachain_to_revolutionize_global_elections_with/

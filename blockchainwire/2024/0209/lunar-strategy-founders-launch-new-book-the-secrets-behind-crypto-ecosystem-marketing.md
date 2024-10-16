@@ -20,6 +20,9 @@ The Haldorssons' combined experience, which spans managing over $60 million in m
 
 Tim Haldorsson's background, including his tenure at Google and leadership at Lunar Strategy, along with Jack Haldorsson's extensive experience in blockchain marketing, infuses the book with a rich perspective that blends technical acumen with marketing savvy. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/lunar-strategy-founders-launch-new-book---the-secrets-behind-crypto-ecosystem-marketing) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/lunar-strategy-founders-launch-new-book---the-secrets-behind-crypto-ecosystem-marketing)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjyqf/marketing_beyond_the_reply_guy/

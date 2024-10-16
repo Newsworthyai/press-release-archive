@@ -46,6 +46,9 @@ Company Websitehttps://moneytree.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/moneytree-software-unveils-innovative-financial-planning-solution-to-revolutionize-client-advisor-relationships-294260244 
 
-[Original/Source Press Release](https://newsdirect.com/news/moneytree-software-unveils-innovative-financial-planning-solution-to-revolutionize-client-advisor-relationships-294260244) 
+[Original/Source Press Release](https://newsdirect.com/news/moneytree-software-unveils-innovative-financial-planning-solution-to-revolutionize-client-advisor-relationships-294260244)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1fi4x6i/moneytree_software_unveils_innovative_financial/

@@ -46,6 +46,9 @@ max@edgeclear.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/funded-trader-programs-vs-live-accounts-when-to-choose-simulated-environments-over-independent-trading-401589566 
 
-[Original/Source Press Release](https://newsdirect.com/news/funded-trader-programs-vs-live-accounts-when-to-choose-simulated-environments-over-independent-trading-401589566) 
+[Original/Source Press Release](https://newsdirect.com/news/funded-trader-programs-vs-live-accounts-when-to-choose-simulated-environments-over-independent-trading-401589566)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1eaa8ao/funded_trader_programs_vs_live_accounts_when_to/

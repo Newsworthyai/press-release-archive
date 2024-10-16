@@ -68,6 +68,9 @@ Website: https://horystech.com
 
 SOURCE: Horys 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/horys-launches-digitaledge-alliance-its-membership-program-to-empower-users-in-digtital-age) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/horys-launches-digitaledge-alliance-its-membership-program-to-empower-users-in-digtital-age)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cn90mf/horys_launches_digitaledge_alliance_to_empower/

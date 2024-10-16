@@ -18,6 +18,9 @@ About Newsworthy.ai — The News Marketing Platform
 
 Newsworthy.ai stands apart in the realm of news marketing with its unique blend of traditional centralized newswire distribution and cost-effective, decentralized news marketing through influencers, brand ambassadors, industry-specific websites, and more. This approach ensures targeted boosts and increased visibility for company news. Additionally, Newsworthy.ai leverages GPT-4 OpenAI powered tools, such as Newswriter.ai, to assist companies in composing compelling press releases, improving editorial content, and generating journalist/marketing pitches and social media content to promote their news efficiently and effectively. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231122898/newsworthy-ai-announces-partnership-with-stacks-to-accept-cryptocurrency-payments-for-press-release-distribution) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231122898/newsworthy-ai-announces-partnership-with-stacks-to-accept-cryptocurrency-payments-for-press-release-distribution)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avcs4w/newsworthyai_partners_with_stacks_to/

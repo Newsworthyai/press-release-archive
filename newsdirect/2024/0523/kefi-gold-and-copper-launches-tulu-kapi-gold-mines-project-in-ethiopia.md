@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kefi-gold-and-copper-launches-tulu-kapi-gold-mines-project-in-ethiopia-827693644 
 
-[Original/Source Press Release](https://newsdirect.com/news/kefi-gold-and-copper-launches-tulu-kapi-gold-mines-project-in-ethiopia-827693644) 
+[Original/Source Press Release](https://newsdirect.com/news/kefi-gold-and-copper-launches-tulu-kapi-gold-mines-project-in-ethiopia-827693644)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cyt10l/kefi_gold_and_copper_launches_tulu_kapi_gold/

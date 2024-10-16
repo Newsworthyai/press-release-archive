@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/american-rare-earths-looks-to-upgrade-resource-with-drilling-in-cowboy-state-area-of-halleck-creek-753534279 
 
-[Original/Source Press Release](https://newsdirect.com/news/american-rare-earths-looks-to-upgrade-resource-with-drilling-in-cowboy-state-area-of-halleck-creek-753534279) 
+[Original/Source Press Release](https://newsdirect.com/news/american-rare-earths-looks-to-upgrade-resource-with-drilling-in-cowboy-state-area-of-halleck-creek-753534279)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ectf60/american_rare_earths_prepares_for_major_drilling/

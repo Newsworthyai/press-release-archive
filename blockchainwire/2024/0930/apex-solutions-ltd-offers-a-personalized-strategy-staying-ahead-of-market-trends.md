@@ -22,6 +22,9 @@ More detailed information can be found on the Apex Solutions LTD website.
 
 Website:  https://apex-solutionsltd.com/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/apex-solutions-ltd-offers-a-personalized-strategy-staying-ahead-of-market-trends) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/apex-solutions-ltd-offers-a-personalized-strategy-staying-ahead-of-market-trends)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1ft3t5n/apex_solutions_ltd_project_innovative_investment/

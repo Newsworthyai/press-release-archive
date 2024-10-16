@@ -52,6 +52,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-blue-nile-keeps-costs-down-while-offering-ethical-high-quality-engagement-rings-and-jewelry-to-suit-all-kinds-of-customers-393458100 
 
-[Original/Source Press Release](https://newsdirect.com/news/how-blue-nile-keeps-costs-down-while-offering-ethical-high-quality-engagement-rings-and-jewelry-to-suit-all-kinds-of-customers-393458100) 
+[Original/Source Press Release](https://newsdirect.com/news/how-blue-nile-keeps-costs-down-while-offering-ethical-high-quality-engagement-rings-and-jewelry-to-suit-all-kinds-of-customers-393458100)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cyrzpq/blue_nile_pioneering_quality_ethics_and/

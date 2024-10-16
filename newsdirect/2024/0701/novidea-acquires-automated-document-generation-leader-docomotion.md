@@ -32,6 +32,9 @@ Company Websitehttps://novidea.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/novidea-acquires-automated-document-generation-leader-docomotion-511664149 
 
-[Original/Source Press Release](https://newsdirect.com/news/novidea-acquires-automated-document-generation-leader-docomotion-511664149) 
+[Original/Source Press Release](https://newsdirect.com/news/novidea-acquires-automated-document-generation-leader-docomotion-511664149)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dst0o4/novidea_acquires_automated_document_generation/

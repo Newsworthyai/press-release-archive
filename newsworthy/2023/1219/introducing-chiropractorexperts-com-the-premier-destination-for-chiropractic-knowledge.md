@@ -18,6 +18,9 @@ As a hub dedicated to chiropractic excellence, ChiropractorExperts.com endeavors
 
 Empower your chiropractic journey. Discover more at www.ChiropractorExperts.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231219789/introducing-chiropractorexperts-com-the-premier-destination-for-chiropractic-knowledge) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231219789/introducing-chiropractorexperts-com-the-premier-destination-for-chiropractic-knowledge)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcuz1/chiropractorexpertscom_launches_to_provide/

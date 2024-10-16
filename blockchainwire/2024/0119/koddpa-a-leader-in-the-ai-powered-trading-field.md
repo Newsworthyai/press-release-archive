@@ -12,6 +12,9 @@ The outstanding performance and leading position of KODDPA not only showcase the
 
 Website: https://koddpa.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/koddpa-a-leader-in-the-ai-powered-trading-field) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/koddpa-a-leader-in-the-ai-powered-trading-field)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1avdt19/koddpa_redefines_intelligent_trading_with/

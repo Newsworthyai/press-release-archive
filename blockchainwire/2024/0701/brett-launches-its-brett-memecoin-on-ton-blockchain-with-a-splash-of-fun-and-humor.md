@@ -28,6 +28,9 @@ Youtube: youtube.com/@realbrettcoin
 
 Instagram: instagram.com/realbrettcoin 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/brett-launches-its-brett-memecoin-on-ton-blockchain-with-a-splash-of-fun-and-humor) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/brett-launches-its-brett-memecoin-on-ton-blockchain-with-a-splash-of-fun-and-humor)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dt5thi/brett_launches_brett_memecoin_on_ton_blockchain/

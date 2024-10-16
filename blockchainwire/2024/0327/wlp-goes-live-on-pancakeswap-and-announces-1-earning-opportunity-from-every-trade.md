@@ -24,6 +24,9 @@ Anyone curious to learn all the details about WhoseLandPurple and its growth pot
 
 X (Twitter) | TikTok | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/wlp-goes-live-on-pancakeswap-and-announces-1-earning-opportunity-from-every-trade) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/wlp-goes-live-on-pancakeswap-and-announces-1-earning-opportunity-from-every-trade)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bp19zw/whoselandpurple_launches_wlp_token_on_pancakeswap/

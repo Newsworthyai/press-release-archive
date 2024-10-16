@@ -20,6 +20,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ozaurum-resources-kicks-of-diamond-drilling-at-boca-rica-lithium-project-in-brazil-735566061 
 
-[Original/Source Press Release](https://newsdirect.com/news/ozaurum-resources-kicks-of-diamond-drilling-at-boca-rica-lithium-project-in-brazil-735566061) 
+[Original/Source Press Release](https://newsdirect.com/news/ozaurum-resources-kicks-of-diamond-drilling-at-boca-rica-lithium-project-in-brazil-735566061)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1c5dusg/ozaurum_resources_commences_diamond_drilling_at/

@@ -23,6 +23,9 @@ Company Websitehttps://www.aob.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/american-outdoor-brands-to-present-at-share-series-event-324997385 
 
-[Original/Source Press Release](https://newsdirect.com/news/american-outdoor-brands-to-present-at-share-series-event-324997385) 
+[Original/Source Press Release](https://newsdirect.com/news/american-outdoor-brands-to-present-at-share-series-event-324997385)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cca7zy/american_outdoor_brands_to_present_at_share/

@@ -32,6 +32,9 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/avalanches-surge-sparks-raboos-rabt-100x-crypto-revolution-against-a-backdrop-of-tethers-stability-875865397 
 
-[Original/Source Press Release](https://newsdirect.com/news/avalanches-surge-sparks-raboos-rabt-100x-crypto-revolution-against-a-backdrop-of-tethers-stability-875865397) 
+[Original/Source Press Release](https://newsdirect.com/news/avalanches-surge-sparks-raboos-rabt-100x-crypto-revolution-against-a-backdrop-of-tethers-stability-875865397)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1by6ulk/avalanches_surge_sparks_raboos_rabt_100x_crypto/

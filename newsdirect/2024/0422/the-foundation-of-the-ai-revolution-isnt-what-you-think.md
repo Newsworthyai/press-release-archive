@@ -66,6 +66,9 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-foundation-of-the-ai-revolution-isnt-what-you-think-650221895 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-foundation-of-the-ai-revolution-isnt-what-you-think-650221895) 
+[Original/Source Press Release](https://newsdirect.com/news/the-foundation-of-the-ai-revolution-isnt-what-you-think-650221895)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cabs0o/the_role_of_critical_minerals_in_the_ai_revolution/

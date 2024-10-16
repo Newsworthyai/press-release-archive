@@ -8,6 +8,9 @@ TMS therapy utilizes magnetic energy to adjust brain chemistry, providing a safe
 
 To learn more about TMS therapy or schedule an appointment, individuals are encouraged to contact Vital TMS Therapy by phone or request a consultation online. With a team of experienced professionals dedicated to mental health, Vital TMS Therapy stands ready to assist those seeking transformative change in their fight against anxiety. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401201002/vital-tms-therapy-provides-alternative-solution-for-chronic-anxiety) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401201002/vital-tms-therapy-provides-alternative-solution-for-chronic-anxiety)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avk06r/vital_tms_therapy_introduces_tms_therapy_as/

@@ -22,6 +22,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/unlocking-the-secrets-of-whisky-investment-with-fah-mais-jacob-carter-839273122 
 
-[Original/Source Press Release](https://newsdirect.com/news/unlocking-the-secrets-of-whisky-investment-with-fah-mais-jacob-carter-839273122) 
+[Original/Source Press Release](https://newsdirect.com/news/unlocking-the-secrets-of-whisky-investment-with-fah-mais-jacob-carter-839273122)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cc0eb0/unlocking_the_secrets_of_whisky_investment_with/

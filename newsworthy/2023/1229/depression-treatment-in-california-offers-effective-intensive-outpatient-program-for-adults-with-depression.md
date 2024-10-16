@@ -10,6 +10,9 @@ The intensive outpatient program at Depression Treatment in California adopts a 
 
 "While we urge individuals to seek guidance from reputable sources such as Healthline and nih.gov for further understanding of depression and its symptoms, we believe that our comprehensive, personalized approach offers significant benefits to those struggling with this mood disorder," adds Dr. [Expert Name]. "We are committed to providing a safe and supportive environment where individuals can explore their experiences, gain valuable insights, and find hope on their path to recovery." 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231229953/depression-treatment-in-california-offers-effective-intensive-outpatient-program-for-adults-with-depression) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231229953/depression-treatment-in-california-offers-effective-intensive-outpatient-program-for-adults-with-depression)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcwpg/personalized_outpatient_program_for_depression/

@@ -43,6 +43,9 @@ Email: info@powermeta.cloud
 
 Twitter: @PowerMetaMarket 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/dmos-revolutionizes-decentralized-computing-landscape-with-groundbreaking-cloud-operating-system) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/dmos-revolutionizes-decentralized-computing-landscape-with-groundbreaking-cloud-operating-system)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1c8avmh/power_meta_corp_unveils_dmos_a_revolutionary/

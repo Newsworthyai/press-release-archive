@@ -44,6 +44,9 @@ Company Websitehttps://www.toolsgroup.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/toolsgroup-exhibiting-and-franke-speaking-at-gartner-r-supply-chain-symposium-xpo-june-10-12-in-barcelona-499982924 
 
-[Original/Source Press Release](https://newsdirect.com/news/toolsgroup-exhibiting-and-franke-speaking-at-gartner-r-supply-chain-symposium-xpo-june-10-12-in-barcelona-499982924) 
+[Original/Source Press Release](https://newsdirect.com/news/toolsgroup-exhibiting-and-franke-speaking-at-gartner-r-supply-chain-symposium-xpo-june-10-12-in-barcelona-499982924)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cx9yeo/toolsgroup_and_franke_to_showcase_aipowered/

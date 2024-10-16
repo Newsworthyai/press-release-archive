@@ -56,6 +56,9 @@ Those who would like to get more updates about the BOOH World project can visit 
 
 X (Twitter) | Telegram | Instagram | TikTok | YouTube 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/booh-world-presents-new-telegram-play-to-earn-game-for-meme-fans-eyeing-dual-token-launch) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/booh-world-presents-new-telegram-play-to-earn-game-for-meme-fans-eyeing-dual-token-launch)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ffosuw/booh_world_launches_playtoearn_game_booh_brawlers/

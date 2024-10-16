@@ -28,6 +28,9 @@ Company Websitehttps://www.medcognetics.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/medcognetics-secures-groundbreaking-patent-for-inclusive-unbiased-medical-imaging-ai-technology-in-mammography-844844123 
 
-[Original/Source Press Release](https://newsdirect.com/news/medcognetics-secures-groundbreaking-patent-for-inclusive-unbiased-medical-imaging-ai-technology-in-mammography-844844123) 
+[Original/Source Press Release](https://newsdirect.com/news/medcognetics-secures-groundbreaking-patent-for-inclusive-unbiased-medical-imaging-ai-technology-in-mammography-844844123)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1buvwbs/medcognetics_secures_groundbreaking_patent_for/

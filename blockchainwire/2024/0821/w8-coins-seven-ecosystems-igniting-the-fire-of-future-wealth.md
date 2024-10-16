@@ -36,6 +36,9 @@ City: California
 
 Website link: https://wire8.io/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/w8-coins-seven-ecosystems---igniting-the-fire-of-future-wealth) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/w8-coins-seven-ecosystems---igniting-the-fire-of-future-wealth)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1exs7xb/w8_coin_revolutionizing_global_digital_currency/

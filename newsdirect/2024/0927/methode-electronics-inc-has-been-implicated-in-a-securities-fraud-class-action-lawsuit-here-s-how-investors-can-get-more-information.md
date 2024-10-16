@@ -46,6 +46,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/methode-electronics-inc-has-been-implicated-in-a-securities-fraud-class-action-lawsuit-heres-how-investors-can-get-more-information-569706161 
 
-[Original/Source Press Release](https://newsdirect.com/news/methode-electronics-inc-has-been-implicated-in-a-securities-fraud-class-action-lawsuit-heres-how-investors-can-get-more-information-569706161) 
+[Original/Source Press Release](https://newsdirect.com/news/methode-electronics-inc-has-been-implicated-in-a-securities-fraud-class-action-lawsuit-heres-how-investors-can-get-more-information-569706161)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1fqn5en/methode_electronics_inc_implicated_in_securities/

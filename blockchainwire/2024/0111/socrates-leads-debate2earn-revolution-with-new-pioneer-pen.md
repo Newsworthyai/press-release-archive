@@ -42,6 +42,9 @@ Email: charlotte@socrates.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/socrates-leads-debate2earn-revolution-with-new-pioneer-pen) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/socrates-leads-debate2earn-revolution-with-new-pioneer-pen)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1avdpqh/socrates_announces_pioneer_pen_upgrade_and_new/

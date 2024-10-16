@@ -61,6 +61,9 @@ Company Websitehttps://www.bakerentertainmentgroup.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/visionary-director-jonathan-baker-announces-final-film-icon-and-sets-production-for-2025-499335947 
 
-[Original/Source Press Release](https://newsdirect.com/news/visionary-director-jonathan-baker-announces-final-film-icon-and-sets-production-for-2025-499335947) 
+[Original/Source Press Release](https://newsdirect.com/news/visionary-director-jonathan-baker-announces-final-film-icon-and-sets-production-for-2025-499335947)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BookNews/comments/1d84uns/visionary_director_jonathan_baker_announces_final/

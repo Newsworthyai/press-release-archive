@@ -28,6 +28,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/digitalbox-ceo-james-carter-discusses-2023-challenges-and-strategies-for-growth-220032740 
 
-[Original/Source Press Release](https://newsdirect.com/news/digitalbox-ceo-james-carter-discusses-2023-challenges-and-strategies-for-growth-220032740) 
+[Original/Source Press Release](https://newsdirect.com/news/digitalbox-ceo-james-carter-discusses-2023-challenges-and-strategies-for-growth-220032740)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bp1x10/digitalbox_ceo_james_carter_discusses_2023/

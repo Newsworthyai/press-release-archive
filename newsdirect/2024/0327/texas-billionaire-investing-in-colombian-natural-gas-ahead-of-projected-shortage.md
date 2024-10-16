@@ -80,6 +80,9 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/texas-billionaire-investing-in-colombian-natural-gas-ahead-of-projected-shortage-437476572 
 
-[Original/Source Press Release](https://newsdirect.com/news/texas-billionaire-investing-in-colombian-natural-gas-ahead-of-projected-shortage-437476572) 
+[Original/Source Press Release](https://newsdirect.com/news/texas-billionaire-investing-in-colombian-natural-gas-ahead-of-projected-shortage-437476572)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1bp0vu4/colombias_energy_sector_faces_natural_gas/

@@ -26,6 +26,9 @@ As the cryptocurrency landscape continues to evolve, GDMining is dedicated to st
 
 For more information, please visit https://gdmining.com/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-launches-new-high-efficiency-bitcoin-cloud-mining-plan-maximize-your-passive-income) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-launches-new-high-efficiency-bitcoin-cloud-mining-plan-maximize-your-passive-income)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1foj6a0/gdmining_launches_highefficiency_bitcoin_cloud/

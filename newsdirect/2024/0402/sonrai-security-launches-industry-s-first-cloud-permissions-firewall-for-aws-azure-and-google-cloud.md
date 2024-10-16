@@ -36,6 +36,9 @@ Company Websitehttps://sonraisecurity.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sonrai-security-launches-industrys-first-cloud-permissions-firewall-for-aws-azure-and-google-cloud-259888015 
 
-[Original/Source Press Release](https://newsdirect.com/news/sonrai-security-launches-industrys-first-cloud-permissions-firewall-for-aws-azure-and-google-cloud-259888015) 
+[Original/Source Press Release](https://newsdirect.com/news/sonrai-security-launches-industrys-first-cloud-permissions-firewall-for-aws-azure-and-google-cloud-259888015)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1btygt6/sonrai_security_launches_industrys_first_cloud/

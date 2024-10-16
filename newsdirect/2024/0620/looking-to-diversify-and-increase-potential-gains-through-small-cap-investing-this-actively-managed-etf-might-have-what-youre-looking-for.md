@@ -76,6 +76,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/looking-to-diversify-and-increase-potential-gains-through-small-cap-investing-this-actively-managed-etf-might-have-what-youre-looking-for-447712245 
 
-[Original/Source Press Release](https://newsdirect.com/news/looking-to-diversify-and-increase-potential-gains-through-small-cap-investing-this-actively-managed-etf-might-have-what-youre-looking-for-447712245) 
+[Original/Source Press Release](https://newsdirect.com/news/looking-to-diversify-and-increase-potential-gains-through-small-cap-investing-this-actively-managed-etf-might-have-what-youre-looking-for-447712245)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1dki8je/why_investors_should_consider_adding_small_caps/

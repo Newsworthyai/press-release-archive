@@ -18,6 +18,9 @@ EconomistZone.com is dedicated to demystifying the intricate world of economics.
 
 Discover the world of economics anew with www.EconomistZone.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231212812/economistzone-com-unveiled-a-central-hub-for-pioneering-economic-thought-and-insights) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231212812/economistzone-com-unveiled-a-central-hub-for-pioneering-economic-thought-and-insights)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx3k1/economistzonecom_your_premier_destination_for/

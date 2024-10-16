@@ -20,6 +20,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ilika-ceo-highlights-strong-2024-financial-performance-and-key-developments-303289305 
 
-[Original/Source Press Release](https://newsdirect.com/news/ilika-ceo-highlights-strong-2024-financial-performance-and-key-developments-303289305) 
+[Original/Source Press Release](https://newsdirect.com/news/ilika-ceo-highlights-strong-2024-financial-performance-and-key-developments-303289305)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cucpdc/ilika_plc_ceo_highlights_strong_2024_financial/

@@ -16,6 +16,9 @@ Or at the fireside chat:  4:35 pm, 14th October
 
 About CoinWFounded in 2017, CoinW is a leading global crypto exchange with a commitment to providing secure, reliable, and innovative crypto services to 13 million users worldwide. With a focus on integrity, security, and customer support, CoinW offers a comprehensive suite of trading products designed to cater to the needs of all levels of traders. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-unveils-platinum-sponsorship-at-future-blockchain-summit-in-partnership-with-dubai-blockchain-center) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-unveils-platinum-sponsorship-at-future-blockchain-summit-in-partnership-with-dubai-blockchain-center)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fyyah0/coinw_announces_platinum_sponsorship_of_future/

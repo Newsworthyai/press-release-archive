@@ -26,6 +26,9 @@ Yala's potential to unlock dormant Bitcoin value could catalyze a wave of financ
 
 Yala is Re-pioneering Bitcoin’s DeFi Frontier. At Yala, we’re dedicated to transforming Bitcoin into a DeFi powerhouse by enabling the collateralization and lending of native BTC, BRC-20, Layer 2, and sidechain assets. We strive to enhance overall liquidity and unlock the inherent value of dormant on-chain Bitcoin. Our protocol serves Bitcoin holders and participants across the entire ecosystem, elevating Bitcoin’s utility through smart contracts and more.[Website](http://yala.finance) | [Twitter](https://twitter.com/Yalafinance)| [Telegram](https://t.me/yala_finance) | [Discord](https://discord.gg/9uFhjRd6) | [Medium](https://medium.com/@YalaFinance) | [Docs](https://docs.yala.finance/)Media Contact: media@yala.finance 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/building-on-bitcoin-how-yala-is-transforming-btcs-potential-into-a-reality) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/building-on-bitcoin-how-yala-is-transforming-btcs-potential-into-a-reality)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avdpzw/yala_emerges_as_visionary_bitcoin_builder_unlocks/

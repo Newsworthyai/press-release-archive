@@ -30,6 +30,9 @@ Cassiopeia
 
 [info@cassiopeia-ltd.com](mailto:info@cassiopeia-ltd.com) nadine@cassiopeia-ltd.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/fluid-tokens-launch-first-dex-for-runes-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/fluid-tokens-launch-first-dex-for-runes-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cwadyp/fluidtokens_launches_first_decentralized_exchange/

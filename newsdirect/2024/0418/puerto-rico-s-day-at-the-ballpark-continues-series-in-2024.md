@@ -32,6 +32,9 @@ kenn@talentedartpro.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/puerto-ricos-day-at-the-ballpark-continues-series-in-2024-200950411 
 
-[Original/Source Press Release](https://newsdirect.com/news/puerto-ricos-day-at-the-ballpark-continues-series-in-2024-200950411) 
+[Original/Source Press Release](https://newsdirect.com/news/puerto-ricos-day-at-the-ballpark-continues-series-in-2024-200950411)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c71ufn/prcda_presents_puerto_rico_day_at_the_ballpark/

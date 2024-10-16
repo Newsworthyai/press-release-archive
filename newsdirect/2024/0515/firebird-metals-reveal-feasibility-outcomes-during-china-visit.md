@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/firebird-metals-reveal-feasibility-outcomes-during-china-visit-345975445 
 
-[Original/Source Press Release](https://newsdirect.com/news/firebird-metals-reveal-feasibility-outcomes-during-china-visit-345975445) 
+[Original/Source Press Release](https://newsdirect.com/news/firebird-metals-reveal-feasibility-outcomes-during-china-visit-345975445)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cso8py/firebird_metals_reveals_feasibility_outcomes/

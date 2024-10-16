@@ -93,6 +93,9 @@ Company Websitehttps://money.ca/
 
 View source version on newsdirect.com: https://newsdirect.com/news/a-comprehensive-guide-to-estate-planning-in-canada-500335563 
 
-[Original/Source Press Release](https://newsdirect.com/news/a-comprehensive-guide-to-estate-planning-in-canada-500335563) 
+[Original/Source Press Release](https://newsdirect.com/news/a-comprehensive-guide-to-estate-planning-in-canada-500335563)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1dr8udj/over_onethird_of_canadians_prioritize_estate/

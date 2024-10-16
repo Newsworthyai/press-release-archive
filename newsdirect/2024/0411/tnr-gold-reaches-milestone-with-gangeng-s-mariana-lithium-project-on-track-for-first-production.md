@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tnr-gold-reaches-milestone-with-gangengs-mariana-lithium-project-on-track-for-first-production-854166183 
 
-[Original/Source Press Release](https://newsdirect.com/news/tnr-gold-reaches-milestone-with-gangengs-mariana-lithium-project-on-track-for-first-production-854166183) 
+[Original/Source Press Release](https://newsdirect.com/news/tnr-gold-reaches-milestone-with-gangengs-mariana-lithium-project-on-track-for-first-production-854166183)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c1ct82/tnr_gold_corp_set_to_generate_first_royalty/

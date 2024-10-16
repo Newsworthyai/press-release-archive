@@ -32,6 +32,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/dragonfly-energy-nasdaq-dfli-expands-into-lucrative-oil-and-gas-industry-with-newly-certified-energy-storage-solutions-835218701 
 
-[Original/Source Press Release](https://newsdirect.com/news/dragonfly-energy-nasdaq-dfli-expands-into-lucrative-oil-and-gas-industry-with-newly-certified-energy-storage-solutions-835218701) 
+[Original/Source Press Release](https://newsdirect.com/news/dragonfly-energy-nasdaq-dfli-expands-into-lucrative-oil-and-gas-industry-with-newly-certified-energy-storage-solutions-835218701)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cy1erp/dragonfly_energy_expands_into_oil_and_gas/

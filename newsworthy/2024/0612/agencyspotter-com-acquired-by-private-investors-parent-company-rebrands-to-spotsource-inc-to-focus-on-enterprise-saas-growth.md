@@ -28,6 +28,9 @@ About SpotSource Inc.
 
 SpotSource Inc. (formerly Agency Spotter Inc.) is a cloud-based service supplier management (SSM) software platform that empowers companies to manage all aspects of their service provider relationships. SpotSource streamlines the entire procurement process, from discovery and selection to project management, invoicing, and performance reviews. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202406121193/agencyspotter-com-acquired-by-private-investors-parent-company-rebrands-to-spotsource-inc-to-focus-on-enterprise-saas-growth) 
+[Original/Source Press Release](https://newsworthy.ai/news/202406121193/agencyspotter-com-acquired-by-private-investors-parent-company-rebrands-to-spotsource-inc-to-focus-on-enterprise-saas-growth)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1de4k2s/agencyspottercom_acquired_by_private_investment/

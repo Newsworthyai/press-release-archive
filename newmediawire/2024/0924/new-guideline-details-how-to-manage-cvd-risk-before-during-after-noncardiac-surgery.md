@@ -87,6 +87,9 @@ Guideline highlights:
 
  heart.org and stroke.org 
 
-[Original/Source Press Release](http://www.newmediawire.com/news/new-guideline-details-how-to-manage-cvd-risk-before-during-after-noncardiac-surgery-7076085) 
+[Original/Source Press Release](http://www.newmediawire.com/news/new-guideline-details-how-to-manage-cvd-risk-before-during-after-noncardiac-surgery-7076085)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1frcazp/new_2024_guideline_for_cardiovascular_management/

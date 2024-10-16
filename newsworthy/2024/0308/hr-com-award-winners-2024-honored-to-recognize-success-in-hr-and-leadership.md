@@ -40,6 +40,9 @@ About HR.com
 
 HR.com, the largest network of HR professionals, is committed to helping HR professionals advance and build meaningful careers. Over 2 million HR professionals rely on HR.com for career development, networking, and compliance 24/7/365. (How could that many people be wrong!) Offerings include 220+ leading-edge HR Research Institute industry studies, monthly HR-themed magazines, innovative professional education with 500+ annual webcasts and virtual courses, the most comprehensive HR exam prep program for SHRM/HRCI certification (prepare for a salary increase!), in-person HR conferences, HR tools, and legal compliance updates. Visit www.HR.com to maximize your potential! 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202403081111/hr-com-award-winners-2024-honored-to-recognize-success-in-hr-and-leadership) 
+[Original/Source Press Release](https://newsworthy.ai/news/202403081111/hr-com-award-winners-2024-honored-to-recognize-success-in-hr-and-leadership)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1bb4x47/hrcom_awards_2024_recognize_excellence_in_hr_and/

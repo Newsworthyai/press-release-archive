@@ -32,6 +32,9 @@ Company Websitehttps://n6clubunderdog.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/private-equity-veteran-daniel-hall-joins-club-underdog-as-managing-partner-226762783 
 
-[Original/Source Press Release](https://newsdirect.com/news/private-equity-veteran-daniel-hall-joins-club-underdog-as-managing-partner-226762783) 
+[Original/Source Press Release](https://newsdirect.com/news/private-equity-veteran-daniel-hall-joins-club-underdog-as-managing-partner-226762783)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dzveoh/private_equity_veteran_daniel_hall_joins_club/

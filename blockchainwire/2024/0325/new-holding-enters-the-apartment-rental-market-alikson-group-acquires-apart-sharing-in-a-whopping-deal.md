@@ -22,6 +22,9 @@ About Alikson Group
 
 Alikson Group is an international group of companies with offices located in Russia, Kazakhstan, Kyrgyzstan China, Turkey, and the UAE. The company was founded in 2020 and now operates in 8 major business areas: electronics stores and marketplace, wholesale B2B distribution, B2B tender division, financial and investment products, premium auto rentals, contactless apartment rentals, and logistics. Moreover, the Alikson Group built a charitable foundation and a business academy. You can learn more about the company, activities, and active vacancies on https://corp.alikson.ru/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/new-holding-enters-the-apartment-rental-market-alikson-group-acquires-apart-sharing-in-a-whopping-deal) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/new-holding-enters-the-apartment-rental-market-alikson-group-acquires-apart-sharing-in-a-whopping-deal)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1bnb35j/alikson_group_acquires_apart_sharing_expands_into/

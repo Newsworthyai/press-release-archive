@@ -28,6 +28,9 @@ Company Websitehttps://www.sparkmicro.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/spark-microsystems-to-demonstrate-bit-perfect-wireless-audio-delivery-at-aes-show-2024-ny-767053739 
 
-[Original/Source Press Release](https://newsdirect.com/news/spark-microsystems-to-demonstrate-bit-perfect-wireless-audio-delivery-at-aes-show-2024-ny-767053739) 
+[Original/Source Press Release](https://newsdirect.com/news/spark-microsystems-to-demonstrate-bit-perfect-wireless-audio-delivery-at-aes-show-2024-ny-767053739)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1fyd90f/spark_microsystems_to_demonstrate_bitperfect/

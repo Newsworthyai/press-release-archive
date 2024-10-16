@@ -70,6 +70,9 @@ Company Websitehttps://aurorafilm.cloud/
 
 View source version on newsdirect.com: https://newsdirect.com/news/aurora-films-emerges-as-a-global-leader-in-entertainment-marketing-428743369 
 
-[Original/Source Press Release](https://newsdirect.com/news/aurora-films-emerges-as-a-global-leader-in-entertainment-marketing-428743369) 
+[Original/Source Press Release](https://newsdirect.com/news/aurora-films-emerges-as-a-global-leader-in-entertainment-marketing-428743369)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1eac16m/aurora_films_a_leader_in_global_entertainment/

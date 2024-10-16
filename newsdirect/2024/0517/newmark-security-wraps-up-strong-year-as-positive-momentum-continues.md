@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/newmark-security-wraps-up-strong-year-as-positive-momentum-continues-908383416 
 
-[Original/Source Press Release](https://newsdirect.com/news/newmark-security-wraps-up-strong-year-as-positive-momentum-continues-908383416) 
+[Original/Source Press Release](https://newsdirect.com/news/newmark-security-wraps-up-strong-year-as-positive-momentum-continues-908383416)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ctz8ib/newmark_security_wraps_up_strong_year_with/

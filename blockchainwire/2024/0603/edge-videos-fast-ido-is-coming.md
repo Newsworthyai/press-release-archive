@@ -34,6 +34,9 @@ With a focus on blockchain integration, Edge Video AI is committed to pushing th
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/edge-videos-fast-ido-is-coming-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/edge-videos-fast-ido-is-coming-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1dg09ww/edge_video_ai_launches_fast_token_ido_redefining/

@@ -8,6 +8,9 @@ Recognizing that every patient is unique, Keystone Advanced Ketamine Therapy tak
 
 What sets Keystone Advanced Ketamine Therapy apart is its commitment to providing a memorable and enjoyable experience for patients. The compassionate staff creates a warm and welcoming environment, making patients feel comfortable and at home during their visits. Additionally, the practice offers a free consultation to help individuals explore their treatment options and accommodate busy schedules. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402181071/keystone-advanced-ketamine-therapy-offers-innovative-treatment-for-post-traumatic-stress-disorder) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402181071/keystone-advanced-ketamine-therapy-offers-innovative-treatment-for-post-traumatic-stress-disorder)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avc94v/innovative_ptsd_treatment_options_offered_by/

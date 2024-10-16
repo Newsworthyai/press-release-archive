@@ -32,6 +32,9 @@ About ICP Hub PortugalICP Hub Portugal is a community-driven initiative based in
 
 About the DFINITY FoundationThe DFINITY Foundation is a nonprofit organization dedicated to building and promoting the Internet Computer Protocol (ICP). Founded with the mission to create a decentralized and inclusive digital infrastructure, DFINITY empowers builders and developers with the tools needed to create open and autonomous Internet services. The Swiss nonprofit also boasts the largest R&D team in the blockchain sector. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/portugals-maiden-hackathon-for-icp-developers-comes-to-a-close) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/portugals-maiden-hackathon-for-icp-developers-comes-to-a-close)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bu7lcw/inaugural_build_on_icp_hackathon_showcases/

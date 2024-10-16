@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/american-rare-earths-reports-on-two-independent-studies-on-metallurgical-work-on-ree-extraction-637735694 
 
-[Original/Source Press Release](https://newsdirect.com/news/american-rare-earths-reports-on-two-independent-studies-on-metallurgical-work-on-ree-extraction-637735694) 
+[Original/Source Press Release](https://newsdirect.com/news/american-rare-earths-reports-on-two-independent-studies-on-metallurgical-work-on-ree-extraction-637735694)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cmfzmf/american_rare_earths_announces_positive_results/

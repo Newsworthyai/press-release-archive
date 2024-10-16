@@ -18,6 +18,9 @@ OrganizationalDevelopment.org is committed to curating and presenting the most u
 
 Stay informed and explore the wealth of knowledge by visiting www.OrganizationalDevelopment.org. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231127858/organizationaldevelopment-org-debuts-destination-for-business-growth-and-insights) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231127858/organizationaldevelopment-org-debuts-destination-for-business-growth-and-insights)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx06c/organizationaldevelopmentorg_launches_as/

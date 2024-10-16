@@ -42,6 +42,9 @@ Contact DetailsSMC Entertainment, Inc.
 
 View source version on newsdirect.com: https://newsdirect.com/news/smc-announces-loi-to-acquire-chaintrade-ltd-805311841 
 
-[Original/Source Press Release](https://newsdirect.com/news/smc-announces-loi-to-acquire-chaintrade-ltd-805311841) 
+[Original/Source Press Release](https://newsdirect.com/news/smc-announces-loi-to-acquire-chaintrade-ltd-805311841)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cnb4pr/smc_enters_loi_to_acquire_ai_fintech_company/

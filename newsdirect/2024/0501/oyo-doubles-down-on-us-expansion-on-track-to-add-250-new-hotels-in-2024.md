@@ -32,6 +32,9 @@ Company Websitehttps://www.oyorooms.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/oyo-doubles-down-on-us-expansion-on-track-to-add-250-new-hotels-in-2024-154378316 
 
-[Original/Source Press Release](https://newsdirect.com/news/oyo-doubles-down-on-us-expansion-on-track-to-add-250-new-hotels-in-2024-154378316) 
+[Original/Source Press Release](https://newsdirect.com/news/oyo-doubles-down-on-us-expansion-on-track-to-add-250-new-hotels-in-2024-154378316)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/TravelAndLeisureNews/comments/1chn16q/oyo_to_add_250_hotels_in_us_in_2024_expanding/

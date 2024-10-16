@@ -48,6 +48,9 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-unites-with-global-community-at-token2049-singapore-946665870 
 
-[Original/Source Press Release](https://newsdirect.com/news/tron-dao-unites-with-global-community-at-token2049-singapore-946665870) 
+[Original/Source Press Release](https://newsdirect.com/news/tron-dao-unites-with-global-community-at-token2049-singapore-946665870)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1fqfj5o/tron_dao_unites_with_global_community_at/

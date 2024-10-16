@@ -14,6 +14,9 @@ Under Dev's leadership, the Jupiter Research Institute continuously expands the 
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/dev-vyas-in-collaboration-with-the-jupiter-research-institute-shapes-a-new-era-of-financial-technology-and-education-for-the-future) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/dev-vyas-in-collaboration-with-the-jupiter-research-institute-shapes-a-new-era-of-financial-technology-and-education-for-the-future)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1bvspk0/jupiter_research_institute_and_dev_vyas_shaping/

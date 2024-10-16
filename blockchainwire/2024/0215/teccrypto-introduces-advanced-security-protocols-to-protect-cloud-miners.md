@@ -38,6 +38,9 @@ Email:pr@teccrypto.comCompany: Crypto Technology LimitedWebsite: https://teccry
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/teccrypto-introduces-advanced-security-protocols-to-protect-cloud-miners) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/teccrypto-introduces-advanced-security-protocols-to-protect-cloud-miners)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1avwyys/teccryptocom_enhances_security_measures_for_cloud/

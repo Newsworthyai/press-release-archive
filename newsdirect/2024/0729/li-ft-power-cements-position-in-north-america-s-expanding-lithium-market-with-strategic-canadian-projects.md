@@ -52,6 +52,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/li-ft-power-cements-position-in-north-americas-expanding-lithium-market-with-strategic-canadian-projects-569965746 
 
-[Original/Source Press Release](https://newsdirect.com/news/li-ft-power-cements-position-in-north-americas-expanding-lithium-market-with-strategic-canadian-projects-569965746) 
+[Original/Source Press Release](https://newsdirect.com/news/li-ft-power-cements-position-in-north-americas-expanding-lithium-market-with-strategic-canadian-projects-569965746)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eeyp66/lift_power_leading_the_charge_in_north_americas/

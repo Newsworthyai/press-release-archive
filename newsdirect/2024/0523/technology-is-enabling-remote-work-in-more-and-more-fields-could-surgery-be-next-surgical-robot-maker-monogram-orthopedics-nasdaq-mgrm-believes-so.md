@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/technology-is-enabling-remote-work-in-more-and-more-fields-could-surgery-be-next-surgical-robot-maker-monogram-orthopedics-nasdaq-mgrm-believes-so-919627506 
 
-[Original/Source Press Release](https://newsdirect.com/news/technology-is-enabling-remote-work-in-more-and-more-fields-could-surgery-be-next-surgical-robot-maker-monogram-orthopedics-nasdaq-mgrm-believes-so-919627506) 
+[Original/Source Press Release](https://newsdirect.com/news/technology-is-enabling-remote-work-in-more-and-more-fields-could-surgery-be-next-surgical-robot-maker-monogram-orthopedics-nasdaq-mgrm-believes-so-919627506)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cys6s0/monogram_orthopedics_demonstrates_prowess_in/

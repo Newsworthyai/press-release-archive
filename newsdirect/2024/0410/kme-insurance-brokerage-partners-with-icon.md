@@ -50,6 +50,9 @@ Company Websitehttps://amerilife.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/kme-insurance-brokerage-partners-with-icon-915767602 
 
-[Original/Source Press Release](https://newsdirect.com/news/kme-insurance-brokerage-partners-with-icon-915767602) 
+[Original/Source Press Release](https://newsdirect.com/news/kme-insurance-brokerage-partners-with-icon-915767602)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c0mn9q/icon_partners_with_kme_insurance_brokerage_to/

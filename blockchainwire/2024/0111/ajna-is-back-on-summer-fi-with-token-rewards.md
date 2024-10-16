@@ -34,6 +34,9 @@ Contact
 
 david@ajna.finance 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/ajna-is-back-on-summerfi-with-token-rewards-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/ajna-is-back-on-summerfi-with-token-rewards-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avdqj4/summerfi_relaunches_ajna_protocol_with_new/

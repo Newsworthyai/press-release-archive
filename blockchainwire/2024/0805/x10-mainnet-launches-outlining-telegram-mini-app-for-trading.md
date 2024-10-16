@@ -26,6 +26,9 @@ X10 was founded by Revolut's former Head of Crypto Operations and other senior m
 
 For more information, please visit https://x10.exchange/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/x10-mainnet-launches-outlining-telegram-mini-app-for-trading) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/x10-mainnet-launches-outlining-telegram-mini-app-for-trading)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ekl3ab/x10_launches_on_mainnet_with_ambitious_goals/

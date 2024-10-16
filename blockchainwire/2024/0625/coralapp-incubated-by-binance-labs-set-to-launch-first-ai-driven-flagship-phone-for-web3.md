@@ -58,6 +58,9 @@ Discord: https://discord.gg/coral-tribe-929411582176428124
 
 Contact: [business@coralapp.network](mailto:business@coralapp.network) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/coralapp-incubated-by-binance-labs-set-to-launch-first-ai-driven-flagship-phone-for-web3) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/coralapp-incubated-by-binance-labs-set-to-launch-first-ai-driven-flagship-phone-for-web3)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1do6doj/coralapp_revolutionizes_digital_interaction_with/

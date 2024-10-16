@@ -40,6 +40,9 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-adds-google-cloud-as-a-super-representative-candidate-on-the-tron-blockchain-995915126 
 
-[Original/Source Press Release](https://newsdirect.com/news/tron-dao-adds-google-cloud-as-a-super-representative-candidate-on-the-tron-blockchain-995915126) 
+[Original/Source Press Release](https://newsdirect.com/news/tron-dao-adds-google-cloud-as-a-super-representative-candidate-on-the-tron-blockchain-995915126)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1crw261/google_cloud_joins_tron_dao_as_super/

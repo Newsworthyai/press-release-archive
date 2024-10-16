@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/north-bay-resources-completes-testing-at-bishop-gold-mill-targets-initial-5-000-tons-for-processing-973261311 
 
-[Original/Source Press Release](https://newsdirect.com/news/north-bay-resources-completes-testing-at-bishop-gold-mill-targets-initial-5-000-tons-for-processing-973261311) 
+[Original/Source Press Release](https://newsdirect.com/news/north-bay-resources-completes-testing-at-bishop-gold-mill-targets-initial-5-000-tons-for-processing-973261311)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dqtgr6/north_bay_resources_completes_testing_at_bishop/

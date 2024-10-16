@@ -10,6 +10,9 @@ To begin their journey towards mental wellness, interested individuals can start
 
 In conclusion, Ketamine Assisted Psychotherapy offers a groundbreaking and personalized solution to address mental health challenges. By combining the benefits of ketamine with therapeutic interventions, Balanced Mental Wellness empowers individuals to heal their wounds and rediscover their true essence. For those seeking lasting relief, personal growth, and a reconnection with their authentic selves, Ketamine Assisted Psychotherapy in Denver provides the ideal platform for transformation. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402171001/ketamine-assisted-psychotherapy-in-denver-a-powerful-treatment-option-for-mental-health-challenges) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402171001/ketamine-assisted-psychotherapy-in-denver-a-powerful-treatment-option-for-mental-health-challenges)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avc89r/balanced_mental_wellness_introduces_ketamine/

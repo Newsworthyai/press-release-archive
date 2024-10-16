@@ -34,6 +34,9 @@ Company Websitehttps://www.OCEAN.xyz
 
 View source version on newsdirect.com: https://newsdirect.com/news/ocean-restoring-bitcoin-mining-decentralization-177177279 
 
-[Original/Source Press Release](https://newsdirect.com/news/ocean-restoring-bitcoin-mining-decentralization-177177279) 
+[Original/Source Press Release](https://newsdirect.com/news/ocean-restoring-bitcoin-mining-decentralization-177177279)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fs57wf/ocean_launches_datum_protocol_to_restore_bitcoin/

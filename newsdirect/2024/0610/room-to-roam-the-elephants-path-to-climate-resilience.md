@@ -10,6 +10,9 @@ Company Websitehttps://newsmg.com/
 
 View original content to download multimedia: https://newsdirect.com/news/room-to-roam-the-elephants-path-to-climate-resilience-468836318 
 
-[Original/Source Press Release](https://newsdirect.com/news/room-to-roam-the-elephants-path-to-climate-resilience-468836318) 
+[Original/Source Press Release](https://newsdirect.com/news/room-to-roam-the-elephants-path-to-climate-resilience-468836318)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1dcixet/initiative_creates_path_for_elephants_climate/

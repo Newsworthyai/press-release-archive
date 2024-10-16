@@ -12,6 +12,9 @@ The introduction of Ketamine therapy aligns with Scott Integrated Pain Managemen
 
 Dr. Scott encourages patients with CRPS to explore the benefits of Ketamine therapy. He states, "Our team is dedicated to tailoring treatment plans that best suit the needs of our patients. With the introduction of Ketamine therapy, we hope to provide significant pain relief to individuals living with CRPS, enhancing their overall well-being and improving their quality of life." 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231124892/scott-integrated-pain-management-introduces-ketamine-therapy-for-crps-pain-management) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231124892/scott-integrated-pain-management-introduces-ketamine-therapy-for-crps-pain-management)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcse5/innovative_ketamine_therapy_introduced_for/

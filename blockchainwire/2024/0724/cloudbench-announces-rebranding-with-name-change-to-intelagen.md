@@ -16,6 +16,9 @@ About IntelagenIntelagen (formerly Cloudbench) is an AI integrator and developme
 
 Press Inquiries:Tom RicherCEOinvestorrelations@intelagen.ai 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/cloudbench-announces-rebranding-with-name-change-to-intelagen) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/cloudbench-announces-rebranding-with-name-change-to-intelagen)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eazrzf/cloudbench_rebrands_to_intelagen_emphasizing/

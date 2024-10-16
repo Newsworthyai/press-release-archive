@@ -28,6 +28,9 @@ Unless otherwise provided in a separate agreement, Alpha Sigma Capital does not 
 
 Crypto and/or digital currencies involve substantial risk, are speculative in nature, and may not perform as expected. Many digital currency platforms are not subject to regulatory supervision, unlike regulated exchanges. Some platforms may commingle customer assets in shared accounts and provide inadequate custody, which may affect whether or how investors can withdraw their currency and/or subject them to money laundering. Digital currencies may be vulnerable to hacks and cyber fraud as well as significant volatility and price swings. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/alpha-sigma-capital-research-releases-new-research-on-alvara-protocol-alva) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/alpha-sigma-capital-research-releases-new-research-on-alvara-protocol-alva)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvmik4/new_research_released_on_alvara_protocol_by_alpha/

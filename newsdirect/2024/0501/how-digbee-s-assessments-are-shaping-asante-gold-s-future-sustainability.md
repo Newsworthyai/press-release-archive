@@ -18,6 +18,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-digbees-assessments-are-shaping-asante-golds-future-sustainability-588928363 
 
-[Original/Source Press Release](https://newsdirect.com/news/how-digbees-assessments-are-shaping-asante-golds-future-sustainability-588928363) 
+[Original/Source Press Release](https://newsdirect.com/news/how-digbees-assessments-are-shaping-asante-golds-future-sustainability-588928363)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1chn199/digbees_impact_on_asante_golds_sustainability/

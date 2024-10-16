@@ -92,6 +92,9 @@ Join us as we continue to revolutionize Bitcoin!
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/microvisionchain-celebrates-first-anniversary-mainnet-launch-and-f2pool-listing-of-space) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/microvisionchain-celebrates-first-anniversary-mainnet-launch-and-f2pool-listing-of-space)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjtxg/microvisionchain_mvc_marks_first_anniversary_with/

@@ -68,6 +68,9 @@ Contact DetailsSMC Entertainment Inc.
 
 View source version on newsdirect.com: https://newsdirect.com/news/smce-otc-smce-announces-launch-of-chaintrade-its-ai-powered-platform-revolutionizing-data-intelligence-in-capital-markets-196551829 
 
-[Original/Source Press Release](https://newsdirect.com/news/smce-otc-smce-announces-launch-of-chaintrade-its-ai-powered-platform-revolutionizing-data-intelligence-in-capital-markets-196551829) 
+[Original/Source Press Release](https://newsdirect.com/news/smce-otc-smce-announces-launch-of-chaintrade-its-ai-powered-platform-revolutionizing-data-intelligence-in-capital-markets-196551829)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ex4aa4/smce_announces_launch_of_chaintradeai_an/

@@ -38,6 +38,9 @@ Overall, Cloud Binary Server offers affordability, accessibility, and reliable c
 
 Official Website | Telegram | Twitter | Medium | YouTube 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/introducing-cloud-binary-server---secure-and-anonymous-cloud-solutions-for-decentralized-and-ai-ml-applications) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/introducing-cloud-binary-server---secure-and-anonymous-cloud-solutions-for-decentralized-and-ai-ml-applications)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1b6rr93/cloud_binary_server_launches_costeffective_cloud/

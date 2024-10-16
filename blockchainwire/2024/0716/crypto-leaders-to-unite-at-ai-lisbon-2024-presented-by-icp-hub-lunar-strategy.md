@@ -23,6 +23,9 @@ About ICP Hub PortugalICP Hub Portugal is a recent and vital addition to the glo
 
 About Lunar StrategyLunar Strategy is an award-winning agency that has significantly impacted the growth of over 200 crypto ecosystems and projects since 2019. With more than $200 million raised for clients and $3 million invested into KOLs, Lunar Strategy is dedicated to creating sustainable growth for crypto projects. The agency leverages its deep expertise and marketing acumen to allow project teams to focus on building their products while ensuring they reach millions of targeted, highly engaged users. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/crypto-leaders-to-unite-at-ai-lisbon-2024-presented-by-icp-hub--lunar-strategy) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/crypto-leaders-to-unite-at-ai-lisbon-2024-presented-by-icp-hub--lunar-strategy)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ecnq10/crypto_ai_conference_2024_set_to_take_lisbon_by/

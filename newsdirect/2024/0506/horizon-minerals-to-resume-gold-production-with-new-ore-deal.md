@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/horizon-minerals-to-resume-gold-production-with-new-ore-deal-381834011 
 
-[Original/Source Press Release](https://newsdirect.com/news/horizon-minerals-to-resume-gold-production-with-new-ore-deal-381834011) 
+[Original/Source Press Release](https://newsdirect.com/news/horizon-minerals-to-resume-gold-production-with-new-ore-deal-381834011)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1clohqf/horizon_minerals_resumes_gold_production_with_new/

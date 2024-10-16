@@ -30,6 +30,9 @@ Company Websitehttps://www.lucenorfolk.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/celebrated-chef-antonio-caruana-culinary-mastermind-behind-restaurants-luce-and-luce-secondo-240510614 
 
-[Original/Source Press Release](https://newsdirect.com/news/celebrated-chef-antonio-caruana-culinary-mastermind-behind-restaurants-luce-and-luce-secondo-240510614) 
+[Original/Source Press Release](https://newsdirect.com/news/celebrated-chef-antonio-caruana-culinary-mastermind-behind-restaurants-luce-and-luce-secondo-240510614)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1e1qat5/chef_antonio_caruana_named_best_chef_by_coastal/

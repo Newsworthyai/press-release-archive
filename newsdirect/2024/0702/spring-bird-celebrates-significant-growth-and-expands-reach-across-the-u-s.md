@@ -24,6 +24,9 @@ Company Websitehttps://springbirdbus.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/spring-bird-celebrates-significant-growth-and-expands-reach-across-the-u-s-519998512 
 
-[Original/Source Press Release](https://newsdirect.com/news/spring-bird-celebrates-significant-growth-and-expands-reach-across-the-u-s-519998512) 
+[Original/Source Press Release](https://newsdirect.com/news/spring-bird-celebrates-significant-growth-and-expands-reach-across-the-u-s-519998512)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dtq87p/spring_bird_celebrates_remarkable_growth_and/

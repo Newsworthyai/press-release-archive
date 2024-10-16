@@ -21,6 +21,9 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/clene-nasdaq-clnn-ceo-discusses-cnm-au8r-trial-results-on-biomedwire-podcast/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/clene-nasdaq-clnn-ceo-discusses-cnm-au8r-trial-results-on-biomedwire-podcast/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1f4oomq/clenes_cnmau8_trials_show_promise_for_als_and_ms/

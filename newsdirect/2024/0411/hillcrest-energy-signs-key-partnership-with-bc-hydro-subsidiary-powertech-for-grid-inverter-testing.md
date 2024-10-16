@@ -20,6 +20,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hillcrest-energy-signs-key-partnership-with-bc-hydro-subsidiary-powertech-for-grid-inverter-testing-578025613 
 
-[Original/Source Press Release](https://newsdirect.com/news/hillcrest-energy-signs-key-partnership-with-bc-hydro-subsidiary-powertech-for-grid-inverter-testing-578025613) 
+[Original/Source Press Release](https://newsdirect.com/news/hillcrest-energy-signs-key-partnership-with-bc-hydro-subsidiary-powertech-for-grid-inverter-testing-578025613)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c1p0im/hillcrest_energy_partners_with_powertech_labs_for/

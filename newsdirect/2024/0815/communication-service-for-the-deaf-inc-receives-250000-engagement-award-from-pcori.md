@@ -30,6 +30,9 @@ Company Websitehttps://www.csd.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/communication-service-for-the-deaf-inc-receives-250-000-engagement-award-from-pcori-375557008 
 
-[Original/Source Press Release](https://newsdirect.com/news/communication-service-for-the-deaf-inc-receives-250-000-engagement-award-from-pcori-375557008) 
+[Original/Source Press Release](https://newsdirect.com/news/communication-service-for-the-deaf-inc-receives-250-000-engagement-award-from-pcori-375557008)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1estng6/csd_awarded_250000_to_improve_virtual_healthcare/

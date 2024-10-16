@@ -14,6 +14,9 @@ Given the profound impact of ketamine treatment, individuals seeking this therap
 
 As more studies continue to unveil the therapeutic potential of ketamine, medical professionals, patients, and advocates alike emphasize the importance of expanding access to this game-changing treatment option. Ketamine has already transformed the lives of countless individuals, and its impact is set to extend further as awareness grows. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231228944/ketamine-treatment-offers-new-hope-for-mental-health-and-pain-conditions) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231228944/ketamine-treatment-offers-new-hope-for-mental-health-and-pain-conditions)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avcw8z/ketamine_a_gamechanging_treatment_for_mental/

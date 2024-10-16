@@ -12,6 +12,9 @@ After the initial assessment, clients will receive tailored treatment sessions a
 
 TMS NW is committed to making TMS therapy accessible to as many individuals as possible. The therapy is covered by most insurances, with clients potentially paying a copay or coinsurance at each session. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231221923/tms-nw-introduces-transformative-tms-therapy-for-mental-health-wellness) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231221923/tms-nw-introduces-transformative-tms-therapy-for-mental-health-wellness)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcvn4/revolutionary_tms_therapy_now_available_in/

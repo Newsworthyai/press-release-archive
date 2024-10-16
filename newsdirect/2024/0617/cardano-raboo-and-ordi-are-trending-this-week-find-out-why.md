@@ -34,6 +34,9 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/cardano-raboo-and-ordi-are-trending-this-week-find-out-why-664655140 
 
-[Original/Source Press Release](https://newsdirect.com/news/cardano-raboo-and-ordi-are-trending-this-week-find-out-why-664655140) 
+[Original/Source Press Release](https://newsdirect.com/news/cardano-raboo-and-ordi-are-trending-this-week-find-out-why-664655140)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dhxwcl/cardano_raboo_and_ordi_the_hottest_trends_in/

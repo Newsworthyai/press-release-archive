@@ -28,6 +28,9 @@ Company Websitehttps://iondigitalcorp.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/i-on-digital-corp-announces-shareholder-update-and-management-discussion-911952278 
 
-[Original/Source Press Release](https://newsdirect.com/news/i-on-digital-corp-announces-shareholder-update-and-management-discussion-911952278) 
+[Original/Source Press Release](https://newsdirect.com/news/i-on-digital-corp-announces-shareholder-update-and-management-discussion-911952278)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1fjrblv/ion_digital_corp_announces_shareholder_update_and/

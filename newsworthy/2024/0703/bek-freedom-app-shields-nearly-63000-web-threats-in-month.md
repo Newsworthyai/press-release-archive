@@ -18,6 +18,9 @@ BEK Communications Cooperative, founded in 1952, is a communications services co
 
 BEK emphasizes their fast, friendly, local service experience and a broad portfolio of high-quality communications, enterprise, broadcasting, and advertising services. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202407031204/bek-freedom-app-shields-nearly-63000-web-threats-in-month) 
+[Original/Source Press Release](https://newsworthy.ai/news/202407031204/bek-freedom-app-shields-nearly-63000-web-threats-in-month)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1duhg6a/bek_communications_achieves_milestone_with_bek/

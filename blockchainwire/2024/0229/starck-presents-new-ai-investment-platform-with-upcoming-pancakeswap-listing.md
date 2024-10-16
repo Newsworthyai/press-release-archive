@@ -30,6 +30,9 @@ It will be possible to follow Starck's progress and success through its officia
 
 X (Twitter) | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/starck-presents-new-ai-investment-platform-with-upcoming-pancakeswap-listing-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/starck-presents-new-ai-investment-platform-with-upcoming-pancakeswap-listing-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1b6ro8a/starck_announces_launch_of_stk_token_on/

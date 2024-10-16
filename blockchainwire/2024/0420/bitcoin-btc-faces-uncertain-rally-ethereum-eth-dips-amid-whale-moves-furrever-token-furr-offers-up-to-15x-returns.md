@@ -40,6 +40,9 @@ Secure the Most Exclusive Presale Opportunity of 2024 Today!Furrever Token Offic
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-btc-faces-uncertain-rally-ethereum-eth-dips-amid-whale-moves-furrever-token-furr-offers-up-to-15x-returns) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-btc-faces-uncertain-rally-ethereum-eth-dips-amid-whale-moves-furrever-token-furr-offers-up-to-15x-returns)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c91ysr/cryptocurrency_market_update_bitcoin_halving/

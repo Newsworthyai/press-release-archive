@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/thor-explorations-says-gold-price-has-boosted-cash-generation-as-it-reiterates-production-guidance-130584243 
 
-[Original/Source Press Release](https://newsdirect.com/news/thor-explorations-says-gold-price-has-boosted-cash-generation-as-it-reiterates-production-guidance-130584243) 
+[Original/Source Press Release](https://newsdirect.com/news/thor-explorations-says-gold-price-has-boosted-cash-generation-as-it-reiterates-production-guidance-130584243)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c874js/thor_explorations_ltd_on_track_to_meet_gold/

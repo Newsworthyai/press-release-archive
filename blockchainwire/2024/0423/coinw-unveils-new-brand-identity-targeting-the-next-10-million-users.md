@@ -12,6 +12,9 @@ As part of the grand ceremony, awards were presented to industry KOLs (Key Opini
 
 The grand ceremony culminated in a mesmerizing performance by Lebanese pianist Guy Manoukian. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-unveils-new-brand-identity-targeting-the-next-10-million-users) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-unveils-new-brand-identity-targeting-the-next-10-million-users)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cb8j26/coinw_unveils_new_logo_at_ultraluxury_dubai/

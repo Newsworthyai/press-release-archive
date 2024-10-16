@@ -18,6 +18,9 @@ Optometry Magazine stands as a dedicated source for cutting-edge knowledge and t
 
 Discover more and stay updated by visiting www.OptometryMagazine.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231127857/optometry-magazine-launches-the-forefront-of-vision-care-knowledge-and-expertise) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231127857/optometry-magazine-launches-the-forefront-of-vision-care-knowledge-and-expertise)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcsm2/introducing_optometry_magazine_your_goto_source/

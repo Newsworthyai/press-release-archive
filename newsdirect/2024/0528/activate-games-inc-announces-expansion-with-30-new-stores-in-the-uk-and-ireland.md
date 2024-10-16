@@ -46,6 +46,9 @@ Company Websitehttps://playactivate.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/activate-games-inc-announces-expansion-with-30-new-stores-in-the-uk-and-ireland-496116585 
 
-[Original/Source Press Release](https://newsdirect.com/news/activate-games-inc-announces-expansion-with-30-new-stores-in-the-uk-and-ireland-496116585) 
+[Original/Source Press Release](https://newsdirect.com/news/activate-games-inc-announces-expansion-with-30-new-stores-in-the-uk-and-ireland-496116585)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d2i48e/activate_games_inc_announces_expansion_with_30/

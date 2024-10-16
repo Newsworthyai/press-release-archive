@@ -26,6 +26,9 @@ Company Websitehttps://pawfury.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pawfurys-presale-success-continues-with-1-9-million-raised-projected-to-transform-crypto-investments-157844617 
 
-[Original/Source Press Release](https://newsdirect.com/news/pawfurys-presale-success-continues-with-1-9-million-raised-projected-to-transform-crypto-investments-157844617) 
+[Original/Source Press Release](https://newsdirect.com/news/pawfurys-presale-success-continues-with-1-9-million-raised-projected-to-transform-crypto-investments-157844617)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cg1eji/pawfury_raises_nearly_19_million_in_presale_set/

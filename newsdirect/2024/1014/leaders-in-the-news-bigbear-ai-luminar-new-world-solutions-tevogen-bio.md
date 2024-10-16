@@ -50,6 +50,9 @@ Wall Street Reporter
 
 View source version on newsdirect.com: https://newsdirect.com/news/leaders-in-the-news-bigbear-ai-luminar-new-world-solutions-tevogen-bio-196807719 
 
-[Original/Source Press Release](https://newsdirect.com/news/leaders-in-the-news-bigbear-ai-luminar-new-world-solutions-tevogen-bio-196807719) 
+[Original/Source Press Release](https://newsdirect.com/news/leaders-in-the-news-bigbear-ai-luminar-new-world-solutions-tevogen-bio-196807719)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1g3j5bq/latest_insights_from_bigbearai_tevogen_bio/

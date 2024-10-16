@@ -26,6 +26,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/a-new-way-to-fly-combining-the-best-of-a-helicopter-and-an-airplane-861357173 
 
-[Original/Source Press Release](https://newsdirect.com/news/a-new-way-to-fly-combining-the-best-of-a-helicopter-and-an-airplane-861357173) 
+[Original/Source Press Release](https://newsdirect.com/news/a-new-way-to-fly-combining-the-best-of-a-helicopter-and-an-airplane-861357173)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1fy6o81/new_horizon_aircraft_ceo_discusses_groundbreaking/

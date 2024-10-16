@@ -30,6 +30,9 @@ LinkedIn: https://www.linkedin.com/company/particlenetwork
 
 GitHub: https://github.com/Particle-Network 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/particle-network-unveils-modular-layer-1-for-chain-abstraction--universal-accounts) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/particle-network-unveils-modular-layer-1-for-chain-abstraction--universal-accounts)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bjhbdg/particle_network_unveils_revolutionary_modular/

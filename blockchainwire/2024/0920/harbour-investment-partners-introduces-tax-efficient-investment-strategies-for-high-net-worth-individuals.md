@@ -46,6 +46,9 @@ While minimizing tax burdens is critical, Harbour Investment Partners also ensur
 
 High-net-worth individuals and families seeking to reduce their tax liabilities and maximize their investment returns are encouraged to explore Harbour Investment Partners’ tax-efficient investment strategies. A personalized consultation will provide insight into how the firm’s tailored solutions can benefit individual financial situations. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/harbour-investment-partners-introduces-tax-efficient-investment-strategies-for-high-net-worth-individuals) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/harbour-investment-partners-introduces-tax-efficient-investment-strategies-for-high-net-worth-individuals)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1flax6y/harbour_investment_partners_launches_taxefficient/

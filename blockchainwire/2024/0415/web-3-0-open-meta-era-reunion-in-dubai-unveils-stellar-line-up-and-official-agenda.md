@@ -50,6 +50,9 @@ Email: info@web3open.io
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/web-30-open---meta-era-reunion-in-dubai-unveils-stellar-line-up-and-official-agenda) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/web-30-open---meta-era-reunion-in-dubai-unveils-stellar-line-up-and-official-agenda)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1c4rp30/meta_era_announces_exclusive_web_30_open_reunion/

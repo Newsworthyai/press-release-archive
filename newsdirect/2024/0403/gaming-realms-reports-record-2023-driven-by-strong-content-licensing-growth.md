@@ -22,6 +22,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gaming-realms-reports-record-2023-driven-by-strong-content-licensing-growth-106535581 
 
-[Original/Source Press Release](https://newsdirect.com/news/gaming-realms-reports-record-2023-driven-by-strong-content-licensing-growth-106535581) 
+[Original/Source Press Release](https://newsdirect.com/news/gaming-realms-reports-record-2023-driven-by-strong-content-licensing-growth-106535581)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1buu5vs/gaming_realms_plc_ceo_mark_segal_discusses/

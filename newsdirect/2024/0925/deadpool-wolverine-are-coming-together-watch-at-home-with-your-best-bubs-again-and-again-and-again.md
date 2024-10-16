@@ -144,6 +144,9 @@ mcuonzo@marcellacpr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/deadpool-and-wolverine-are-coming-together-watch-at-home-with-your-best-bubs-again-and-again-and-again-207748265 
 
-[Original/Source Press Release](https://newsdirect.com/news/deadpool-and-wolverine-are-coming-together-watch-at-home-with-your-best-bubs-again-and-again-and-again-207748265) 
+[Original/Source Press Release](https://newsdirect.com/news/deadpool-and-wolverine-are-coming-together-watch-at-home-with-your-best-bubs-again-and-again-and-again-207748265)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1fp8a2z/deadpool_wolverine_hits_digital_retailers_and/

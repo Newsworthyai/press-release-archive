@@ -22,6 +22,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ceo-roby-zomer-discusses-argent-biopharmas-future-in-pharmaceuticals-360556921 
 
-[Original/Source Press Release](https://newsdirect.com/news/ceo-roby-zomer-discusses-argent-biopharmas-future-in-pharmaceuticals-360556921) 
+[Original/Source Press Release](https://newsdirect.com/news/ceo-roby-zomer-discusses-argent-biopharmas-future-in-pharmaceuticals-360556921)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1chndnw/argent_biopharma_shifts_focus_to_pharmaceutical/

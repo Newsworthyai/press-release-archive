@@ -54,6 +54,9 @@ Website: www.defiquant.net
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/defiquants-automated-trading-bots-surge-in-popularity-as-bitcoin-reaches-new-heights) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/defiquants-automated-trading-bots-surge-in-popularity-as-bitcoin-reaches-new-heights)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1b6rok3/bitcoins_surge_sparks_high_demand_for_defiquants/

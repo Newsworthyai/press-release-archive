@@ -18,6 +18,9 @@ Informatics Magazine aspires to be the preferred digital destination for profess
 
 Elevate your understanding of the digital world by visiting www.InformaticsMagazine.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231205826/informatics-magazine-debuts-a-leading-digital-platform-for-data-science-and-technology-enthusiasts) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231205826/informatics-magazine-debuts-a-leading-digital-platform-for-data-science-and-technology-enthusiasts)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1avx1me/informatics_magazine_launches_a_new_digital_hub/

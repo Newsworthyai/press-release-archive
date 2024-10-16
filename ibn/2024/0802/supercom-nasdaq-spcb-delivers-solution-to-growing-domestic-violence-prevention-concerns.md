@@ -26,6 +26,9 @@
 
  TechMediaWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/supercom-nasdaq-spcb-delivers-solution-to-growing-domestic-violence-prevention-concerns/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/supercom-nasdaq-spcb-delivers-solution-to-growing-domestic-violence-prevention-concerns/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2fjud/supercom_ltd_bolsters_public_safety_and_earns_11m/

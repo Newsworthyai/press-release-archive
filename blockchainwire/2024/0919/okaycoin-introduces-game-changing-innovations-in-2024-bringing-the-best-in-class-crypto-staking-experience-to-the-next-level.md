@@ -32,6 +32,9 @@ OKCoin's focused combination of state-of-the-art technology, variety in staking 
 
 Passive income with the help of staking, validation of transactions in Proof of Stake systems, and access to staking pools in various cryptocurrencies- the innovative multifunctional OkayCoin platform provides everything required for comfort during work with staking of cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/okaycoin-introduces-game-changing-innovations-in-2024-bringing-the-best-in-class-crypto-staking-experience-to-the-next-level) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/okaycoin-introduces-game-changing-innovations-in-2024-bringing-the-best-in-class-crypto-staking-experience-to-the-next-level)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fl09co/okaycoin_becomes_worlds_largest_crypto_exchange/

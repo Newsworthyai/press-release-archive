@@ -52,6 +52,9 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/analysts-forecast-impending-rise-for-ada-and-sol-kangamoon-to-reach-new-milestone-soon-608880602 
 
-[Original/Source Press Release](https://newsdirect.com/news/analysts-forecast-impending-rise-for-ada-and-sol-kangamoon-to-reach-new-milestone-soon-608880602) 
+[Original/Source Press Release](https://newsdirect.com/news/analysts-forecast-impending-rise-for-ada-and-sol-kangamoon-to-reach-new-milestone-soon-608880602)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c3urza/pcrypto_analysts_project_impending_rise_for_ada/

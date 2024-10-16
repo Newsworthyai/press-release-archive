@@ -33,6 +33,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/an-inherited-condition-could-be-the-cause-of-your-early-heart-disease-or-stroke-but-your-doctor-is-probably-not-testing-for-it-573486185 
 
-[Original/Source Press Release](https://newsdirect.com/news/an-inherited-condition-could-be-the-cause-of-your-early-heart-disease-or-stroke-but-your-doctor-is-probably-not-testing-for-it-573486185) 
+[Original/Source Press Release](https://newsdirect.com/news/an-inherited-condition-could-be-the-cause-of-your-early-heart-disease-or-stroke-but-your-doctor-is-probably-not-testing-for-it-573486185)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1bnudvp/new_research_reveals_lack_of_screening_for/

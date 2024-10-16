@@ -42,6 +42,9 @@ Todd Waltz
 
 investors@aemetis.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/aemetis-biogas-completes-initial-construction-phase-of-multi-dairy-digester-7076149) 
+[Original/Source Press Release](https://www.newmediawire.com/news/aemetis-biogas-completes-initial-construction-phase-of-multi-dairy-digester-7076149)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fx6l3s/aemetis_announces_biogas_production_to_begin_by/

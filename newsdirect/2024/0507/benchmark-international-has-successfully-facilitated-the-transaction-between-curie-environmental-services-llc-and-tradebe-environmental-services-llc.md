@@ -38,6 +38,9 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-has-successfully-facilitated-the-transaction-between-curie-environmental-services-llc-and-tradebe-environmental-services-llc-869948603 
 
-[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-has-successfully-facilitated-the-transaction-between-curie-environmental-services-llc-and-tradebe-environmental-services-llc-869948603) 
+[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-has-successfully-facilitated-the-transaction-between-curie-environmental-services-llc-and-tradebe-environmental-services-llc-869948603)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cmjsco/benchmark_international_facilitates_acquisition/

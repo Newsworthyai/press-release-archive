@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/angle-announces-second-assay-with-astrazeneca-as-it-deepens-relationship-with-pharma-giant-484401574 
 
-[Original/Source Press Release](https://newsdirect.com/news/angle-announces-second-assay-with-astrazeneca-as-it-deepens-relationship-with-pharma-giant-484401574) 
+[Original/Source Press Release](https://newsdirect.com/news/angle-announces-second-assay-with-astrazeneca-as-it-deepens-relationship-with-pharma-giant-484401574)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cn3a8h/angle_plc_announces_supplier_agreement_with/

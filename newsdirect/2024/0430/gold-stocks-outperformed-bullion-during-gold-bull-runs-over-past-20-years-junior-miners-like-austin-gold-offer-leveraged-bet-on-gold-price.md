@@ -51,6 +51,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gold-stocks-outperformed-bullion-during-gold-bull-runs-over-past-20-years-junior-miners-like-austin-gold-offer-leveraged-bet-on-gold-price-212085865 
 
-[Original/Source Press Release](https://newsdirect.com/news/gold-stocks-outperformed-bullion-during-gold-bull-runs-over-past-20-years-junior-miners-like-austin-gold-offer-leveraged-bet-on-gold-price-212085865) 
+[Original/Source Press Release](https://newsdirect.com/news/gold-stocks-outperformed-bullion-during-gold-bull-runs-over-past-20-years-junior-miners-like-austin-gold-offer-leveraged-bet-on-gold-price-212085865)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cgsl2y/gold_exploration_companies_positioned_for/

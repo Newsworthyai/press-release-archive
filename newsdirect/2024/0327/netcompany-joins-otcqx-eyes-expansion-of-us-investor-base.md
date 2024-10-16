@@ -22,6 +22,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/netcompany-joins-otcqx-eyes-expansion-of-us-investor-base-988445030 
 
-[Original/Source Press Release](https://newsdirect.com/news/netcompany-joins-otcqx-eyes-expansion-of-us-investor-base-988445030) 
+[Original/Source Press Release](https://newsdirect.com/news/netcompany-joins-otcqx-eyes-expansion-of-us-investor-base-988445030)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bp2kwa/netcompany_joins_otcqx_eyes_expansion_of_us/

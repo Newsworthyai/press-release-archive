@@ -34,6 +34,9 @@ https://twitter.com/Option2Trade (O2T)
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/can-this-1000x-token-dominate-3-total-market-share-before-bitcoin-btc-halving-and-ethereum-eth-etf-release) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/can-this-1000x-token-dominate-3-total-market-share-before-bitcoin-btc-halving-and-ethereum-eth-etf-release)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bwj4oy/option2trade_o2t_aims_for_1000x_growth_and_3/

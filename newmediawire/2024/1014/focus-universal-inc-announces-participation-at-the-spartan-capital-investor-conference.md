@@ -58,6 +58,9 @@ https://www.linkedin.com/company/spartan-capital-securities-llc/
 
 https://x.com/SpartanCapSec 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/focus-universal-inc-announces-participation-at-the-spartan-capital-investor-conference-7076212) 
+[Original/Source Press Release](https://www.newmediawire.com/news/focus-universal-inc-announces-participation-at-the-spartan-capital-investor-conference-7076212)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1g3f28i/focus_universal_inc_to_participate_in_spartan/

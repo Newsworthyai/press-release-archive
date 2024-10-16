@@ -8,6 +8,9 @@ Unlike other invasive treatments, dTMS therapy is not painful or disturbs the pa
 
 The Remedy's commitment to ensuring the best mental healthcare quality culminates in the introduction of dTMS therapy. Every person deserves an effective treatment option according to The Remedy, and they are dedicated to expanding the scope of their services 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20240118994/the-remedy-introduces-deep-tms-therapy-for-effective-treatment-of-depression-and-ocd) 
+[Original/Source Press Release](https://newsworthy.ai/news/20240118994/the-remedy-introduces-deep-tms-therapy-for-effective-treatment-of-depression-and-ocd)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdpch/the_remedy_introduces_advanced_deep_tms_therapy/

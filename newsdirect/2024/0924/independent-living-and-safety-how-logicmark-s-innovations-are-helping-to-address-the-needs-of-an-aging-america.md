@@ -54,6 +54,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/independent-living-and-safety-how-logicmarks-innovations-are-helping-to-address-the-needs-of-an-aging-america-237343720 
 
-[Original/Source Press Release](https://newsdirect.com/news/independent-living-and-safety-how-logicmarks-innovations-are-helping-to-address-the-needs-of-an-aging-america-237343720) 
+[Original/Source Press Release](https://newsdirect.com/news/independent-living-and-safety-how-logicmarks-innovations-are-helping-to-address-the-needs-of-an-aging-america-237343720)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fobw9t/logicmarks_innovations_address_the_needs_of_an/

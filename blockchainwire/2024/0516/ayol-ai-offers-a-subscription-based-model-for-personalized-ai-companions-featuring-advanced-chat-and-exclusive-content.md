@@ -14,6 +14,9 @@ Website: https://ayol.ai
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/ayolai-offers-a-subscription-based-model-for-personalized-ai-companions-featuring-advanced-chat-and-exclusive-content) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/ayolai-offers-a-subscription-based-model-for-personalized-ai-companions-featuring-advanced-chat-and-exclusive-content)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cto55r/ayolai_redefining_humanai_interaction_with/

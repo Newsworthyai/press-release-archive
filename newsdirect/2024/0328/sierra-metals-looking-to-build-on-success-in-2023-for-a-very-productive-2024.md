@@ -20,6 +20,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sierra-metals-looking-to-build-on-success-in-2023-for-a-very-productive-2024-846622463 
 
-[Original/Source Press Release](https://newsdirect.com/news/sierra-metals-looking-to-build-on-success-in-2023-for-a-very-productive-2024-846622463) 
+[Original/Source Press Release](https://newsdirect.com/news/sierra-metals-looking-to-build-on-success-in-2023-for-a-very-productive-2024-846622463)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bpumx0/sierra_metals_reports_strong_financial/

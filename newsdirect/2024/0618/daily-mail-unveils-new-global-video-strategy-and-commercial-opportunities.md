@@ -30,6 +30,9 @@ Company Websitehttps://www.dailymail.co.uk/ushome/index.html
 
 View source version on newsdirect.com: https://newsdirect.com/news/daily-mail-unveils-new-global-video-strategy-and-commercial-opportunities-890390705 
 
-[Original/Source Press Release](https://newsdirect.com/news/daily-mail-unveils-new-global-video-strategy-and-commercial-opportunities-890390705) 
+[Original/Source Press Release](https://newsdirect.com/news/daily-mail-unveils-new-global-video-strategy-and-commercial-opportunities-890390705)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1disf3u/daily_mail_unveils_new_global_video_strategy_and/

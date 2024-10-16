@@ -26,6 +26,9 @@ Company Websitehttps://hovecapitalmanagement.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/hove-capital-management-explores-potential-strategic-partnerships-with-bnp-paribas-and-societe-generale-722906753 
 
-[Original/Source Press Release](https://newsdirect.com/news/hove-capital-management-explores-potential-strategic-partnerships-with-bnp-paribas-and-societe-generale-722906753) 
+[Original/Source Press Release](https://newsdirect.com/news/hove-capital-management-explores-potential-strategic-partnerships-with-bnp-paribas-and-societe-generale-722906753)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ezinfy/hove_capital_management_seeks_strategic/

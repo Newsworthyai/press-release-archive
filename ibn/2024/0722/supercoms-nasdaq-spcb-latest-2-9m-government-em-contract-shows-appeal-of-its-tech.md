@@ -27,6 +27,9 @@
 
  TechMediaWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/supercoms-nasdaq-spcb-latest-2-9m-government-em-contract-shows-appeal-of-its-tech/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/supercoms-nasdaq-spcb-latest-2-9m-government-em-contract-shows-appeal-of-its-tech/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1f2feps/supercom_ltd_secures_third_european_government/

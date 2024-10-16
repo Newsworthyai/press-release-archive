@@ -20,6 +20,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nevada-lithium-ceo-discusses-innovative-mining-model-proposed-at-bonnie-claire-593675777 
 
-[Original/Source Press Release](https://newsdirect.com/news/nevada-lithium-ceo-discusses-innovative-mining-model-proposed-at-bonnie-claire-593675777) 
+[Original/Source Press Release](https://newsdirect.com/news/nevada-lithium-ceo-discusses-innovative-mining-model-proposed-at-bonnie-claire-593675777)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c6hyom/nevada_lithium_ceo_unveils_innovative_mining/

@@ -28,6 +28,9 @@ Company Websitehttps://www.mybluepeak.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bluepeak-to-invest-more-than-31-million-to-bring-fiber-optic-internet-to-the-cities-of-stephenville-mineral-wells-and-ennis-914958652 
 
-[Original/Source Press Release](https://newsdirect.com/news/bluepeak-to-invest-more-than-31-million-to-bring-fiber-optic-internet-to-the-cities-of-stephenville-mineral-wells-and-ennis-914958652) 
+[Original/Source Press Release](https://newsdirect.com/news/bluepeak-to-invest-more-than-31-million-to-bring-fiber-optic-internet-to-the-cities-of-stephenville-mineral-wells-and-ennis-914958652)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1elk9pz/bluepeak_invests_31m_to_expand_fiber_internet_in/

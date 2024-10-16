@@ -12,6 +12,9 @@ In addition to medication management and innovative therapies, Pacific Mind Heal
 
 Pacific Mind Health aims to make mental health care accessible to as many individuals as possible and accepts several insurance providers. For those not covered, the clinic is dedicated to helping patients navigate out-of-network benefits and providing reimbursement options to ensure their needs are met. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231221924/pacific-mind-health-a-leading-provider-of-comprehensive-and-innovative-mental-health-care) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231221924/pacific-mind-health-a-leading-provider-of-comprehensive-and-innovative-mental-health-care)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcvle/leading_mental_health_clinic_offers_innovative/

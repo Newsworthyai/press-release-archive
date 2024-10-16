@@ -30,6 +30,9 @@ ksmith@pcgadvisory.com
 
 www.pcgadvisory.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/auddia-announces-doubling-the-number-of-stations-in-its-faidr-mobile-app-7076120) 
+[Original/Source Press Release](https://www.newmediawire.com/news/auddia-announces-doubling-the-number-of-stations-in-its-faidr-mobile-app-7076120)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1fst98p/auddia_inc_expands_available_amfm_stations_and/

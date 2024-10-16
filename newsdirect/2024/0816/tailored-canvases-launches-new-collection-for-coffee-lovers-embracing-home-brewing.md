@@ -26,6 +26,9 @@ Company Websitehttps://tailoredcanvases.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tailored-canvases-launches-new-collection-for-coffee-lovers-embracing-home-brewing-297764545 
 
-[Original/Source Press Release](https://newsdirect.com/news/tailored-canvases-launches-new-collection-for-coffee-lovers-embracing-home-brewing-297764545) 
+[Original/Source Press Release](https://newsdirect.com/news/tailored-canvases-launches-new-collection-for-coffee-lovers-embracing-home-brewing-297764545)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1etlvpo/tailored_canvases_launches_new_coffeethemed/

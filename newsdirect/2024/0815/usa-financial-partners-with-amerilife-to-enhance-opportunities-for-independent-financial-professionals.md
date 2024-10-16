@@ -36,6 +36,9 @@ Company Websitehttps://amerilife.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/usa-financial-partners-with-amerilife-to-enhance-opportunities-for-independent-financial-professionals-948381979 
 
-[Original/Source Press Release](https://newsdirect.com/news/usa-financial-partners-with-amerilife-to-enhance-opportunities-for-independent-financial-professionals-948381979) 
+[Original/Source Press Release](https://newsdirect.com/news/usa-financial-partners-with-amerilife-to-enhance-opportunities-for-independent-financial-professionals-948381979)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1esuwj7/amerilife_partners_with_usa_financial_to_enhance/

@@ -2,6 +2,9 @@
 
 DALLAS, TX, August 19, 2024 /24-7PressRelease/ -- Item by Item (IBI), the leading self-serve online training platform for Microsoft Dynamics 365 (D365), proudly announces the release of a new training curriculum focused on Microsoft Dynamics 365 Quality Management.  The curriculum includes 28 micro-courses, 4 learning paths, and multiple assessment tests. It addresses key aspects of quality management, such as quality orders, non-conformances, and corrective actions. This initiative marks a substantial enhancement to the educational offerings available through the IBI platform, aimed at facilitating the optimization of quality assurance processes across diverse business sectors.  Elif Item, Founder and CEO of Item by Item, commented, "The introduction of the new quality management training content represents a significant advancement in the Dynamics 365 online training provided by Item by Item. This initiative is crucial for supplying businesses with the necessary tools and insights to refine their quality control and assurance practices. The commitment to enriching the capabilities of Dynamics 365 users and elevating their operational standards remains a priority."  The Microsoft Dynamics 365 Quality Management online training is immediately accessible to both existing and new customers via the IBI Learning Platform.  Item by Item Learning Platform is recognized as the world's exclusive self-serve online training resource for Microsoft Dynamics 365, featuring over 1,200 micro-courses, 84 learning paths, and 200 assessments across a broad array of D365 products, including Finance, Supply Chain, Commerce, Sales, Customer Service, and Field Service.  Related Link: https://www.itembyitem.co 
 
-[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513536/item-by-item-ibi-releases-microsoft-dynamics-365-quality-management-online-training-curriculum) 
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/513536/item-by-item-ibi-releases-microsoft-dynamics-365-quality-management-online-training-curriculum)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1evvmji/ibi_launches_new_microsoft_dynamics_365_quality/

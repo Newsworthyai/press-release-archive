@@ -59,6 +59,9 @@ WEMIX remains steadfast in its commitment to delivering an immersive blockchain 
 
 For more information, please visit www.wemix.com. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/wemix-unveils-groundbreaking-updates-for-a-sustainable-blockchain-gaming-future) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/wemix-unveils-groundbreaking-updates-for-a-sustainable-blockchain-gaming-future)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1e6j178/wemix_unveils_new_ecosystem_updates_and/

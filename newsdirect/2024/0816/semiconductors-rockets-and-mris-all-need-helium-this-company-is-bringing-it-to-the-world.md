@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/semiconductors-rockets-and-mris-all-need-helium-this-company-is-bringing-it-to-the-world-649239798 
 
-[Original/Source Press Release](https://newsdirect.com/news/semiconductors-rockets-and-mris-all-need-helium-this-company-is-bringing-it-to-the-world-649239798) 
+[Original/Source Press Release](https://newsdirect.com/news/semiconductors-rockets-and-mris-all-need-helium-this-company-is-bringing-it-to-the-world-649239798)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eto1w2/renergen_ceo_talks_expansion_and_firstmover/

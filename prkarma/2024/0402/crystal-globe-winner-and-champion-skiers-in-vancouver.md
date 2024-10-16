@@ -68,6 +68,9 @@ Visit Our Blog
 * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/bcalpine/news_release/1439) 
+[Original/Source Press Release](https://newsroom.prkarma.com/bcalpine/news_release/1439)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1bztpni/olympic_champion_marielle_thompson_celebrates/

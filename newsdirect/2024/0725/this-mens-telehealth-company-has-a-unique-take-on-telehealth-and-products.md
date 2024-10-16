@@ -26,6 +26,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/this-mens-telehealth-company-has-a-unique-take-on-telehealth-and-products-161364562 
 
-[Original/Source Press Release](https://newsdirect.com/news/this-mens-telehealth-company-has-a-unique-take-on-telehealth-and-products-161364562) 
+[Original/Source Press Release](https://newsdirect.com/news/this-mens-telehealth-company-has-a-unique-take-on-telehealth-and-products-161364562)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1ebuptb/mango_rx_ceo_discusses_mens_telehealth/

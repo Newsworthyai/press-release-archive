@@ -20,6 +20,9 @@ The concept behind BEK’s news programming is to provide a media service platfo
 
 For more information, log onto bek.tv and bek.news. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202403251125/bek-tv-announces-second-season-of-ndra-rodeo-bringing-thrilling-rodeo-action-to-viewers-statewide) 
+[Original/Source Press Release](https://newsworthy.ai/news/202403251125/bek-tv-announces-second-season-of-ndra-rodeo-bringing-thrilling-rodeo-action-to-viewers-statewide)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bncqtk/bek_tv_announces_exclusive_coverage_of_2024_ndra/

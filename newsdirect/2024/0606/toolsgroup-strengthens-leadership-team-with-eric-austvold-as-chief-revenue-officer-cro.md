@@ -26,6 +26,9 @@ Company Websitehttps://www.toolsgroup.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/toolsgroup-strengthens-leadership-team-with-eric-austvold-as-chief-revenue-officer-cro-322427903 
 
-[Original/Source Press Release](https://newsdirect.com/news/toolsgroup-strengthens-leadership-team-with-eric-austvold-as-chief-revenue-officer-cro-322427903) 
+[Original/Source Press Release](https://newsdirect.com/news/toolsgroup-strengthens-leadership-team-with-eric-austvold-as-chief-revenue-officer-cro-322427903)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d9ht2s/toolsgroup_appoints_eric_austvold_as_chief/

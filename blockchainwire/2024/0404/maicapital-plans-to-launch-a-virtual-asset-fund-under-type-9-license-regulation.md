@@ -12,6 +12,9 @@ This report is not an offer to sell securities of any investment fund or a solic
 
 An investment in any strategy, including the strategy described herein, involves a high degree of risk. There is no guarantee that the investment objective will be achieved. Past performance of these strategies is not necessarily indicative of future results. There is the possibility of loss, and all investment involves risk including the loss of principal. Some securities of the Fund are not registered with any regulatory authority, are offered pursuant to exemptions from such registration, and are subject to significant restrictions. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/maicapital-plans-to-launch-a-virtual-asset-fund-under-type-9-license-regulation) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/maicapital-plans-to-launch-a-virtual-asset-fund-under-type-9-license-regulation)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bvspgx/maicapital_limited_launches_virtual_asset_fund/

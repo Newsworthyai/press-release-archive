@@ -20,6 +20,9 @@ Underpinned by multi-award-winning technology, Copper has built a comprehensive 
 
 For more information, please visit:[www.copper.co](https://www.copper.co/) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/copper-becomes-first-custodian-to-offer-secure-btc-yield-with-cores-integration-of-btc-staking) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/copper-becomes-first-custodian-to-offer-secure-btc-yield-with-cores-integration-of-btc-staking)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fq32rl/core_foundation_integrates_dual_staking_into/

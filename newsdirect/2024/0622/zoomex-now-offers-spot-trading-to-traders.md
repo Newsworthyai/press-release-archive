@@ -58,6 +58,9 @@ business@zoomex.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/zoomex-now-offers-spot-trading-to-traders-267207029 
 
-[Original/Source Press Release](https://newsdirect.com/news/zoomex-now-offers-spot-trading-to-traders-267207029) 
+[Original/Source Press Release](https://newsdirect.com/news/zoomex-now-offers-spot-trading-to-traders-267207029)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dmpqex/zoomex_expands_services_to_include_spot_trading/

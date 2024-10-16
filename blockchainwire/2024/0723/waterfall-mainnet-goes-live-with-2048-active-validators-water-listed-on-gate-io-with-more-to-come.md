@@ -18,6 +18,9 @@ Waterfall is a leading layer one (L1) architecture aiming to provide a solution 
 
 Media contact: bluewave@transformgroup.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/waterfall-mainnet-goes-live-with-2048--active-validators-water-listed-on-gateio-with-more-to-come) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/waterfall-mainnet-goes-live-with-2048--active-validators-water-listed-on-gateio-with-more-to-come)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvf7lz/waterfall_network_mainnet_launch_and_water_token/

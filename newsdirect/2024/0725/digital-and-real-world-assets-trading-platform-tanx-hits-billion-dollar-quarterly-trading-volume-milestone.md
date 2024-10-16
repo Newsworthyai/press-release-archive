@@ -40,6 +40,9 @@ Company Websitehttps://tanx.fi/
 
 View source version on newsdirect.com: https://newsdirect.com/news/digital-and-real-world-assets-trading-platform-tanx-hits-billion-dollar-quarterly-trading-volume-milestone-202371544 
 
-[Original/Source Press Release](https://newsdirect.com/news/digital-and-real-world-assets-trading-platform-tanx-hits-billion-dollar-quarterly-trading-volume-milestone-202371544) 
+[Original/Source Press Release](https://newsdirect.com/news/digital-and-real-world-assets-trading-platform-tanx-hits-billion-dollar-quarterly-trading-volume-milestone-202371544)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ebr8fg/tanx_hits_billion_dollar_quarterly_trading_volume/

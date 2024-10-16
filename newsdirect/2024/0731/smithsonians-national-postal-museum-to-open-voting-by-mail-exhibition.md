@@ -34,6 +34,9 @@ Company Websitehttps://postalmuseum.si.edu/
 
 View source version on newsdirect.com: https://newsdirect.com/news/smithsonians-national-postal-museum-to-open-voting-by-mail-exhibition-849645664 
 
-[Original/Source Press Release](https://newsdirect.com/news/smithsonians-national-postal-museum-to-open-voting-by-mail-exhibition-849645664) 
+[Original/Source Press Release](https://newsdirect.com/news/smithsonians-national-postal-museum-to-open-voting-by-mail-exhibition-849645664)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1egngac/national_postal_museum_to_open_exhibition_on/

@@ -26,6 +26,9 @@ info@moxy.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/moxy-io-welcomes-former-ubs-cfo-thomas-gustinis-to-its-executive-team-and-to-the-board-of-the-moxy-foundation-834523903 
 
-[Original/Source Press Release](https://newsdirect.com/news/moxy-io-welcomes-former-ubs-cfo-thomas-gustinis-to-its-executive-team-and-to-the-board-of-the-moxy-foundation-834523903) 
+[Original/Source Press Release](https://newsdirect.com/news/moxy-io-welcomes-former-ubs-cfo-thomas-gustinis-to-its-executive-team-and-to-the-board-of-the-moxy-foundation-834523903)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1c0qffh/former_ubs_cfo_thomas_gustinis_joins_moxyio/

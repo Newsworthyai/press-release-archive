@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pancreatic-cancer-could-overtake-colorectal-cancer-to-become-second-leading-cause-of-cancer-death-oncolytics-is-working-on-a-promising-treatment-539544980 
 
-[Original/Source Press Release](https://newsdirect.com/news/pancreatic-cancer-could-overtake-colorectal-cancer-to-become-second-leading-cause-of-cancer-death-oncolytics-is-working-on-a-promising-treatment-539544980) 
+[Original/Source Press Release](https://newsdirect.com/news/pancreatic-cancer-could-overtake-colorectal-cancer-to-become-second-leading-cause-of-cancer-death-oncolytics-is-working-on-a-promising-treatment-539544980)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eg4mhl/pancreatic_cancer_on_the_rise_promising_treatment/

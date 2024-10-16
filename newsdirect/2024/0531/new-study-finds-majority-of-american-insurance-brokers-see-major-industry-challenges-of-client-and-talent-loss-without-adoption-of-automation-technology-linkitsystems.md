@@ -25,6 +25,9 @@ Company Websitehttps://www.linkitsystems.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-study-finds-majority-of-american-insurance-brokers-see-major-industry-challenges-of-client-and-talent-loss-without-adoption-of-automation-technology-linkitsystems-441277794 
 
-[Original/Source Press Release](https://newsdirect.com/news/new-study-finds-majority-of-american-insurance-brokers-see-major-industry-challenges-of-client-and-talent-loss-without-adoption-of-automation-technology-linkitsystems-441277794) 
+[Original/Source Press Release](https://newsdirect.com/news/new-study-finds-majority-of-american-insurance-brokers-see-major-industry-challenges-of-client-and-talent-loss-without-adoption-of-automation-technology-linkitsystems-441277794)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d4x06u/new_study_reveals_challenges_faced_by_american/

@@ -38,6 +38,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/in-a-show-of-confidence-for-onemetas-ai-technology-microsoft-adds-verbum-for-teams-to-its-app-stores-849646790 
 
-[Original/Source Press Release](https://newsdirect.com/news/in-a-show-of-confidence-for-onemetas-ai-technology-microsoft-adds-verbum-for-teams-to-its-app-stores-849646790) 
+[Original/Source Press Release](https://newsdirect.com/news/in-a-show-of-confidence-for-onemetas-ai-technology-microsoft-adds-verbum-for-teams-to-its-app-stores-849646790)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dckm03/onemetas_verbum_for_microsoft_teams_added_to/

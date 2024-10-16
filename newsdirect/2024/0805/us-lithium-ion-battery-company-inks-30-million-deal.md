@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/us-lithium-ion-battery-company-inks-30-million-deal-599709012 
 
-[Original/Source Press Release](https://newsdirect.com/news/us-lithium-ion-battery-company-inks-30-million-deal-599709012) 
+[Original/Source Press Release](https://newsdirect.com/news/us-lithium-ion-battery-company-inks-30-million-deal-599709012)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ekmr3g/dragonfly_energy_ceo_reveals_global_distribution/

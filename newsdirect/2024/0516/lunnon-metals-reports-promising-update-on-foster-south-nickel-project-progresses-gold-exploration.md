@@ -20,6 +20,9 @@ writers.australia@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lunnon-metals-reports-promising-update-on-foster-south-nickel-project-progresses-gold-exploration-389361710 
 
-[Original/Source Press Release](https://newsdirect.com/news/lunnon-metals-reports-promising-update-on-foster-south-nickel-project-progresses-gold-exploration-389361710) 
+[Original/Source Press Release](https://newsdirect.com/news/lunnon-metals-reports-promising-update-on-foster-south-nickel-project-progresses-gold-exploration-389361710)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1ctp1wn/lunnon_metals_reports_promising_update_on_foster/

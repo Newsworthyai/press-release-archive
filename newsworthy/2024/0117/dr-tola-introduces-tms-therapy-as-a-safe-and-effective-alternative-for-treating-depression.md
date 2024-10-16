@@ -8,6 +8,9 @@ Besides TMS Therapy, Dr. Tola provides a variety of resources to enhance mental 
 
 Dr. Tola's work has earned her considerable recognition and media exposure. Her expertise is frequently cited in various media outlets. Her dedication to fostering a safe and caring environment for her patients has established him as a devoted and trusted professional in the field of psychiatry. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20240117984/dr-tola-introduces-tms-therapy-as-a-safe-and-effective-alternative-for-treating-depression) 
+[Original/Source Press Release](https://newsworthy.ai/news/20240117984/dr-tola-introduces-tms-therapy-as-a-safe-and-effective-alternative-for-treating-depression)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdotc/renowned_psychiatrist_introduces_innovative_tms/

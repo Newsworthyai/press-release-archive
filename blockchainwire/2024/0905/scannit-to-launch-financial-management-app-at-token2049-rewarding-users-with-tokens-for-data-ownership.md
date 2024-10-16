@@ -24,6 +24,9 @@ For more information, visit www.scannit.io.
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/scannit-to-launch-financial-management-app-at-token2049-rewarding-users-with-tokens-for-data-ownership) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/scannit-to-launch-financial-management-app-at-token2049-rewarding-users-with-tokens-for-data-ownership)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1fi72t8/scannit_announces_open_beta_launch_of_financial/

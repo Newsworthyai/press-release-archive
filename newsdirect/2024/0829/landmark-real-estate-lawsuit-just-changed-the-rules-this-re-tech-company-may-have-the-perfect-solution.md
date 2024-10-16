@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/landmark-real-estate-lawsuit-just-changed-the-rules-this-re-tech-company-may-have-the-perfect-solution-215911129 
 
-[Original/Source Press Release](https://newsdirect.com/news/landmark-real-estate-lawsuit-just-changed-the-rules-this-re-tech-company-may-have-the-perfect-solution-215911129) 
+[Original/Source Press Release](https://newsdirect.com/news/landmark-real-estate-lawsuit-just-changed-the-rules-this-re-tech-company-may-have-the-perfect-solution-215911129)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1f45wmn/realpha_tech_corp_leaders_discuss_disruptive/

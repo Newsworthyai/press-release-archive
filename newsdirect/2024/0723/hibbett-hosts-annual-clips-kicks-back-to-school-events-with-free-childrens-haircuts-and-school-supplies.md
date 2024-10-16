@@ -41,6 +41,9 @@ Company Websitehttps://www.Hibbett.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hibbett-hosts-annual-clips-and-kicks-back-to-school-events-with-free-childrens-haircuts-and-school-supplies-164886351 
 
-[Original/Source Press Release](https://newsdirect.com/news/hibbett-hosts-annual-clips-and-kicks-back-to-school-events-with-free-childrens-haircuts-and-school-supplies-164886351) 
+[Original/Source Press Release](https://newsdirect.com/news/hibbett-hosts-annual-clips-and-kicks-back-to-school-events-with-free-childrens-haircuts-and-school-supplies-164886351)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1eaa7gf/hibbett_hosts_annual_clips_and_kicks_backtoschool/

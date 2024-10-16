@@ -18,6 +18,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/atha-energy-corp-announces-major-2024-exploration-and-drilling-plans-641281448 
 
-[Original/Source Press Release](https://newsdirect.com/news/atha-energy-corp-announces-major-2024-exploration-and-drilling-plans-641281448) 
+[Original/Source Press Release](https://newsdirect.com/news/atha-energy-corp-announces-major-2024-exploration-and-drilling-plans-641281448)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1ct4ssn/atha_energy_corp_announces_major_2024_exploration/

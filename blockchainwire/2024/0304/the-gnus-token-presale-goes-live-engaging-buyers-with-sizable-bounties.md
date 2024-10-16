@@ -28,6 +28,9 @@ Follow these links for more information about GNUS.AI and GNUS tokens:
 
 Official Website | Telegram | Twitter | LinkedIn | Instagram | YouTube | KYC | Audit | Docs 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/the-gnus-token-presale-goes-live-engaging-buyers-with-sizable-bounties) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/the-gnus-token-presale-goes-live-engaging-buyers-with-sizable-bounties)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1b6rmp7/gnusai_announces_presale_for_gnus_tokens/

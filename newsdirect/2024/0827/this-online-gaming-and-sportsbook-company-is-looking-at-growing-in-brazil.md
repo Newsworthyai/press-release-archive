@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/this-online-gaming-and-sportsbook-company-is-looking-at-growing-in-brazil-677054316 
 
-[Original/Source Press Release](https://newsdirect.com/news/this-online-gaming-and-sportsbook-company-is-looking-at-growing-in-brazil-677054316) 
+[Original/Source Press Release](https://newsdirect.com/news/this-online-gaming-and-sportsbook-company-is-looking-at-growing-in-brazil-677054316)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1f2jfu5/golden_matrix_group_ceo_discusses_growth_and/

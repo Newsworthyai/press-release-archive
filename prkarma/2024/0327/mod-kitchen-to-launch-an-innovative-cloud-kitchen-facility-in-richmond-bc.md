@@ -32,6 +32,9 @@ Visit Our Website
 * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/modkitchen/news_release/1433) 
+[Original/Source Press Release](https://newsroom.prkarma.com/modkitchen/news_release/1433)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1btd8tq/mod_kitchen_to_launch_10_stateoftheart_cloud/

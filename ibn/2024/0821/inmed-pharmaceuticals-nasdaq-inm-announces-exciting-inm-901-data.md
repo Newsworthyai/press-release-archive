@@ -28,6 +28,9 @@ InMed Pharmaceuticals (NASDAQ: INM), a leader in the manufacturing, development 
 
  BioMedWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/inmed-pharmaceuticals-nasdaq-inm-announces-exciting-inm-901-data/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/inmed-pharmaceuticals-nasdaq-inm-announces-exciting-inm-901-data/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1f2h084/inmed_pharmaceuticals_confirms_inm901_oral/

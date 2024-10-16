@@ -52,6 +52,9 @@ For more details, please visit: https://www.dfcapp.net/ or contact:UK Headquar
 
 Email:Support: [admin@dfcmail.](https://www.globenewswire.com/Tracker?data=Z1s4KqDIcm66GPXjmzjWC6DGEM-jvhoJ2G-_8q9OVNOlM417OFEOsGe5rdxJ9ZVcfLUlDGChjpMZAgRTPbvF09bBvxB16j8EA_iI0v42NKA=)[vip](https://www.globenewswire.com/Tracker?data=giUy_w1B59-D6cqkeQmOsfEfud6pr1eYvG_2200nWnnSq4ncTzkH_Sx7j7sLss8zv4-JaVsyU2f_M1gfYFYQxfCmmkamUndUmnZ0CDkB1vI=)Office: [official@dfcgmail.vip](https://www.globenewswire.com/Tracker?data=giUy_w1B59-D6cqkeQmOsfEfud6pr1eYvG_2200nWnnSq4ncTzkH_Sx7j7sLss8zv4-JaVsyU2f_M1gfYFYQxfCmmkamUndUmnZ0CDkB1vI=)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/dfc-app-has-launched-a-new-mobile-app-now-available-on-google-play-and-the-apple-app-store) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/dfc-app-has-launched-a-new-mobile-app-now-available-on-google-play-and-the-apple-app-store)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fv53d1/dfc_launches_ukdfc_pro_mobile_app_for_realtime/

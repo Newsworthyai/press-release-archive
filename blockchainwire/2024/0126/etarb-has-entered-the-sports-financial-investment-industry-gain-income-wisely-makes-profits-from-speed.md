@@ -24,6 +24,9 @@ ETarb assist investors better grasp market opportunities, reduce investment risk
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/-etarb-has-entered-the-sports-financial-investment-industry--gain-income-wisely--makes-profits-from-speed) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/-etarb-has-entered-the-sports-financial-investment-industry--gain-income-wisely--makes-profits-from-speed)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1avxhhq/british_entain_investments_etarb_opens_sports/

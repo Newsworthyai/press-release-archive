@@ -8,6 +8,9 @@ TMS has proven highly effective for anxiety, complementing cognitive behavioral 
 
 The clinic caters to individuals with various anxiety disorders, including social anxiety, phobias, panic disorder, illness anxiety, PTSD, OCD, and separation anxiety, offering comprehensive diagnosis and tailored treatment plans. Additionally, they address anxiety attacks, marked by intense worry and apprehension. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401211008/innovative-anxiety-treatments-offered-at-brandon-tms-and-psychiatry-in-brandon-f) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401211008/innovative-anxiety-treatments-offered-at-brandon-tms-and-psychiatry-in-brandon-f)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avldei/brandon_tms_and_psychiatry_introduces_innovative/

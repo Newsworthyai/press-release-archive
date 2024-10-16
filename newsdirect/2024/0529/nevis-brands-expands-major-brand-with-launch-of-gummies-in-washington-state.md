@@ -18,6 +18,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nevis-brands-expands-major-brand-with-launch-of-gummies-in-washington-state-744181021 
 
-[Original/Source Press Release](https://newsdirect.com/news/nevis-brands-expands-major-brand-with-launch-of-gummies-in-washington-state-744181021) 
+[Original/Source Press Release](https://newsdirect.com/news/nevis-brands-expands-major-brand-with-launch-of-gummies-in-washington-state-744181021)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d3m157/nevis_brands_expands_major_brand_with_launch_of/

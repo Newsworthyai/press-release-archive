@@ -52,6 +52,9 @@ Media contact: carats@transformgroup.com
 
 Sales: hello@diamondstandard.co 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/diamond-standard-partners-with-simplex-to-provide-global-access-to-carats-its-groundbreaking-payment-solution) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/diamond-standard-partners-with-simplex-to-provide-global-access-to-carats-its-groundbreaking-payment-solution)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ct8qu9/diamond_standard_co_partners_with_simplex_by/

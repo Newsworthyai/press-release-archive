@@ -60,6 +60,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/monogram-orthopedics-nasdaq-mgrm-readies-commercialization-of-next-gen-surgical-robot-408624263 
 
-[Original/Source Press Release](https://newsdirect.com/news/monogram-orthopedics-nasdaq-mgrm-readies-commercialization-of-next-gen-surgical-robot-408624263) 
+[Original/Source Press Release](https://newsdirect.com/news/monogram-orthopedics-nasdaq-mgrm-readies-commercialization-of-next-gen-surgical-robot-408624263)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1f45y5x/monogram_orthopedics_readies_commercialization_of/

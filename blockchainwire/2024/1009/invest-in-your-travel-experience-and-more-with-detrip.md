@@ -36,6 +36,9 @@ Telegram: htttps://t.me/detrip_network
 
 LinkedIn: https://www.linkedin.com/company/detrip/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/invest-in-your-travel-experience-and-more-with-detrip) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/invest-in-your-travel-experience-and-more-with-detrip)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1g00wjc/detrip_network_revolutionizing_travel_with/

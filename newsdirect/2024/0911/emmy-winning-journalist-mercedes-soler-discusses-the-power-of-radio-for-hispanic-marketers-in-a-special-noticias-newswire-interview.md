@@ -53,6 +53,9 @@ bill@noticiasnewswire.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/emmy-winning-journalist-mercedes-soler-discusses-the-power-of-radio-for-hispanic-marketers-in-a-special-noticias-newswire-interview-236646543 
 
-[Original/Source Press Release](https://newsdirect.com/news/emmy-winning-journalist-mercedes-soler-discusses-the-power-of-radio-for-hispanic-marketers-in-a-special-noticias-newswire-interview-236646543) 
+[Original/Source Press Release](https://newsdirect.com/news/emmy-winning-journalist-mercedes-soler-discusses-the-power-of-radio-for-hispanic-marketers-in-a-special-noticias-newswire-interview-236646543)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fei0s9/exclusive_interview_emmywinning_journalist/

@@ -22,6 +22,9 @@ AllStreetBets is a dynamic community and project co-founded by WallStreetBets cr
 
 For more information about the partnership and upcoming initiatives, please visit https://allstreetbets.com or https://esmx.gg/ or contact: media@allstreetbets.com 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202407171213/allstreetbets-and-esmx-gaming-announce-strategic-partnership-to-revolutionize-web3-gaming) 
+[Original/Source Press Release](https://newsworthy.ai/news/202407171213/allstreetbets-and-esmx-gaming-announce-strategic-partnership-to-revolutionize-web3-gaming)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1e5gm8n/allstreetbets_and_esmx_gaming_announce_strategic/

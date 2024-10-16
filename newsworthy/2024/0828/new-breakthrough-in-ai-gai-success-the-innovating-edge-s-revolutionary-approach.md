@@ -24,6 +24,9 @@ For more insights into The Innovating Edge and the impact of the ISPI™, consid
 
 The interview is part of the weekly Dot Com Magazine’s Entrepreneur Spotlight Series and has reached over 3.5 million viewers worldwide. It’s available on Spotify, Apple Podcasts, Podcast Chaser, Listen Notes, the Associated Press, and many other platforms. The response has been robust and continues today. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202408281249/new-breakthrough-in-ai-gai-success-the-innovating-edge-s-revolutionary-approach) 
+[Original/Source Press Release](https://newsworthy.ai/news/202408281249/new-breakthrough-in-ai-gai-success-the-innovating-edge-s-revolutionary-approach)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1f3gzjm/the_innovating_edge_unveils_groundbreaking/

@@ -38,6 +38,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/discover-how-this-companys-breakthrough-technology-might-be-the-key-to-transforming-pancreatic-cancer-pain-relief-959902280 
 
-[Original/Source Press Release](https://newsdirect.com/news/discover-how-this-companys-breakthrough-technology-might-be-the-key-to-transforming-pancreatic-cancer-pain-relief-959902280) 
+[Original/Source Press Release](https://newsdirect.com/news/discover-how-this-companys-breakthrough-technology-might-be-the-key-to-transforming-pancreatic-cancer-pain-relief-959902280)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1dey3zy/revolutionary_technology_offers_hope_for/

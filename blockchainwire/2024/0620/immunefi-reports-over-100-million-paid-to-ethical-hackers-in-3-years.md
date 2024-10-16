@@ -38,6 +38,9 @@ About Immunefi
 
 Immunefi is the largest onchain crowdsourced security platform. Immunefi guards over $190 billion in user funds across projects like Chainlink, Wormhole, MakerDAO, TheGraph, Synthetix, Polygon, Optimism, and others. The company has paid out the most significant bug bounties in the software industry, amounting to over $100 million, and has pioneered the scaling web3 bug bounties standard. For more information, please visit https://immunefi.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/immunefi-reports-over-100-million-paid-to-ethical-hackers-in-3-years) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/immunefi-reports-over-100-million-paid-to-ethical-hackers-in-3-years)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dpaw47/immunefi_pays_over_100_million_in_bug_bounty/

@@ -14,6 +14,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/valeo-pharma-hits-record-2nd-quarter-revenue-as-demand-for-asthma-products-continues-to-rise-677118045 
 
-[Original/Source Press Release](https://newsdirect.com/news/valeo-pharma-hits-record-2nd-quarter-revenue-as-demand-for-asthma-products-continues-to-rise-677118045) 
+[Original/Source Press Release](https://newsdirect.com/news/valeo-pharma-hits-record-2nd-quarter-revenue-as-demand-for-asthma-products-continues-to-rise-677118045)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ef5pgk/valeo_pharma_ceo_discusses_recordbreaking_q2/

@@ -30,6 +30,9 @@ jdoyle@revupx.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/revupx-innovative-zero-fee-credit-card-processing-firm-takes-off-443796643 
 
-[Original/Source Press Release](https://newsdirect.com/news/revupx-innovative-zero-fee-credit-card-processing-firm-takes-off-443796643) 
+[Original/Source Press Release](https://newsdirect.com/news/revupx-innovative-zero-fee-credit-card-processing-firm-takes-off-443796643)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1g0k0lv/revupx_innovative_zerofee_credit_card_processing/

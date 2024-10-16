@@ -12,6 +12,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/diversified-energy-announces-strategic-acquisition-of-high-interest-texas-natural-gas-assets-262512018 
 
-[Original/Source Press Release](https://newsdirect.com/news/diversified-energy-announces-strategic-acquisition-of-high-interest-texas-natural-gas-assets-262512018) 
+[Original/Source Press Release](https://newsdirect.com/news/diversified-energy-announces-strategic-acquisition-of-high-interest-texas-natural-gas-assets-262512018)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e1lqvd/diversified_energy_ceo_announces_acquisition_of/

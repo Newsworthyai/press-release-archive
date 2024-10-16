@@ -24,6 +24,9 @@ About CoinW:
 
 CoinW is a leading crypto trading platform that places a high priority on security, transparency, and user-centric values. Leveraging advanced technology, deep liquidity, and a diverse range of supported cryptocurrencies, CoinW has built a large user base, establishing itself as one of the world's premier crypto exchanges. Committed to security, transparency, and compliance, CoinW adheres to the highest regulatory standards and plays an active role in advancing the crypto industry. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/sonia-shaw-president-of-coinw-attends-the-10th-satoshi-roundtable-and-the-coinw-sponsored-after-party) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/sonia-shaw-president-of-coinw-attends-the-10th-satoshi-roundtable-and-the-coinw-sponsored-after-party)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avcah8/coinw_president_sonia_shaw_attends_10th_satoshi/

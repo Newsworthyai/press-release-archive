@@ -40,6 +40,9 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-unveils-june-performance-report-achievements-across-diverse-sectors-highlighting-a-forward-thinking-approach-508529762 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-unveils-june-performance-report-achievements-across-diverse-sectors-highlighting-a-forward-thinking-approach-508529762) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-unveils-june-performance-report-achievements-across-diverse-sectors-highlighting-a-forward-thinking-approach-508529762)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1e5c1mq/htx_unveils_june_performance_report_achievements/

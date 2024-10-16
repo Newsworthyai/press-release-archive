@@ -18,6 +18,9 @@ A haven for software development enthusiasts, SoftwareDevelopmentAdvice.com aims
 
 For the latest in software development, visit www.SoftwareDevelopmentAdvice.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231129878/softwaredevelopmentadvice-com-launches-for-software-developers) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231129878/softwaredevelopmentadvice-com-launches-for-software-developers)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1avx0tj/softwaredevelopmentadvicecom_the_ultimate_hub_for/

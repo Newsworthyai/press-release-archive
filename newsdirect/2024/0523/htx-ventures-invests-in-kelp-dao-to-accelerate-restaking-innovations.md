@@ -42,6 +42,9 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-invests-in-kelp-dao-to-accelerate-restaking-innovations-661177042 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-ventures-invests-in-kelp-dao-to-accelerate-restaking-innovations-661177042) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-ventures-invests-in-kelp-dao-to-accelerate-restaking-innovations-661177042)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cyun20/htx_ventures_invests_in_kelp_dao_to_accelerate/

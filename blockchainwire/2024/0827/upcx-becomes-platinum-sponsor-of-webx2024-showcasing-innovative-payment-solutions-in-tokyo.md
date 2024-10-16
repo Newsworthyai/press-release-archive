@@ -48,6 +48,9 @@ Email: info@webx-asia.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/upcx-becomes-platinum-sponsor-of-webx2024-showcasing-innovative-payment-solutions-in-tokyo) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/upcx-becomes-platinum-sponsor-of-webx2024-showcasing-innovative-payment-solutions-in-tokyo)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1f2jg0g/upcx_to_sponsor_webx2024_conference_in_tokyo/

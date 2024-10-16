@@ -38,6 +38,9 @@ THE MAXIMUM YOU BUY IN PRESALE THE MAXIMUM REWARDS YOU WILL GET IN AIRDROP FROM 
 
 Twitter – [https://x.com/meowwif](https://x.com/meowwif)Telegram – [https://t.me/+CHhMKKpxvnY3YTZi](https://t.me/+CHhMKKpxvnY3YTZi)Presale link :- [https://www.pinksale.finance/solana/launchpad/2vKy9Xm76vceZTFL19YAHJMnfV7hYp2ud4HceB1XxMSx](https://www.pinksale.finance/solana/launchpad/2vKy9Xm76vceZTFL19YAHJMnfV7hYp2ud4HceB1XxMSx)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/prepare-for-liftoff-the-ultimate-1000x-sol-meme-coin-fair-launch-approaches) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/prepare-for-liftoff-the-ultimate-1000x-sol-meme-coin-fair-launch-approaches)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c0yacx/new_meme_coin_meowwif_mwif_set_for_fairlaunch_on/

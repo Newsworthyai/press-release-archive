@@ -34,6 +34,9 @@ Company Websitehttps://dissertationguru.net/
 
 View source version on newsdirect.com: https://newsdirect.com/news/dissertationguru-net-unveils-comprehensive-guide-on-dissertation-originality-and-customization-259280394 
 
-[Original/Source Press Release](https://newsdirect.com/news/dissertationguru-net-unveils-comprehensive-guide-on-dissertation-originality-and-customization-259280394) 
+[Original/Source Press Release](https://newsdirect.com/news/dissertationguru-net-unveils-comprehensive-guide-on-dissertation-originality-and-customization-259280394)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1fsslxt/dissertation_guru_unveils_comprehensive_guide_on/

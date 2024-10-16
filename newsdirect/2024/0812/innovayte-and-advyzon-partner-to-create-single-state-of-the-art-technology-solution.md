@@ -53,6 +53,9 @@ Company Websitehttps://innovayte.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/innovayte-and-advyzon-partner-to-create-single-state-of-the-art-technology-solution-295429660 
 
-[Original/Source Press Release](https://newsdirect.com/news/innovayte-and-advyzon-partner-to-create-single-state-of-the-art-technology-solution-295429660) 
+[Original/Source Press Release](https://newsdirect.com/news/innovayte-and-advyzon-partner-to-create-single-state-of-the-art-technology-solution-295429660)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eqcnkf/innovayte_and_advyzon_launch_groundbreaking/

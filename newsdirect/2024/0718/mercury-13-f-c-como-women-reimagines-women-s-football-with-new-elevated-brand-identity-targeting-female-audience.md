@@ -82,6 +82,9 @@ press@mercury13.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mercury-13-and-f-c-como-women-reimagines-womens-football-with-new-elevated-brand-identity-targeting-female-audience-844180961 
 
-[Original/Source Press Release](https://newsdirect.com/news/mercury-13-and-f-c-como-women-reimagines-womens-football-with-new-elevated-brand-identity-targeting-female-audience-844180961) 
+[Original/Source Press Release](https://newsdirect.com/news/mercury-13-and-f-c-como-women-reimagines-womens-football-with-new-elevated-brand-identity-targeting-female-audience-844180961)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1e6iz6j/fc_como_women_unveils_gamechanging_new_brand/

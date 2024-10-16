@@ -8,6 +8,9 @@ The clinic provides two types of Ketamine treatments – Ketamine Psychedelic Th
 
 Suniasol Integrative Mental Health & Ketamine Clinic offers a range of services, including individual therapy, group therapy, and integration sessions. To ensure a seamless experience for prospective patients, the clinic provides dedicated support regarding fees and insurance information. Patients who have undergone Ketamine-assisted treatment have shared positive testimonials, attesting to the efficacy of this innovative approach. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401221015/suniasol-integrative-mental-health-ketamine-clinic-provides-cutting-edge-ketamine-assisted-psychedelic-treatment-in-boulder-co) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401221015/suniasol-integrative-mental-health-ketamine-clinic-provides-cutting-edge-ketamine-assisted-psychedelic-treatment-in-boulder-co)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avle9t/innovative_mental_health_treatment_at_suniasol/

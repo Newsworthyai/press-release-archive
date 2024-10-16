@@ -70,6 +70,9 @@ Info@NeueZuercherNachrichten.ch
 
 View source version on newsdirect.com: https://newsdirect.com/news/josip-heit-announces-innovative-media-partnership-as-the-future-of-content-distribution-986188618 
 
-[Original/Source Press Release](https://newsdirect.com/news/josip-heit-announces-innovative-media-partnership-as-the-future-of-content-distribution-986188618) 
+[Original/Source Press Release](https://newsdirect.com/news/josip-heit-announces-innovative-media-partnership-as-the-future-of-content-distribution-986188618)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cbygr7/josip_heit_forms_global_media_group_with_42_daily/

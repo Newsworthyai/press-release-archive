@@ -55,6 +55,9 @@ Website: www.stakingfarm.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-aiming-to-boost-passive-income-with-up-to-26-returns-through-crypto-staking) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-aiming-to-boost-passive-income-with-up-to-26-returns-through-crypto-staking)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cdxwqg/stakingfarm_offers_up_to_26_annual_returns/

@@ -30,6 +30,9 @@ State:Singapore
 
 Website link: www.giraffe-ai.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/giraffe-ai-labs-participates-as-gold-sponsor-at-webx-2024-teases-year-end-global-launch-of-rogup) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/giraffe-ai-labs-participates-as-gold-sponsor-at-webx-2024-teases-year-end-global-launch-of-rogup)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fhyl6y/giraffe_ai_labs_unveils_innovative_rogup_service/

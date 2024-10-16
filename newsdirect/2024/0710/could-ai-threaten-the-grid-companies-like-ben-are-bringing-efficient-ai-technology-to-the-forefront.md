@@ -46,6 +46,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/could-ai-threaten-the-grid-companies-like-ben-are-bringing-efficient-ai-technology-to-the-forefront-195011391 
 
-[Original/Source Press Release](https://newsdirect.com/news/could-ai-threaten-the-grid-companies-like-ben-are-bringing-efficient-ai-technology-to-the-forefront-195011391) 
+[Original/Source Press Release](https://newsdirect.com/news/could-ai-threaten-the-grid-companies-like-ben-are-bringing-efficient-ai-technology-to-the-forefront-195011391)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1dzv7ld/ais_impact_on_power_grid_bens_sustainable_solution/

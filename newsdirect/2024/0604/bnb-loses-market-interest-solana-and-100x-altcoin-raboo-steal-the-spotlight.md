@@ -42,6 +42,9 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/bnb-loses-market-interest-solana-and-100x-altcoin-raboo-steal-the-spotlight-652859864 
 
-[Original/Source Press Release](https://newsdirect.com/news/bnb-loses-market-interest-solana-and-100x-altcoin-raboo-steal-the-spotlight-652859864) 
+[Original/Source Press Release](https://newsdirect.com/news/bnb-loses-market-interest-solana-and-100x-altcoin-raboo-steal-the-spotlight-652859864)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1d7w6xy/cryptocurrency_market_shift_solana_surges_bnb/

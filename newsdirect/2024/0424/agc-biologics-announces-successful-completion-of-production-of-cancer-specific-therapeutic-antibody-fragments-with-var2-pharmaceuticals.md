@@ -36,6 +36,9 @@ Company Websitehttps://www.agcbio.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/agc-biologics-announces-successful-completion-of-production-of-cancer-specific-therapeutic-antibody-fragments-with-var2-pharmaceuticals-462243031 
 
-[Original/Source Press Release](https://newsdirect.com/news/agc-biologics-announces-successful-completion-of-production-of-cancer-specific-therapeutic-antibody-fragments-with-var2-pharmaceuticals-462243031) 
+[Original/Source Press Release](https://newsdirect.com/news/agc-biologics-announces-successful-completion-of-production-of-cancer-specific-therapeutic-antibody-fragments-with-var2-pharmaceuticals-462243031)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cbr94w/agc_biologics_completes_production_of/

@@ -36,6 +36,9 @@ Editor@bestgrowthstocks.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bestgrowthstocks-com-ai-model-issues-an-alarming-bitcoin-price-prediction-and-the-top-bitcoin-miners-highlighting-riot-blockchain-inc-769032743 
 
-[Original/Source Press Release](https://newsdirect.com/news/bestgrowthstocks-com-ai-model-issues-an-alarming-bitcoin-price-prediction-and-the-top-bitcoin-miners-highlighting-riot-blockchain-inc-769032743) 
+[Original/Source Press Release](https://newsdirect.com/news/bestgrowthstocks-com-ai-model-issues-an-alarming-bitcoin-price-prediction-and-the-top-bitcoin-miners-highlighting-riot-blockchain-inc-769032743)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dkicfj/best_growth_stocks_issues_alarming_bitcoin_price/

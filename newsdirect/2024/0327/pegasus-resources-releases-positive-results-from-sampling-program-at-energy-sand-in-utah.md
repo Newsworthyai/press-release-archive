@@ -20,6 +20,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pegasus-resources-releases-positive-results-from-sampling-program-at-energy-sand-in-utah-738138728 
 
-[Original/Source Press Release](https://newsdirect.com/news/pegasus-resources-releases-positive-results-from-sampling-program-at-energy-sand-in-utah-738138728) 
+[Original/Source Press Release](https://newsdirect.com/news/pegasus-resources-releases-positive-results-from-sampling-program-at-energy-sand-in-utah-738138728)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1bp6nsp/pegasus_resources_announces_highgrade_uranium/

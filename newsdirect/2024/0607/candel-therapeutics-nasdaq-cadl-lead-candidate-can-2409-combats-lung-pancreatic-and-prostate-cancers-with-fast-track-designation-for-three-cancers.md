@@ -64,6 +64,9 @@ Company Websitehttps://www.candeltx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/candel-therapeutics-nasdaq-cadl-lead-candidate-can-2409-combats-lung-pancreatic-and-prostate-cancers-with-fast-track-designation-for-three-cancers-458506267 
 
-[Original/Source Press Release](https://newsdirect.com/news/candel-therapeutics-nasdaq-cadl-lead-candidate-can-2409-combats-lung-pancreatic-and-prostate-cancers-with-fast-track-designation-for-three-cancers-458506267) 
+[Original/Source Press Release](https://newsdirect.com/news/candel-therapeutics-nasdaq-cadl-lead-candidate-can-2409-combats-lung-pancreatic-and-prostate-cancers-with-fast-track-designation-for-three-cancers-458506267)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1da9nv2/candel_therapeutics_lead_candidate_can2409/

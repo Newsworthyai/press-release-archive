@@ -42,6 +42,9 @@ The project is already at its presale stage on GemPad, and a long roadmap clearl
 
 X (Twitter) | Telegram | Discord | Instagram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/fomo-frog-goes-live-as-a-new-meme-token-with-nft-and-gaming-integration) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/fomo-frog-goes-live-as-a-new-meme-token-with-nft-and-gaming-integration)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1f7bq7o/fomo_frog_launches_innovative_web3_project_for/

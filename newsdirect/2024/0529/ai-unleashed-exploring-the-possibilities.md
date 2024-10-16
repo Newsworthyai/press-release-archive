@@ -37,6 +37,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ai-unleashed-exploring-the-possibilities-363173068 
 
-[Original/Source Press Release](https://newsdirect.com/news/ai-unleashed-exploring-the-possibilities-363173068) 
+[Original/Source Press Release](https://newsdirect.com/news/ai-unleashed-exploring-the-possibilities-363173068)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d3m1t8/benzinga_to_host_ai_unleashed_webinar_exploring/

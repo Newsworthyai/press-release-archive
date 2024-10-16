@@ -42,6 +42,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/exciting-outdoor-adventures-in-arkansas-state-parks-464646774 
 
-[Original/Source Press Release](https://newsdirect.com/news/exciting-outdoor-adventures-in-arkansas-state-parks-464646774) 
+[Original/Source Press Release](https://newsdirect.com/news/exciting-outdoor-adventures-in-arkansas-state-parks-464646774)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1crtwv5/discover_outdoor_adventures_in_arkansas_state/

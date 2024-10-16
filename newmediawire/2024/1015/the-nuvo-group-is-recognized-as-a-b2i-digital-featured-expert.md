@@ -20,6 +20,9 @@ NEW YORK, NY - (NewMediaWire) - October 15, 2024 - B2i Digital is proud to annou
 
  https://cdn.filestackcontent.com/Hwn8gpg8SUenAd7vtcXN 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/the-nuvo-group-is-recognized-as-a-b2i-digital-featured-expert-7076228) 
+[Original/Source Press Release](https://www.newmediawire.com/news/the-nuvo-group-is-recognized-as-a-b2i-digital-featured-expert-7076228)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1g4dm51/b2i_digital_announces_the_nuvo_group_as_featured/

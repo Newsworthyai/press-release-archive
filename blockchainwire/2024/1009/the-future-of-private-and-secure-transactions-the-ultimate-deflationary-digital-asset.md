@@ -22,6 +22,9 @@ ConclusionZano is poised to become a frontrunner in the privacy-focused cryptocu
 
 Now is the time to consider adding Zano to your portfolio before the world fully realizes the value of secure, private digital currencies. As governments tighten their grip and traditional blockchains leave users exposed, Zano offers true financial freedom and limitless opportunities for innovation. Don’t miss out on the next big thing in cryptocurrency! 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/the-future-of-private-and-secure-transactions--the-ultimate-deflationary-digital-asset) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/the-future-of-private-and-secure-transactions--the-ultimate-deflationary-digital-asset)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fzowq0/zano_redefining_privacy_and_security_in/

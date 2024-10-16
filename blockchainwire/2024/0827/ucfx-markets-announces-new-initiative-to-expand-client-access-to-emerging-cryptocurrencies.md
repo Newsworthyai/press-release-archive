@@ -24,6 +24,9 @@ With this new initiative, UCFX Markets is not only expanding its cryptocurrency 
 
 For more information, visit https://ucfxmbot.com. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/ucfx-markets-announces-new-initiative-to-expand-client-access-to-emerging-cryptocurrencies) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/ucfx-markets-announces-new-initiative-to-expand-client-access-to-emerging-cryptocurrencies)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1f3h8b5/ucfx_markets_expands_cryptocurrency_offerings/

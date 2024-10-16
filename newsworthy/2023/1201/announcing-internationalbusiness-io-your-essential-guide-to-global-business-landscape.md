@@ -18,6 +18,9 @@ As a beacon for the international business community, InternationalBusiness.io d
 
 Embark on a journey of global business insights at www.InternationalBusiness.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231201830/announcing-internationalbusiness-io-your-essential-guide-to-global-business-landscape) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231201830/announcing-internationalbusiness-io-your-essential-guide-to-global-business-landscape)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx16d/new_platform_internationalbusinessio/

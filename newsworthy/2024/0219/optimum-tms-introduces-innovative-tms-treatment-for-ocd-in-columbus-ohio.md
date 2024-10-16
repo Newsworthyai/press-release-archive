@@ -10,6 +10,9 @@ To ensure the best possible outcome, it is advised for patients undergoing TMS t
 
 With Optimum TMS's innovative approach and commitment to patient care, individuals in Columbus, OH now have access to a transformative OCD treatment that provides relief from symptoms and an improved quality of life. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402191073/optimum-tms-introduces-innovative-tms-treatment-for-ocd-in-columbus-oh) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402191073/optimum-tms-introduces-innovative-tms-treatment-for-ocd-in-columbus-oh)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avc873/innovative_tms_therapy_for_ocd_introduced_in/

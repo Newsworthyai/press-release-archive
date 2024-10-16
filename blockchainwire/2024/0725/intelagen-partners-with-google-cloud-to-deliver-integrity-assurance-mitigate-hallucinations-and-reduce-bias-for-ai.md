@@ -28,6 +28,9 @@ SVP of Marketing, WorkSpansam.gong@workspan.com
 
 ArhasiChiru BhavansikarChief AI Officercontactus@arhasi.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/intelagen-partners-with-google-cloud-to-deliver-integrity-assurance-mitigate-hallucinations-and-reduce-bias-for-ai) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/intelagen-partners-with-google-cloud-to-deliver-integrity-assurance-mitigate-hallucinations-and-reduce-bias-for-ai)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ebs79r/intelagen_enhances_partnership_with_google_cloud/

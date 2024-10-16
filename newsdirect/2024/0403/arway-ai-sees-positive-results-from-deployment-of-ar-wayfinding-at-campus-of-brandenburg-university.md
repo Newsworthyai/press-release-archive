@@ -20,6 +20,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/arway-ai-sees-positive-results-from-deployment-of-ar-wayfinding-at-campus-of-brandenburg-university-827846559 
 
-[Original/Source Press Release](https://newsdirect.com/news/arway-ai-sees-positive-results-from-deployment-of-ar-wayfinding-at-campus-of-brandenburg-university-827846559) 
+[Original/Source Press Release](https://newsdirect.com/news/arway-ai-sees-positive-results-from-deployment-of-ar-wayfinding-at-campus-of-brandenburg-university-827846559)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1butx8z/arwayai_revolutionizes_campus_experience_with/

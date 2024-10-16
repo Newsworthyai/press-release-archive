@@ -34,6 +34,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/political-meme-coins-have-taken-the-blockchain-by-storm-343392062 
 
-[Original/Source Press Release](https://newsdirect.com/news/political-meme-coins-have-taken-the-blockchain-by-storm-343392062) 
+[Original/Source Press Release](https://newsdirect.com/news/political-meme-coins-have-taken-the-blockchain-by-storm-343392062)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1coop5c/political_meme_coins_add_excitement_to/

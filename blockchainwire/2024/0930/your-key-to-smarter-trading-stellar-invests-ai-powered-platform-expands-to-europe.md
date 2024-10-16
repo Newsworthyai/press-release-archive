@@ -16,6 +16,9 @@ In conclusion, Stellar Invest is more than just a broker. It’s a comprehensi
 
 Website: https://investstellar.com/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/your-key-to-smarter-trading-stellar-invests-ai-powered-platform-expands-to-europe) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/your-key-to-smarter-trading-stellar-invests-ai-powered-platform-expands-to-europe)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1ft3t8t/stellar_invest_expanding_brokerage_services_into/

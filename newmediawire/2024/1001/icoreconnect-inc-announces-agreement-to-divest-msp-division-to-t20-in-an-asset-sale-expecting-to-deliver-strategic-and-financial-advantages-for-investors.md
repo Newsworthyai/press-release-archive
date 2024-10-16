@@ -44,6 +44,9 @@ IR@icoreconnect.com
 
 888.810.7706, ext 5 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/icoreconnect-inc-announces-agreement-to-divest-msp-division-to-t20-in-an-asset-sale-expecting-to-deliver-strategic-and-financial-advantages-for-investors-7076134) 
+[Original/Source Press Release](https://www.newmediawire.com/news/icoreconnect-inc-announces-agreement-to-divest-msp-division-to-t20-in-an-asset-sale-expecting-to-deliver-strategic-and-financial-advantages-for-investors-7076134)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1fu1w07/icoreconnect_inc_announces_divestiture_of_msp/

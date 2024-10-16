@@ -38,6 +38,9 @@ Telegram: https://t.me/solnarize
 
 Medium: https://medium.com/@solnarize 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/-solnarize-raises-350000-to-launch-solar-defender-the-first-sustainability-focused-p2e-meme-coin-on-the-solana-blockchain) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/-solnarize-raises-350000-to-launch-solar-defender-the-first-sustainability-focused-p2e-meme-coin-on-the-solana-blockchain)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fvgw1z/solnarize_raises_350000_for_solar_defender_the/

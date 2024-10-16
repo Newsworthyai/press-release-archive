@@ -32,6 +32,9 @@ Adding to the excitement, FURR recently launched its $10,000 Frenzy Bonanza Comp
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/solana-and-bitcoin-stabilize-while-furrever-token-approaches-11-million-in-presale-funding) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/solana-and-bitcoin-stabilize-while-furrever-token-approaches-11-million-in-presale-funding)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1clq7hg/furrever_token_furr_emerges_as_a_compelling/

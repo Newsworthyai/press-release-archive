@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/trust-stamp-and-botdoc-forge-strategic-partnership-to-enhance-automotive-security-714548184 
 
-[Original/Source Press Release](https://newsdirect.com/news/trust-stamp-and-botdoc-forge-strategic-partnership-to-enhance-automotive-security-714548184) 
+[Original/Source Press Release](https://newsdirect.com/news/trust-stamp-and-botdoc-forge-strategic-partnership-to-enhance-automotive-security-714548184)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ecprar/trust_stamp_and_botdoc_forge_strategic/

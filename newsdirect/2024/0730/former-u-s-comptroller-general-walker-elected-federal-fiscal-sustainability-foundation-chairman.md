@@ -26,6 +26,9 @@ dan@danrene.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/former-u-s-comptroller-general-walker-elected-federal-fiscal-sustainability-foundation-chairman-618229190 
 
-[Original/Source Press Release](https://newsdirect.com/news/former-u-s-comptroller-general-walker-elected-federal-fiscal-sustainability-foundation-chairman-618229190) 
+[Original/Source Press Release](https://newsdirect.com/news/former-u-s-comptroller-general-walker-elected-federal-fiscal-sustainability-foundation-chairman-618229190)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1eg4mxb/former_us_comptroller_general_walker_elected/

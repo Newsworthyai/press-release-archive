@@ -96,6 +96,9 @@ Company Websitehttps://www.valuethemarkets.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/graphite-one-study-accelerates-with-75-dod-funding-789588278 
 
-[Original/Source Press Release](https://newsdirect.com/news/graphite-one-study-accelerates-with-75-dod-funding-789588278) 
+[Original/Source Press Release](https://newsdirect.com/news/graphite-one-study-accelerates-with-75-dod-funding-789588278)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dw11xo/graphite_one_announces_revised_contract_with_the/

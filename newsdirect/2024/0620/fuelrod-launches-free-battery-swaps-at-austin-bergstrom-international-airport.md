@@ -24,6 +24,9 @@ Company Websitehttps://www.fuel-rod.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/fuelrod-launches-free-battery-swaps-at-austin-bergstrom-international-airport-188026768 
 
-[Original/Source Press Release](https://newsdirect.com/news/fuelrod-launches-free-battery-swaps-at-austin-bergstrom-international-airport-188026768) 
+[Original/Source Press Release](https://newsdirect.com/news/fuelrod-launches-free-battery-swaps-at-austin-bergstrom-international-airport-188026768)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dkicd7/fuelrod_launches_free_battery_swaps_at/

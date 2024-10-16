@@ -40,6 +40,9 @@ www.endexx.com
 
 Partnership OpportunitiesTo learn more about becoming a distribution partner with HYLA, visit: https://www.hyladistribution.com/ 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/endexx-corporation-provides-shareholder-update-on-hyla-s-strategic-growth-initiatives-7076044) 
+[Original/Source Press Release](https://www.newmediawire.com/news/endexx-corporation-provides-shareholder-update-on-hyla-s-strategic-growth-initiatives-7076044)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ff1a9z/endexx_corporation_provides_update_on_hyla/

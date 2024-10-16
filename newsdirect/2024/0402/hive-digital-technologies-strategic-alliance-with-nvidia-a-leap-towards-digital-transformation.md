@@ -18,6 +18,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hive-digital-technologies-strategic-alliance-with-nvidia-a-leap-towards-digital-transformation-758988064 
 
-[Original/Source Press Release](https://newsdirect.com/news/hive-digital-technologies-strategic-alliance-with-nvidia-a-leap-towards-digital-transformation-758988064) 
+[Original/Source Press Release](https://newsdirect.com/news/hive-digital-technologies-strategic-alliance-with-nvidia-a-leap-towards-digital-transformation-758988064)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bu4d4g/hive_digital_technologies_strategic_alliance_with/

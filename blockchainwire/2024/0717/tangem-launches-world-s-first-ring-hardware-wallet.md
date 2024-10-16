@@ -28,6 +28,9 @@ Website: www.tangem.com/ring/
 
 Socials: X / Telegram / Discord / YouTube / Instagram / LinkedIn 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/tangem-launches-worlds-first-ring-hardware-wallet) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/tangem-launches-worlds-first-ring-hardware-wallet)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ebyr9f/tangem_launches_worlds_first_ringshaped_crypto/

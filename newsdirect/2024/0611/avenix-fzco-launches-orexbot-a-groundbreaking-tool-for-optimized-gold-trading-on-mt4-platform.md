@@ -28,6 +28,9 @@ Company Websitehttps://orexbot.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/avenix-fzco-launches-orexbot-a-groundbreaking-tool-for-optimized-gold-trading-on-mt4-platform-744092537 
 
-[Original/Source Press Release](https://newsdirect.com/news/avenix-fzco-launches-orexbot-a-groundbreaking-tool-for-optimized-gold-trading-on-mt4-platform-744092537) 
+[Original/Source Press Release](https://newsdirect.com/news/avenix-fzco-launches-orexbot-a-groundbreaking-tool-for-optimized-gold-trading-on-mt4-platform-744092537)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ddcdit/avenix_fzco_launches_orexbot_for_optimized_gold/

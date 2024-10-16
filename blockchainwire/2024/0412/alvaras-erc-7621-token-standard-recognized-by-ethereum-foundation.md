@@ -28,6 +28,9 @@ About Alvara Protocol
 
 The Alvara Protocol is a transformative platform in the DeFi space designed to democratize the world of fund management. Built on the newly developed ERC-7621(Basket Token Standard), Alvara provides an innovative factory that paves the way for anyone to mint and manage a BTS. This unique ecosystem maintains complete transparency, allowing other investors to confidently contribute to the basket. Alvara adds a new dimension to decentralized finance by revolutionizing how we perceive and engage with the fund management as manager and investors. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/alvaras-erc-7621-token-standard-recognized-by-ethereum-foundation) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/alvaras-erc-7621-token-standard-recognized-by-ethereum-foundation)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c26iyh/alvara_protocol_democratizes_fund_management_with/

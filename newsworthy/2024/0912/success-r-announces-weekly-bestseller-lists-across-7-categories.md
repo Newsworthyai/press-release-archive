@@ -111,6 +111,9 @@ About SUCCESS® Enterprises
 
 Founded in 1897, SUCCESS® is a leading multimedia company dedicated to personal and professional development. Through SUCCESS® magazine, SUCCESS.com, newsletters, videos, and more, SUCCESS® inspires individuals to dream big and live their own definition of success. Optimism, determination, and resilience drive SUCCESS’® mission to provide individuals with tools and education for continuous growth and lasting success. For more information, visit success.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409121259/success-r-announces-weekly-bestseller-lists-across-7-categories) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409121259/success-r-announces-weekly-bestseller-lists-across-7-categories)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BookNews/comments/1ff2cms/success_releases_weekly_bestseller_lists_across/

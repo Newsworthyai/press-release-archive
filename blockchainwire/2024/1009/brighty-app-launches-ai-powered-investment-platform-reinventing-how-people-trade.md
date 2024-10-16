@@ -36,6 +36,9 @@ Any reader curious about the intersection of traditional banking and cryptocurre
 
 LinkedIn | Instagram | X (Twitter) | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/brighty-app-launches-ai-powered-investment-platform-reinventing-how-people-trade) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/brighty-app-launches-ai-powered-investment-platform-reinventing-how-people-trade)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fzlu34/brighty_app_introduces_aipowered_investment/

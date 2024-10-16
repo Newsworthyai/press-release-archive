@@ -38,6 +38,9 @@ sbednarova@osc-ortho.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/newport-news-spine-surgeon-performs-first-two-intracept-r-basivertebral-nerve-ablations-in-hampton-roads-426922004 
 
-[Original/Source Press Release](https://newsdirect.com/news/newport-news-spine-surgeon-performs-first-two-intracept-r-basivertebral-nerve-ablations-in-hampton-roads-426922004) 
+[Original/Source Press Release](https://newsdirect.com/news/newport-news-spine-surgeon-performs-first-two-intracept-r-basivertebral-nerve-ablations-in-hampton-roads-426922004)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1dcuhav/spine_surgeon_performs_groundbreaking_outpatient/

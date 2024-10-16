@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tiicker-whitepaper-findings-shareholder-perks-can-increase-confidence-in-management-promote-longer-term-holding-attract-new-investors-and-offer-many-more-benefits-907132531 
 
-[Original/Source Press Release](https://newsdirect.com/news/tiicker-whitepaper-findings-shareholder-perks-can-increase-confidence-in-management-promote-longer-term-holding-attract-new-investors-and-offer-many-more-benefits-907132531) 
+[Original/Source Press Release](https://newsdirect.com/news/tiicker-whitepaper-findings-shareholder-perks-can-increase-confidence-in-management-promote-longer-term-holding-attract-new-investors-and-offer-many-more-benefits-907132531)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f9gub9/tiicker_launches_new_platform_to_drive_longterm/

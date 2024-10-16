@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ondo-insurtech-ceo-discusses-upbeat-2023-trading-update-as-us-expansion-gains-momentum-855548519 
 
-[Original/Source Press Release](https://newsdirect.com/news/ondo-insurtech-ceo-discusses-upbeat-2023-trading-update-as-us-expansion-gains-momentum-855548519) 
+[Original/Source Press Release](https://newsdirect.com/news/ondo-insurtech-ceo-discusses-upbeat-2023-trading-update-as-us-expansion-gains-momentum-855548519)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1c728a9/ondo_insurtech_ceo_discusses_upbeat_2023_trading/

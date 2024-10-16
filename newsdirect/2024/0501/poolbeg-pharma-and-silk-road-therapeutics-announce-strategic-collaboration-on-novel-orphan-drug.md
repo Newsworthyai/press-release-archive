@@ -22,6 +22,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/poolbeg-pharma-and-silk-road-therapeutics-announce-strategic-collaboration-on-novel-orphan-drug-620489527 
 
-[Original/Source Press Release](https://newsdirect.com/news/poolbeg-pharma-and-silk-road-therapeutics-announce-strategic-collaboration-on-novel-orphan-drug-620489527) 
+[Original/Source Press Release](https://newsdirect.com/news/poolbeg-pharma-and-silk-road-therapeutics-announce-strategic-collaboration-on-novel-orphan-drug-620489527)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1chn0z3/poolbeg_pharma_and_silk_road_therapeutics/

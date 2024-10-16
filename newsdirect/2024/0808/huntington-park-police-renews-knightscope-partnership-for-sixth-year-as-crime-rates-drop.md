@@ -70,6 +70,9 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/huntington-park-police-renews-knightscope-partnership-for-sixth-year-as-crime-rates-drop-401472163 
 
-[Original/Source Press Release](https://newsdirect.com/news/huntington-park-police-renews-knightscope-partnership-for-sixth-year-as-crime-rates-drop-401472163) 
+[Original/Source Press Release](https://newsdirect.com/news/huntington-park-police-renews-knightscope-partnership-for-sixth-year-as-crime-rates-drop-401472163)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1en4x9k/knightscope_renews_contract_with_huntington_park/

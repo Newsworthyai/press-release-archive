@@ -48,6 +48,9 @@ segreteria@slclaw.eu
 
 View source version on newsdirect.com: https://newsdirect.com/news/two-elite-firms-with-a-combined-of-counsel-relationship-will-offer-innovative-diverse-services-throughout-an-expanded-geographical-footprint-710442832 
 
-[Original/Source Press Release](https://newsdirect.com/news/two-elite-firms-with-a-combined-of-counsel-relationship-will-offer-innovative-diverse-services-throughout-an-expanded-geographical-footprint-710442832) 
+[Original/Source Press Release](https://newsdirect.com/news/two-elite-firms-with-a-combined-of-counsel-relationship-will-offer-innovative-diverse-services-throughout-an-expanded-geographical-footprint-710442832)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1ddck5n/mintz_gold_llp_and_slc_law_form_strategic_of/

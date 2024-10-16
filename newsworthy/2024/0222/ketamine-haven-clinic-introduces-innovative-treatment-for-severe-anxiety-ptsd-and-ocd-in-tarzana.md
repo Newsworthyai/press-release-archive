@@ -10,6 +10,9 @@ In addition to PTSD, the clinic's low-dose ketamine infusion treatments have bee
 
 If you or someone you know is struggling with severe anxiety, PTSD, or OCD, contact Ketamine Haven Clinic today to learn more about their low-dose ketamine infusion treatments. With a compassionate approach and a focus on personalized care, Ketamine Haven Clinic remains devoted to empowering individuals to overcome these debilitating conditions and achieve lasting well-being. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402221083/ketamine-haven-clinic-introduces-innovative-treatment-for-severe-anxiety-ptsd-and-ocd-in-tarzana) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402221083/ketamine-haven-clinic-introduces-innovative-treatment-for-severe-anxiety-ptsd-and-ocd-in-tarzana)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1ay4rd5/ketamine_haven_clinic_introduces_revolutionary/

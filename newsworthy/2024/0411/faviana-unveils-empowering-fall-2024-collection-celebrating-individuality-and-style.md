@@ -20,6 +20,9 @@ For a glimpse into the world of Faviana and to stay updated with our newest desi
 
 Press Contact:Name: Amy Moradi Nazar | Community Manager Business DevelopmentEmail: amy@faviana.com Phone: 212-594-4422 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202404111144/faviana-unveils-empowering-fall-2024-collection-celebrating-individuality-and-style) 
+[Original/Source Press Release](https://newsworthy.ai/news/202404111144/faviana-unveils-empowering-fall-2024-collection-celebrating-individuality-and-style)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c1ery6/faviana_unveils_fall_2024_collection_celebrating/

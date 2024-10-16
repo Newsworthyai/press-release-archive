@@ -20,6 +20,9 @@ Website: senet.app
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/senet-is-building-a-cross-chain-gaming-ecosystem-based-on-gamefi-exchange) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/senet-is-building-a-cross-chain-gaming-ecosystem-based-on-gamefi-exchange)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1c1djsb/senet_network_launches_crosschain_game_asset/

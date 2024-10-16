@@ -32,6 +32,9 @@ Website: www.memesst.com
 
 Twitter: [www.x.com/memesterc20](//www.x.com/memesterc20)Telegram: [t.me/MEMESTELON](//t.me/MEMESTELON)YouTube: [https://youtu.be/qAe1QtAyHYg?feature=shared](https://youtu.be/qAe1QtAyHYg?feature=shared)Coingecko: [www.coingecko.com/en/coins/memes-street](http://www.coingecko.com/en/coins/memes-street)Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/memes-street-orchestrate-viral-marketing-campaign-capitalizing-on-positive-market-sentiment) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/memes-street-orchestrate-viral-marketing-campaign-capitalizing-on-positive-market-sentiment)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bfhpl1/memelord_renames_street_to_memes_street_inspires/

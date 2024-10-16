@@ -33,6 +33,9 @@ About Total Prepare:
 
 Founded in 2012 and headquartered in British Columbia, Total Prepare is Canada's leading provider of emergency preparedness products. Offering a comprehensive range of survival kits, Meals Ready to Eat (MREs), freeze-dried and dehydrated emergency food, water storage solutions, and more, Total Prepare is dedicated to empowering individuals and communities to prepare for unforeseen emergencies. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402271102/total-prepare-introduces-obars-the-first-gluten-free-dairy-free-vegan-nut-free-ration-bar-in-canada) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402271102/total-prepare-introduces-obars-the-first-gluten-free-dairy-free-vegan-nut-free-ration-bar-in-canada)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1b6rob9/total_prepare_launches_allergenfree_obars_for/

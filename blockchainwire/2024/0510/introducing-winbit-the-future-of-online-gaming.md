@@ -20,6 +20,9 @@ To learn more about Winbit and its offerings, visit https://winbit.io/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/introducing-winbit-the-future-of-online-gaming) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/introducing-winbit-the-future-of-online-gaming)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1cp36ff/winbit_the_future_of_online_gaming/

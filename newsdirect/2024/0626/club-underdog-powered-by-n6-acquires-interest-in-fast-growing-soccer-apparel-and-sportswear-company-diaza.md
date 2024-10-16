@@ -38,6 +38,9 @@ zak.hawke@n6krma.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/club-underdog-powered-by-n6-acquires-interest-in-fast-growing-soccer-apparel-and-sportswear-company-diaza-601997460 
 
-[Original/Source Press Release](https://newsdirect.com/news/club-underdog-powered-by-n6-acquires-interest-in-fast-growing-soccer-apparel-and-sportswear-company-diaza-601997460) 
+[Original/Source Press Release](https://newsdirect.com/news/club-underdog-powered-by-n6-acquires-interest-in-fast-growing-soccer-apparel-and-sportswear-company-diaza-601997460)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dp4qk3/north_sixth_groups_club_underdog_acquires/

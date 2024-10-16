@@ -16,6 +16,9 @@ The concept behind BEK TV’s programming is to provide a media service platform
 
 BEK TV is the 2021, 2022, 2023, and 2024 winner of the Bismarck Tribune’s Best of the Best contest, selected by the people for “Best Local TV Station”. BEK TV host Lori Hinz is the winner of the 2024 “Best TV Personality” award. Both were chosen by the people. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409191228/free-speech-network-wins-best-tv-station-for-fourth-consecutive-year-chosen-by-the-people-bek-tv-host-names-best-tv-personality) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409191228/free-speech-network-wins-best-tv-station-for-fourth-consecutive-year-chosen-by-the-people-bek-tv-host-names-best-tv-personality)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1fkqbw1/bek_tv_wins_best_local_tv_station_for_fourth/

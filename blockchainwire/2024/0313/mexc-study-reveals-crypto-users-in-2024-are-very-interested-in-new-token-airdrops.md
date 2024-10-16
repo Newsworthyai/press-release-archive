@@ -26,6 +26,9 @@ About MEXCMEXC is a leading centralized cryptocurrency exchange platform, offeri
 
 DisclaimerThis press release contains forward-looking statements that are subject to certain risks and uncertainties. Actual results may differ materially from those projected in the forward-looking statements. Readers are cautioned not to place undue reliance on these forward-looking statements, which reflect management's analysis only as of the date hereof. MEXC undertakes no obligation to publicly revise these forward-looking statements to reflect events or circumstances that arise after the date hereof. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/mexc-study-reveals-crypto-users-in-2024-are-very-interested-in-new-token-airdrops) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/mexc-study-reveals-crypto-users-in-2024-are-very-interested-in-new-token-airdrops)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bdpzxe/mexc_study_reveals_surge_in_interest_for_mx_token/

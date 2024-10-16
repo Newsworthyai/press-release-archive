@@ -14,6 +14,9 @@ Alvara Protocol, the first project built on the ERC-7621, showcases the standard
 
 This stands to be a cutting-edge token standard that could upend the space in a plethora of ways as we look towards the evolution of fund management in the next digital age. The ERC-7621 standard addresses the challenges inherent in traditional fund management whilst upholding the core ethos of crypto. Democratizing the process with decentralization by placing control firmly in the hands of the token holders. We need no longer worry about the gathering of power amongst powerful entities and conglomerates. No more gatekeeping. A level playing field where everyone and anyone can get involved. Crypto as it was intended to be. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/alvara-protocol-leverages-new-erc-7621-standard-for-fund-management-revolution) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/alvara-protocol-leverages-new-erc-7621-standard-for-fund-management-revolution)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1awkmge/revolutionary_erc7621_token_standard_transforming/

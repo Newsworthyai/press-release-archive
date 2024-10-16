@@ -18,6 +18,9 @@ With its official website at furrevertoken.com and dedicated support email addre
 
 Media Contact:Robert Smith[https://furrevertoken.com/](https://furrevertoken.com/)[support@furrevertoken.com](mailto:support@furrevertoken.com)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/-seizing-opportunities-bitcoin-and-ethereum-investors-flock-to-furrever-token-for-stability--and-high-returns) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/-seizing-opportunities-bitcoin-and-ethereum-investors-flock-to-furrever-token-for-stability--and-high-returns)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cgsl5d/furrever_token_furr_defying_market_trends_with/

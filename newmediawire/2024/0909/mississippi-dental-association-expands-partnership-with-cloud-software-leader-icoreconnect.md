@@ -44,6 +44,9 @@ IR@icoreconnect.com
 
 888.810.7706, ext 5 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/mississippi-dental-association-expands-partnership-with-cloud-software-leader-icoreconnect-7076024) 
+[Original/Source Press Release](https://www.newmediawire.com/news/mississippi-dental-association-expands-partnership-with-cloud-software-leader-icoreconnect-7076024)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fcouto/icoreconnect_expands_partnership_with_mississippi/

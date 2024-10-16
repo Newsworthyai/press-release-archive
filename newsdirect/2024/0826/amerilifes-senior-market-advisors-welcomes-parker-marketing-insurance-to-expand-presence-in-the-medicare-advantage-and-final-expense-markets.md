@@ -43,6 +43,9 @@ Company Websitehttps://amerilife.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/amerilifes-senior-market-advisors-welcomes-parker-marketing-insurance-to-expand-presence-in-the-medicare-advantage-and-final-expense-markets-635988758 
 
-[Original/Source Press Release](https://newsdirect.com/news/amerilifes-senior-market-advisors-welcomes-parker-marketing-insurance-to-expand-presence-in-the-medicare-advantage-and-final-expense-markets-635988758) 
+[Original/Source Press Release](https://newsdirect.com/news/amerilifes-senior-market-advisors-welcomes-parker-marketing-insurance-to-expand-presence-in-the-medicare-advantage-and-final-expense-markets-635988758)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1f1un4a/amerilifes_senior_market_advisors_welcomes_parker/

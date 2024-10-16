@@ -78,6 +78,9 @@ Company Websitehttps://california.comcast.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/comcast-supports-california-park-fire-relief-efforts-967487456 
 
-[Original/Source Press Release](https://newsdirect.com/news/comcast-supports-california-park-fire-relief-efforts-967487456) 
+[Original/Source Press Release](https://newsdirect.com/news/comcast-supports-california-park-fire-relief-efforts-967487456)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ekzs1l/comcast_supports_california_park_fire_relief/

@@ -22,6 +22,9 @@ Collaborations between blockchains and centralized exchanges have long focused o
 
 "Solana has shown remarkable resilience and adaptability, re-establishing itself as a top-tier blockchain. Solana's advancements in DePIN, AI, and memecoins (like Bonk and Wif) have secured its position among the top three blockchains. Moreover, Solana’s robust DeFi ecosystem and consumer-friendly applications like Phantom, Solflare, and Jupiter are rivaling those on Ethereum with respect to trading volumes and user experience”, highlights Sonia Shaw, President of CoinW. "We are delighted to partner with Solana to explore future possibilities and drive innovation together." 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-and-solana-expand-partnerships-to-empower-founders-villa) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-and-solana-expand-partnerships-to-empower-founders-villa)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1e1oepv/coinw_announces_exclusive_partnership_with/

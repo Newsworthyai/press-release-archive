@@ -24,6 +24,9 @@ Company Websitehttp://www.promperu.gob.pe
 
 View source version on newsdirect.com: https://newsdirect.com/news/peru-is-recognized-as-south-americas-leading-destination-at-the-world-travel-awards-824651421 
 
-[Original/Source Press Release](https://newsdirect.com/news/peru-is-recognized-as-south-americas-leading-destination-at-the-world-travel-awards-824651421) 
+[Original/Source Press Release](https://newsdirect.com/news/peru-is-recognized-as-south-americas-leading-destination-at-the-world-travel-awards-824651421)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1dtr7xl/peru_named_south_americas_leading_destination_at/

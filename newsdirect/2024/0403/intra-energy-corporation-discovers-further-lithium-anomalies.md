@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/intra-energy-corporation-discovers-further-lithium-anomalies-924465323 
 
-[Original/Source Press Release](https://newsdirect.com/news/intra-energy-corporation-discovers-further-lithium-anomalies-924465323) 
+[Original/Source Press Release](https://newsdirect.com/news/intra-energy-corporation-discovers-further-lithium-anomalies-924465323)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1bv6pjx/intra_energy_corporation_discovers_significant/

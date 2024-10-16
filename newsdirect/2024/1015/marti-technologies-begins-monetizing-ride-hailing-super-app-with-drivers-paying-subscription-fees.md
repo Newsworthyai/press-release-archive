@@ -38,6 +38,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/marti-technologies-begins-monetizing-ride-hailing-super-app-with-drivers-paying-subscription-fees-101436569 
 
-[Original/Source Press Release](https://newsdirect.com/news/marti-technologies-begins-monetizing-ride-hailing-super-app-with-drivers-paying-subscription-fees-101436569) 
+[Original/Source Press Release](https://newsdirect.com/news/marti-technologies-begins-monetizing-ride-hailing-super-app-with-drivers-paying-subscription-fees-101436569)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1g4932w/marti_technologies_monetizes_ridehailing_super/

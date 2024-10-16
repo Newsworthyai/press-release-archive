@@ -26,6 +26,9 @@ A Call to ActionIntercove invites traders to experience the future of cryptocurr
 
 Join thousands of satisfied traders worldwide who trust Intercove to deliver fast, secure, and successful cryptocurrency trades. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/fast-and-secure-transactions-how-intercove-enhances-the-trading-experience) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/fast-and-secure-transactions-how-intercove-enhances-the-trading-experience)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1g492lf/intercove_upgrades_transaction_processing_system/

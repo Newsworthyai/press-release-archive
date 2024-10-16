@@ -36,6 +36,9 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-scapes-group-llc-and-charter-vista-landscaping-llc-810863367 
 
-[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-scapes-group-llc-and-charter-vista-landscaping-llc-810863367) 
+[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-scapes-group-llc-and-charter-vista-landscaping-llc-810863367)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1eaa7dp/landscaping_acquisition_drives_growth_and/

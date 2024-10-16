@@ -40,6 +40,9 @@ Docs: https://docs.groot.gg
 
 GrootBot: https://t.me/Groot_Solana_bot 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409241277/groot-the-revolutionary-cross-chain-crypto-project-set-to-take-solana-by-storm) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409241277/groot-the-revolutionary-cross-chain-crypto-project-set-to-take-solana-by-storm)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fo5sad/groot_introduces_decentralized_crosschain_swap/

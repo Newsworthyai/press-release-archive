@@ -48,6 +48,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-hidden-economic-and-environmental-cost-of-ev-batteries-and-how-to-create-a-sustainable-circular-economy-180439948 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-hidden-economic-and-environmental-cost-of-ev-batteries-and-how-to-create-a-sustainable-circular-economy-180439948) 
+[Original/Source Press Release](https://newsdirect.com/news/the-hidden-economic-and-environmental-cost-of-ev-batteries-and-how-to-create-a-sustainable-circular-economy-180439948)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1d7wsri/aqua_metals_revolutionizing_battery_recycling/

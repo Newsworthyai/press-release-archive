@@ -20,6 +20,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/abitibi-metals-completes-first-ever-comprehensive-3d-modelling-of-b26-deposit-130037504 
 
-[Original/Source Press Release](https://newsdirect.com/news/abitibi-metals-completes-first-ever-comprehensive-3d-modelling-of-b26-deposit-130037504) 
+[Original/Source Press Release](https://newsdirect.com/news/abitibi-metals-completes-first-ever-comprehensive-3d-modelling-of-b26-deposit-130037504)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c873sc/abitibi_metals_unveils_3d_model_for_b26/

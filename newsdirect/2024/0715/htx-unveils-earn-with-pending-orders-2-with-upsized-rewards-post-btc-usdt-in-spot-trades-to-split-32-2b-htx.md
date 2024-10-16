@@ -44,6 +44,9 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-unveils-earn-with-pending-orders-2-with-upsized-rewards-post-btc-usdt-in-spot-trades-to-split-32-2b-htx-366447401 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-unveils-earn-with-pending-orders-2-with-upsized-rewards-post-btc-usdt-in-spot-trades-to-split-32-2b-htx-366447401) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-unveils-earn-with-pending-orders-2-with-upsized-rewards-post-btc-usdt-in-spot-trades-to-split-32-2b-htx-366447401)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1e3mnv6/htx_unveils_earn_with_pending_orders_2_with/

@@ -101,6 +101,9 @@ Company Websitehttps://medicoworlds.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/9-home-remedies-backed-by-science-998947664 
 
-[Original/Source Press Release](https://newsdirect.com/news/9-home-remedies-backed-by-science-998947664) 
+[Original/Source Press Release](https://newsdirect.com/news/9-home-remedies-backed-by-science-998947664)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1breydv/9_home_remedies_backed_by_science_natural/

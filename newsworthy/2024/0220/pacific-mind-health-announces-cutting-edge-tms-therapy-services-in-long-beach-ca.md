@@ -12,6 +12,9 @@ Pacific Mind Health offers Express TMS, a cutting-edge protocol that delivers th
 
 To further extend their support, Pacific Mind Health provides a complimentary consultation to evaluate if TMS therapy is suitable for each individual. By leveraging their expertise and utilizing advanced technologies, Pacific Mind Health is dedicated to offering the most effective mental health treatments to their patients. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402201075/pacific-mind-health-announces-cutting-edge-tms-therapy-services-in-long-beach-ca) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402201075/pacific-mind-health-announces-cutting-edge-tms-therapy-services-in-long-beach-ca)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avwylg/pacific_mind_health_introduces_cuttingedge_tms/

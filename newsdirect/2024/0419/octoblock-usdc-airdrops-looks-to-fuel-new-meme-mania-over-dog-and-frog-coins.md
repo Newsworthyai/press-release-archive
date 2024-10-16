@@ -52,6 +52,9 @@ Company Websitehttps://octoblock.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/octoblock-usdc-airdrops-looks-to-fuel-new-meme-mania-over-dog-and-frog-coins-699926985 
 
-[Original/Source Press Release](https://newsdirect.com/news/octoblock-usdc-airdrops-looks-to-fuel-new-meme-mania-over-dog-and-frog-coins-699926985) 
+[Original/Source Press Release](https://newsdirect.com/news/octoblock-usdc-airdrops-looks-to-fuel-new-meme-mania-over-dog-and-frog-coins-699926985)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1c877jl/octoblock_introduces_revolutionary_usdc_airdrops/

@@ -48,6 +48,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/linqtos-platform-provides-interested-investors-with-true-access-to-pre-ipo-companies-931309753 
 
-[Original/Source Press Release](https://newsdirect.com/news/linqtos-platform-provides-interested-investors-with-true-access-to-pre-ipo-companies-931309753) 
+[Original/Source Press Release](https://newsdirect.com/news/linqtos-platform-provides-interested-investors-with-true-access-to-pre-ipo-companies-931309753)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1eeyi25/linqto_revolutionizes_retail_investor_access_to/

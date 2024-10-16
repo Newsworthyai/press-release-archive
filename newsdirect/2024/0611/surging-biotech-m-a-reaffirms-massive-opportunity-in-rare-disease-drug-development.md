@@ -76,6 +76,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/surging-biotech-manda-reaffirms-massive-opportunity-in-rare-disease-drug-development-381093280 
 
-[Original/Source Press Release](https://newsdirect.com/news/surging-biotech-manda-reaffirms-massive-opportunity-in-rare-disease-drug-development-381093280) 
+[Original/Source Press Release](https://newsdirect.com/news/surging-biotech-manda-reaffirms-massive-opportunity-in-rare-disease-drug-development-381093280)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ddakcs/surging_biotech_ma_reaffirms_massive_opportunity/

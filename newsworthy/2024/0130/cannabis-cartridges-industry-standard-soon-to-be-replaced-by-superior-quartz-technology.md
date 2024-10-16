@@ -32,6 +32,9 @@ Reported CCELL Temp
 
 Oar, Michael A, et al. “Thermography of Cannabis Extract Vaporization Cartridge Heating Coils in Temperature- and Voltage-Controlled Systems during a Simulated Human Puff.” PloS One, 26 January 2022. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401301043/cannabis-cartridges-industry-standard-soon-to-be-replaced-by-superior-quartz-technology) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401301043/cannabis-cartridges-industry-standard-soon-to-be-replaced-by-superior-quartz-technology)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1avlgfy/lab_analysis_reveals_quartz_cartridges_produce/

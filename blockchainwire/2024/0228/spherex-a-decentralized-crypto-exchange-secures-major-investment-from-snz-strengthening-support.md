@@ -22,6 +22,9 @@ About SNZ
 
 SNZ is a crypto-native, research-driven investment company with 200+ portfolios. Active since 2014, beyond investment, the SNZ team has been dedicated to community building and incubation, notably as one of the earliest backers of Ethereum in Asia, and the strategic partner for western projects (e.g. Chainlink) to expand in Asia. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/spherex-a-decentralized-crypto-exchange-secures-major-investment-from-snz-strengthening-support--) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/spherex-a-decentralized-crypto-exchange-secures-major-investment-from-snz-strengthening-support--)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1b6royy/spherex_secures_major_investments_to/

@@ -66,6 +66,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/middle-easts-9-billion-ev-opportunity-reaffirms-potential-in-these-stocks-803034430 
 
-[Original/Source Press Release](https://newsdirect.com/news/middle-easts-9-billion-ev-opportunity-reaffirms-potential-in-these-stocks-803034430) 
+[Original/Source Press Release](https://newsdirect.com/news/middle-easts-9-billion-ev-opportunity-reaffirms-potential-in-these-stocks-803034430)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1chkhs4/middle_easts_ev_growth_attracts_attention_of_key/

@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/e-commerce-in-the-age-of-artificial-intelligence-345602586 
 
-[Original/Source Press Release](https://newsdirect.com/news/e-commerce-in-the-age-of-artificial-intelligence-345602586) 
+[Original/Source Press Release](https://newsdirect.com/news/e-commerce-in-the-age-of-artificial-intelligence-345602586)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1f2jho1/rezolve_introduces_aipowered_ecommerce_platform/

@@ -28,6 +28,9 @@ rcolchamiro@marinopr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ashkenazy-acquisition-corp-transforms-vernon-hills-retail-village-744725049 
 
-[Original/Source Press Release](https://newsdirect.com/news/ashkenazy-acquisition-corp-transforms-vernon-hills-retail-village-744725049) 
+[Original/Source Press Release](https://newsdirect.com/news/ashkenazy-acquisition-corp-transforms-vernon-hills-retail-village-744725049)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1chn147/ashkenazy_acquisition_corp_transforms_vernon/

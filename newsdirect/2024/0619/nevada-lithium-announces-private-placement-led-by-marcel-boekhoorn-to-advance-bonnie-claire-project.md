@@ -18,6 +18,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nevada-lithium-announces-private-placement-led-by-marcel-boekhoorn-to-advance-bonnie-claire-project-733645068 
 
-[Original/Source Press Release](https://newsdirect.com/news/nevada-lithium-announces-private-placement-led-by-marcel-boekhoorn-to-advance-bonnie-claire-project-733645068) 
+[Original/Source Press Release](https://newsdirect.com/news/nevada-lithium-announces-private-placement-led-by-marcel-boekhoorn-to-advance-bonnie-claire-project-733645068)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1djl1y6/nevada_lithium_announces_private_placement_to/

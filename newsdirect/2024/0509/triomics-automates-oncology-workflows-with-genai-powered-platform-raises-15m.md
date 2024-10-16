@@ -58,6 +58,9 @@ Company Websitehttps://www.triomics.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/triomics-automates-oncology-workflows-with-genai-powered-platform-raises-15m-880658330 
 
-[Original/Source Press Release](https://newsdirect.com/news/triomics-automates-oncology-workflows-with-genai-powered-platform-raises-15m-880658330) 
+[Original/Source Press Release](https://newsdirect.com/news/triomics-automates-oncology-workflows-with-genai-powered-platform-raises-15m-880658330)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1co2yc9/triomics_raises_15m_to_automate_oncology/

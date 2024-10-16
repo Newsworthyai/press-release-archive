@@ -30,6 +30,9 @@ Disclaimer
 
 The content herein does not constitute investment advice, any offer, solicitation, or recommendation of any products or services. Please note that Gate.io may restrict or prohibit the use of all or a portion of its services from restricted jurisdictions. For more information, you should read its applicable user agreements. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/gateio-announces-official-sleeve-partnership-with-inter-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/gateio-announces-official-sleeve-partnership-with-inter-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1f0d205/gateio_announces_partnership_with_fc/

@@ -12,6 +12,9 @@ BitStore.com is your gateway to seamless cryptocurrency integration in the real 
 
 [Website](https://www.bitstore.com/) | [Twitter](https://twitter.com/www_bit_store) | [Telegram](https://t.me/Bitstore_official) | [Discord](https://discord.gg/QFH44EPGef) | [Apply Your Card](https://cryptocard.bit.store/) |[Medium](https://medium.com/@bitstoreteam) | [Youtube](https://www.youtube.com/@bitstorecard) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/spend-crypto-with-ease-your-guide-to-bitstorecom-on-bitcoinpizza-day) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/spend-crypto-with-ease-your-guide-to-bitstorecom-on-bitcoinpizza-day)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cy16lr/bitcoinpizza_day_celebrated_with_revolutionary/

@@ -26,6 +26,9 @@ Clean Habits is a North American cleaning product line by Synbio Concept LLC, de
 
 Contact:info@synbioconcept.com(832) 930-4313www.getcleanhabits.com 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202407151211/culture-pilot-announces-clean-habits-brand-launch-in-north-america) 
+[Original/Source Press Release](https://newsworthy.ai/news/202407151211/culture-pilot-announces-clean-habits-brand-launch-in-north-america)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1e3om96/clean_habits_revolutionizing_cleanliness_with/

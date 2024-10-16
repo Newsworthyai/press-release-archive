@@ -20,6 +20,9 @@ The 4E Exchange will launch a series of wonderful brand promotion and marketing 
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/4e-exchange-signs-global-sponsorship-contract-with-argentina-national-football-team-to-write-a-new-chapter-of-sports-and-finance) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/4e-exchange-signs-global-sponsorship-contract-with-argentina-national-football-team-to-write-a-new-chapter-of-sports-and-finance)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bnkhye/4e_exchange_signs_global_sponsorship_deal_with/

@@ -25,6 +25,9 @@
 
  InvestorWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestech-nasdaq-snes-offers-a-sustainable-solution-to-the-rodent-problem/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestech-nasdaq-snes-offers-a-sustainable-solution-to-the-rodent-problem/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1f2gcjj/senestech_offers_sustainable_solution_to_growing/

@@ -56,6 +56,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/meet-vantagepoint-inventor-of-the-worlds-first-ai-powered-software-for-independent-traders-that-launched-in-1991-548202432 
 
-[Original/Source Press Release](https://newsdirect.com/news/meet-vantagepoint-inventor-of-the-worlds-first-ai-powered-software-for-independent-traders-that-launched-in-1991-548202432) 
+[Original/Source Press Release](https://newsdirect.com/news/meet-vantagepoint-inventor-of-the-worlds-first-ai-powered-software-for-independent-traders-that-launched-in-1991-548202432)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1c1dqtq/vantagepoint_the_pioneer_of_aipowered_software/

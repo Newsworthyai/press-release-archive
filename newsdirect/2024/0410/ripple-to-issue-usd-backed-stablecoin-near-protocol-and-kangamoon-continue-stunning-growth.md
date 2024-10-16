@@ -44,6 +44,9 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/ripple-to-issue-usd-backed-stablecoin-near-protocol-and-kangamoon-continue-stunning-growth-395181664 
 
-[Original/Source Press Release](https://newsdirect.com/news/ripple-to-issue-usd-backed-stablecoin-near-protocol-and-kangamoon-continue-stunning-growth-395181664) 
+[Original/Source Press Release](https://newsdirect.com/news/ripple-to-issue-usd-backed-stablecoin-near-protocol-and-kangamoon-continue-stunning-growth-395181664)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1c0liy8/ripple_near_protocol_and_kangamoon_crypto_market/

@@ -48,6 +48,9 @@ Investor Relations
 
 IR@ImageProtectCorporation.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/image-protect-inc-otc-imtl-to-create-predictive-ai-modeler-to-help-clients-achieve-better-targeted-results-and-increase-company-revenues-7076124) 
+[Original/Source Press Release](https://www.newmediawire.com/news/image-protect-inc-otc-imtl-to-create-predictive-ai-modeler-to-help-clients-achieve-better-targeted-results-and-increase-company-revenues-7076124)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fswh2b/image_protect_inc_develops_new_generative_ai/

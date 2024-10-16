@@ -60,6 +60,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/3-key-moves-uniquely-position-atlas-lithium-for-potential-success-in-rapidly-expanding-lithium-market-756094981 
 
-[Original/Source Press Release](https://newsdirect.com/news/3-key-moves-uniquely-position-atlas-lithium-for-potential-success-in-rapidly-expanding-lithium-market-756094981) 
+[Original/Source Press Release](https://newsdirect.com/news/3-key-moves-uniquely-position-atlas-lithium-for-potential-success-in-rapidly-expanding-lithium-market-756094981)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1egml33/atlas_lithiums_strategic_initiatives_positioning/

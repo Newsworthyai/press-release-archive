@@ -16,6 +16,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nevis-brands-announces-major-shots-are-now-for-sale-in-dozens-if-dispensaries-in-missouri-356054807 
 
-[Original/Source Press Release](https://newsdirect.com/news/nevis-brands-announces-major-shots-are-now-for-sale-in-dozens-if-dispensaries-in-missouri-356054807) 
+[Original/Source Press Release](https://newsdirect.com/news/nevis-brands-announces-major-shots-are-now-for-sale-in-dozens-if-dispensaries-in-missouri-356054807)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1cc58gt/nevis_brands_expands_product_offerings_with_major/

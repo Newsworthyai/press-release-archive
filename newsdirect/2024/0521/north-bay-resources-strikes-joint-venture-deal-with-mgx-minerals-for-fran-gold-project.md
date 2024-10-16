@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/north-bay-resources-strikes-joint-venture-deal-with-mgx-minerals-for-fran-gold-project-161187274 
 
-[Original/Source Press Release](https://newsdirect.com/news/north-bay-resources-strikes-joint-venture-deal-with-mgx-minerals-for-fran-gold-project-161187274) 
+[Original/Source Press Release](https://newsdirect.com/news/north-bay-resources-strikes-joint-venture-deal-with-mgx-minerals-for-fran-gold-project-161187274)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cxct4t/north_bay_resources_strikes_joint_venture_deal/

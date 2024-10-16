@@ -26,6 +26,9 @@ Founded in 2018, double jump.tokyo Inc. is the leading startup in Japan that spe
 
 Contact: Natsune Otsukimarketing@doublejump.tokyoDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/gate-ventures-invests-in-japans-largest-web3-gaming-pioneer-double-jumptokyo-paving-the-way-for-web3-mass-adoption) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/gate-ventures-invests-in-japans-largest-web3-gaming-pioneer-double-jumptokyo-paving-the-way-for-web3-mass-adoption)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1fh6tsi/gate_ventures_announces_strategic_investment_in/

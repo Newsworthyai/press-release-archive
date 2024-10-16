@@ -36,6 +36,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-future-of-bitcoin-mining-according-to-the-industrys-leading-players-137908023 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-future-of-bitcoin-mining-according-to-the-industrys-leading-players-137908023) 
+[Original/Source Press Release](https://newsdirect.com/news/the-future-of-bitcoin-mining-according-to-the-industrys-leading-players-137908023)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dipsx6/bitcoin_mining_roundtable_key_insights_and/

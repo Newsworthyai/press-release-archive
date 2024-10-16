@@ -16,6 +16,9 @@ Commenting on the launch, Salvo Castagna said, "The financial industry is at a c
 
 About FintexFintex is dedicated to revolutionizing the fintech landscape by providing cutting-edge solutions that integrate digital currencies with traditional banking systems. The company's flagship product, the IBAN Crypto Ramp, exemplifies this mission by offering a straightforward and secure method for users to engage with cryptocurrencies. With a focus on security, usability, and innovation, Fintex is set to lead the way in digital finance. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/salvo-castagna-launches-fintex-revolutionizing-crypto-transactions-with-the-iban-crypto-ramp) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/salvo-castagna-launches-fintex-revolutionizing-crypto-transactions-with-the-iban-crypto-ramp)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1eksr57/fintex_launches_innovative_iban_crypto_ramp_for/

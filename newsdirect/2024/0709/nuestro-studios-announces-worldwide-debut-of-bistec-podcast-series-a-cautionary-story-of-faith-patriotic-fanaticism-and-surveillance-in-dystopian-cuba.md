@@ -54,6 +54,9 @@ bistec@brillamedia.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nuestro-studios-announces-worldwide-debut-of-bistec-podcast-series-a-cautionary-story-of-faith-patriotic-fanaticism-and-surveillance-in-dystopian-cuba-305585400 
 
-[Original/Source Press Release](https://newsdirect.com/news/nuestro-studios-announces-worldwide-debut-of-bistec-podcast-series-a-cautionary-story-of-faith-patriotic-fanaticism-and-surveillance-in-dystopian-cuba-305585400) 
+[Original/Source Press Release](https://newsdirect.com/news/nuestro-studios-announces-worldwide-debut-of-bistec-podcast-series-a-cautionary-story-of-faith-patriotic-fanaticism-and-surveillance-in-dystopian-cuba-305585400)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dz99x9/nuestro_studios_launches_bistec_podcast_series_on/

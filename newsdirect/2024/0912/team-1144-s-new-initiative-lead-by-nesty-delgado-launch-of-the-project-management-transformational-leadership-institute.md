@@ -114,6 +114,9 @@ info@team1144.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/team-1144s-new-initiative-lead-by-nesty-delgado-launch-of-the-project-management-and-transformational-leadership-institute-977980562 
 
-[Original/Source Press Release](https://newsdirect.com/news/team-1144s-new-initiative-lead-by-nesty-delgado-launch-of-the-project-management-and-transformational-leadership-institute-977980562) 
+[Original/Source Press Release](https://newsdirect.com/news/team-1144s-new-initiative-lead-by-nesty-delgado-launch-of-the-project-management-and-transformational-leadership-institute-977980562)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1ff2cku/team_1144s_new_initiative_lead_by_nesty_delgado/

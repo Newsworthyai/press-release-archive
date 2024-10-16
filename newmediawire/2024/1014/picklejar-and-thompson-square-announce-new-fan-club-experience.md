@@ -32,6 +32,9 @@ Anna Benson
 
 anna@picklejar.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/picklejar-and-thompson-square-announce-new-fan-club-experience-7076223) 
+[Original/Source Press Release](https://www.newmediawire.com/news/picklejar-and-thompson-square-announce-new-fan-club-experience-7076223)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1g3m3tw/picklejar_launches_official_fan_club_for_thompson/

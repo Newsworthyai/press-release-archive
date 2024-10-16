@@ -18,6 +18,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/rocketfuel-ceo-on-advancing-crypto-use-in-business-payments-232782925 
 
-[Original/Source Press Release](https://newsdirect.com/news/rocketfuel-ceo-on-advancing-crypto-use-in-business-payments-232782925) 
+[Original/Source Press Release](https://newsdirect.com/news/rocketfuel-ceo-on-advancing-crypto-use-in-business-payments-232782925)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cct6qk/rocketfuel_ceo_on_advancing_crypto_use_in/

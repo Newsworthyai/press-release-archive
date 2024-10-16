@@ -22,6 +22,9 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htxs-trade-to-earn-achievements-in-q2-9-million-htx-tokens-burned-driving-platform-value-higher-419903779 
 
-[Original/Source Press Release](https://newsdirect.com/news/htxs-trade-to-earn-achievements-in-q2-9-million-htx-tokens-burned-driving-platform-value-higher-419903779) 
+[Original/Source Press Release](https://newsdirect.com/news/htxs-trade-to-earn-achievements-in-q2-9-million-htx-tokens-burned-driving-platform-value-higher-419903779)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ekrrei/htx_burns_9_million_tokens_driving_platform_value/

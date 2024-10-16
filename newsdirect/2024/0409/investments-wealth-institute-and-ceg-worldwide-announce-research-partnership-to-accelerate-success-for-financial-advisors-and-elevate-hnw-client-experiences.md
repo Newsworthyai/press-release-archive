@@ -40,6 +40,9 @@ Company Websitehttps://investmentsandwealth.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/investments-and-wealth-institute-and-ceg-worldwide-announce-research-partnership-to-accelerate-success-for-financial-advisors-and-elevate-hnw-client-experiences-416212397 
 
-[Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-institute-and-ceg-worldwide-announce-research-partnership-to-accelerate-success-for-financial-advisors-and-elevate-hnw-client-experiences-416212397) 
+[Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-institute-and-ceg-worldwide-announce-research-partnership-to-accelerate-success-for-financial-advisors-and-elevate-hnw-client-experiences-416212397)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1bzuns6/investments_wealth_institute_partners_with_ceg/

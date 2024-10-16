@@ -26,6 +26,9 @@ Follow BitMart for more updates:
 
 X (Twitter) | BitMart Research | Facebook | Telegram | YouTube | Instagram | Discord 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-launches-futures-v20-system-offering-enhanced-performance-and-superior-matching-capabilities) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-launches-futures-v20-system-offering-enhanced-performance-and-superior-matching-capabilities)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dy9vwd/bitmart_launches_futures_v20_system_with_enhanced/

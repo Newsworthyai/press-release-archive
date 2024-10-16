@@ -18,6 +18,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/arway-ai-announces-multiple-new-saas-developer-contracts-in-both-the-united-states-and-chile-806648800 
 
-[Original/Source Press Release](https://newsdirect.com/news/arway-ai-announces-multiple-new-saas-developer-contracts-in-both-the-united-states-and-chile-806648800) 
+[Original/Source Press Release](https://newsdirect.com/news/arway-ai-announces-multiple-new-saas-developer-contracts-in-both-the-united-states-and-chile-806648800)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bu43pe/arwayai_announces_new_saas_developer_signups_for/

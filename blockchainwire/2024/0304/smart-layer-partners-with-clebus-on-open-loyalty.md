@@ -24,6 +24,9 @@ In the future, Smart Layer and CLEBUS plan to expand technical support and strat
 
 • For more on Smart Layer and its future vision visit www.smartlayer.network 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/smart-layer-partners-with-clebus-on-open-loyalty-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/smart-layer-partners-with-clebus-on-open-loyalty-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1b6rng0/smart_layer_and_clebus_partner_on_open_loyalty/

@@ -18,6 +18,9 @@ About Jiritsu Network
 
 Jiritsu Network is a Layer 1 blockchain technology company specialized in the tokenization of real world assets. By enhancing the security and efficiency of asset registration, verification, and tokenization processes, Jiritsu aims to make blockchain technology accessible and practical for widespread adoption across various industries. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/michael-lustig-former-blackrock-executive-joins-jiritsu-network-board-to-drive-institutional-adoption) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/michael-lustig-former-blackrock-executive-joins-jiritsu-network-board-to-drive-institutional-adoption)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1co2hu6/former_blackrock_managing_director_joins_jiritsu/

@@ -25,6 +25,9 @@ About Cannadelic Community Nonprofit:
 
 Cannadelic Community Nonprofit is dedicated to improving the mental health and wellbeing of military personnel, first responders, doctors, and nurses through education, advocacy, and support. We strive to provide these communities with the resources they need to thrive, using the therapeutic potential of plant medicine, including cannabis and psychedelics. Donate today: https://www.cannadelic.org 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202405221174/cannadelic-dc-2024-the-worlds-largest-cannabis-psychedelics-convention-comes-to-washington-dc-on-october-19-20-2024) 
+[Original/Source Press Release](https://newsworthy.ai/news/202405221174/cannadelic-dc-2024-the-worlds-largest-cannabis-psychedelics-convention-comes-to-washington-dc-on-october-19-20-2024)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1cxwpfz/cannadelic_dc_2024_pioneering_cannabis/

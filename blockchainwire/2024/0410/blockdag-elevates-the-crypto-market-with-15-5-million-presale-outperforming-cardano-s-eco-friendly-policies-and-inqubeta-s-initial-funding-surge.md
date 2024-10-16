@@ -32,6 +32,9 @@ Discord: https://discord.gg/Q7BxghMVyu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-elevates-the-crypto-market-with-155-million-presale-outperforming-cardanos-eco-friendly-policies-and-inqubetas-initial-funding-surge) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-elevates-the-crypto-market-with-155-million-presale-outperforming-cardanos-eco-friendly-policies-and-inqubetas-initial-funding-surge)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c0njo8/blockdag_redefining_blockchain_with_revolutionary/

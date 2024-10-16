@@ -32,6 +32,9 @@ Media Contact: contact (at) magaa.io
 
 Disclaimer: The information provided in this press release is for informational purposes only and does not constitute financial advice. Cryptocurrency investments are subject to market risks, and individuals should conduct their own research before making any investment decisions. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/magaa-electrifies-bitcoin-2024-with-donald-trump-jr-and-tucker-carlson) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/magaa-electrifies-bitcoin-2024-with-donald-trump-jr-and-tucker-carlson)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1eiigaa/politifi_memecoin_magaa_gains_momentum_after/

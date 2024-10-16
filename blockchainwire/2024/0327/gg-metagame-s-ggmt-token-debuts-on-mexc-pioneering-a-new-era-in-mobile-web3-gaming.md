@@ -18,6 +18,9 @@ MEXC stands as a global cryptocurrency exchange, offering a diverse range of dig
 
 Website 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/gg-metagames-ggmt-token-debuts-on-mexc-pioneering-a-new-era-in-mobile-web3-gaming) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/gg-metagames-ggmt-token-debuts-on-mexc-pioneering-a-new-era-in-mobile-web3-gaming)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1boz90s/gg_metagame_lists_ggmt_token_on_mexc_exchange/

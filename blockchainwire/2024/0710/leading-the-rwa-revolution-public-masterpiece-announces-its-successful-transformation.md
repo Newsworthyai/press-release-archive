@@ -34,6 +34,9 @@ LinkedIn: https://www.linkedin.com/company/public-masterpiece
 
 Instagram: https://www.instagram.com/public_masterpiece/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/leading-the-rwa-revolution-public-masterpiece-announces-its-successful-transformation) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/leading-the-rwa-revolution-public-masterpiece-announces-its-successful-transformation)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dzx7b0/public_masterpiece_token_revolutionizing_real/

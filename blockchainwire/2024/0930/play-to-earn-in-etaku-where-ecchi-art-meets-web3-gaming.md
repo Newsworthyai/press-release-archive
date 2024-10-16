@@ -34,6 +34,9 @@ Instagram | TikTok | Youtube
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/play-to-earn-in-etaku---where-ecchi-art-meets-web3-gaming) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/play-to-earn-in-etaku---where-ecchi-art-meets-web3-gaming)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fstrwx/etaku_a_paradise_for_anime_and_ecchi_enthusiasts/

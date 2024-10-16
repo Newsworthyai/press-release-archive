@@ -34,6 +34,9 @@ Company Websitehttp://www.searchberg.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/modern-day-content-machines-search-bergs-content-marketing-prowess-raises-the-bar-for-agencies-all-over-756273318 
 
-[Original/Source Press Release](https://newsdirect.com/news/modern-day-content-machines-search-bergs-content-marketing-prowess-raises-the-bar-for-agencies-all-over-756273318) 
+[Original/Source Press Release](https://newsdirect.com/news/modern-day-content-machines-search-bergs-content-marketing-prowess-raises-the-bar-for-agencies-all-over-756273318)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1fyyaet/search_berg_redefines_content_marketing_with/

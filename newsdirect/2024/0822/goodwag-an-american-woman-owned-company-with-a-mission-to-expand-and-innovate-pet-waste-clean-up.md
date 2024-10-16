@@ -48,6 +48,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/goodwag-an-american-woman-owned-company-with-a-mission-to-expand-and-innovate-pet-waste-clean-up-567627151 
 
-[Original/Source Press Release](https://newsdirect.com/news/goodwag-an-american-woman-owned-company-with-a-mission-to-expand-and-innovate-pet-waste-clean-up-567627151) 
+[Original/Source Press Release](https://newsdirect.com/news/goodwag-an-american-woman-owned-company-with-a-mission-to-expand-and-innovate-pet-waste-clean-up-567627151)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1eyim1s/goodwag_tapping_into_the_growing_trend_of/

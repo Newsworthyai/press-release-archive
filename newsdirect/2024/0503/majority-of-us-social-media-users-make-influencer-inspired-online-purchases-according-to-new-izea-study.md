@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/majority-of-us-social-media-users-make-influencer-inspired-online-purchases-according-to-new-izea-study-636697276 
 
-[Original/Source Press Release](https://newsdirect.com/news/majority-of-us-social-media-users-make-influencer-inspired-online-purchases-according-to-new-izea-study-636697276) 
+[Original/Source Press Release](https://newsdirect.com/news/majority-of-us-social-media-users-make-influencer-inspired-online-purchases-according-to-new-izea-study-636697276)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cj7oqz/new_izea_study_reveals_majority_of_us_social/

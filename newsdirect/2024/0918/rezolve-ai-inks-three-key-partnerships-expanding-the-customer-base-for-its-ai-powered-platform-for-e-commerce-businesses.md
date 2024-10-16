@@ -46,6 +46,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/rezolve-ai-inks-three-key-partnerships-expanding-the-customer-base-for-its-ai-powered-platform-for-e-commerce-businesses-336379372 
 
-[Original/Source Press Release](https://newsdirect.com/news/rezolve-ai-inks-three-key-partnerships-expanding-the-customer-base-for-its-ai-powered-platform-for-e-commerce-businesses-336379372) 
+[Original/Source Press Release](https://newsdirect.com/news/rezolve-ai-inks-three-key-partnerships-expanding-the-customer-base-for-its-ai-powered-platform-for-e-commerce-businesses-336379372)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fjrwq6/rezolve_ai_inks_three_key_partnerships_expanding/

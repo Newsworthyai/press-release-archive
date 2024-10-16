@@ -18,6 +18,9 @@ Established to illuminate the intricate realm of mortgages, MortgageTrends.io st
 
 Discover insights about mortgages at www.MortgageTrends.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231124850/mortgagetrends-io-the-new-pulse-of-mortgage-insights-and-analysis) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231124850/mortgagetrends-io-the-new-pulse-of-mortgage-insights-and-analysis)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1avx02u/mortgagetrendsio_launches_as_a_centralized/

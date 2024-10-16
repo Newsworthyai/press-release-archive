@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/celsius-resources-receives-permit-extension-for-sagay-copper-project-585330142 
 
-[Original/Source Press Release](https://newsdirect.com/news/celsius-resources-receives-permit-extension-for-sagay-copper-project-585330142) 
+[Original/Source Press Release](https://newsdirect.com/news/celsius-resources-receives-permit-extension-for-sagay-copper-project-585330142)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c1nrfb/celsius_resources_ceo_discusses_permitting_for/

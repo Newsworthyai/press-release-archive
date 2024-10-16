@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-co-ceo-of-brand-engagement-network-talks-future-of-ai-424471657 
 
-[Original/Source Press Release](https://newsdirect.com/news/new-co-ceo-of-brand-engagement-network-talks-future-of-ai-424471657) 
+[Original/Source Press Release](https://newsdirect.com/news/new-co-ceo-of-brand-engagement-network-talks-future-of-ai-424471657)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1eift7h/brand_engagement_network_coceo_shares_vision_for/

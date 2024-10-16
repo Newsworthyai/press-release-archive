@@ -20,6 +20,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/chesnara-reports-strong-2023-results-with-improved-cash-generation-and-solvency-ratio-147017038 
 
-[Original/Source Press Release](https://newsdirect.com/news/chesnara-reports-strong-2023-results-with-improved-cash-generation-and-solvency-ratio-147017038) 
+[Original/Source Press Release](https://newsdirect.com/news/chesnara-reports-strong-2023-results-with-improved-cash-generation-and-solvency-ratio-147017038)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bu151i/chesnara_plc_ceo_steve_murray_discusses_strong/

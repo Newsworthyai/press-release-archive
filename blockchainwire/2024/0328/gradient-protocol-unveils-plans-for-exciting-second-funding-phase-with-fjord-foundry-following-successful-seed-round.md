@@ -26,6 +26,9 @@ Telegram: https://t.me/Gradient_Entry
 
 Website: https://gradientprotocol.io/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/gradient-protocol-unveils-plans-for-exciting-second-funding-phase-with-fjord-foundry-following-successful-seed-round-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/gradient-protocol-unveils-plans-for-exciting-second-funding-phase-with-fjord-foundry-following-successful-seed-round-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bpu14n/gradient_protocol_launches_second_funding_phase/

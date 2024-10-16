@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/power-one-resources-corp-ceo-discusses-promising-projects-and-developments-in-exclusive-interview-706650450 
 
-[Original/Source Press Release](https://newsdirect.com/news/power-one-resources-corp-ceo-discusses-promising-projects-and-developments-in-exclusive-interview-706650450) 
+[Original/Source Press Release](https://newsdirect.com/news/power-one-resources-corp-ceo-discusses-promising-projects-and-developments-in-exclusive-interview-706650450)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cny423/power_one_resources_corp_ceo_discusses_promising/

@@ -20,6 +20,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/abvc-biopharmas-ceo-discusses-new-drug-development-and-ai-integration-924472038 
 
-[Original/Source Press Release](https://newsdirect.com/news/abvc-biopharmas-ceo-discusses-new-drug-development-and-ai-integration-924472038) 
+[Original/Source Press Release](https://newsdirect.com/news/abvc-biopharmas-ceo-discusses-new-drug-development-and-ai-integration-924472038)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1e6izc7/abvc_biopharma_and_aibtl_biopharma_to_conduct/

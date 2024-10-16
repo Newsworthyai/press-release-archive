@@ -74,6 +74,9 @@ $4200 + $478.8
 
 About GDMiningHeadquartered in St Asaph, United Kingdom, GDMining is a pioneering cloud mining platform that empowers individuals to participate in the world of cryptocurrency mining. With a focus on innovation, reliability, and user-centricity, GDMining continues to revolutionize the cloud mining landscape. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-simplifies-cryptocurrency-mining-and-offers-lucrative-partner-program) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-simplifies-cryptocurrency-mining-and-offers-lucrative-partner-program)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1e0wycx/gdmining_announces_simplified_cryptocurrency/

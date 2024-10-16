@@ -27,6 +27,9 @@ Justin McKenzie, Host, justin@buildingtexasshow.com
 
 YouTube: The Building Texas Show: Texas Tourism with Larry Woods 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202408131232/the-building-texas-show-a-leader-in-the-texas-media-landscape-recently-featured-larry-woods-director-of-visit-boerne-and-chairman-of-the-texas) 
+[Original/Source Press Release](https://newsworthy.ai/news/202408131232/the-building-texas-show-a-leader-in-the-texas-media-landscape-recently-featured-larry-woods-director-of-visit-boerne-and-chairman-of-the-texas)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Leadership_Management/comments/1er7a5p/larry_woods_shares_insights_on_texas_tourism/

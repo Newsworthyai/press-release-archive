@@ -26,6 +26,9 @@ Among the most productive and respected HR research institutes globally, the HRR
 
 Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202408201241/actionable-strategies-unveiled-to-help-smbs-tackle-major-hr-challenges-new-study-by-ukg-and-the-hr-research-institute) 
+[Original/Source Press Release](https://newsworthy.ai/news/202408201241/actionable-strategies-unveiled-to-help-smbs-tackle-major-hr-challenges-new-study-by-ukg-and-the-hr-research-institute)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ewtza9/challenges_and_solutions_for_hr_in_small_to/

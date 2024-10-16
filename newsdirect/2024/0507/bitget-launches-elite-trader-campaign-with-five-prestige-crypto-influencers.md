@@ -34,6 +34,9 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-launches-elite-trader-campaign-with-five-prestige-crypto-influencers-366482922 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitget-launches-elite-trader-campaign-with-five-prestige-crypto-influencers-366482922) 
+[Original/Source Press Release](https://newsdirect.com/news/bitget-launches-elite-trader-campaign-with-five-prestige-crypto-influencers-366482922)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cm8l3x/bitget_launches_elite_trader_campaign_with/

@@ -18,6 +18,9 @@ ManufacturingAdvice.com stands as a destination for manufacturing professionals 
 
 To discover more and dive deep into the world of manufacturing expertise, visit www.ManufacturingAdvice.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231128841/introducing-manufacturingadvice-com-the-definitive-source-for-expert-guidance-in-the-manufacturing-sphere) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231128841/introducing-manufacturingadvice-com-the-definitive-source-for-expert-guidance-in-the-manufacturing-sphere)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1avx0hv/introducing_manufacturingadvicecom_a_new_platform/

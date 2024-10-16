@@ -20,6 +20,9 @@ Alice-SES's innovative approach to finance, marked by its zero-fee investment st
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/alice-ses-spearheads-a-green-revolution-in-finance-investing-with-a-conscience) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/alice-ses-spearheads-a-green-revolution-in-finance-investing-with-a-conscience)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1cfxm8n/aliceses_launches_green_investing_initiative_in/

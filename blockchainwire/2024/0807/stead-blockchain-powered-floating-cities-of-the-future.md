@@ -66,6 +66,9 @@ Coinstore Social Media
 
 Twitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Telegram Announcement 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/stead---blockchain-powered-floating-cities-of-the-future) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/stead---blockchain-powered-floating-cities-of-the-future)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1emiyey/stead_decentralized_funding_platform_for_floating/

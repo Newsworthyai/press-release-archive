@@ -28,6 +28,9 @@ Company Websitehttps://catalystmarketing.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/catalyst-marketing-agency-named-2024-colorado-companies-to-watch-winner-358792592 
 
-[Original/Source Press Release](https://newsdirect.com/news/catalyst-marketing-agency-named-2024-colorado-companies-to-watch-winner-358792592) 
+[Original/Source Press Release](https://newsdirect.com/news/catalyst-marketing-agency-named-2024-colorado-companies-to-watch-winner-358792592)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1dptvk6/catalyst_marketing_agency_named_2024_colorado/

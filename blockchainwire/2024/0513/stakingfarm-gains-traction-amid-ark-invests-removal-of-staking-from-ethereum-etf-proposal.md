@@ -63,6 +63,9 @@ Website: www.stakingfarm.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-gains-traction-amid-ark-invests-removal-of-staking-from-ethereum-etf-proposal) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-gains-traction-amid-ark-invests-removal-of-staking-from-ethereum-etf-proposal)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1crejou/stakingfarm_experiences_surge_in_eth_staking/

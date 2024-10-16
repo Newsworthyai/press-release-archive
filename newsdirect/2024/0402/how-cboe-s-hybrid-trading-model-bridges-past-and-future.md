@@ -36,6 +36,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-cboes-hybrid-trading-model-bridges-past-and-future-104129113 
 
-[Original/Source Press Release](https://newsdirect.com/news/how-cboes-hybrid-trading-model-bridges-past-and-future-104129113) 
+[Original/Source Press Release](https://newsdirect.com/news/how-cboes-hybrid-trading-model-bridges-past-and-future-104129113)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1btxpyl/cboes_commitment_to_hybrid_trading_bridging_the/

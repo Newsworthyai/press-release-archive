@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-horizon-aircraft-nasdaq-hovr-announces-key-technical-updates-on-development-of-evtol-prototype-811748647 
 
-[Original/Source Press Release](https://newsdirect.com/news/new-horizon-aircraft-nasdaq-hovr-announces-key-technical-updates-on-development-of-evtol-prototype-811748647) 
+[Original/Source Press Release](https://newsdirect.com/news/new-horizon-aircraft-nasdaq-hovr-announces-key-technical-updates-on-development-of-evtol-prototype-811748647)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d4undd/new_horizon_aircraft_announces_key_technical/

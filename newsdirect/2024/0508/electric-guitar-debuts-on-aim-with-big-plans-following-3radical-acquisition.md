@@ -20,6 +20,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/electric-guitar-debuts-on-aim-with-big-plans-following-3radical-acquisition-100927169 
 
-[Original/Source Press Release](https://newsdirect.com/news/electric-guitar-debuts-on-aim-with-big-plans-following-3radical-acquisition-100927169) 
+[Original/Source Press Release](https://newsdirect.com/news/electric-guitar-debuts-on-aim-with-big-plans-following-3radical-acquisition-100927169)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cn3hfu/electric_guitar_plc_enters_londons_aim_market/

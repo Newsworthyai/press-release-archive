@@ -42,6 +42,9 @@ Visit Our Website
 * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/brynparrygolf/news_release/1461) 
+[Original/Source Press Release](https://newsroom.prkarma.com/brynparrygolf/news_release/1461)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cuarvq/16yearold_anthony_whiting_secures_victory_at_mjt/

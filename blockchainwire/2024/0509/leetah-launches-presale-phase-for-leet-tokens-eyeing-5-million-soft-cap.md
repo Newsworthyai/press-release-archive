@@ -38,6 +38,9 @@ X (Twitter) | Telegram
 
 Disclaimer: This is a press release and does not contain any financial advice. Readers should do their own research before taking any actions related to the company mentioned. You are solely responsible, directly or indirectly, for any damage or loss caused or alleged to be caused by or in connection with the use of or reliance on any content, goods, or services mentioned in the press release. Cryptocurrency is volatile. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/leetah-launches-presale-phase-for-leet-tokens-eyeing-5-million-soft-cap) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/leetah-launches-presale-phase-for-leet-tokens-eyeing-5-million-soft-cap)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cnuq4d/leetah_launches_presale_for_leet_token_with/

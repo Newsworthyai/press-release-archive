@@ -40,6 +40,9 @@ Vladimiro.l@clo.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/aams-adm-e-regolamentazione-del-gioco-in-italia-206765201 
 
-[Original/Source Press Release](https://newsdirect.com/news/aams-adm-e-regolamentazione-del-gioco-in-italia-206765201) 
+[Original/Source Press Release](https://newsdirect.com/news/aams-adm-e-regolamentazione-del-gioco-in-italia-206765201)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1eqy32i/understanding_casino_non_aams_in_italy_legal/

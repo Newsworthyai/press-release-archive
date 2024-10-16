@@ -12,6 +12,9 @@ About Upstate Ketamine Infusion Center — First Ketamine Infusion Center in Ups
 
 Our mission is to provide a better way to live for those who are dealing with emotional and physical pain. We provide cutting-edge treatment that is showing major benefits to those struggling with treatment-resistant depression, mood disorders, and chronic pain. We want to be the starting point of your recovery. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231230963/ketamine-infusion-therapy-revolutionizing-treatment-for-psychiatric-disorders-and-chronic-pain) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231230963/ketamine-infusion-therapy-revolutionizing-treatment-for-psychiatric-disorders-and-chronic-pain)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avdog9/groundbreaking_results_ketamine_infusion_therapy/

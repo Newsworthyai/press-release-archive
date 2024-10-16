@@ -72,6 +72,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/4-stocks-to-watch-in-the-1-8-trillion-race-to-net-zero-893807156 
 
-[Original/Source Press Release](https://newsdirect.com/news/4-stocks-to-watch-in-the-1-8-trillion-race-to-net-zero-893807156) 
+[Original/Source Press Release](https://newsdirect.com/news/4-stocks-to-watch-in-the-1-8-trillion-race-to-net-zero-893807156)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1ccnd9s/investing_in_the_18_trillion_race_to_net_zero_4/

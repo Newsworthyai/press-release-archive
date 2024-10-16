@@ -179,6 +179,9 @@ About The CandE Benchmark Research Program
 
 The Candidate Experience (CandE) Benchmark Research and Awards Program is the first program of its kind focused on the elevation and promotion of a quality candidate experience. Also known as The CandEs, the program was founded by Talent Board in 2011 and is now part of ERE Media. The CandE Benchmark Research Program delivers annual recruiting and hiring industry benchmark research that highlights accountability, fairness and the business impact of candidate experience. More information can be found at https://www.eremedia.com/candidate-experience. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409121261/ere-media-and-the-cande-benchmark-research-program-announce-winners-of-2024-global-candidate-experience-awards) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409121261/ere-media-and-the-cande-benchmark-research-program-announce-winners-of-2024-global-candidate-experience-awards)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1ff3mkj/ere_media_and_cande_benchmark_program_announce/

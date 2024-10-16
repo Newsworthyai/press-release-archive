@@ -38,6 +38,9 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/paragon-network-unveils-test-net-showcasing-breakthrough-capabilities-in-decentralized-computing) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/paragon-network-unveils-test-net-showcasing-breakthrough-capabilities-in-decentralized-computing)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bz9o2n/paragon_network_launches_highly_anticipated_test/

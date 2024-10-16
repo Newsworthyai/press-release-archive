@@ -18,6 +18,9 @@ This news release includes certain forward-looking statements as well as managem
 
 Forward-looking statements are based on the current opinions and expectations of management. All forward-looking information is inherently uncertain and subject to a variety of assumptions, risks and uncertainties, including the speculative nature of cryptocurrencies. Actual events or results may differ materially from those projected in the forward-looking statements and we caution against placing undue reliance thereon. We assume no obligation to revise or update these forward-looking statements except as required by applicable law. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/blaze-investment-round-complete-with-aim-to-become-web3-market-leader) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/blaze-investment-round-complete-with-aim-to-become-web3-market-leader)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cbwj9s/storyfire_concludes_blaze_token_investment_round/

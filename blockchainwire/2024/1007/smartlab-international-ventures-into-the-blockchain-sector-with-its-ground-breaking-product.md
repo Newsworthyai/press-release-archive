@@ -14,6 +14,9 @@ With its proprietary market-spread trading Bot, the SMART SP Bot having an excel
 
 Website: https://smartlab.international/index.html 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/smartlab-international-ventures-into-the-blockchain-sector-with-its-ground-breaking-product) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/smartlab-international-ventures-into-the-blockchain-sector-with-its-ground-breaking-product)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fy52ec/smartlab_international_launches_innovative_cap/

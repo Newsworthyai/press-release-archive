@@ -32,6 +32,9 @@ Company Websitehttps://www.car555.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/500-car-enhances-global-market-reach-through-innovative-advertising-and-promoting-charitable-causes-601115917 
 
-[Original/Source Press Release](https://newsdirect.com/news/500-car-enhances-global-market-reach-through-innovative-advertising-and-promoting-charitable-causes-601115917) 
+[Original/Source Press Release](https://newsdirect.com/news/500-car-enhances-global-market-reach-through-innovative-advertising-and-promoting-charitable-causes-601115917)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dki90s/500_car_drives_innovation_in_automotive_brand/

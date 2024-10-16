@@ -32,6 +32,8 @@ Telegram
 
 Website 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/renat-mansurov-launches-global-mentorship-program-to-empower-aspiring-fundraisers-and-innovators) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/renat-mansurov-launches-global-mentorship-program-to-empower-aspiring-fundraisers-and-innovators)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+

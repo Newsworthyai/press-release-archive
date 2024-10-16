@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/rainbow-rare-earths-reveals-encouraging-results-from-uberaba-project-in-brazil-831645493 
 
-[Original/Source Press Release](https://newsdirect.com/news/rainbow-rare-earths-reveals-encouraging-results-from-uberaba-project-in-brazil-831645493) 
+[Original/Source Press Release](https://newsdirect.com/news/rainbow-rare-earths-reveals-encouraging-results-from-uberaba-project-in-brazil-831645493)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c728c9/rainbow_rare_earths_reveals_encouraging_results/

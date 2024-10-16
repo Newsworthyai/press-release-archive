@@ -41,6 +41,9 @@ Visit Our Blog
 * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/ycommunicate/news_release/1434) 
+[Original/Source Press Release](https://newsroom.prkarma.com/ycommunicate/news_release/1434)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1btd8xc/y_communicate_founder_wins_outstanding_leadership/

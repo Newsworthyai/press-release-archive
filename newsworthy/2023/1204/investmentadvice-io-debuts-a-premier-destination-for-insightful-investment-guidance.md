@@ -18,6 +18,9 @@ InvestmentAdvice.io stands as a beacon for those navigating the intricate world 
 
 Explore the investment world with clarity at www.InvestmentAdvice.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231204832/investmentadvice-io-debuts-a-premier-destination-for-insightful-investment-guidance) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231204832/investmentadvice-io-debuts-a-premier-destination-for-insightful-investment-guidance)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1avcszr/investmentadviceio_launches_platform_for/

@@ -47,6 +47,9 @@ Company Websitehttps://theapp.global
 
 View source version on newsdirect.com: https://newsdirect.com/news/association-of-pickleball-players-to-double-event-calendar-in-2025-502720999 
 
-[Original/Source Press Release](https://newsdirect.com/news/association-of-pickleball-players-to-double-event-calendar-in-2025-502720999) 
+[Original/Source Press Release](https://newsdirect.com/news/association-of-pickleball-players-to-double-event-calendar-in-2025-502720999)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1ff2cgd/association_of_pickleball_players_to_double_event/

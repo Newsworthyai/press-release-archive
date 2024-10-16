@@ -16,6 +16,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/toggle3d-ai-welcomes-hareesh-achi-as-new-ceo-transitioning-from-evan-gappelberg-143677874 
 
-[Original/Source Press Release](https://newsdirect.com/news/toggle3d-ai-welcomes-hareesh-achi-as-new-ceo-transitioning-from-evan-gappelberg-143677874) 
+[Original/Source Press Release](https://newsdirect.com/news/toggle3d-ai-welcomes-hareesh-achi-as-new-ceo-transitioning-from-evan-gappelberg-143677874)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cimr3p/tech_leader_hareesh_achi_appointed_ceo_of/

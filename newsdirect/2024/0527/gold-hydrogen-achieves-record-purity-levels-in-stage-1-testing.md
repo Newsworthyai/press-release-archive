@@ -12,6 +12,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gold-hydrogen-achieves-record-purity-levels-in-stage-1-testing-364421240 
 
-[Original/Source Press Release](https://newsdirect.com/news/gold-hydrogen-achieves-record-purity-levels-in-stage-1-testing-364421240) 
+[Original/Source Press Release](https://newsdirect.com/news/gold-hydrogen-achieves-record-purity-levels-in-stage-1-testing-364421240)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d24f1j/gold_hydrogen_achieves_record_purity_levels_in/

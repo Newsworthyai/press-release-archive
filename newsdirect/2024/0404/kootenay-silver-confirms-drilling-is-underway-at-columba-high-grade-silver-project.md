@@ -18,6 +18,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kootenay-silver-confirms-drilling-is-underway-at-columba-high-grade-silver-project-558004986 
 
-[Original/Source Press Release](https://newsdirect.com/news/kootenay-silver-confirms-drilling-is-underway-at-columba-high-grade-silver-project-558004986) 
+[Original/Source Press Release](https://newsdirect.com/news/kootenay-silver-confirms-drilling-is-underway-at-columba-high-grade-silver-project-558004986)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1bvsn2e/kootenay_silver_initiates_highgrade_silver/

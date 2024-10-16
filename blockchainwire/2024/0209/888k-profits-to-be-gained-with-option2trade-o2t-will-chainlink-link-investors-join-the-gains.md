@@ -62,6 +62,9 @@ https://t.me/O2TOfficial
 
 https://twitter.com/Option2Trade 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/888k-profits-to-be-gained-with-option2trade-o2t-will-chainlink-link-investors-join-the-gains) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/888k-profits-to-be-gained-with-option2trade-o2t-will-chainlink-link-investors-join-the-gains)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjzf7/option2trade_o2t_888k_giveaway_a_gamechanger_for/

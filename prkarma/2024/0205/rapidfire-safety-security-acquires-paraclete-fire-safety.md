@@ -50,6 +50,9 @@ Visit Our Blog
 
  * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/rapidfire/news_release/1399) 
+[Original/Source Press Release](https://newsroom.prkarma.com/rapidfire/news_release/1399)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bko8pu/rapidfire_safety_security_acquires_paraclete_fire/

@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ilearningengines-this-ai-powered-learning-saas-company-has-amazing-retention-968805478 
 
-[Original/Source Press Release](https://newsdirect.com/news/ilearningengines-this-ai-powered-learning-saas-company-has-amazing-retention-968805478) 
+[Original/Source Press Release](https://newsdirect.com/news/ilearningengines-this-ai-powered-learning-saas-company-has-amazing-retention-968805478)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1doxr06/ilearningengines_ceo_discusses_companys_rapid/

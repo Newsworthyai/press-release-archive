@@ -34,6 +34,9 @@ Anna Benson
 
 anna@picklejar.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/picklejar-announces-new-distinguished-members-to-advisory-board-7076023) 
+[Original/Source Press Release](https://www.newmediawire.com/news/picklejar-announces-new-distinguished-members-to-advisory-board-7076023)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1fcouxp/picklejar_entertainment_group_adds_industry/

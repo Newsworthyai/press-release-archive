@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/play-the-market-the-thrill-of-gamified-trading-667117407 
 
-[Original/Source Press Release](https://newsdirect.com/news/play-the-market-the-thrill-of-gamified-trading-667117407) 
+[Original/Source Press Release](https://newsdirect.com/news/play-the-market-the-thrill-of-gamified-trading-667117407)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fdhpe9/bullrush_ceo_discusses_gamified_trading_platform/

@@ -56,6 +56,9 @@ sfriedman2@albany.edu
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-scholarship-examines-how-changing-generations-affects-u-s-politics-231827675 
 
-[Original/Source Press Release](https://newsdirect.com/news/new-scholarship-examines-how-changing-generations-affects-u-s-politics-231827675) 
+[Original/Source Press Release](https://newsdirect.com/news/new-scholarship-examines-how-changing-generations-affects-u-s-politics-231827675)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BookNews/comments/1di19gt/new_scholarship_examines_how_changing_generations/

@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kingston-resources-raising-13-5-million-to-accelerate-long-term-critical-minerals-vision-864300641 
 
-[Original/Source Press Release](https://newsdirect.com/news/kingston-resources-raising-13-5-million-to-accelerate-long-term-critical-minerals-vision-864300641) 
+[Original/Source Press Release](https://newsdirect.com/news/kingston-resources-raising-13-5-million-to-accelerate-long-term-critical-minerals-vision-864300641)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1bvt29f/kingston_resources_raises_135_million_to/

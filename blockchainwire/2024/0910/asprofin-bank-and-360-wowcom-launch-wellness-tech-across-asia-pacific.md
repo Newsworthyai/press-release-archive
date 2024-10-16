@@ -40,6 +40,9 @@ Location: Delaware, USA
 
 Website: https://360wowcom.com/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/asprofin-bank-and-360-wowcom-launch-wellness-tech-across-asia-pacific) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/asprofin-bank-and-360-wowcom-launch-wellness-tech-across-asia-pacific)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1fi731z/asprofin_banks_partnership_with_360_wowcom_to/

@@ -32,6 +32,9 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/meme-coin-madness-new-tokens-bome-dogwifhat-and-raboo-attract-millions-in-investment-344166369 
 
-[Original/Source Press Release](https://newsdirect.com/news/meme-coin-madness-new-tokens-bome-dogwifhat-and-raboo-attract-millions-in-investment-344166369) 
+[Original/Source Press Release](https://newsdirect.com/news/meme-coin-madness-new-tokens-bome-dogwifhat-and-raboo-attract-millions-in-investment-344166369)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cbgkjl/meme_coin_madness_new_tokens_bome_dogwifhat_and/

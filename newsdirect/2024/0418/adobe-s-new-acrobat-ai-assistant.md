@@ -14,6 +14,9 @@ Company Websitehttps://newsmg.com/
 
 View original content to download multimedia: https://newsdirect.com/news/adobes-new-acrobat-ai-assistant-526128012 
 
-[Original/Source Press Release](https://newsdirect.com/news/adobes-new-acrobat-ai-assistant-526128012) 
+[Original/Source Press Release](https://newsdirect.com/news/adobes-new-acrobat-ai-assistant-526128012)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1c70qc2/adobe_unveils_new_ai_assistant_for_acrobat/

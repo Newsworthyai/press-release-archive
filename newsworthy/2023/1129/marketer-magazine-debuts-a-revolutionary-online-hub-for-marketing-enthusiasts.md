@@ -18,6 +18,9 @@ Marketer Magazine is on a mission to set the benchmark for marketing knowledge p
 
 Experience the new frontier of marketing at www.MarketerMagazine.co 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231129844/marketer-magazine-debuts-a-revolutionary-online-hub-for-marketing-enthusiasts) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231129844/marketer-magazine-debuts-a-revolutionary-online-hub-for-marketing-enthusiasts)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1avcstz/marketer_magazine_launches_offering_exclusive/

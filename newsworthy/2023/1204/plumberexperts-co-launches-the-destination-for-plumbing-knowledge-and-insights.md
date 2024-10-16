@@ -18,6 +18,9 @@ PlumberExperts.co stands as a leading digital hub for plumbing knowledge, insigh
 
 For insights and expert advice on plumbing, visit www.PlumberExperts.co. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231204863/plumberexperts-co-launches-the-destination-for-plumbing-knowledge-and-insights) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231204863/plumberexperts-co-launches-the-destination-for-plumbing-knowledge-and-insights)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1avx1j8/plumberexpertsco_unveiled_redefining_plumbing/

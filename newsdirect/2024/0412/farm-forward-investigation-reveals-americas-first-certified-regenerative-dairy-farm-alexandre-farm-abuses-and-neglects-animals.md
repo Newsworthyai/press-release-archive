@@ -43,6 +43,9 @@ farmforward@narrativechange.net
 
 View source version on newsdirect.com: https://newsdirect.com/news/farm-forward-investigation-reveals-americas-first-certified-regenerative-dairy-farm-alexandre-farm-abuses-and-neglects-animals-517563650 
 
-[Original/Source Press Release](https://newsdirect.com/news/farm-forward-investigation-reveals-americas-first-certified-regenerative-dairy-farm-alexandre-farm-abuses-and-neglects-animals-517563650) 
+[Original/Source Press Release](https://newsdirect.com/news/farm-forward-investigation-reveals-americas-first-certified-regenerative-dairy-farm-alexandre-farm-abuses-and-neglects-animals-517563650)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1c2h4o2/farm_forward_investigation_reveals_abuse_and/

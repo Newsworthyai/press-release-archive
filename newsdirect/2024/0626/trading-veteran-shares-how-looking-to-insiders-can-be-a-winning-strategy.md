@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/trading-veteran-shares-how-looking-to-insiders-can-be-a-winning-strategy-580984874 
 
-[Original/Source Press Release](https://newsdirect.com/news/trading-veteran-shares-how-looking-to-insiders-can-be-a-winning-strategy-580984874) 
+[Original/Source Press Release](https://newsdirect.com/news/trading-veteran-shares-how-looking-to-insiders-can-be-a-winning-strategy-580984874)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1doxtsl/insider_trading_expert_ross_givens_shares/

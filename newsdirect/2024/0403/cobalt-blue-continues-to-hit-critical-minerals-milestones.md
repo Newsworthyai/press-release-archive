@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cobalt-blue-continues-to-hit-critical-minerals-milestones-597195582 
 
-[Original/Source Press Release](https://newsdirect.com/news/cobalt-blue-continues-to-hit-critical-minerals-milestones-597195582) 
+[Original/Source Press Release](https://newsdirect.com/news/cobalt-blue-continues-to-hit-critical-minerals-milestones-597195582)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1bv6pmm/cobalt_blue_hits_milestones_for_australias_first/

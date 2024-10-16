@@ -58,6 +58,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/heres-what-ecoai-coin-has-in-store-for-2024-and-beyond-300285950 
 
-[Original/Source Press Release](https://newsdirect.com/news/heres-what-ecoai-coin-has-in-store-for-2024-and-beyond-300285950) 
+[Original/Source Press Release](https://newsdirect.com/news/heres-what-ecoai-coin-has-in-store-for-2024-and-beyond-300285950)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ebcdaa/sec_greenlights_ethereum_etfs_ecoai_coin_gears_up/

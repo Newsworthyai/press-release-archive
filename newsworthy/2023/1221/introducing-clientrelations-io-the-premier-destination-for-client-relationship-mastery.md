@@ -18,6 +18,9 @@ Geared to be the hub for all things client relations, ClientRelations.io promise
 
 Unearth the secrets of client relationship excellence. Dive in at www.ClientRelations.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231221792/introducing-clientrelations-io-the-premier-destination-for-client-relationship-mastery) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231221792/introducing-clientrelations-io-the-premier-destination-for-client-relationship-mastery)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx4v2/clientrelationsio_the_ultimate_platform_for/

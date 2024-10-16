@@ -26,6 +26,9 @@ Company Websitehttps://www.agcbio.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/agc-biologics-and-chief-executive-officer-patricio-massera-announce-plans-for-him-to-step-down-501638257 
 
-[Original/Source Press Release](https://newsdirect.com/news/agc-biologics-and-chief-executive-officer-patricio-massera-announce-plans-for-him-to-step-down-501638257) 
+[Original/Source Press Release](https://newsdirect.com/news/agc-biologics-and-chief-executive-officer-patricio-massera-announce-plans-for-him-to-step-down-501638257)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1de1074/agc_biologics_ceo_patricio_massera_to_step_down/

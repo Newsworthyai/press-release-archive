@@ -16,6 +16,9 @@ About PLAYSIDE.gg
 
 PLAYSIDE.gg is a gaming rewards platform founded by Wil Lee and Cass Chan of the littles and has now integrated with Pudgy Penguins so players can earn more digital and real-world rewards from brand quests, in-game achievements and daily loot boxes. Visit PLAYSIDE.gg to learn more. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/playsidegg-and-pudgy-penguins-join-forces-at-north-americas-largest-night-market) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/playsidegg-and-pudgy-penguins-join-forces-at-north-americas-largest-night-market)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1fw13iv/pudgy_penguins_and_playsidegg_bring_interactive/

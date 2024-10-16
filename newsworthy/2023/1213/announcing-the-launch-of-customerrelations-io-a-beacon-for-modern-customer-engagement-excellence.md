@@ -18,6 +18,9 @@ CustomerRelations.io is your compass in the vast sea of customer engagement. It 
 
 Discover the future of customer engagement at www.CustomerRelations.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231213804/announcing-the-launch-of-customerrelations-io-a-beacon-for-modern-customer-engagement-excellence) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231213804/announcing-the-launch-of-customerrelations-io-a-beacon-for-modern-customer-engagement-excellence)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1avxpd4/customerrelationsio_launches_as_the_ultimate/

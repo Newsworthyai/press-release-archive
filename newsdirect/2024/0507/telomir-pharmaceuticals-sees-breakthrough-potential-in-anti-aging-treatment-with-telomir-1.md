@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/telomir-pharmaceuticals-sees-breakthrough-potential-in-anti-aging-treatment-with-telomir-1-787930583 
 
-[Original/Source Press Release](https://newsdirect.com/news/telomir-pharmaceuticals-sees-breakthrough-potential-in-anti-aging-treatment-with-telomir-1-787930583) 
+[Original/Source Press Release](https://newsdirect.com/news/telomir-pharmaceuticals-sees-breakthrough-potential-in-anti-aging-treatment-with-telomir-1-787930583)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cmk184/telomir_pharmaceuticals_unveils_antiaging/

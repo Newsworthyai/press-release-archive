@@ -50,6 +50,9 @@ tom.rieder@inactaventures.ch
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-hashgraph-association-and-inacta-ventures-launch-50-million-sustainability-venture-studio-under-the-green-block-initiative-442899214 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-hashgraph-association-and-inacta-ventures-launch-50-million-sustainability-venture-studio-under-the-green-block-initiative-442899214) 
+[Original/Source Press Release](https://newsdirect.com/news/the-hashgraph-association-and-inacta-ventures-launch-50-million-sustainability-venture-studio-under-the-green-block-initiative-442899214)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1declwr/the_hashgraph_association_and_inacta_ventures/

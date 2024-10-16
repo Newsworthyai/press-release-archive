@@ -30,6 +30,9 @@ For more about Apotheca, visit www.apotheca.org/giving.
 
 For more about this release call Bart Benne at 828-575-7516 or email media@apotheca.org. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202405151168/dispensary-chain-helps-last-prisoner-project-break-shackles-a-mutual-mandate-for-cannabis-reform) 
+[Original/Source Press Release](https://newsworthy.ai/news/202405151168/dispensary-chain-helps-last-prisoner-project-break-shackles-a-mutual-mandate-for-cannabis-reform)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1csqf7w/apotheca_dispensary_joins_forces_with_last/

@@ -30,6 +30,9 @@ The BEK TV+ app can be found online at https://www.bektv.plus/ or can be downloa
 
 BEK TV is one of the only locally-owned, non-corporate television broadcasting networks remaining in the country and produces more local content than any other television station in the Midwest. It broadcasts in North Dakota on over-the-air television and across the world via streaming on BEK TV+. The concept behind BEK TV’s programming is to provide a media service platform that is unscripted and uncensored. The majority of BEK TV hosts are untrained broadcasters who share their perspectives and views on topics and issues that people are talking about. The BEK network never controls the messaging. BEK TV is the 2021, 2022, 2023, and 2024 winner of the Bismarck Tribune’s Best of the Best contest, selected by the people for “Best Local TV Station”. BEK TV host Lori Hinz is the winner of the 2024 “Best TV Personality” award. Both were chosen by the people. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202410121314/bek-tv-to-broadcast-two-live-debates-and-one-interview-ahead-of-election-day-in-addition-ballot-measure-debates-available-on-demand) 
+[Original/Source Press Release](https://newsworthy.ai/news/202410121314/bek-tv-to-broadcast-two-live-debates-and-one-interview-ahead-of-election-day-in-addition-ballot-measure-debates-available-on-demand)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1g1srld/bek_tv_to_air_live_coverage_of_key_north_dakota/

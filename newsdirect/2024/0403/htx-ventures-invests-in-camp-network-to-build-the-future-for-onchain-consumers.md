@@ -38,6 +38,9 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-invests-in-camp-network-to-build-the-future-for-onchain-consumers-771848205 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-ventures-invests-in-camp-network-to-build-the-future-for-onchain-consumers-771848205) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-ventures-invests-in-camp-network-to-build-the-future-for-onchain-consumers-771848205)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bukies/htx_ventures_invests_in_camp_network_to/

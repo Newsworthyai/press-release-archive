@@ -22,6 +22,9 @@ Content person name: Samuel Chen
 
 Company name: Co-founder, KulaDAOE-mail: [hello@kuladao.io](mailto:hello@kuladao.io) Web url: [http://AegisCustody.com](http://aegiscustody.com)Content person name: Serra WeiCompany name: Founder of Aegis Custody E-mail: info@aegiscustody.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/kula-partners-with-aegis-for-groundbreaking-underground-asset-tokenization) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/kula-partners-with-aegis-for-groundbreaking-underground-asset-tokenization)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1f260li/kula_and_aegis_prime_collaborate_to_revolutionize/

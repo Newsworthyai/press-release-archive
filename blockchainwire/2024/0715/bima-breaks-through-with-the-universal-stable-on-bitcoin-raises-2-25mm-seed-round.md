@@ -18,6 +18,9 @@ The platform is prepared to handle significant liquidity, with $200 billion in a
 
 Bima Labs is committed to creating a stable and secure financial ecosystem that leverages the strengths of Bitcoin, providing users with unparalleled opportunities for growth and financial innovation. For more information about Bima Labs and the Stablecoin vision visit bima.money 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bima-breaks-through-with-the-universal-stable-on-bitcoin-raises-225mm-seed-round) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bima-breaks-through-with-the-universal-stable-on-bitcoin-raises-225mm-seed-round)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1e6jizd/bima_labs_raises_225m_in_seed_funding_for/

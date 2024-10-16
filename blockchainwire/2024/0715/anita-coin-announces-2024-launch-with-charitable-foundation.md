@@ -34,6 +34,9 @@ X (Twitter) | Telegram | Reddit
 
 Disclaimer: This is a press release and does not contain any financial advice. Readers should do their own research before taking any actions related to the company mentioned. You are solely responsible, directly or indirectly, for any damage or loss caused or alleged to be caused by or in connection with the use of or reliance on any content, goods, or services mentioned in the press release. Cryptocurrency is volatile. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/anita-coin-announces-2024-launch-with-charitable-foundation-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/anita-coin-announces-2024-launch-with-charitable-foundation-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1e6izoe/anita_coin_set_to_launch_new_erc20_token_with/

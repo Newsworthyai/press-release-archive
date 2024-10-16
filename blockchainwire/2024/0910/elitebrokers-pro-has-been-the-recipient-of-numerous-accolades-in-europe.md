@@ -28,6 +28,9 @@ We invite you to become part of the community of successful traders at EliteBrok
 
 Sign up today at EliteBrokers.pro and start trading with confidence! 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/elitebrokerspro-has-been-the-recipient-of-numerous-accolades-in-europe) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/elitebrokerspro-has-been-the-recipient-of-numerous-accolades-in-europe)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1fi7350/elitebrokerspro_wins_top_awards_in_europe/

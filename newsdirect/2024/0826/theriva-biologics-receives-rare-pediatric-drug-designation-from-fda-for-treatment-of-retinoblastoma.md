@@ -44,6 +44,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/theriva-biologics-receives-rare-pediatric-drug-designation-from-fda-for-treatment-of-retinoblastoma-806554394 
 
-[Original/Source Press Release](https://newsdirect.com/news/theriva-biologics-receives-rare-pediatric-drug-designation-from-fda-for-treatment-of-retinoblastoma-806554394) 
+[Original/Source Press Release](https://newsdirect.com/news/theriva-biologics-receives-rare-pediatric-drug-designation-from-fda-for-treatment-of-retinoblastoma-806554394)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1f1nmjt/theriva_biologics_receives_rare_pediatric_drug/

@@ -46,6 +46,9 @@ Twitter: https://twitter.com/BruceLeePepe
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/unleashing-the-power-of-bruce-lee-pepe-a-meme-coin-revolution-on-solana) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/unleashing-the-power-of-bruce-lee-pepe-a-meme-coin-revolution-on-solana)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1bdoxag/bruce_lee_pepe_redefining_the_crypto_experience/

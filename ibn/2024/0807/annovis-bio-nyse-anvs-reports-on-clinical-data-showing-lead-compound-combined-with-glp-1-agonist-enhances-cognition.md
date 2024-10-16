@@ -30,6 +30,9 @@ Annovis Bio (NYSE: ANVS), a late-stage, clinical-drug platform company pioneeri
 
  BioMedWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-reports-on-clinical-data-showing-lead-compound-combined-with-glp-1-agonist-enhances-cognition/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-reports-on-clinical-data-showing-lead-compound-combined-with-glp-1-agonist-enhances-cognition/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2g1j4/annovis_bio_reports_synergistic_effect_of_lead/

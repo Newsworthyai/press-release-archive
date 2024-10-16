@@ -16,6 +16,9 @@ For more information, visit https://vmgstudios.com/portfolios/press-kit/
 
 or contact Colleen Bullington at colleen.b@vmgstudios.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202410111313/from-garage-startup-to-award-winning-agency-vmg-studios-celebrates-20-years) 
+[Original/Source Press Release](https://newsworthy.ai/news/202410111313/from-garage-startup-to-award-winning-agency-vmg-studios-celebrates-20-years)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1g1aqxq/vmg_studios_celebrates_20th_anniversary_with/

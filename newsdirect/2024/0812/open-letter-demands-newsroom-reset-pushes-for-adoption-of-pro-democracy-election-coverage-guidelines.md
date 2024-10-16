@@ -36,6 +36,9 @@ Company Websitehttps://www.mediaanddemocracyproject.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/open-letter-demands-newsroom-reset-pushes-for-adoption-of-pro-democracy-election-coverage-guidelines-619946460 
 
-[Original/Source Press Release](https://newsdirect.com/news/open-letter-demands-newsroom-reset-pushes-for-adoption-of-pro-democracy-election-coverage-guidelines-619946460) 
+[Original/Source Press Release](https://newsdirect.com/news/open-letter-demands-newsroom-reset-pushes-for-adoption-of-pro-democracy-election-coverage-guidelines-619946460)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1eqdc8p/media_and_democracy_project_urges_major_news/

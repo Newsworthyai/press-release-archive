@@ -14,6 +14,9 @@ Jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/alligator-energy-discovers-high-grade-uranium-at-samphire-plans-extended-drilling-484450056 
 
-[Original/Source Press Release](https://newsdirect.com/news/alligator-energy-discovers-high-grade-uranium-at-samphire-plans-extended-drilling-484450056) 
+[Original/Source Press Release](https://newsdirect.com/news/alligator-energy-discovers-high-grade-uranium-at-samphire-plans-extended-drilling-484450056)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cioq37/alligator_energy_makes_significant_uranium/

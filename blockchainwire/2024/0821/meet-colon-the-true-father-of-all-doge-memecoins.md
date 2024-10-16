@@ -40,6 +40,9 @@ Contract Address (CA): 0xD09Eb9099faC55eDCbF4965e0A866779ca365a0C
 
 *Let’s raise our expectations and see how $COLON shapes the future!* 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/-meet-colon-the-true-father-of-all-doge-memecoins) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/-meet-colon-the-true-father-of-all-doge-memecoins)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ey43hs/colon_the_father_of_doge_and_all_dog_memecoins/

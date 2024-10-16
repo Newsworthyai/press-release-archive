@@ -10,6 +10,9 @@ Limitless marked a significant milestone in their tokenization journey with a US
 
 “SALCO, a leading player in the mining industry, investing $9 million in $GEMS is a strong validation of our vision to unlock value for institutions within the sector. Their decision to leverage the Everest ecosystem underscores the confidence both SALCO and Limitless have in the security, innovation, and long-term viability that Everest provides,” said Matteo Rosetti, General Manager of Limitless.Join the $GEMS CommunityX: [https://x.com/GEMScommunity](https://x.com/GEMScommunity)Telegram: [https://t.me/GEMS_Token_Community](https://t.me/GEMS_Token_Community)Telegram (News): [https://t.me/GEMS_Token_News](https://t.me/GEMS_Token_News)About Viaarpe LimitlessA global, multi-billion dollar mining conglomerate in operation for more than 20 years across three continents, Viaarpe Limitless has a proven track record of harvesting gemstones, precious metals, rare-earth elements and minerals. Viaarpe Limitless is working to change how people discover, purchase, and use gemstones with the $GEMS token offering. For more info, visit: [https://viaarpelimitless.com/](https://viaarpelimitless.com/)Contact: mexico@viaarpelimitless.comAbout SALCOSALCO develops and commercializes properties for the mining industry, primarily in the “Lithium Triangle”, and strategic reserves in other Argentine provinces.  We simplify the acquisition of mining properties for lithium specialized companies in the extraction of this mineral, essential for the current energy transition. For more info, visit: [https://salco.com.ar/index_ing.html](https://salco.com.ar/index_ing.html)Contact: https://salco.com.ar/contacto_ing.html 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/salco-acquires-usd-9-million-of-limitless-gems---leveraging-everests-ecosystem-of-custody-tokenization--infrastructure) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/salco-acquires-usd-9-million-of-limitless-gems---leveraging-everests-ecosystem-of-custody-tokenization--infrastructure)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fzcnjf/limitless_and_salco_mark_milestone_with_9m_token/

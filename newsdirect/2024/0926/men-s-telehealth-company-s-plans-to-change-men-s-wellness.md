@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mens-telehealth-companys-plans-to-change-mens-wellness-579122443 
 
-[Original/Source Press Release](https://newsdirect.com/news/mens-telehealth-companys-plans-to-change-mens-wellness-579122443) 
+[Original/Source Press Release](https://newsdirect.com/news/mens-telehealth-companys-plans-to-change-mens-wellness-579122443)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fpv72p/mangorx_ceo_discusses_mens_health_and_wellness/

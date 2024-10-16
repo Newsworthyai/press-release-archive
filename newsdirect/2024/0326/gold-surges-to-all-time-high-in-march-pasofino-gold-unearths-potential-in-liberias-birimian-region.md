@@ -34,6 +34,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gold-surges-to-all-time-high-in-march-pasofino-gold-unearths-potential-in-liberias-birimian-region-241551587 
 
-[Original/Source Press Release](https://newsdirect.com/news/gold-surges-to-all-time-high-in-march-pasofino-gold-unearths-potential-in-liberias-birimian-region-241551587) 
+[Original/Source Press Release](https://newsdirect.com/news/gold-surges-to-all-time-high-in-march-pasofino-gold-unearths-potential-in-liberias-birimian-region-241551587)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1bo7jnh/gold_prices_surge_to_alltime_high_in_march/

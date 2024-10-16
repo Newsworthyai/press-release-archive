@@ -32,6 +32,9 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/gear-up-for-bitcoin-halving-htx-offers-200-000-usdt-in-spring-affiliate-futures-team-contest-3-500413484 
 
-[Original/Source Press Release](https://newsdirect.com/news/gear-up-for-bitcoin-halving-htx-offers-200-000-usdt-in-spring-affiliate-futures-team-contest-3-500413484) 
+[Original/Source Press Release](https://newsdirect.com/news/gear-up-for-bitcoin-halving-htx-offers-200-000-usdt-in-spring-affiliate-futures-team-contest-3-500413484)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c183g9/htx_launches_spring_affiliate_futures_team/

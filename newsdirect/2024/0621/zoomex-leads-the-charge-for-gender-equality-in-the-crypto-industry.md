@@ -64,6 +64,9 @@ business@zoomex.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/zoomex-leads-the-charge-for-gender-equality-in-the-crypto-industry-397285733 
 
-[Original/Source Press Release](https://newsdirect.com/news/zoomex-leads-the-charge-for-gender-equality-in-the-crypto-industry-397285733) 
+[Original/Source Press Release](https://newsdirect.com/news/zoomex-leads-the-charge-for-gender-equality-in-the-crypto-industry-397285733)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dmpyhe/zoomex_leads_the_charge_for_gender_equality_in/

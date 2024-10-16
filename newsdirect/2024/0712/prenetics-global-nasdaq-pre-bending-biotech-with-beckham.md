@@ -46,6 +46,9 @@ Company Websitehttps://razorpitch.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/prenetics-global-nasdaq-pre-bending-biotech-with-beckham-235704445 
 
-[Original/Source Press Release](https://newsdirect.com/news/prenetics-global-nasdaq-pre-bending-biotech-with-beckham-235704445) 
+[Original/Source Press Release](https://newsdirect.com/news/prenetics-global-nasdaq-pre-bending-biotech-with-beckham-235704445)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e1e1l7/prenetics_global_nasdaq_pre_leading_the_way_in/

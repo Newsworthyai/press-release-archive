@@ -42,6 +42,9 @@ About EcS+
 
 EcS+ is a women-owned advisory firm specializing in cost savings and efficiency for corporations, non-profit organizations, and municipalities. Leveraging over 30 years of experience and a unique vendor-based compensation model, EcS+ delivers significant operational cost reductions without compromising service quality. For more information on how EcS+ can help your organization reduce expenses, contact EcS+ today. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202404091141/ecs-pioneering-cost-savings-and-efficiency-for-businesses-and-non-profits) 
+[Original/Source Press Release](https://newsworthy.ai/news/202404091141/ecs-pioneering-cost-savings-and-efficiency-for-businesses-and-non-profits)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bzrx8o/womenowned_advisory_firm_ecs_leads_charge_in_cost/

@@ -44,6 +44,9 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-at-consensus-2024-with-exclusive-whale-night-event-750278346 
 
-[Original/Source Press Release](https://newsdirect.com/news/tron-dao-at-consensus-2024-with-exclusive-whale-night-event-750278346) 
+[Original/Source Press Release](https://newsdirect.com/news/tron-dao-at-consensus-2024-with-exclusive-whale-night-event-750278346)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvksju/tron_dao_shines_at_consensus_2024_with_exclusive/

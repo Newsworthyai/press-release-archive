@@ -43,6 +43,9 @@ Telegram - https://t.me/yawnsworld
 
 X - https://x.com/yawnsworld 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/introducing-yawn---the-worlds-first-meme-token-to-give-holders-profits-from-a-billion-dollar-ecosystem) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/introducing-yawn---the-worlds-first-meme-token-to-give-holders-profits-from-a-billion-dollar-ecosystem)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1emcsif/introducing_yawn_the_sleepiest_meme_token_in_the/

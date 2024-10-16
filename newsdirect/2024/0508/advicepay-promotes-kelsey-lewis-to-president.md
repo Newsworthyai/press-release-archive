@@ -28,6 +28,9 @@ Company Websitehttps://advicepay.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/advicepay-promotes-kelsey-lewis-to-president-287689155 
 
-[Original/Source Press Release](https://newsdirect.com/news/advicepay-promotes-kelsey-lewis-to-president-287689155) 
+[Original/Source Press Release](https://newsdirect.com/news/advicepay-promotes-kelsey-lewis-to-president-287689155)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cn11hu/advicepay_appoints_kelsey_lewis_as_president/

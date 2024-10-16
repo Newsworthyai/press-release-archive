@@ -14,6 +14,9 @@ With MiCA’s full integration anticipated by the end of the year, Sonia’s pre
 
 During the Paris-based Proof of Talk event, CoinW will co-host one of the most sought after side events in the city. Sonia will deliver an opening speech for the VIP Dinner party on the 10th of June, which will greet guests from the likes of Barclays, Visa, and Microsoft. The exciting opportunity will enable CoinW to capture the attention of the most influential Web3 thought leaders, media representatives, and other VIP guests. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-kicks-off-the-summer-season-with-huge-sponsorship-presence-at-three-key-web3-events) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-kicks-off-the-summer-season-with-huge-sponsorship-presence-at-three-key-web3-events)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fve7rr/coinw_sponsors_key_industry_events_and_continues/

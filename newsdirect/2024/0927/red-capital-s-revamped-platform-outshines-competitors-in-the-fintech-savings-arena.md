@@ -30,6 +30,9 @@ Company Websitehttps://www.redcapital.partners/
 
 View source version on newsdirect.com: https://newsdirect.com/news/red-capitals-revamped-platform-outshines-competitors-in-the-fintech-savings-arena-641646207 
 
-[Original/Source Press Release](https://newsdirect.com/news/red-capitals-revamped-platform-outshines-competitors-in-the-fintech-savings-arena-641646207) 
+[Original/Source Press Release](https://newsdirect.com/news/red-capitals-revamped-platform-outshines-competitors-in-the-fintech-savings-arena-641646207)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fqn5bo/red_capitals_revamped_platform_outshines/

@@ -30,6 +30,9 @@ Company Websitehttps://www.zumapay.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/zuma-payroll-and-processing-makes-the-inc-5000-list-of-americas-fastest-growing-private-companies-838327257 
 
-[Original/Source Press Release](https://newsdirect.com/news/zuma-payroll-and-processing-makes-the-inc-5000-list-of-americas-fastest-growing-private-companies-838327257) 
+[Original/Source Press Release](https://newsdirect.com/news/zuma-payroll-and-processing-makes-the-inc-5000-list-of-americas-fastest-growing-private-companies-838327257)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1er8vnr/zuma_payroll_processing_named_to_inc_5000_list/

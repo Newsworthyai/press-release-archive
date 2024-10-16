@@ -38,6 +38,9 @@ allison@trustrelations.agency
 
 View source version on newsdirect.com: https://newsdirect.com/news/sports-research-hydrate-elevates-the-sports-nutrition-market-by-introducing-a-new-low-carb-sugar-free-flavor-full-electrolyte-solution-671488672 
 
-[Original/Source Press Release](https://newsdirect.com/news/sports-research-hydrate-elevates-the-sports-nutrition-market-by-introducing-a-new-low-carb-sugar-free-flavor-full-electrolyte-solution-671488672) 
+[Original/Source Press Release](https://newsdirect.com/news/sports-research-hydrate-elevates-the-sports-nutrition-market-by-introducing-a-new-low-carb-sugar-free-flavor-full-electrolyte-solution-671488672)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1bzrwry/sports_research_introduces_new_lowcarb_sugarfree/

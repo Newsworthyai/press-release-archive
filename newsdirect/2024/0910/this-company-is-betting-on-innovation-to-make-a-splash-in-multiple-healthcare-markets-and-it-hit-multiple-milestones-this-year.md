@@ -52,6 +52,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/this-company-is-betting-on-innovation-to-make-a-splash-in-multiple-healthcare-markets-and-it-hit-multiple-milestones-this-year-893527361 
 
-[Original/Source Press Release](https://newsdirect.com/news/this-company-is-betting-on-innovation-to-make-a-splash-in-multiple-healthcare-markets-and-it-hit-multiple-milestones-this-year-893527361) 
+[Original/Source Press Release](https://newsdirect.com/news/this-company-is-betting-on-innovation-to-make-a-splash-in-multiple-healthcare-markets-and-it-hit-multiple-milestones-this-year-893527361)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1fdhicy/therma_bright_innovating_in_healthcare_markets/

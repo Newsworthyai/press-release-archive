@@ -12,6 +12,9 @@ About Wemade
 
 Wemade is at the forefront of the next wave of Web3 game developers that are innovating with blockchain technology. Based on the WEMIX3.0 mainnet, the WEMIX PLAY blockchain game platform is the world’s biggest with millions of users and a wide range of game genres from card, puzzle, simulation and strategy games; to first-person shooters, battle royale, MOBA, MMORPG, SNG, sports games and more. Visit www.wemix.com/communication for more information. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/wemade-and-wemix-win-best-web3-gaming-at-mena-games-industry-awards-2024) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/wemade-and-wemix-win-best-web3-gaming-at-mena-games-industry-awards-2024)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1cn2iah/wemade_and_wemix_win_best_web3_gaming_award_at/

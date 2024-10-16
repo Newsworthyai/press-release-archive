@@ -28,6 +28,9 @@ sales.uk@atfx.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/atfx-appoints-ergin-erdemir-as-head-of-latam-to-drive-growth-and-value-694088875 
 
-[Original/Source Press Release](https://newsdirect.com/news/atfx-appoints-ergin-erdemir-as-head-of-latam-to-drive-growth-and-value-694088875) 
+[Original/Source Press Release](https://newsdirect.com/news/atfx-appoints-ergin-erdemir-as-head-of-latam-to-drive-growth-and-value-694088875)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bvsm05/atfx_appoints_ergin_erdemir_as_head_of_latin/

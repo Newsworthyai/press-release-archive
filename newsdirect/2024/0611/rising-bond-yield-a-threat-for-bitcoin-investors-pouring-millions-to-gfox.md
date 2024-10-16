@@ -48,6 +48,9 @@ media@galaxyfox.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/rising-bond-yield-a-threat-for-bitcoin-investors-pouring-millions-to-gfox-253633383 
 
-[Original/Source Press Release](https://newsdirect.com/news/rising-bond-yield-a-threat-for-bitcoin-investors-pouring-millions-to-gfox-253633383) 
+[Original/Source Press Release](https://newsdirect.com/news/rising-bond-yield-a-threat-for-bitcoin-investors-pouring-millions-to-gfox-253633383)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AlternativeHealthNews/comments/1dg09l5/rising_bond_yields_could_affect_bitcoin/

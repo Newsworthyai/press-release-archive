@@ -10,6 +10,9 @@ By minting the Verity License Unit (VLU), the "V" or VERT, on several prominent 
 
 Join Verity One Ltd. in its mission to digitize trust across industries. For more information, visit Verity.one or contact press@verity.one. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/verity-one-ltd-truth-matters-digitizing-trust-in-supply-chains-with-vert-v) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/verity-one-ltd-truth-matters-digitizing-trust-in-supply-chains-with-vert-v)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1bi6heo/verity_one_unveils_innovative_verity_license_unit/

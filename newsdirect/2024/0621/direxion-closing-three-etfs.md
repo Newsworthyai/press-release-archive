@@ -58,6 +58,9 @@ Company Websitehttps://www.direxion.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/direxion-closing-three-etfs-621527165 
 
-[Original/Source Press Release](https://newsdirect.com/news/direxion-closing-three-etfs-621527165) 
+[Original/Source Press Release](https://newsdirect.com/news/direxion-closing-three-etfs-621527165)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1dmpe33/direxion_to_close_three_etfs/

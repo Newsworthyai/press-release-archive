@@ -34,6 +34,9 @@ marketing@fairdesk.com
 
 Disclaimer:Please note that all terms and conditions related to the "Love & Trading" contest are subject to Fairdesk's interpretation. Fairdesk reserves the right to modify event rules and conditions without prior notice. Trading cryptocurrencies carries inherent risks, and individuals should conduct their own research before participating. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/fairdesk-presents-love--trading-a-valentines-day-futures-trading-contest) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/fairdesk-presents-love--trading-a-valentines-day-futures-trading-contest)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjy6f/fairdesk_announces_34love_38_trading34_contest/

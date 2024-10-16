@@ -42,6 +42,9 @@ Company Websitehttps://www.revenuemanage.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/revenue-management-solutions-reveals-the-future-of-restaurant-pricing-with-launch-of-ai-powered-price-studio-solution-750576671 
 
-[Original/Source Press Release](https://newsdirect.com/news/revenue-management-solutions-reveals-the-future-of-restaurant-pricing-with-launch-of-ai-powered-price-studio-solution-750576671) 
+[Original/Source Press Release](https://newsdirect.com/news/revenue-management-solutions-reveals-the-future-of-restaurant-pricing-with-launch-of-ai-powered-price-studio-solution-750576671)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bp0oln/rms_unveils_aipowered_price_studio_to/

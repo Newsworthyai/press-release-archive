@@ -6,6 +6,9 @@ ANGRYSLERF is storming through the crypto canopy, fueling fury-fueled transactio
 
 BitMart listing is confirmed;Official Tweet from BitMart Exchange: [https://twitter.com/BitMartExchange/status/1783549867345793276](https://twitter.com/BitMartExchange/status/1783549867345793276)BitMart gives a massive exposure to new investors and is much easier to use than a decentralised exchange (DEX). Getting on a smaller exchange, to increase holders and generate more volume, is a steppingstone for #ANGRYSLERF to get on to bigger exchanges.PRELISTED ON CoinMarketCap: [https://coinmarketcap.com/currencies/angryslerf/](https://coinmarketcap.com/currencies/angryslerf/)#ANGRYSLERF isn’t just another cryptocurrency; it’s a full-blown MOVEMENT! We’re on a thrilling adventure with Solana, a game-changing Blockchain poised to revolutionize our world in ways we’ve only dreamed of!Stay tuned for more updates as we continue our furious ascent through the crypto canopy. The Angry Slerf revolution is yet to begin!Our Socials:Website: [https://angryslerf.io/](https://angryslerf.io/)Telegram: [https://t.me/ANGRYSLERF](https://t.me/ANGRYSLERF)Twitter: [https://twitter.com/angryslerf_io](https://twitter.com/angryslerf_io)WhitePaper: [https://whitepaper.angryslerf.io/](https://whitepaper.angryslerf.io/)Pinksale: [https://www.pinksale.finance/solana/launchpad/Eyc3ptCNK1zG4LWFp8HMQUKo6jsbCTqhyrNkA9MRtTuK](https://www.pinksale.finance/solana/launchpad/Eyc3ptCNK1zG4LWFp8HMQUKo6jsbCTqhyrNkA9MRtTuK)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/angryslerf-announces-its-presale-launch-on-solana) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/angryslerf-announces-its-presale-launch-on-solana)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cg64qv/join_the_angryslerf_revolution_solana_presale/

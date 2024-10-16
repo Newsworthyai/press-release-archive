@@ -24,6 +24,9 @@ Company Websitehttps://www.greenlanternsolar.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/green-lantern-solar-promotes-jon-sutton-to-director-of-engineering-228929111 
 
-[Original/Source Press Release](https://newsdirect.com/news/green-lantern-solar-promotes-jon-sutton-to-director-of-engineering-228929111) 
+[Original/Source Press Release](https://newsdirect.com/news/green-lantern-solar-promotes-jon-sutton-to-director-of-engineering-228929111)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eb0ruh/green_lantern_solar_promotes_jon_sutton_to/

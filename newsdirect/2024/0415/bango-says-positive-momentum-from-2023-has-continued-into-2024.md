@@ -24,6 +24,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bango-says-positive-momentum-from-2023-has-continued-into-2024-914436118 
 
-[Original/Source Press Release](https://newsdirect.com/news/bango-says-positive-momentum-from-2023-has-continued-into-2024-914436118) 
+[Original/Source Press Release](https://newsdirect.com/news/bango-says-positive-momentum-from-2023-has-continued-into-2024-914436118)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1c4soyp/bangos_ceo_discusses_strong_2023_performance_and/

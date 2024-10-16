@@ -28,6 +28,9 @@ Conclusion
 
 With the launch of these new features and initiatives, Plus Traders continues to lead the way in building a supportive and engaging trading community. The platform's focus on collaboration, shared success, and continuous learning has made it a top choice for traders worldwide. To explore these new features and become part of this thriving community, visit Plus Traders. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/plus-traders-launches-new-community-features-to-foster-collaboration-and-shared-success-among-traders) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/plus-traders-launches-new-community-features-to-foster-collaboration-and-shared-success-among-traders)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f3h4al/plus_traders_launches_new_communitydriven/

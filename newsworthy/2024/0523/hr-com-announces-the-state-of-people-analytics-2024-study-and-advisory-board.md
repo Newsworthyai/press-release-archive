@@ -35,6 +35,9 @@ Become a part of HR.com’s HR research influencer panel today. Participate in s
 
 Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202405231175/hr-com-announces-the-state-of-people-analytics-2024-study-and-advisory-board) 
+[Original/Source Press Release](https://newsworthy.ai/news/202405231175/hr-com-announces-the-state-of-people-analytics-2024-study-and-advisory-board)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1cyr84g/hrcom_announces_state_of_people_analytics_2024/

@@ -54,6 +54,9 @@ Company Websitehttp://turtlewax.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/mister-cartoon-continues-partnership-with-turtle-wax-to-launch-three-new-art-of-car-care-products-315253689 
 
-[Original/Source Press Release](https://newsdirect.com/news/mister-cartoon-continues-partnership-with-turtle-wax-to-launch-three-new-art-of-car-care-products-315253689) 
+[Original/Source Press Release](https://newsdirect.com/news/mister-cartoon-continues-partnership-with-turtle-wax-to-launch-three-new-art-of-car-care-products-315253689)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d43vm2/turtle_wax_and_mister_cartoon_launch_new_art_of/

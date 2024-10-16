@@ -16,6 +16,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-secures-major-contract-for-over-5-000-3d-ai-models-and-digital-photos-300127164 
 
-[Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-secures-major-contract-for-over-5-000-3d-ai-models-and-digital-photos-300127164) 
+[Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-secures-major-contract-for-over-5-000-3d-ai-models-and-digital-photos-300127164)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1cna2l6/nextech3dai_ceo_announces_major_contract_for_3d/

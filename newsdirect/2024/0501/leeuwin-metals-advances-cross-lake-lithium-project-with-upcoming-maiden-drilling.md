@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/leeuwin-metals-advances-cross-lake-lithium-project-with-upcoming-maiden-drilling-383451209 
 
-[Original/Source Press Release](https://newsdirect.com/news/leeuwin-metals-advances-cross-lake-lithium-project-with-upcoming-maiden-drilling-383451209) 
+[Original/Source Press Release](https://newsdirect.com/news/leeuwin-metals-advances-cross-lake-lithium-project-with-upcoming-maiden-drilling-383451209)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1chug9a/leeuwin_metals_advances_cross_lake_lithium/

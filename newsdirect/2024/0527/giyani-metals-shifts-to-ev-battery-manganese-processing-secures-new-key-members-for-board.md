@@ -16,6 +16,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/giyani-metals-shifts-to-ev-battery-manganese-processing-secures-new-key-members-for-board-790426203 
 
-[Original/Source Press Release](https://newsdirect.com/news/giyani-metals-shifts-to-ev-battery-manganese-processing-secures-new-key-members-for-board-790426203) 
+[Original/Source Press Release](https://newsdirect.com/news/giyani-metals-shifts-to-ev-battery-manganese-processing-secures-new-key-members-for-board-790426203)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1d1vpkp/giyani_metals_shifts_to_ev_battery_manganese/

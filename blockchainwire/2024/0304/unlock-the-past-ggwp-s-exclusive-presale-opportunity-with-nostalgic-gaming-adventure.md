@@ -24,6 +24,9 @@ About GGWPGood Game Well Played (GGWP) is a groundbreaking platform that combine
 
 Gamers and investors interested in learning more can visit GGWP's website for more details on the presale, and the retro gaming platform. Additionally, updates on new games, features, and community events will be shared on the social media channels: X (Twitter) | Telegram | Discord. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/unlock-the-past-ggwps-exclusive-presale-opportunity-with-nostalgic-gaming-adventure) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/unlock-the-past-ggwps-exclusive-presale-opportunity-with-nostalgic-gaming-adventure)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1b6rnae/ggwp_launches_retrogaming_platform_with_presale/

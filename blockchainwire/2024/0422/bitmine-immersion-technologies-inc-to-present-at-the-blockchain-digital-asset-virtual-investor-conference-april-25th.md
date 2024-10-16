@@ -58,6 +58,9 @@ OTC Markets Group
 
 johnv@otcmarkets.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bitmine-immersion-technologies-inc-to-present-at-the-blockchain--digital-asset-virtual-investor-conference-april-25th) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bitmine-immersion-technologies-inc-to-present-at-the-blockchain--digital-asset-virtual-investor-conference-april-25th)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ca9xs3/bitmine_ceo_to_present_at_blockchain_digital/

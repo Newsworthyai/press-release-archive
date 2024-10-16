@@ -34,6 +34,9 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/ride-the-crypto-bull-run-dive-into-htxs-enhanced-flexible-products-and-dual-investment-with-expanded-offerings-enjoying-up-to-10-apy-228499250 
 
-[Original/Source Press Release](https://newsdirect.com/news/ride-the-crypto-bull-run-dive-into-htxs-enhanced-flexible-products-and-dual-investment-with-expanded-offerings-enjoying-up-to-10-apy-228499250) 
+[Original/Source Press Release](https://newsdirect.com/news/ride-the-crypto-bull-run-dive-into-htxs-enhanced-flexible-products-and-dual-investment-with-expanded-offerings-enjoying-up-to-10-apy-228499250)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c6cxv4/htx_introduces_enhanced_flexible_products_and/

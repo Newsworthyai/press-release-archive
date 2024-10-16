@@ -27,6 +27,9 @@ About TraceX
 
 [TraceX](https://www.powerledger.io/platform-features/tracex) by Powerledger is an environmental commodities marketplace that uses Powerledger Blockchain to add transparency in renewable energy certificates trading. TraceX is used by generators to track Environmental Attribute Certificates (EACs) from issuance through to sale, transfer and retirement for the end buyer. Companies with ESG goals can track ownership, hold certificates for resale, or retire them to meet annual sustainability targets. TraceX is powered by cutting-edge technology to improve the reliability and transparency of energy credits. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/powerledgers-tracex-opens-up-market-access-for-renewable-energy-buyers) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/powerledgers-tracex-opens-up-market-access-for-renewable-energy-buyers)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1eabzxz/powerledger_introduces_new_feature_for_direct/

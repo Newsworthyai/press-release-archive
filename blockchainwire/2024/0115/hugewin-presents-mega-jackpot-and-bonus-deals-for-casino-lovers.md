@@ -34,6 +34,9 @@ It is possible to discover more information about HugeWin by visiting its websi
 
 Telegram | X (Twitter) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/hugewin-presents-mega-jackpot-and-bonus-deals-for-casino-lovers) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/hugewin-presents-mega-jackpot-and-bonus-deals-for-casino-lovers)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1avxgog/hugewin_presents_mega_jackpot_and_lucrative_bonus/

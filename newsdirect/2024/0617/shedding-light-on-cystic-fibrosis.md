@@ -32,6 +32,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/shedding-light-on-cystic-fibrosis-698531654 
 
-[Original/Source Press Release](https://newsdirect.com/news/shedding-light-on-cystic-fibrosis-698531654) 
+[Original/Source Press Release](https://newsdirect.com/news/shedding-light-on-cystic-fibrosis-698531654)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1di4mzh/cystic_fibrosis_foundation_board_chair_kc_white/

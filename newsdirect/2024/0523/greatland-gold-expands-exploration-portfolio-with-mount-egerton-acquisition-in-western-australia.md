@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/greatland-gold-expands-exploration-portfolio-with-mount-egerton-acquisition-in-western-australia-709020141 
 
-[Original/Source Press Release](https://newsdirect.com/news/greatland-gold-expands-exploration-portfolio-with-mount-egerton-acquisition-in-western-australia-709020141) 
+[Original/Source Press Release](https://newsdirect.com/news/greatland-gold-expands-exploration-portfolio-with-mount-egerton-acquisition-in-western-australia-709020141)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cyqoxn/greatland_gold_expands_exploration_portfolio_with/

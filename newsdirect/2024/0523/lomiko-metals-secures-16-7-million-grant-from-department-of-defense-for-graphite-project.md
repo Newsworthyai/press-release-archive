@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lomiko-metals-secures-16-7-million-grant-from-department-of-defense-for-graphite-project-621338413 
 
-[Original/Source Press Release](https://newsdirect.com/news/lomiko-metals-secures-16-7-million-grant-from-department-of-defense-for-graphite-project-621338413) 
+[Original/Source Press Release](https://newsdirect.com/news/lomiko-metals-secures-16-7-million-grant-from-department-of-defense-for-graphite-project-621338413)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cyu68l/lomiko_metals_secures_167_million_grant_from/

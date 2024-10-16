@@ -10,6 +10,9 @@ Ketamine therapy not only offers rapid relief but also provides a long-lasting i
 
 As the prevalence of PTSD continues to rise, raising awareness about the options for trauma treatment becomes increasingly vital. Ketamine therapy is proving to be a transformative solution, offering a glimmer of hope to individuals seeking relief from the debilitating effects of PTSD. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231221918/new-fast-acting-treatment-for-ptsd-ketamine-therapy-provides-hope-and-relief) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231221918/new-fast-acting-treatment-for-ptsd-ketamine-therapy-provides-hope-and-relief)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcv5i/ketamine_therapy_a_new_hope_for_ptsd_relief/

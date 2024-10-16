@@ -22,6 +22,9 @@ For more information and to participate in the Catchcoin Airdrop, visit www.catc
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/-catchcoin-airdrop-join-the-revolution-in-loyalty-management-and-foot-traffic-generation) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/-catchcoin-airdrop-join-the-revolution-in-loyalty-management-and-foot-traffic-generation)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bht2gi/catchcointrade_inc_revolutionizes_business/

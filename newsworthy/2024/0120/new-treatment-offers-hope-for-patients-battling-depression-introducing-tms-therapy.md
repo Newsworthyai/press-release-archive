@@ -8,6 +8,9 @@ Beyond TMS Therapy, Prime Psychiatry is committed to offering a comprehensive ra
 
 Accessibility is a key component of Prime Psychiatry's service model. Through telepsychiatry, patients can access these vital services with ease, ensuring that professional help is just a phone call away. The dedicated staff at Prime Psychiatry is readily available during office hours to assist with inquiries, provide information, or schedule appointments, making the journey towards mental wellness as smooth and supportive as possible. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401201004/new-treatment-offers-hope-for-patients-battling-depression-introducing-tms-therapy) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401201004/new-treatment-offers-hope-for-patients-battling-depression-introducing-tms-therapy)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdpkt/breakthrough_tms_therapy_now_available_for/

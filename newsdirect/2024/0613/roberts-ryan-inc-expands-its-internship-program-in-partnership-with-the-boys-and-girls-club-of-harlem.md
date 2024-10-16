@@ -32,6 +32,9 @@ Company Websitehttps://www.roberts-ryan.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/roberts-and-ryan-inc-expands-its-internship-program-in-partnership-with-the-boys-and-girls-club-of-harlem-939875632 
 
-[Original/Source Press Release](https://newsdirect.com/news/roberts-and-ryan-inc-expands-its-internship-program-in-partnership-with-the-boys-and-girls-club-of-harlem-939875632) 
+[Original/Source Press Release](https://newsdirect.com/news/roberts-and-ryan-inc-expands-its-internship-program-in-partnership-with-the-boys-and-girls-club-of-harlem-939875632)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1deyr06/roberts_ryan_inc_expands_summer_internship_program/

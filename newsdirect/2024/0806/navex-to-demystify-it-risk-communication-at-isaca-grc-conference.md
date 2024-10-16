@@ -27,6 +27,9 @@ Company Websitehttps://navex.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/navex-to-demystify-it-risk-communication-at-isaca-grc-conference-235561488 
 
-[Original/Source Press Release](https://newsdirect.com/news/navex-to-demystify-it-risk-communication-at-isaca-grc-conference-235561488) 
+[Original/Source Press Release](https://newsdirect.com/news/navex-to-demystify-it-risk-communication-at-isaca-grc-conference-235561488)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1elg3tx/navex_to_present_key_session_at_isaca_grc/

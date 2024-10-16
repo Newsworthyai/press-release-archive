@@ -18,6 +18,9 @@ Looking forward, the CoinW team will continue to captivate audiences at the indu
 
 For media inquiries please contact ronnie.albone@eakdigital.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-captures-compelling-narrative-on-innovation-and-regulation-at-consensus) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-captures-compelling-narrative-on-innovation-and-regulation-at-consensus)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvlamk/coinw_hosts_successful_expedition_trek_series_at/

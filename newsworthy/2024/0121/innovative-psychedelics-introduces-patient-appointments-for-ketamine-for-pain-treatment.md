@@ -10,6 +10,9 @@ Innovative Psychedelics specializes in innovative mental health treatments, wit
 
 In addition to its Chicago clinic, Innovative Psychedelics has a location in Downers Grove, IL. Visit their website for contact details and hours of operation for both locations. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401211010/innovative-psychedelics-introduces-patient-appointments-for-ketamine-for-pain-treatment) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401211010/innovative-psychedelics-introduces-patient-appointments-for-ketamine-for-pain-treatment)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avldow/leading_mental_health_clinic_offers_iv_ketamine/

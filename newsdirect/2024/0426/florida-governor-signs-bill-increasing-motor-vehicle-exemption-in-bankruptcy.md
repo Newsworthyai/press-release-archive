@@ -26,6 +26,9 @@ Company Websitehttps://www.vanhornlawgroup.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/florida-governor-signs-bill-increasing-motor-vehicle-exemption-in-bankruptcy-946455914 
 
-[Original/Source Press Release](https://newsdirect.com/news/florida-governor-signs-bill-increasing-motor-vehicle-exemption-in-bankruptcy-946455914) 
+[Original/Source Press Release](https://newsdirect.com/news/florida-governor-signs-bill-increasing-motor-vehicle-exemption-in-bankruptcy-946455914)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cdxofq/florida_governor_signs_bill_increasing_motor/

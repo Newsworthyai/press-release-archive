@@ -28,6 +28,9 @@ Company Websitehttps://www.homesphere.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/homesphere-and-rm-interiors-partner-on-flooring-savings-for-homebuilders-146124843 
 
-[Original/Source Press Release](https://newsdirect.com/news/homesphere-and-rm-interiors-partner-on-flooring-savings-for-homebuilders-146124843) 
+[Original/Source Press Release](https://newsdirect.com/news/homesphere-and-rm-interiors-partner-on-flooring-savings-for-homebuilders-146124843)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dz21fx/homesphere_partners_with_rm_interiors_to_offer/

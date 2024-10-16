@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/with-demand-for-japanese-beauty-products-growing-yoshitsu-sets-its-sights-on-the-us-gears-up-for-more-brick-and-mortar-expansion-976134674 
 
-[Original/Source Press Release](https://newsdirect.com/news/with-demand-for-japanese-beauty-products-growing-yoshitsu-sets-its-sights-on-the-us-gears-up-for-more-brick-and-mortar-expansion-976134674) 
+[Original/Source Press Release](https://newsdirect.com/news/with-demand-for-japanese-beauty-products-growing-yoshitsu-sets-its-sights-on-the-us-gears-up-for-more-brick-and-mortar-expansion-976134674)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cgrr6x/japanese_beauty_market_growth_sparks_expansion/

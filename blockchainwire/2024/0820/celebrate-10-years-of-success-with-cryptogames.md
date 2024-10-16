@@ -40,6 +40,9 @@ Here’s to a decade of CryptoGames and to many more years of gaming excellence.
 
 Website: CryptoGamesBlog: CryptoGames BlogForum: CryptoGames ForumTwitter (X): CryptoGames Twitter (X) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/celebrate-10-years-of-success-with-cryptogames) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/celebrate-10-years-of-success-with-cryptogames)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1eym0p7/cryptogames_celebrates_10th_anniversary_with/

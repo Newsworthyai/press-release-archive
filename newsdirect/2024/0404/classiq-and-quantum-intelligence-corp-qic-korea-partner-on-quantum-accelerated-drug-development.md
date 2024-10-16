@@ -46,6 +46,9 @@ Company Websitehttp://www.classiq.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/classiq-and-quantum-intelligence-corp-qic-korea-partner-on-quantum-accelerated-drug-development-723092450 
 
-[Original/Source Press Release](https://newsdirect.com/news/classiq-and-quantum-intelligence-corp-qic-korea-partner-on-quantum-accelerated-drug-development-723092450) 
+[Original/Source Press Release](https://newsdirect.com/news/classiq-and-quantum-intelligence-corp-qic-korea-partner-on-quantum-accelerated-drug-development-723092450)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1bvsmgz/classiq_and_quantum_intelligence_corp_qic_partner/

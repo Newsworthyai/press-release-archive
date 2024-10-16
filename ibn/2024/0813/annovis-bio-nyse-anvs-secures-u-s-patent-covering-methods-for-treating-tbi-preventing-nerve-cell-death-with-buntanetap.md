@@ -28,6 +28,9 @@
 
  BioMedWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-secures-u-s-patent-covering-methods-for-treating-tbi-preventing-nerve-cell-death-with-buntanetap/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/annovis-bio-nyse-anvs-secures-u-s-patent-covering-methods-for-treating-tbi-preventing-nerve-cell-death-with-buntanetap/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1f2gcea/annovis_bio_secures_us_patent_for_tbi_treatment/

@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/provaris-energy-to-develop-hydrogen-import-terminal-with-ges-123439389 
 
-[Original/Source Press Release](https://newsdirect.com/news/provaris-energy-to-develop-hydrogen-import-terminal-with-ges-123439389) 
+[Original/Source Press Release](https://newsdirect.com/news/provaris-energy-to-develop-hydrogen-import-terminal-with-ges-123439389)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c1nihy/provaris_energy_collaborates_with_ges_to_develop/

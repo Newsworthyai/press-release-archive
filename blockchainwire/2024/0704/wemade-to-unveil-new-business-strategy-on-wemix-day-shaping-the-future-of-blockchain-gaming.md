@@ -24,6 +24,9 @@ About Wemade
 
 Wemade sits at the exciting intersection of cutting-edge blockchain technology, immersive games, and the ever-evolving real world, exploring innovative ways to bridge the gap between the virtual world of games and the tangible world we live in. This unique position allows them to empower users in groundbreaking ways, including richer on-chain experiences and valuable asset ownership. Their focus on the convergence of these areas positions Wemade as a leader in shaping the future of the gaming industry, where players have more control, ownership, and deeper connections with the games they love. www.wemade.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/wemade-to-unveil-new-business-strategy-on-wemix-day-shaping-the-future-of-blockchain-gaming) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/wemade-to-unveil-new-business-strategy-on-wemix-day-shaping-the-future-of-blockchain-gaming)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1dv62wn/wemade_announces_wemix_day_event_to_transform/

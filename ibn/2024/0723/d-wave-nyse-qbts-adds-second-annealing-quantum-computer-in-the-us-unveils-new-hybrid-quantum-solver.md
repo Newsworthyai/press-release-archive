@@ -24,6 +24,9 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-adds-second-annealing-quantum-computer-in-the-us-unveils-new-hybrid-quantum-solver/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-adds-second-annealing-quantum-computer-in-the-us-unveils-new-hybrid-quantum-solver/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2q1pn/dwave_quantum_introduces_new_hybrid_quantum/

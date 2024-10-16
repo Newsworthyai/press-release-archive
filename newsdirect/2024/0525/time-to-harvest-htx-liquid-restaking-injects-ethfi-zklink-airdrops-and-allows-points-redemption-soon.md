@@ -46,6 +46,9 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/time-to-harvest-htx-liquid-restaking-injects-ethfi-and-zklink-airdrops-and-allows-points-redemption-soon-686343824 
 
-[Original/Source Press Release](https://newsdirect.com/news/time-to-harvest-htx-liquid-restaking-injects-ethfi-and-zklink-airdrops-and-allows-points-redemption-soon-686343824) 
+[Original/Source Press Release](https://newsdirect.com/news/time-to-harvest-htx-liquid-restaking-injects-ethfi-and-zklink-airdrops-and-allows-points-redemption-soon-686343824)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1d11j9n/htx_liquid_restaking_injects_ethfi_and_zklink/

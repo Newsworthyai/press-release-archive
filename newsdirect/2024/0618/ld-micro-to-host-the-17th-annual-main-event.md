@@ -36,6 +36,9 @@ Company Websitehttps://www.ldmicro.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ld-micro-to-host-the-17th-annual-main-event-313926236 
 
-[Original/Source Press Release](https://newsdirect.com/news/ld-micro-to-host-the-17th-annual-main-event-313926236) 
+[Original/Source Press Release](https://newsdirect.com/news/ld-micro-to-host-the-17th-annual-main-event-313926236)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1dipssi/registration_open_for_17th_ld_micro_main_event_in/

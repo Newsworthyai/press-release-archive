@@ -42,6 +42,9 @@ Company Websitehttp://CapitalGainsReport.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/5-million-no-warrants-private-placement-reaffirms-investor-confidence-in-safety-shot-inc-nasdaq-shot-263214833 
 
-[Original/Source Press Release](https://newsdirect.com/news/5-million-no-warrants-private-placement-reaffirms-investor-confidence-in-safety-shot-inc-nasdaq-shot-263214833) 
+[Original/Source Press Release](https://newsdirect.com/news/5-million-no-warrants-private-placement-reaffirms-investor-confidence-in-safety-shot-inc-nasdaq-shot-263214833)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bytdv7/safety_shot_inc_nasdaqshot_secures_5_million/

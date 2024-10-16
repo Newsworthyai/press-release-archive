@@ -20,6 +20,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/light-science-technologies-ceo-discusses-record-2023-results-and-strategic-growth-751391147 
 
-[Original/Source Press Release](https://newsdirect.com/news/light-science-technologies-ceo-discusses-record-2023-results-and-strategic-growth-751391147) 
+[Original/Source Press Release](https://newsdirect.com/news/light-science-technologies-ceo-discusses-record-2023-results-and-strategic-growth-751391147)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cnuq2r/light_science_technologies_ceo_discusses_record/

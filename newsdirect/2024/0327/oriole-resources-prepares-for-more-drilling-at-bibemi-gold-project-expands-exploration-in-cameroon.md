@@ -20,6 +20,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/oriole-resources-prepares-for-more-drilling-at-bibemi-gold-project-expands-exploration-in-cameroon-215650527 
 
-[Original/Source Press Release](https://newsdirect.com/news/oriole-resources-prepares-for-more-drilling-at-bibemi-gold-project-expands-exploration-in-cameroon-215650527) 
+[Original/Source Press Release](https://newsdirect.com/news/oriole-resources-prepares-for-more-drilling-at-bibemi-gold-project-expands-exploration-in-cameroon-215650527)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1bp0b2g/oriole_resources_expands_exploration_in_cameroon/

@@ -50,6 +50,9 @@ $XMETA is the native token of the X Metaverse Pro ecosystem, serving as the core
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/xmeta-launches-pioneering-the-future-of-crypto-and-the-metaverse) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/xmeta-launches-pioneering-the-future-of-crypto-and-the-metaverse)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fsq3a7/x_metaverse_pros_xmeta_launches_poised_for_global/

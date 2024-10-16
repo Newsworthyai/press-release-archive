@@ -52,6 +52,9 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-invests-in-tomo-to-support-socialfi-innovations-284991205 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-ventures-invests-in-tomo-to-support-socialfi-innovations-284991205) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-ventures-invests-in-tomo-to-support-socialfi-innovations-284991205)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c1xrkj/htx_ventures_invests_in_tomo_to_support_socialfi/

@@ -26,6 +26,9 @@ The upcoming listing of the SNPAD token on Uniswap on June 4, 2024, at 15:00 UTC
 
 You can follow the project and stay up to date with its development at these links: Website | X (Twitter) | Telegram | 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/snpad-announces-uniswap-listing-and-plans-to-transform-tv-advertising-with-ai-powered-platform) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/snpad-announces-uniswap-listing-and-plans-to-transform-tv-advertising-with-ai-powered-platform)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvmebe/revolutionary_web3_platform_snpad_to_list_snpad/

@@ -36,6 +36,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/atlas-lithium-nasdaq-atlx-announces-appointment-of-seasoned-lithium-expert-brian-talbot-as-chief-operating-officer-309554393 
 
-[Original/Source Press Release](https://newsdirect.com/news/atlas-lithium-nasdaq-atlx-announces-appointment-of-seasoned-lithium-expert-brian-talbot-as-chief-operating-officer-309554393) 
+[Original/Source Press Release](https://newsdirect.com/news/atlas-lithium-nasdaq-atlx-announces-appointment-of-seasoned-lithium-expert-brian-talbot-as-chief-operating-officer-309554393)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1bo7yaj/atlas_lithium_appoints_seasoned_expert_brian/

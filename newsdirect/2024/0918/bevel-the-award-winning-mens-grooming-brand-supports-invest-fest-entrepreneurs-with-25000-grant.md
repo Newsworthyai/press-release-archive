@@ -32,6 +32,9 @@ Company Websitehttps://getbevel.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bevel-the-award-winning-mens-grooming-brand-supports-invest-fest-entrepreneurs-with-25-000-grant-616664210 
 
-[Original/Source Press Release](https://newsdirect.com/news/bevel-the-award-winning-mens-grooming-brand-supports-invest-fest-entrepreneurs-with-25-000-grant-616664210) 
+[Original/Source Press Release](https://newsdirect.com/news/bevel-the-award-winning-mens-grooming-brand-supports-invest-fest-entrepreneurs-with-25-000-grant-616664210)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fjsrjc/bevel_supports_invest_fest_entrepreneurs_with/

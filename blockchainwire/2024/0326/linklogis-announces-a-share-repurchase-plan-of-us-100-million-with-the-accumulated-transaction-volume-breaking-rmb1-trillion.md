@@ -10,6 +10,9 @@ Anchor Cloud and FI Cloud are the key supply chain finance technology solutions 
 
 Charles Song, the founder, chairman and CEO of Linklogis, said, “Looking ahead to 2024, Linklogis will focus more on its core business of sustainable high growth, expedite the replacement of old growth drivers with new ones and steer toward a new stage of high-quality development. While ensuring swift customer acquisition, we will also cater to the needs of our existing customers, and focus on increasing customer value. We will embrace the opportunities brought by the wave of AIGC, continuously explore new technologies and applications, and continue to improve operational efficiencies and cost reductions. Linklogis will continue to enhance shareholder returns through cash dividends and share repurchases. Linklogis is embarking on a new journey with confidence, poised to create even greater value for both customers and shareholders in the future." 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/linklogis-announces-a-share-repurchase-plan-of-us100-million-with-the-accumulated-transaction-volume-breaking-rmb1-trillion) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/linklogis-announces-a-share-repurchase-plan-of-us100-million-with-the-accumulated-transaction-volume-breaking-rmb1-trillion)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bo7k00/linklogis_inc_reports_152_increase_in_revenue_for/

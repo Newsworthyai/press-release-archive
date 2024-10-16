@@ -22,6 +22,9 @@ Blockchain Wire offers unmatched value in the industry, backed by decades of exp
 
 Blockchain Wire distribution for U.S. National and International circuits releasing news across news sites such as Reuters, Yahoo Finance, Bloomberg, Business Insider, Associated Press, hundreds of online publications, and distribution to over 20,000 blockchain/crypto industry executives, investors and enthusiasts. For more information, visit Blockchainwire.io. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/blockchain-wire-to-reveal-latest-innovations-and-join-consensus-2024) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/blockchain-wire-to-reveal-latest-innovations-and-join-consensus-2024)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cypah6/blockchain_wire_to_participate_in_consensus_2024/

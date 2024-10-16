@@ -45,6 +45,9 @@ Company Websitehttp://www.aprubrands.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/apple-rush-company-inc-announces-expansion-of-lena-brewing-operation-expansion-expected-to-increase-production-capacity-fivefold-825018765 
 
-[Original/Source Press Release](https://newsdirect.com/news/apple-rush-company-inc-announces-expansion-of-lena-brewing-operation-expansion-expected-to-increase-production-capacity-fivefold-825018765) 
+[Original/Source Press Release](https://newsdirect.com/news/apple-rush-company-inc-announces-expansion-of-lena-brewing-operation-expansion-expected-to-increase-production-capacity-fivefold-825018765)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e0t5wi/apple_rush_company_inc_expands_lena_brewing/

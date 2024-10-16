@@ -42,6 +42,9 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/analysts-bold-sol-forecast-grabs-headlines-kang-and-doge-reign-supreme-in-the-meme-coin-space-106457477 
 
-[Original/Source Press Release](https://newsdirect.com/news/analysts-bold-sol-forecast-grabs-headlines-kang-and-doge-reign-supreme-in-the-meme-coin-space-106457477) 
+[Original/Source Press Release](https://newsdirect.com/news/analysts-bold-sol-forecast-grabs-headlines-kang-and-doge-reign-supreme-in-the-meme-coin-space-106457477)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cpetx6/analysts_bold_sol_forecast_grabs_headlines_kang/

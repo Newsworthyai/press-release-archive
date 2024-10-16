@@ -32,6 +32,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/moneylion-appoints-veteran-pinterest-and-google-leader-jon-kaplan-as-chief-revenue-officer-228270947 
 
-[Original/Source Press Release](https://newsdirect.com/news/moneylion-appoints-veteran-pinterest-and-google-leader-jon-kaplan-as-chief-revenue-officer-228270947) 
+[Original/Source Press Release](https://newsdirect.com/news/moneylion-appoints-veteran-pinterest-and-google-leader-jon-kaplan-as-chief-revenue-officer-228270947)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dpqpqm/moneylion_appoints_jon_kaplan_as_chief_revenue/

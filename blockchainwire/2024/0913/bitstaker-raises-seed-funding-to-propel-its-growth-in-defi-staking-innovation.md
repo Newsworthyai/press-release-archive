@@ -24,6 +24,9 @@ For more information visit https://www.bitstaker.io/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bitstaker-raises-seed-funding-to-propel-its-growth-in-defi-staking-innovation) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bitstaker-raises-seed-funding-to-propel-its-growth-in-defi-staking-innovation)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1fh6tqq/bitstaker_secures_major_seed_financing_for_defi/

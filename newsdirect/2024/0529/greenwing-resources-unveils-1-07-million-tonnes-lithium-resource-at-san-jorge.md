@@ -12,6 +12,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/greenwing-resources-unveils-1-07-million-tonnes-lithium-resource-at-san-jorge-565324687 
 
-[Original/Source Press Release](https://newsdirect.com/news/greenwing-resources-unveils-1-07-million-tonnes-lithium-resource-at-san-jorge-565324687) 
+[Original/Source Press Release](https://newsdirect.com/news/greenwing-resources-unveils-1-07-million-tonnes-lithium-resource-at-san-jorge-565324687)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d3matf/greenwing_resources_unveils_107_million_tonnes/

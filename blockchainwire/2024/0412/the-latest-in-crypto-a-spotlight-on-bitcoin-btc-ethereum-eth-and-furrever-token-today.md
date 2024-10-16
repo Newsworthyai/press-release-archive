@@ -50,6 +50,9 @@ Join Official Telegram Group |  Follow Official X Account
 
 Media Contact: Robert Smith support(at)furrevertoken.com https://furrevertoken.com/Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/the-latest-in-crypto-a-spotlight-on-bitcoin-btc-ethereum-eth-and-furrever-token-today) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/the-latest-in-crypto-a-spotlight-on-bitcoin-btc-ethereum-eth-and-furrever-token-today)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c2dxtu/cryptocurrency_market_update_bitcoin_ethereum_and/

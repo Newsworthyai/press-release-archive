@@ -34,6 +34,9 @@ Website | Twitter | Telegram
 
 Join the spot trading action on Coinstore: https://www.coinstore.com/#/spot/VABTUSDT 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/breaking-news-vabotai-makes-history-with-425-million-ieo-triumph) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/breaking-news-vabotai-makes-history-with-425-million-ieo-triumph)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1biipry/vabotai_achieves_historic_425m_milestone_in_ieo/

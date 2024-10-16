@@ -93,6 +93,9 @@ World of Dypians has a dedicated area where participants can join the BNB Chain 
 
 You can learn more about World of Dypians at these links: Website | Twitter | Discord | Telegram | GitHub | YouTube | Download on Epic Games 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/world-of-dypians-offers-up-to-1m-wod-and-225000-in-premium-subscriptions-via-the-bnb-chain-airdrop-alliance-program) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/world-of-dypians-offers-up-to-1m-wod-and-225000-in-premium-subscriptions-via-the-bnb-chain-airdrop-alliance-program)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1chgo26/revolutionary_mmorpg_world_of_dypians_joins_bnb/

@@ -40,6 +40,9 @@ About Q Development AG
 
 Q is an EVM-compatible blockchain protocol, redefining Web3 with its groundbreaking concept of Shared Governance Security. Q Development AG is a private company based in Gamprin-Bendern, Liechtenstein, whose main purpose is to advance the Q protocol and support the Q ecosystem. To learn more about Q please visit: https://q.org/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/q-development-ag-launches-innovative-platform-for-sustainable-ecosystem-growth---25mn-usd-allocated-for-potential-ecosystem-investments) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/q-development-ag-launches-innovative-platform-for-sustainable-ecosystem-growth---25mn-usd-allocated-for-potential-ecosystem-investments)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avwxw4/q_development_ag_launches_q_ecosystem_fund_for/

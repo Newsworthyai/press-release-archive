@@ -44,6 +44,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/aitx-expands-market-reach-with-20-growth-in-channel-partners-802348803 
 
-[Original/Source Press Release](https://newsdirect.com/news/aitx-expands-market-reach-with-20-growth-in-channel-partners-802348803) 
+[Original/Source Press Release](https://newsdirect.com/news/aitx-expands-market-reach-with-20-growth-in-channel-partners-802348803)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dspez6/aitx_expands_market_reach_with_20_growth_in/

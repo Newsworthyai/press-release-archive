@@ -14,6 +14,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/american-eagle-gold-announces-significant-copper-discovery-at-nak-project-in-british-columbia-768832005 
 
-[Original/Source Press Release](https://newsdirect.com/news/american-eagle-gold-announces-significant-copper-discovery-at-nak-project-in-british-columbia-768832005) 
+[Original/Source Press Release](https://newsdirect.com/news/american-eagle-gold-announces-significant-copper-discovery-at-nak-project-in-british-columbia-768832005)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dva8pw/american_eagle_gold_ceo_announces_significant/

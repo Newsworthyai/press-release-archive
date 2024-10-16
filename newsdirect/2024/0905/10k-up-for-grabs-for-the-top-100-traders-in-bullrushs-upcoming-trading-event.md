@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/10k-up-for-grabs-for-the-top-100-traders-in-bullrushs-upcoming-trading-event-372413977 
 
-[Original/Source Press Release](https://newsdirect.com/news/10k-up-for-grabs-for-the-top-100-traders-in-bullrushs-upcoming-trading-event-372413977) 
+[Original/Source Press Release](https://newsdirect.com/news/10k-up-for-grabs-for-the-top-100-traders-in-bullrushs-upcoming-trading-event-372413977)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1f9rhoc/join_bullrushs_fantasy_trading_competition_and/

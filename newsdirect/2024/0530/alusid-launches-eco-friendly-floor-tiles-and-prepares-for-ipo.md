@@ -20,6 +20,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/alusid-launches-eco-friendly-floor-tiles-and-prepares-for-ipo-197275925 
 
-[Original/Source Press Release](https://newsdirect.com/news/alusid-launches-eco-friendly-floor-tiles-and-prepares-for-ipo-197275925) 
+[Original/Source Press Release](https://newsdirect.com/news/alusid-launches-eco-friendly-floor-tiles-and-prepares-for-ipo-197275925)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d44il5/alusid_launches_ecofriendly_floor_tiles_and/

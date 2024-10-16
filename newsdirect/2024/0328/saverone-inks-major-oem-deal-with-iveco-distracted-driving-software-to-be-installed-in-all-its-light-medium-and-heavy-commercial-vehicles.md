@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/saverone-inks-major-oem-deal-with-iveco-distracted-driving-software-to-be-installed-in-all-its-light-medium-and-heavy-commercial-vehicles-936446056 
 
-[Original/Source Press Release](https://newsdirect.com/news/saverone-inks-major-oem-deal-with-iveco-distracted-driving-software-to-be-installed-in-all-its-light-medium-and-heavy-commercial-vehicles-936446056) 
+[Original/Source Press Release](https://newsdirect.com/news/saverone-inks-major-oem-deal-with-iveco-distracted-driving-software-to-be-installed-in-all-its-light-medium-and-heavy-commercial-vehicles-936446056)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1bpvvmi/saverone_partners_with_iveco_to_install/

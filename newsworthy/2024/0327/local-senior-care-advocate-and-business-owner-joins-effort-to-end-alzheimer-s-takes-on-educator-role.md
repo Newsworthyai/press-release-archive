@@ -14,6 +14,9 @@ The Alzheimer's Association is the leading voluntary health organization in Alzh
 
 Media Contact Bryan EisenbergCo-ownerA Place At Home - North Austin512 -521-3010Northaustin@aplaceathome.com 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202403271135/local-senior-care-advocate-and-business-owner-joins-effort-to-end-alzheimer-s-takes-on-educator-role) 
+[Original/Source Press Release](https://newsworthy.ai/news/202403271135/local-senior-care-advocate-and-business-owner-joins-effort-to-end-alzheimer-s-takes-on-educator-role)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1bp75q5/stacey_eisenberg_appointed_to_2024_alzheimers/

@@ -98,6 +98,9 @@ OTC Markets Group
 
 johnv@otcmarkets.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/blockchain--digital-assets-conference-presentations-now-available-for-online-viewing) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/blockchain--digital-assets-conference-presentations-now-available-for-online-viewing)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cfzhmi/blockchain_38_digital_assets_virtual_investor/

@@ -40,6 +40,9 @@ Over and above sharing 50% of platform revenue, the team offers an in-platform a
 
 X (Twitter) | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/neurahub-presents-new-telegram-app-powered-by-generative-ai-technology) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/neurahub-presents-new-telegram-app-powered-by-generative-ai-technology)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1c4kpi9/neurahub_announces_revolutionary_telegram_app/

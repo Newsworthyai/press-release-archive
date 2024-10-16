@@ -36,6 +36,9 @@ Company Websitehttps://www.goodwaygroup.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/goodway-group-unveils-strategic-expansion-with-launch-of-gradiant-a-modern-funnel-agency-and-g-comm-a-retail-media-accelerator-112458640 
 
-[Original/Source Press Release](https://newsdirect.com/news/goodway-group-unveils-strategic-expansion-with-launch-of-gradiant-a-modern-funnel-agency-and-g-comm-a-retail-media-accelerator-112458640) 
+[Original/Source Press Release](https://newsdirect.com/news/goodway-group-unveils-strategic-expansion-with-launch-of-gradiant-a-modern-funnel-agency-and-g-comm-a-retail-media-accelerator-112458640)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1clmdw4/goodway_group_launches_gradiant_and_gcomm_to/

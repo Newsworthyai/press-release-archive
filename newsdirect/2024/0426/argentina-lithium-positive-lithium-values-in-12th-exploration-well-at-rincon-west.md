@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/argentina-lithium-positive-lithium-values-in-12th-exploration-well-at-rincon-west-618023196 
 
-[Original/Source Press Release](https://newsdirect.com/news/argentina-lithium-positive-lithium-values-in-12th-exploration-well-at-rincon-west-618023196) 
+[Original/Source Press Release](https://newsdirect.com/news/argentina-lithium-positive-lithium-values-in-12th-exploration-well-at-rincon-west-618023196)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1cdn4pj/argentina_lithium_reports_positive_results_in/

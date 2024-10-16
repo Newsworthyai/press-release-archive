@@ -34,6 +34,9 @@ Company Websitehttps://www.ulf.com.ua/
 
 View source version on newsdirect.com: https://newsdirect.com/news/ukrlandfarming-announces-expansion-into-the-european-union-market-749003701 
 
-[Original/Source Press Release](https://newsdirect.com/news/ukrlandfarming-announces-expansion-into-the-european-union-market-749003701) 
+[Original/Source Press Release](https://newsdirect.com/news/ukrlandfarming-announces-expansion-into-the-european-union-market-749003701)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cshgma/ukrlandfarming_announces_expansion_into_the/

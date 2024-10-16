@@ -22,6 +22,9 @@ About BKCEDC
 
 The Boerne Kendall County Economic Development Corporation (BKCEDC) is dedicated to driving economic growth and development in Kendall County by fostering innovation, supporting local businesses, and collaborating with community leaders. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202408161233/boerne-kendall-county-edc-honored-with-2024-ceda-for-pioneering-launch-of-das-greenhaus-empowering-texas-hill-country-entrepreneurs) 
+[Original/Source Press Release](https://newsworthy.ai/news/202408161233/boerne-kendall-county-edc-honored-with-2024-ceda-for-pioneering-launch-of-das-greenhaus-empowering-texas-hill-country-entrepreneurs)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1etn7ij/bkcedc_receives_2024_ceda_award_for_launching_das/

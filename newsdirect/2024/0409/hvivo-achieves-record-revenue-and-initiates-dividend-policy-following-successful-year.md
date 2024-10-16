@@ -22,6 +22,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hvivo-achieves-record-revenue-and-initiates-dividend-policy-following-successful-year-771903914 
 
-[Original/Source Press Release](https://newsdirect.com/news/hvivo-achieves-record-revenue-and-initiates-dividend-policy-following-successful-year-771903914) 
+[Original/Source Press Release](https://newsdirect.com/news/hvivo-achieves-record-revenue-and-initiates-dividend-policy-following-successful-year-771903914)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bzqgly/hvivo_achieves_record_revenue_and_initiates/

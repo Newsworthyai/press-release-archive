@@ -32,6 +32,9 @@ Company Websitehttps://amerilife.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/amerilife-names-michael-tobitsch-executive-vice-president-and-head-of-corporate-development-560098510 
 
-[Original/Source Press Release](https://newsdirect.com/news/amerilife-names-michael-tobitsch-executive-vice-president-and-head-of-corporate-development-560098510) 
+[Original/Source Press Release](https://newsdirect.com/news/amerilife-names-michael-tobitsch-executive-vice-president-and-head-of-corporate-development-560098510)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1er7j65/amerilife_appoints_michael_tobitsch_as_executive/

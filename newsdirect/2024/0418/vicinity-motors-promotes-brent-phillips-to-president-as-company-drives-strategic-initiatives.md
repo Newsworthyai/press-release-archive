@@ -22,6 +22,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/vicinity-motors-promotes-brent-phillips-to-president-as-company-drives-strategic-initiatives-817813808 
 
-[Original/Source Press Release](https://newsdirect.com/news/vicinity-motors-promotes-brent-phillips-to-president-as-company-drives-strategic-initiatives-817813808) 
+[Original/Source Press Release](https://newsdirect.com/news/vicinity-motors-promotes-brent-phillips-to-president-as-company-drives-strategic-initiatives-817813808)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1c782le/brent_phillips_to_lead_vicinity_motors_strategic/

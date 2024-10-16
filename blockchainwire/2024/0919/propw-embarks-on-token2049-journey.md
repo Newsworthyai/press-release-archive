@@ -20,6 +20,9 @@ Twitter：https://x.com/PropWGlobalDiscord：https://discord.gg/JmRV4aeEbf
 
 Telegram：https://t.me/PropWGlobal 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/propw-embarks-on-token2049-journey-2) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/propw-embarks-on-token2049-journey-2)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fkimbt/propw_announces_participation_at_token2049/

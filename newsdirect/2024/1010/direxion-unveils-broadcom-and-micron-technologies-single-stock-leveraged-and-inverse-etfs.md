@@ -40,6 +40,9 @@ Company Websitehttps://www.direxion.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/direxion-unveils-broadcom-and-micron-technologies-single-stock-leveraged-and-inverse-etfs-420197962 
 
-[Original/Source Press Release](https://newsdirect.com/news/direxion-unveils-broadcom-and-micron-technologies-single-stock-leveraged-and-inverse-etfs-420197962) 
+[Original/Source Press Release](https://newsdirect.com/news/direxion-unveils-broadcom-and-micron-technologies-single-stock-leveraged-and-inverse-etfs-420197962)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1g0ii1c/direxion_launches_new_semiconductor_pairs_and/

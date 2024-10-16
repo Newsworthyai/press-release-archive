@@ -30,6 +30,9 @@ For investors, this trio represents a balanced portfolio: Bitcoin for stability 
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/robert-kiyosaki-predicts-bitcoin-to-100k-how-ethereum-and-furrever-token-fit-into-the-picture) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/robert-kiyosaki-predicts-bitcoin-to-100k-how-ethereum-and-furrever-token-fit-into-the-picture)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dadd6j/renowned_author_predicts_bitcoin_to_reach_100000/

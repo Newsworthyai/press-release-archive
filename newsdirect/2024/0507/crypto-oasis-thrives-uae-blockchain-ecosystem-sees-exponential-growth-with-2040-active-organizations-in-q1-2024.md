@@ -50,6 +50,9 @@ Company Websitehttps://cryptooasis.ae/
 
 View source version on newsdirect.com: https://newsdirect.com/news/crypto-oasis-thrives-uae-blockchain-ecosystem-sees-exponential-growth-with-2-040-active-organizations-in-q1-2024-796743308 
 
-[Original/Source Press Release](https://newsdirect.com/news/crypto-oasis-thrives-uae-blockchain-ecosystem-sees-exponential-growth-with-2-040-active-organizations-in-q1-2024-796743308) 
+[Original/Source Press Release](https://newsdirect.com/news/crypto-oasis-thrives-uae-blockchain-ecosystem-sees-exponential-growth-with-2-040-active-organizations-in-q1-2024-796743308)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cmbnmg/crypto_oasis_thrives_uae_blockchain_ecosystem/

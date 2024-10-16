@@ -36,6 +36,9 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-featured-as-title-sponsor-at-kbw-showcases-growing-meme-coin-ecosystem-843819846 
 
-[Original/Source Press Release](https://newsdirect.com/news/tron-dao-featured-as-title-sponsor-at-kbw-showcases-growing-meme-coin-ecosystem-843819846) 
+[Original/Source Press Release](https://newsdirect.com/news/tron-dao-featured-as-title-sponsor-at-kbw-showcases-growing-meme-coin-ecosystem-843819846)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fhz2i4/tron_dao_takes_center_stage_at_korea_blockchain/

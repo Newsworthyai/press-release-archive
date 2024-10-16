@@ -44,6 +44,9 @@ Twitter: SHIBA BUDZ "$BUDZ" (@ShibaBudz) / X
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/shib-investors-drop-001-shiba-inu-dreams--migrate-to-new-memecoin-rival-positioned-for-pump) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/shib-investors-drop-001-shiba-inu-dreams--migrate-to-new-memecoin-rival-positioned-for-pump)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bz6rqs/shiba_inu_shib_investors_pivot_to_shiba_budz_budz/

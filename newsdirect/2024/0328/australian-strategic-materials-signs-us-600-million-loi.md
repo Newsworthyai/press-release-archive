@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/australian-strategic-materials-signs-us-600-million-loi-794990750 
 
-[Original/Source Press Release](https://newsdirect.com/news/australian-strategic-materials-signs-us-600-million-loi-794990750) 
+[Original/Source Press Release](https://newsdirect.com/news/australian-strategic-materials-signs-us-600-million-loi-794990750)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1bq813x/australian_strategic_materials_secures_us600/

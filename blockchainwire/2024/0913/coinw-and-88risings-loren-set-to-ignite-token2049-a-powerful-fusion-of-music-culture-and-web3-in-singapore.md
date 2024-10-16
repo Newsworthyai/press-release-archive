@@ -14,6 +14,9 @@ CoinW: Bridging Web3 and Culture at TOKEN2049
 
 As a prominent player in the Middle East’s Web3 ecosystem, CoinW has established partnerships with major organizations like the Dubai Blockchain Center, Abu Dhabi Blockchain Center, and the Dubai Chamber of Digital Economy. During TOKEN2049, CoinW will continue to solidify its presence as a key Web3 partner, offering attendees a dynamic experience that goes beyond crypto. With LØREN leading the entertainment, CoinW’s party will blend cutting-edge music with the latest in Web3 innovation. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-and-88risings-lren-set-to-ignite-token2049-a-powerful-fusion-of-music-culture-and-web3-in-singapore) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-and-88risings-lren-set-to-ignite-token2049-a-powerful-fusion-of-music-culture-and-web3-in-singapore)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fg0390/coinw_and_løren_to_deliver_unforgettable_party/

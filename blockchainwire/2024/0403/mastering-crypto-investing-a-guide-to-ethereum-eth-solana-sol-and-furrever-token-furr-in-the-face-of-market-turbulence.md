@@ -40,6 +40,9 @@ Furrever Token Official Website |  Visit Furrever Token Presale  Join Official T
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/mastering-crypto-investing-a-guide-to-ethereum-eth-solana-sol-and-furrever-token-furrin-the-face-of-market-turbulence) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/mastering-crypto-investing-a-guide-to-ethereum-eth-solana-sol-and-furrever-token-furrin-the-face-of-market-turbulence)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1buxp17/ethereum_solana_and_furrever_token_a_tale_of/

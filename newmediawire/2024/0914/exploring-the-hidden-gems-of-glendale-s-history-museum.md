@@ -20,6 +20,9 @@
 
  For more info, visit MAmuseum.com or email info@mamuseum.com. The museum hours are Wednesday through Sunday 11 am to 6 pm. 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/exploring-the-hidden-gems-of-glendale-s-history-museum-7076053) 
+[Original/Source Press Release](https://www.newmediawire.com/news/exploring-the-hidden-gems-of-glendale-s-history-museum-7076053)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1figvvo/discover_the_world_of_martial_arts_at_the_hidden/

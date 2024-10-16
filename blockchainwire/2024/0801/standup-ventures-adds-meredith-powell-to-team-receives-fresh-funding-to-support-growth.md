@@ -20,6 +20,9 @@ StandUp’s Fund 1 and Fund 2 ($56.5M AUM) have invested in 44 exceptional found
 
 Since mid-2022, StandUp Ventures has been deploying capital out of Fund 2, of which four of the funded companies already have raised 12x the initial invested capital in follow-on commitments. The team successfully secured [VCCI Inclusive Capital funding](https://www.canada.ca/en/innovation-science-economic-development/news/2024/07/minister-valdez-announces-new-investments-to-spur-innovation-and-help-diverse-entrepreneurs-scale-their-business.html) on July 30th to support the growth of Standup’s returns-focused franchise strategy. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/standup-ventures-adds-meredith-powell-to-team-receives-fresh-funding-to-support-growth) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/standup-ventures-adds-meredith-powell-to-team-receives-fresh-funding-to-support-growth)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ehp0ab/standup_ventures_welcomes_new_leadership_and/

@@ -36,6 +36,9 @@ Company Websitehttps://www.reflectvalues.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/reflection-analytics-reflect-platform-named-to-the-prestigious-wealthtech100-ranking-of-the-worlds-most-innovative-technology-providers-754921794 
 
-[Original/Source Press Release](https://newsdirect.com/news/reflection-analytics-reflect-platform-named-to-the-prestigious-wealthtech100-ranking-of-the-worlds-most-innovative-technology-providers-754921794) 
+[Original/Source Press Release](https://newsdirect.com/news/reflection-analytics-reflect-platform-named-to-the-prestigious-wealthtech100-ranking-of-the-worlds-most-innovative-technology-providers-754921794)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1burors/reflection_analytics_esg_software_named_to/

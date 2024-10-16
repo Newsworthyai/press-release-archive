@@ -43,6 +43,9 @@ Visit Our Blog
 * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/ycommunicate/news_release/1456) 
+[Original/Source Press Release](https://newsroom.prkarma.com/ycommunicate/news_release/1456)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1cuarmd/trish_standley_and_walk_in_my_shoes_foundation/

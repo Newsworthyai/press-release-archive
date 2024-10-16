@@ -14,6 +14,9 @@ In a commitment to transparency and community engagement, ONA Community invites 
 
 In conclusion, this new initiative marks a significant milestone for ONA Community. It represents more than just a new program; it embodies a movement dedicated to empowering investors through the integration of technology and education. With a clear vision for the future, ONA Community is poised to lead the charge in transforming how individuals approach investment education and financial management. By combining innovative solutions with comprehensive educational resources, the organization is setting new standards for what it means to be an informed and successful investor in today’s fast-paced financial environment. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/ona-community-emory-callahan-announces-new-initiative-to-transform-investment-education) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/ona-community-emory-callahan-announces-new-initiative-to-transform-investment-education)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1fqrf3y/ona_community_launches_new_initiative_to/

@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/erectile-function-vs-erectile-dysfunction-how-mangorxs-nasdaq-mgrx-product-sets-itself-apart-and-caters-to-a-large-market-pun-intended-661315279 
 
-[Original/Source Press Release](https://newsdirect.com/news/erectile-function-vs-erectile-dysfunction-how-mangorxs-nasdaq-mgrx-product-sets-itself-apart-and-caters-to-a-large-market-pun-intended-661315279) 
+[Original/Source Press Release](https://newsdirect.com/news/erectile-function-vs-erectile-dysfunction-how-mangorxs-nasdaq-mgrx-product-sets-itself-apart-and-caters-to-a-large-market-pun-intended-661315279)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1dzvuiy/mangorx_revolutionizes_mens_health_with/

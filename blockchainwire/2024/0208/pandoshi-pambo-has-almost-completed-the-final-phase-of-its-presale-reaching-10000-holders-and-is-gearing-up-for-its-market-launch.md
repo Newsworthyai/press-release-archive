@@ -24,6 +24,9 @@ Explore the following links for detailed information on Pandoshi (PAMBO):
 
 Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/pandoshi-pambo-has-almost-completed-the-final-phase-of-its-presale-reaching-10000-holders-and-is-gearing-up-for-its-market-launch) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/pandoshi-pambo-has-almost-completed-the-final-phase-of-its-presale-reaching-10000-holders-and-is-gearing-up-for-its-market-launch)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjytm/pandoshi_pambo_prepares_for_public_trading_after/

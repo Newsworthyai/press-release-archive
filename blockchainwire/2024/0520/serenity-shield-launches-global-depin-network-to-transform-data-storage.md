@@ -34,6 +34,9 @@ About Serenity Shield
 
 [Serenity Shield](https://www.serenityshield.io/)is a fully decentralized multi-chain solution dedicated to privacy and security. It empowers individuals and businesses to interact securely and confidently in the digital world by leveraging the power of blockchain to safeguard and protect user data. Serenity Shield offers a unique and innovative way to store sensitive data and document inheritance, ensuring that legacies and digital assets live on for generations. The company’s leading product - the StrongBox® DApp - enables individuals to reclaim control over their data, identity, and digital assets while protecting their loved ones, families, and businesses. Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/serenity-shield-launches-global-depin-network-to-transform-data-storage) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/serenity-shield-launches-global-depin-network-to-transform-data-storage)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cwjeye/serenity_shield_launches_inaugural_decentralized/

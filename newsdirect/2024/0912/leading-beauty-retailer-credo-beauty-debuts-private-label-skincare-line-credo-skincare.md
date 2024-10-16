@@ -54,6 +54,9 @@ press@credobeauty.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/leading-beauty-retailer-credo-beauty-debuts-private-label-skincare-line-credo-skincare-195024280 
 
-[Original/Source Press Release](https://newsdirect.com/news/leading-beauty-retailer-credo-beauty-debuts-private-label-skincare-line-credo-skincare-195024280) 
+[Original/Source Press Release](https://newsdirect.com/news/leading-beauty-retailer-credo-beauty-debuts-private-label-skincare-line-credo-skincare-195024280)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1ff143p/credo_beauty_introduces_new_clean_skincare_line/

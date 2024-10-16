@@ -45,6 +45,9 @@ About WEMIX Blockchain Mega-Ecosystem
 
 The WEMIX blockchain mega-ecosystem features innovative services including WEMIX, the native coin and bridge that connects all components of the WEMIX mega-ecosystem; WEMIX$, the native fully collateralized stablecoin for the WEMIX3.0 blockchain; WEMIX PLAY, the world's biggest blockchain gaming platform; NILE (NFT Is Life Evolution), a DAO & NFT platform based on the WEMIX3.0 mainnet; WEMIX.Fi, the official Decentralized Finance (DeFi) platform providing exchange, deposit, asset management, and investment services; Kurrency, a decentralized financial service designed to offer greater ease-of-use, transparency and reliability; the “KLEVA” omni Trans-Chain DeFi protocol, decentralized exchanges and other DeFi services on multi-chains. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/wemix-launches-una-wallet-to-enable-safest-and-most-convenient-digital-asset-management-across-blockchains) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/wemix-launches-una-wallet-to-enable-safest-and-most-convenient-digital-asset-management-across-blockchains)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avdrx9/wemix_foundation_launches_una_wallet_for_seamless/

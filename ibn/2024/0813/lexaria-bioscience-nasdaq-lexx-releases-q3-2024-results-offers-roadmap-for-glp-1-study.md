@@ -27,6 +27,9 @@
 
  CBDWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-bioscience-nasdaq-lexx-releases-q3-2024-results-offers-roadmap-for-glp-1-study/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-bioscience-nasdaq-lexx-releases-q3-2024-results-offers-roadmap-for-glp-1-study/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1f2gg4i/lexaria_bioscience_nasdaq_lexx_releases_q3_2024/

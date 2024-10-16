@@ -70,6 +70,9 @@ As a leading global platform for cryptocurrency and blockchain technology, Coins
 
 Coinstore Social MediaTwitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Telegram Announcement 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bethel-platform---hack-proof-blockchain-based-secure-decentralised-file-storage-with-zkp-zero-knowledge-proofs) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bethel-platform---hack-proof-blockchain-based-secure-decentralised-file-storage-with-zkp-zero-knowledge-proofs)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvgqve/bethel_platform_introduces_stateoftheart/

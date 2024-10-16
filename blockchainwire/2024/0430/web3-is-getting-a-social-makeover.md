@@ -19,6 +19,9 @@ So.Social is pleased to invite all builders and users to come together and creat
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/web3-is-getting-a-social-makeover) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/web3-is-getting-a-social-makeover)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cgs5ln/sosocial_releases_groundbreaking_web3_social/

@@ -35,6 +35,9 @@ Website | Twitter | Medium | Discord | Developer Portal | Github
 
 For all information about this release, please contact anna.ivanova@eakdigital.com. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/metacannes-2024-by-theta-network-and-the-squad-delivered-ai-and-tech-forward-experiences-to-attendees-and-participants) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/metacannes-2024-by-theta-network-and-the-squad-delivered-ai-and-tech-forward-experiences-to-attendees-and-participants)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvm9xq/metacannes_film3_festival_a_groundbreaking/

@@ -52,6 +52,9 @@ Online Store: www.maxgenomicproducts.com
 
 Corporate Website: www.pharmagreen.ca 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/pharmagreen-biotech-inc-phbi-announces-exciting-revenue-potential-for-its-project-7076187) 
+[Original/Source Press Release](https://www.newmediawire.com/news/pharmagreen-biotech-inc-phbi-announces-exciting-revenue-potential-for-its-project-7076187)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1g0izii/pharmagreen_biotech_inc_unveils_promising_revenue/

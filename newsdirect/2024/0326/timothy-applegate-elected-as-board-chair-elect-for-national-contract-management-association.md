@@ -30,6 +30,9 @@ Company Websitehttps://www.ncmahq.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/timothy-applegate-elected-as-board-chair-elect-for-national-contract-management-association-625233065 
 
-[Original/Source Press Release](https://newsdirect.com/news/timothy-applegate-elected-as-board-chair-elect-for-national-contract-management-association-625233065) 
+[Original/Source Press Release](https://newsdirect.com/news/timothy-applegate-elected-as-board-chair-elect-for-national-contract-management-association-625233065)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bolilm/timothy_applegate_appointed_as_ncma_board/

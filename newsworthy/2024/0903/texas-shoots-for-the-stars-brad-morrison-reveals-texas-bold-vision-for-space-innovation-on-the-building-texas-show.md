@@ -18,6 +18,9 @@ The Building Texas Show is a premier platform dedicated to showcasing the dynami
 
 For more information, visit The Building Texas Show Website 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409031239/texas-shoots-for-the-stars-inside-the-states-new-space-commission-explore-texas-bold-new-venture-into-space-through-the-lens-of-the-texas-spac) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409031239/texas-shoots-for-the-stars-inside-the-states-new-space-commission-explore-texas-bold-new-venture-into-space-through-the-lens-of-the-texas-spac)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f80k3n/texas_space_commissions_brad_morrison_discusses/

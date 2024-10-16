@@ -26,6 +26,9 @@ So far, Tanuki has successfully passed an audit with SolidProof, one of the indu
 
 You can learn more about Tanuki at these links: Website | X (Twitter) | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/tanuki-announces-cheeky-memecoin-launchpad-on-solana-and-live-token-presale) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/tanuki-announces-cheeky-memecoin-launchpad-on-solana-and-live-token-presale)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1byxl11/tanuki_launches_on_solana_with_tanupad_token/

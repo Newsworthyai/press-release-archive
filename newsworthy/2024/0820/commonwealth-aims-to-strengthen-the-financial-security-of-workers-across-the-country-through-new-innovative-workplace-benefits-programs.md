@@ -24,6 +24,9 @@ About Commonwealth
 
 Commonwealth is a national nonprofit building financial security and opportunity for financially vulnerable people through innovation and partnerships. Black, Latinx, and women-led households disproportionately experience financial insecurity due in large part to longstanding, systemic racism and gender discrimination. Addressing these issues is critical to Commonwealth’s work of making wealth possible for all. For nearly two decades, Commonwealth has designed effective innovations, products, and policies enabling over 2 million people to save nearly $8 billion. Commonwealth understands that broad changes require market players to act. That’s why we collaborate with consumers, the financial services industry, employers, policymakers, and mission-driven organizations. The solutions we build are grounded in real life, based on our deep understanding of people who are financially vulnerable and how businesses can best serve them. To learn more, visit us at www.buildcommonwealth.org. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202408201242/commonwealth-aims-to-strengthen-the-financial-security-of-workers-across-the-country-through-new-innovative-workplace-benefits-programs) 
+[Original/Source Press Release](https://newsworthy.ai/news/202408201242/commonwealth-aims-to-strengthen-the-financial-security-of-workers-across-the-country-through-new-innovative-workplace-benefits-programs)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ewv9an/commonwealth_and_jpmorganchase_launch_initiative/

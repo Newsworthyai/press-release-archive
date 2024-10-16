@@ -97,6 +97,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/us-china-legal-experts-jiangsu-junjin-law-firm-celebrates-their-tenth-chinese-client-successfully-listing-on-the-us-stock-market-891686908 
 
-[Original/Source Press Release](https://newsdirect.com/news/us-china-legal-experts-jiangsu-junjin-law-firm-celebrates-their-tenth-chinese-client-successfully-listing-on-the-us-stock-market-891686908) 
+[Original/Source Press Release](https://newsdirect.com/news/us-china-legal-experts-jiangsu-junjin-law-firm-celebrates-their-tenth-chinese-client-successfully-listing-on-the-us-stock-market-891686908)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dqiorm/jiangsu_junjin_law_firm_leads_the_charge_in/

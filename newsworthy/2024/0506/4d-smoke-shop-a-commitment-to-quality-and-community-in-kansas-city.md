@@ -16,6 +16,9 @@ For those looking to enhance their lifestyle with quality accessories, 4D Smoke 
 
 For more information about 4D Smoke Shop and its offerings, please visit the shop at https://4dsmokeandvapeshopkc.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202405061158/leaf-life-smoke-shop-serving-portland-oregon-with-dedication-and-excellence) 
+[Original/Source Press Release](https://newsworthy.ai/news/202405061158/leaf-life-smoke-shop-serving-portland-oregon-with-dedication-and-excellence)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1clvbf9/4d_smoke_shop_quality_consumables_and_accessories/

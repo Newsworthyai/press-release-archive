@@ -14,6 +14,9 @@ Dr. Sarah Adams, a passionate advocate for ketamine therapy, relays her exciteme
 
 With an ever-growing body of evidence showcasing the therapeutic potential of ketamine, healthcare professionals are optimistic about the impact it will have on the lives of those suffering from depression, PTSD, and suicidal ideation. As further research and advancements pave the way for a brighter future, the possibilities for improved mental health outcomes are infinite. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231223939/promising-results-of-ketamine-therapy-for-depression-ptsd-and-suicidal-ideation-unveiled) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231223939/promising-results-of-ketamine-therapy-for-depression-ptsd-and-suicidal-ideation-unveiled)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avcw34/ketamine_therapy_revolutionizes_treatment_for/

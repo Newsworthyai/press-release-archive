@@ -10,6 +10,9 @@ Early studies on KAP showcase promising outcomes, as a substantial number of pat
 
 In addition to Ketamine-Assisted Psychotherapy, Soul Psychedelic Systems offers a range of ketamine treatments for various conditions, including fibromyalgia, neurological pain, addiction, and more. With their holistic approach and unwavering commitment to patient well-being, they have emerged as a trusted destination for individuals seeking effective treatment options. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401261034/soul-psychedelic-systems-introduces-ketamine-assisted-psychotherapy-to-provide-revolutionary-mental-health-treatment) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401261034/soul-psychedelic-systems-introduces-ketamine-assisted-psychotherapy-to-provide-revolutionary-mental-health-treatment)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avlfn3/soul_psychedelic_systems_unveils_breakthrough/

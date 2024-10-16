@@ -48,6 +48,9 @@ Company Websitehttps://bfj.digital/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bfj-digital-elevates-ecommerce-with-expert-shopify-website-development-services-931538742 
 
-[Original/Source Press Release](https://newsdirect.com/news/bfj-digital-elevates-ecommerce-with-expert-shopify-website-development-services-931538742) 
+[Original/Source Press Release](https://newsdirect.com/news/bfj-digital-elevates-ecommerce-with-expert-shopify-website-development-services-931538742)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eo4r7h/bfj_digital_elevates_ecommerce_with_expert/

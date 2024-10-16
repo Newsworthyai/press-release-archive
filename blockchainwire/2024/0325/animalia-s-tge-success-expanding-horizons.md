@@ -38,6 +38,9 @@ About Animalia
 
 Animalia is an independent free-to-play NFT trading card game featuring crypto-inspired meme creatures, spells, weapons, and gemstones. The Bulls and Bears serve as the two factions within the Animalia Kingdom. Powered by the ETH & ARB Chain, Animalia gives you complete ownership over the in-game collectibles. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/animalias-tge-success-expanding-horizons) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/animalias-tge-success-expanding-horizons)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1bnm0rc/animalia_accelerates_game_development_and_expands/

@@ -26,6 +26,9 @@ Company Websitehttps://www.rallyventures.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/luke-zaientz-joins-rally-ventures-as-operating-partner-670745874 
 
-[Original/Source Press Release](https://newsdirect.com/news/luke-zaientz-joins-rally-ventures-as-operating-partner-670745874) 
+[Original/Source Press Release](https://newsdirect.com/news/luke-zaientz-joins-rally-ventures-as-operating-partner-670745874)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1elhmjq/rally_ventures_welcomes_luke_zaientz_as_operating/

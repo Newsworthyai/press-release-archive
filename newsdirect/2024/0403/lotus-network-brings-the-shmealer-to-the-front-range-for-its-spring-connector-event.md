@@ -45,6 +45,9 @@ Company Websitehttps://lotusnetwork.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/lotus-network-brings-the-shmealer-to-the-front-range-for-its-spring-connector-event-811636454 
 
-[Original/Source Press Release](https://newsdirect.com/news/lotus-network-brings-the-shmealer-to-the-front-range-for-its-spring-connector-event-811636454) 
+[Original/Source Press Release](https://newsdirect.com/news/lotus-network-brings-the-shmealer-to-the-front-range-for-its-spring-connector-event-811636454)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1butp61/lotus_network_hosts_2024_spring_connector_event/

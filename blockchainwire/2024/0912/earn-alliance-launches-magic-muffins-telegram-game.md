@@ -44,6 +44,9 @@ Connect with Earn Alliance: Website | Twitter | LinkedIn | Discord
 
 Download Earn Alliance App: Google Play Store | Apple Store 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/earn-alliance-launches-magic-muffins-telegram-game) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/earn-alliance-launches-magic-muffins-telegram-game)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ff2cbh/earn_alliance_to_launch_magic_muffins_game_on/

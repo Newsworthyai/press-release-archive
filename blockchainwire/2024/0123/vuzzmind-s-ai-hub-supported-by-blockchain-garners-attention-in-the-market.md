@@ -45,6 +45,9 @@ Email: touch@newscoverage.agency
 
 Telegram: [@Arpita_nca](https://t.me/Arpita_nca) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/vuzzminds-ai-hub-supported-by-blockchain-garners-attention-in-the-market) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/vuzzminds-ai-hub-supported-by-blockchain-garners-attention-in-the-market)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avdtjg/vuzzmind_ai_hub_launches_with_ethical_standards/

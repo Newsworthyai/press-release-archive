@@ -64,6 +64,9 @@ Company Websitehttps://limula.ch/
 
 View source version on newsdirect.com: https://newsdirect.com/news/limula-raises-6-8m-to-democratise-access-to-life-saving-cell-and-gene-therapies-with-swiss-made-manufacturing-platform-241080141 
 
-[Original/Source Press Release](https://newsdirect.com/news/limula-raises-6-8m-to-democratise-access-to-life-saving-cell-and-gene-therapies-with-swiss-made-manufacturing-platform-241080141) 
+[Original/Source Press Release](https://newsdirect.com/news/limula-raises-6-8m-to-democratise-access-to-life-saving-cell-and-gene-therapies-with-swiss-made-manufacturing-platform-241080141)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cx7j1g/limula_raises_68m_to_democratize_access_to/

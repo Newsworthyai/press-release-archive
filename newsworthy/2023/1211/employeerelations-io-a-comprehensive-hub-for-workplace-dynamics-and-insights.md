@@ -18,6 +18,9 @@ EmployeeRelations.io stands at the forefront of fostering healthier, more produc
 
 Navigate the nuances of the modern workplace with www.EmployeeRelations.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231211815/employeerelations-io-a-comprehensive-hub-for-workplace-dynamics-and-insights) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231211815/employeerelations-io-a-comprehensive-hub-for-workplace-dynamics-and-insights)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1avctnj/introducing_employeerelationsio_a_hub_for/

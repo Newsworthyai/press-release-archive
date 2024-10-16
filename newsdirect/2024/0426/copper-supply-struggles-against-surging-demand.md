@@ -80,6 +80,9 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/copper-supply-struggles-against-surging-demand-729512517 
 
-[Original/Source Press Release](https://newsdirect.com/news/copper-supply-struggles-against-surging-demand-729512517) 
+[Original/Source Press Release](https://newsdirect.com/news/copper-supply-struggles-against-surging-demand-729512517)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cdlp43/copper_demand_surges_abitibi_metals_expands/

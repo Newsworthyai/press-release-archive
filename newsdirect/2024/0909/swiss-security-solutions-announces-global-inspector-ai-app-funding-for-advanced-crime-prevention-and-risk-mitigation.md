@@ -40,6 +40,9 @@ Company Websitehttps://www.swiss-security-solutions.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/swiss-security-solutions-announces-global-inspector-ai-app-funding-for-advanced-crime-prevention-and-risk-mitigation-914639575 
 
-[Original/Source Press Release](https://newsdirect.com/news/swiss-security-solutions-announces-global-inspector-ai-app-funding-for-advanced-crime-prevention-and-risk-mitigation-914639575) 
+[Original/Source Press Release](https://newsdirect.com/news/swiss-security-solutions-announces-global-inspector-ai-app-funding-for-advanced-crime-prevention-and-risk-mitigation-914639575)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fcs8tp/swiss_security_solutions_launches_global/

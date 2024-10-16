@@ -34,6 +34,9 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-wallet-deepens-ties-with-pendle-launches-bwb-points-airdrop-for-pendle-users-482129871 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitget-wallet-deepens-ties-with-pendle-launches-bwb-points-airdrop-for-pendle-users-482129871) 
+[Original/Source Press Release](https://newsdirect.com/news/bitget-wallet-deepens-ties-with-pendle-launches-bwb-points-airdrop-for-pendle-users-482129871)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bzo8fd/bitget_wallet_launches_bwb_points_airdrop/

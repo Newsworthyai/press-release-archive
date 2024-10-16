@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/promising-developments-from-okyo-pharma-on-dry-eye-disease-and-neuropathic-pain-treatment-588182175 
 
-[Original/Source Press Release](https://newsdirect.com/news/promising-developments-from-okyo-pharma-on-dry-eye-disease-and-neuropathic-pain-treatment-588182175) 
+[Original/Source Press Release](https://newsdirect.com/news/promising-developments-from-okyo-pharma-on-dry-eye-disease-and-neuropathic-pain-treatment-588182175)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dp0d7m/okyo_pharma_ceo_shares_promising_findings_on_dry/

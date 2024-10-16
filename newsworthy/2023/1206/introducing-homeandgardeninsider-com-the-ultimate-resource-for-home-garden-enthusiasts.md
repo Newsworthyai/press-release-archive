@@ -18,6 +18,9 @@ HomeAndGardenInsider.com is a beacon for individuals looking to infuse life into
 
 For a comprehensive look at home and garden insights, visit www.HomeAndGardenInsider.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231206824/introducing-homeandgardeninsider-com-the-ultimate-resource-for-home-garden-enthusiasts) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231206824/introducing-homeandgardeninsider-com-the-ultimate-resource-for-home-garden-enthusiasts)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1avx214/introducing_homeandgardeninsidercom_your_ultimate/

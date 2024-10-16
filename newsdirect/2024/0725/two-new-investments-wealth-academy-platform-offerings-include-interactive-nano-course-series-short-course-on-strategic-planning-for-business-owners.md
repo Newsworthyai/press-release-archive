@@ -67,6 +67,9 @@ Company Websitehttps://investmentsandwealth.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/two-new-investments-and-wealth-academy-platform-offerings-include-interactive-nano-course-series-short-course-on-strategic-planning-for-business-owners-249484525 
 
-[Original/Source Press Release](https://newsdirect.com/news/two-new-investments-and-wealth-academy-platform-offerings-include-interactive-nano-course-series-short-course-on-strategic-planning-for-business-owners-249484525) 
+[Original/Source Press Release](https://newsdirect.com/news/two-new-investments-and-wealth-academy-platform-offerings-include-interactive-nano-course-series-short-course-on-strategic-planning-for-business-owners-249484525)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1ecgud0/investments_wealth_institute_launches_two_new/

@@ -38,6 +38,9 @@ Company Websitehttp://www.nlpc.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/shareholder-warns-maker-of-oreo-that-they-are-endangering-their-brand-811797969 
 
-[Original/Source Press Release](https://newsdirect.com/news/shareholder-warns-maker-of-oreo-that-they-are-endangering-their-brand-811797969) 
+[Original/Source Press Release](https://newsdirect.com/news/shareholder-warns-maker-of-oreo-that-they-are-endangering-their-brand-811797969)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1ctdyh1/nlpc_urges_mondelez_to_reconsider_disturbing/

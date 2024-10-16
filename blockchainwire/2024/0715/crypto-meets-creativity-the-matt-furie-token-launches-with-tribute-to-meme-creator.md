@@ -40,6 +40,9 @@ Disclaimer:
 
 This press release may contain forward-looking statements. Forward-looking statements describe future expectations, plans, results, or strategies (including product offerings, regulatory plans and business plans) and may change without notice. You are cautioned that such statements are subject to a multitude of risks and uncertainties that could cause future circumstances, events, or results to differ materially from those projected in the forward-looking statements, including the risks that actual results may differ materially from those projected in the forward-looking statements. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/crypto-meets-creativity-the-matt-furie-token-launches-with-tribute-to-meme-creator) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/crypto-meets-creativity-the-matt-furie-token-launches-with-tribute-to-meme-creator)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1e6je0q/the_matt_furie_token_a_revolution_in/

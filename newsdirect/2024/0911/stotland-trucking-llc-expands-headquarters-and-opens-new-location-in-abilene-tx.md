@@ -36,6 +36,9 @@ Company Websitehttp://www.aprubrands.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/stotland-trucking-llc-expands-headquarters-and-opens-new-location-in-abilene-tx-956870190 
 
-[Original/Source Press Release](https://newsdirect.com/news/stotland-trucking-llc-expands-headquarters-and-opens-new-location-in-abilene-tx-956870190) 
+[Original/Source Press Release](https://newsdirect.com/news/stotland-trucking-llc-expands-headquarters-and-opens-new-location-in-abilene-tx-956870190)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1fe7eox/stotland_trucking_llc_expands_headquarters_and/

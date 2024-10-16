@@ -24,6 +24,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/rezolve-targets-nasdaq-listing-as-it-pioneers-ai-for-commerce-and-engagement-795866126 
 
-[Original/Source Press Release](https://newsdirect.com/news/rezolve-targets-nasdaq-listing-as-it-pioneers-ai-for-commerce-and-engagement-795866126) 
+[Original/Source Press Release](https://newsdirect.com/news/rezolve-targets-nasdaq-listing-as-it-pioneers-ai-for-commerce-and-engagement-795866126)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bz0ook/rezolve_targets_nasdaq_listing_as_it_pioneers_ai/

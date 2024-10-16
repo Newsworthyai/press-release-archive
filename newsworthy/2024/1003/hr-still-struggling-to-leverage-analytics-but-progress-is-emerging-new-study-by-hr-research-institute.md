@@ -26,6 +26,9 @@ Become a part of HR.com’s HR Research Influencer Panel today. Participate in s
 
 info@hr.comHR.com Newsroom 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202410031301/hr-still-struggling-to-leverage-analytics-but-progress-is-emerging-new-study-by-hr-research-institute) 
+[Original/Source Press Release](https://newsworthy.ai/news/202410031301/hr-still-struggling-to-leverage-analytics-but-progress-is-emerging-new-study-by-hr-research-institute)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1fv8qs6/organizations_struggle_with_people_analytics/

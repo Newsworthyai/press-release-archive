@@ -32,6 +32,9 @@ About RChilli
 
 Make your recruitment process future-ready with RChilli’s AI-powered solutions. By automating data-intensive tasks and refining decision-making, RChilli empowers your HR team to focus on what truly matters—hiring the right talent faster and positioning your organization as an industry leader. Since 2010, RChilli has been enabling companies to hire better talent faster. It is ISO 27001:2022, SOC 2 Type II, HIPAA certified, and GDPR compliant. RChilli's multilingual resume parsing app is available on Oracle Cloud Marketplace and Salesforce AppExchange, ensuring global reach and accessibility. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409161266/rchilli-to-transform-hiring-strategies-with-ai-powered-solutions-at-hr-tech-2024) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409161266/rchilli-to-transform-hiring-strategies-with-ai-powered-solutions-at-hr-tech-2024)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1fiautm/rchilli_to_showcase_aipowered_recruitment/

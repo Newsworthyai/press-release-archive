@@ -62,6 +62,9 @@ About High Level Health Weed Dispensary
 
 High Level Health Weed Dispensary, established in 2023, is a leading name in Denver's cannabis community, providing premium products and exceptional service. With a focus on quality, customer satisfaction, and community engagement, High Level Health continues to be a beacon of excellence in the ever-evolving cannabis landscape. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402081052/high-level-health-market-st-elevating-denver-s-weed-experience-with-quality-products-and-services_1) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402081052/high-level-health-market-st-elevating-denver-s-weed-experience-with-quality-products-and-services_1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1avc9z5/high_level_health_dispensary_in_denver_continues/

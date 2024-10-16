@@ -18,6 +18,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cloud-dx-seeing-customer-loyalty-with-2-ontario-community-paramedic-service-contract-renewals-328277570 
 
-[Original/Source Press Release](https://newsdirect.com/news/cloud-dx-seeing-customer-loyalty-with-2-ontario-community-paramedic-service-contract-renewals-328277570) 
+[Original/Source Press Release](https://newsdirect.com/news/cloud-dx-seeing-customer-loyalty-with-2-ontario-community-paramedic-service-contract-renewals-328277570)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cbb9h7/cloud_dx_renews_agreements_with_ontario_paramedic/

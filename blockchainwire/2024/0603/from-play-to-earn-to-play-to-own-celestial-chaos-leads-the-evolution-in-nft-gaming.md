@@ -28,6 +28,9 @@ Discord: discord.gg/celeschaos
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/from-play-to-earn-to-play-to-own-celestial-chaos-leads-the-evolution-in-nft-gaming-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/from-play-to-earn-to-play-to-own-celestial-chaos-leads-the-evolution-in-nft-gaming-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fvh5vk/celestial_chaos_a_revolution_in_nft_gaming/

@@ -62,6 +62,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pioneering-education-with-ai-driven-edtech-firm-amesite-nasdaq-amst-insights-from-ceo-dr-ann-marie-sastry-641309743 
 
-[Original/Source Press Release](https://newsdirect.com/news/pioneering-education-with-ai-driven-edtech-firm-amesite-nasdaq-amst-insights-from-ceo-dr-ann-marie-sastry-641309743) 
+[Original/Source Press Release](https://newsdirect.com/news/pioneering-education-with-ai-driven-edtech-firm-amesite-nasdaq-amst-insights-from-ceo-dr-ann-marie-sastry-641309743)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cu48ky/amesite_ceo_discusses_aidriven_edtech_firms/

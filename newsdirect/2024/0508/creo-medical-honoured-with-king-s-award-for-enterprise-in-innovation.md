@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/creo-medical-honoured-with-kings-award-for-enterprise-in-innovation-997307048 
 
-[Original/Source Press Release](https://newsdirect.com/news/creo-medical-honoured-with-kings-award-for-enterprise-in-innovation-997307048) 
+[Original/Source Press Release](https://newsdirect.com/news/creo-medical-honoured-with-kings-award-for-enterprise-in-innovation-997307048)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1cn2w4x/creo_medical_receives_kings_award_for_innovation/

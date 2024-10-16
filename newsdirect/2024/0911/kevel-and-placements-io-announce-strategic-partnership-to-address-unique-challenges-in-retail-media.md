@@ -50,6 +50,9 @@ lindseyb@placements.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/kevel-and-placements-io-announce-strategic-partnership-to-address-unique-challenges-in-retail-media-584367142 
 
-[Original/Source Press Release](https://newsdirect.com/news/kevel-and-placements-io-announce-strategic-partnership-to-address-unique-challenges-in-retail-media-584367142) 
+[Original/Source Press Release](https://newsdirect.com/news/kevel-and-placements-io-announce-strategic-partnership-to-address-unique-challenges-in-retail-media-584367142)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1fe9uuq/kevel_and_placementsio_announce_strategic/

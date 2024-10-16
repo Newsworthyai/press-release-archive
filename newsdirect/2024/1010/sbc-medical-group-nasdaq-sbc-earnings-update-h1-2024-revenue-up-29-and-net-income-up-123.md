@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sbc-medical-group-nasdaq-sbc-earnings-update-h1-2024-revenue-up-29-and-net-income-up-123-285412718 
 
-[Original/Source Press Release](https://newsdirect.com/news/sbc-medical-group-nasdaq-sbc-earnings-update-h1-2024-revenue-up-29-and-net-income-up-123-285412718) 
+[Original/Source Press Release](https://newsdirect.com/news/sbc-medical-group-nasdaq-sbc-earnings-update-h1-2024-revenue-up-29-and-net-income-up-123-285412718)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1g0hwdj/sbc_medical_group_nasdaq_sbc_marks_key_moment_in/

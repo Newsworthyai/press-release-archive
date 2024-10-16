@@ -44,6 +44,9 @@ SPRIG Consulting
 
 jodi@sprigconsulting.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/aclarion-launches-surgeon-partnership-to-apply-nociscan-s-ai-technology-to-personal-injury-and-workers-compensation-market-7076001) 
+[Original/Source Press Release](https://www.newmediawire.com/news/aclarion-launches-surgeon-partnership-to-apply-nociscan-s-ai-technology-to-personal-injury-and-workers-compensation-market-7076001)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f9ri3y/aclarion_inc_announces_statewide_network_for/

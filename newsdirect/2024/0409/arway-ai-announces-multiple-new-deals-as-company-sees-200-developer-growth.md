@@ -18,6 +18,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/arway-ai-announces-multiple-new-deals-as-company-sees-200-developer-growth-337497724 
 
-[Original/Source Press Release](https://newsdirect.com/news/arway-ai-announces-multiple-new-deals-as-company-sees-200-developer-growth-337497724) 
+[Original/Source Press Release](https://newsdirect.com/news/arway-ai-announces-multiple-new-deals-as-company-sees-200-developer-growth-337497724)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1c0013a/arwayai_sees_200_developer_growth_with_new_saas/

@@ -34,6 +34,9 @@ CoinMarketCap: https://coinmarketcap.com/currencies/metfi2
 
 CoinGecko: https://www.coingecko.com/en/coins/metfiInstagram: https://instagram.com/metfidao 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/59-million-marine-moguls-erc-404-airdrop-closes-in-3-days-launch-imminent) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/59-million-marine-moguls-erc-404-airdrop-closes-in-3-days-launch-imminent)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cx1w9n/marine_moguls_airdrop_closing_massive_bounty/

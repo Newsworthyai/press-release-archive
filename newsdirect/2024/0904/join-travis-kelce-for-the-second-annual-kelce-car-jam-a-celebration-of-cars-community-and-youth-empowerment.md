@@ -30,6 +30,9 @@ Company Websitehttps://87running.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/join-travis-kelce-for-the-second-annual-kelce-car-jam-a-celebration-of-cars-community-and-youth-empowerment-886294455 
 
-[Original/Source Press Release](https://newsdirect.com/news/join-travis-kelce-for-the-second-annual-kelce-car-jam-a-celebration-of-cars-community-and-youth-empowerment-886294455) 
+[Original/Source Press Release](https://newsdirect.com/news/join-travis-kelce-for-the-second-annual-kelce-car-jam-a-celebration-of-cars-community-and-youth-empowerment-886294455)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f9gt2t/join_travis_kelce_for_the_second_annual_kelce_car/

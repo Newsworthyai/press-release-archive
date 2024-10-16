@@ -12,6 +12,9 @@ The first episode of Midwest Murder: True Crime Stories takes viewers back to th
 
 Don't miss the gripping premiere of Midwest Murder: True Crime Stories. Learn more on BEK Buzz. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20240119999/bek-tv-unmasks-the-heartlands-darkest-secrets-in-new-show-midwest-murder-true-crime-stories-debuts-january-21) 
+[Original/Source Press Release](https://newsworthy.ai/news/20240119999/bek-tv-unmasks-the-heartlands-darkest-secrets-in-new-show-midwest-murder-true-crime-stories-debuts-january-21)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1avxpr7/bek_tv_launches_new_true_crime_show_midwest_murder/

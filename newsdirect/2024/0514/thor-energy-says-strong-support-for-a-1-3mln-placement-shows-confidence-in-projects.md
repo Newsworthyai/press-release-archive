@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/thor-energy-says-strong-support-for-a-1-3mln-placement-shows-confidence-in-projects-759156150 
 
-[Original/Source Press Release](https://newsdirect.com/news/thor-energy-says-strong-support-for-a-1-3mln-placement-shows-confidence-in-projects-759156150) 
+[Original/Source Press Release](https://newsdirect.com/news/thor-energy-says-strong-support-for-a-1-3mln-placement-shows-confidence-in-projects-759156150)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1crtote/thor_energy_plc_secures_a13_million_for_uranium/

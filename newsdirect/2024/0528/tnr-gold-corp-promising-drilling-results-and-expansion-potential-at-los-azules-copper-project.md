@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tnr-gold-corp-promising-drilling-results-and-expansion-potential-at-los-azules-copper-project-846474418 
 
-[Original/Source Press Release](https://newsdirect.com/news/tnr-gold-corp-promising-drilling-results-and-expansion-potential-at-los-azules-copper-project-846474418) 
+[Original/Source Press Release](https://newsdirect.com/news/tnr-gold-corp-promising-drilling-results-and-expansion-potential-at-los-azules-copper-project-846474418)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d2mim0/tnr_gold_corp_promising_drilling_results_and/

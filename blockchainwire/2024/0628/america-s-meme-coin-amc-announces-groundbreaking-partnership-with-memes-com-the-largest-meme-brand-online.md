@@ -65,6 +65,9 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/americas-meme-coin-amc-announces-groundbreaking-partnership-with-memescom-the-largest-meme-brand-online) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/americas-meme-coin-amc-announces-groundbreaking-partnership-with-memescom-the-largest-meme-brand-online)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dqt8zu/americas_meme_coin_announces_partnership_with/

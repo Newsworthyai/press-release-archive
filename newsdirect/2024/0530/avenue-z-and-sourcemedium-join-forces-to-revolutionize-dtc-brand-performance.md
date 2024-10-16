@@ -42,6 +42,9 @@ Company Websitehttps://www.avenuez.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/avenue-z-and-sourcemedium-join-forces-to-revolutionize-dtc-brand-performance-808586251 
 
-[Original/Source Press Release](https://newsdirect.com/news/avenue-z-and-sourcemedium-join-forces-to-revolutionize-dtc-brand-performance-808586251) 
+[Original/Source Press Release](https://newsdirect.com/news/avenue-z-and-sourcemedium-join-forces-to-revolutionize-dtc-brand-performance-808586251)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1d44z9v/avenue_z_and_sourcemedium_revolutionize_dtc_brand/

@@ -38,6 +38,9 @@ Company Websitehttps://www.diamondexterminators.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/mosquito-control-urgent-as-virginia-faces-worst-season-diamond-exterminators-provides-relief-397753130 
 
-[Original/Source Press Release](https://newsdirect.com/news/mosquito-control-urgent-as-virginia-faces-worst-season-diamond-exterminators-provides-relief-397753130) 
+[Original/Source Press Release](https://newsdirect.com/news/mosquito-control-urgent-as-virginia-faces-worst-season-diamond-exterminators-provides-relief-397753130)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e1pleh/mosquito_control_urgent_as_virginia_faces_worst/

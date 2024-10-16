@@ -22,6 +22,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fusion-antibodies-reports-second-half-rebound-as-new-commercial-strategy-pays-off-891900748 
 
-[Original/Source Press Release](https://newsdirect.com/news/fusion-antibodies-reports-second-half-rebound-as-new-commercial-strategy-pays-off-891900748) 
+[Original/Source Press Release](https://newsdirect.com/news/fusion-antibodies-reports-second-half-rebound-as-new-commercial-strategy-pays-off-891900748)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cnudec/fusion_antibodies_reports_secondhalf_rebound_and/

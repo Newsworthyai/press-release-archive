@@ -20,6 +20,9 @@ Looking to the future, PACKS Weed Dispensary is dedicated to upholding its high 
 
 For more information about PACKS Weed Dispensary Orange County and their diverse product offerings, please visit https://packsclub.com/. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231128899/packs-weed-dispensary-orange-county-marks-a-new-era-in-cannabis-retail) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231128899/packs-weed-dispensary-orange-county-marks-a-new-era-in-cannabis-retail)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1avcsi0/packs_weed_dispensary_in_orange_county_elevating/

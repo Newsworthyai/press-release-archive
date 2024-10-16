@@ -26,6 +26,9 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”), a leader in quantum computing 
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lawmakers-support-d-wave-nyse-qbts-davidson-partnership-for-defense-efforts/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lawmakers-support-d-wave-nyse-qbts-davidson-partnership-for-defense-efforts/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2fnhf/dwave_and_davidson_receive_strong_support_for/

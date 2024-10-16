@@ -30,6 +30,9 @@ Call to ActionPlusTraders invites traders of all levels to experience the differ
 
 About PlusTradersPlusTraders is a leading crypto trading platform dedicated to providing traders with innovative tools, educational resources, and cutting-edge technology to succeed in the digital asset space. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/innovation-in-crypto-how-plustraders-highlight-advanced-technology-benefiting-traders) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/innovation-in-crypto-how-plustraders-highlight-advanced-technology-benefiting-traders)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fzy3ae/plustraders_unveils_aipowered_tools_for_smarter/

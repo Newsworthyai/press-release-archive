@@ -28,6 +28,9 @@ press@bittorrent.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bttc-acclaimed-by-cointelegraph-and-cryptorank-for-ecosystem-innovation-896496635 
 
-[Original/Source Press Release](https://newsdirect.com/news/bttc-acclaimed-by-cointelegraph-and-cryptorank-for-ecosystem-innovation-896496635) 
+[Original/Source Press Release](https://newsdirect.com/news/bttc-acclaimed-by-cointelegraph-and-cryptorank-for-ecosystem-innovation-896496635)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvdd86/bittorrent_chain_bttc_innovations_highlighted_by/

@@ -16,6 +16,9 @@ About Minny Grown:
 
 Minny Grown commits to the cannabis cause with a clear, local-first philosophy. By advocating for the restorative potential of the cannabis plant, Minny Grown aims to spearhead positive, lasting change in communities, championing a future that values natural, healthy, and sustainable living through cannabis advocacy and innovation. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202404161138/social-equity-brand-40-tons-introduces-first-direct-to-consumer-thc-edible-in-partnership-with-minny-grown-enters-minnesotas-legal-market) 
+[Original/Source Press Release](https://newsworthy.ai/news/202404161138/social-equity-brand-40-tons-introduces-first-direct-to-consumer-thc-edible-in-partnership-with-minny-grown-enters-minnesotas-legal-market)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1c5fu9u/40_tons_and_minny_grown_collaborate_to_launch_thc/

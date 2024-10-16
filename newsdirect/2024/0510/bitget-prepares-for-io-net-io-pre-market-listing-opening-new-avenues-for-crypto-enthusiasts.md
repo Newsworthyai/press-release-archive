@@ -28,6 +28,9 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-prepares-for-io-net-io-pre-market-listing-opening-new-avenues-for-crypto-enthusiasts-449581644 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitget-prepares-for-io-net-io-pre-market-listing-opening-new-avenues-for-crypto-enthusiasts-449581644) 
+[Original/Source Press Release](https://newsdirect.com/news/bitget-prepares-for-io-net-io-pre-market-listing-opening-new-avenues-for-crypto-enthusiasts-449581644)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cos79w/bitget_prepares_for_io_net_io_premarket_listing/

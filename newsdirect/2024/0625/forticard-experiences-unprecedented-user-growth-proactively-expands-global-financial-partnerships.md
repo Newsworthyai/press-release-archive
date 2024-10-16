@@ -34,6 +34,9 @@ Company Websitehttps://forti-card.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/forticard-experiences-unprecedented-user-growth-proactively-expands-global-financial-partnerships-589926248 
 
-[Original/Source Press Release](https://newsdirect.com/news/forticard-experiences-unprecedented-user-growth-proactively-expands-global-financial-partnerships-589926248) 
+[Original/Source Press Release](https://newsdirect.com/news/forticard-experiences-unprecedented-user-growth-proactively-expands-global-financial-partnerships-589926248)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1do6u8d/forticard_experiences_unprecedented_user_growth/

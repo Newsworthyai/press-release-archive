@@ -30,6 +30,9 @@ With this launch, Churro wants to inject unprecedented levels of liquidity into 
 
 X (Twitter) | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/churro-announces-launch-on-solana-with-upcoming-exclusive-utilities) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/churro-announces-launch-on-solana-with-upcoming-exclusive-utilities)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjwk5/a_new_era_of_decentralized_finance_churro_debuts/

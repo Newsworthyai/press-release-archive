@@ -42,6 +42,9 @@ IR@icoreconnect.com
 
 888.810.7706, ext 5 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/delaware-state-dental-society-endorses-five-icoreconnect-products-7076170) 
+[Original/Source Press Release](https://www.newmediawire.com/news/delaware-state-dental-society-endorses-five-icoreconnect-products-7076170)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fzt1dc/icoreconnect_inc_announces_new_endorsement/

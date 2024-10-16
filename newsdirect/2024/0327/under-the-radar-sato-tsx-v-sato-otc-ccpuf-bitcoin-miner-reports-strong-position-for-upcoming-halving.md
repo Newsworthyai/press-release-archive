@@ -40,6 +40,9 @@ Company Websitehttps://www.bysato.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/under-the-radar-sato-tsx-v-sato-otc-ccpuf-bitcoin-miner-reports-strong-position-for-upcoming-halving-763901391 
 
-[Original/Source Press Release](https://newsdirect.com/news/under-the-radar-sato-tsx-v-sato-otc-ccpuf-bitcoin-miner-reports-strong-position-for-upcoming-halving-763901391) 
+[Original/Source Press Release](https://newsdirect.com/news/under-the-radar-sato-tsx-v-sato-otc-ccpuf-bitcoin-miner-reports-strong-position-for-upcoming-halving-763901391)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bp1wyg/sato_technologies_undiscovered_gem_in_bitcoin/

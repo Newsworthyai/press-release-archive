@@ -36,6 +36,9 @@ CAVE CREEK, Ariz. - (NewMediaWire) - October 03, 2024 - Endexx Corporation (OTC
 
  Partnership Opportunities To learn more about becoming a distribution partner with HYLA, visit https://www.hyladistribution.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/endexx-corporation-announces-the-appointment-of-doug-williams-cpa-as-fractional-cfo-and-outlines-financial-roadmap-7076151) 
+[Original/Source Press Release](https://www.newmediawire.com/news/endexx-corporation-announces-the-appointment-of-doug-williams-cpa-as-fractional-cfo-and-outlines-financial-roadmap-7076151)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Leadership_Management/comments/1fx6i2g/endexx_corporation_appoints_doug_williams_cpa_as/

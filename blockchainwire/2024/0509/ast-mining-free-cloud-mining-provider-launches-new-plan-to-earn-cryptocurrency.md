@@ -80,6 +80,9 @@ Crypto's booming, and cloud mining lets you earn it passively. In 2024, AST Mini
 
 For additional information on AST Mining, please visit their website at: https://astmining.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/ast-mining-free-cloud-mining-provider-launches-new-plan-to-earn-cryptocurrency) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/ast-mining-free-cloud-mining-provider-launches-new-plan-to-earn-cryptocurrency)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cnzp6q/earn_passive_income_with_ast_minings_crypto_cloud/

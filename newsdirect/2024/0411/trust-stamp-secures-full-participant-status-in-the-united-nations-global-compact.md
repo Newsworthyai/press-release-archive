@@ -20,6 +20,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/trust-stamp-secures-full-participant-status-in-the-united-nations-global-compact-370983630 
 
-[Original/Source Press Release](https://newsdirect.com/news/trust-stamp-secures-full-participant-status-in-the-united-nations-global-compact-370983630) 
+[Original/Source Press Release](https://newsdirect.com/news/trust-stamp-secures-full-participant-status-in-the-united-nations-global-compact-370983630)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1c1p9ri/trust_stamp_recognized_as_full_participant_in_un/

@@ -6,6 +6,9 @@ It is a portfolio with an outstanding identity mainly in the Ai, Finance, RWA, a
 
 FZF Ventures has secured a blockchain and ecosystem through an investment of 12M, and aims to grow into an NFT securitization 404 project based on this ecosystem.The NFT securitization 404 project is a global first project and is receiving a lot of attention from various institutions and investees.FZF officials stated that ecosystem revitalization and securitization work are very useful because most of the portfolios already invested by FZF Ventures are listed projects.The portfolio invested by FZF Ventures is as follows:Label Ai, Avalanche, Casper, DVISION, Smart Valor, Assemble Ai, CreBit(Ai), PHR(RWA), Climate101, Kita, ArtrixOfficial Website: [https://www.fzf-ventures.com](https://www.fzf-ventures.com)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/fzf-ventures-has-the-mission-to-lead-innovation-in-nft-and-blockchain-technology-through-different-ways) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/fzf-ventures-has-the-mission-to-lead-innovation-in-nft-and-blockchain-technology-through-different-ways)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1do469t/fzf_ventures_forms_crypto_fund_invests_12m_in_10/

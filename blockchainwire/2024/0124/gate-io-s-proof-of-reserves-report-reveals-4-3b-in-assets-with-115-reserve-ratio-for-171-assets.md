@@ -30,6 +30,9 @@ Established in 2013, Gate.io is one of the world’s earliest cryptocurrency e
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/gateios-proof-of-reserves-report-reveals-43b-in-assets-with-115-reserve-ratio-for-171-assets) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/gateios-proof-of-reserves-report-reveals-43b-in-assets-with-115-reserve-ratio-for-171-assets)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjsov/gateio_releases_january_2024_proof_of_reserves/

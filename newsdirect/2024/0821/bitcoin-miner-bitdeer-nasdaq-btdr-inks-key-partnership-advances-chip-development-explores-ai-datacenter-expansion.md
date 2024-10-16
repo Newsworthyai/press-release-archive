@@ -52,6 +52,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitcoin-miner-bitdeer-nasdaq-btdr-inks-key-partnership-advances-chip-development-explores-ai-datacenter-expansion-542509505 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitcoin-miner-bitdeer-nasdaq-btdr-inks-key-partnership-advances-chip-development-explores-ai-datacenter-expansion-542509505) 
+[Original/Source Press Release](https://newsdirect.com/news/bitcoin-miner-bitdeer-nasdaq-btdr-inks-key-partnership-advances-chip-development-explores-ai-datacenter-expansion-542509505)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1exop89/bitcoin_miner_bitdeer_nasdaq_btdr_inks_key/

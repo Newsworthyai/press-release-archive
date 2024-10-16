@@ -18,6 +18,9 @@ ElectricianBrief.com aspires to be the nexus for electrical understanding and ne
 
 Plug into the world of electrical expertise with www.ElectricianBrief.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231212814/introducing-electricianbrief-com-illuminating-the-electrical-industry-with-expert-insights-and-resources) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231212814/introducing-electricianbrief-com-illuminating-the-electrical-industry-with-expert-insights-and-resources)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1avx3eu/empower_your_electrical_expertise_with/

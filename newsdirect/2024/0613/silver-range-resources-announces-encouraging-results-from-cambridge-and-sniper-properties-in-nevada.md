@@ -18,6 +18,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/silver-range-resources-announces-encouraging-results-from-cambridge-and-sniper-properties-in-nevada-210425703 
 
-[Original/Source Press Release](https://newsdirect.com/news/silver-range-resources-announces-encouraging-results-from-cambridge-and-sniper-properties-in-nevada-210425703) 
+[Original/Source Press Release](https://newsdirect.com/news/silver-range-resources-announces-encouraging-results-from-cambridge-and-sniper-properties-in-nevada-210425703)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1df2m1r/silver_range_resources_announces_encouraging/

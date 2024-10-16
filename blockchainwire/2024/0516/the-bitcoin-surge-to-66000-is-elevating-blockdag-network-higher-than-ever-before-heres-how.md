@@ -46,6 +46,9 @@ Telegram:https://t.me/blockDAGnetworkOfficial
 
 Discord: https://discord.gg/Q7BxghMVyu 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/the-bitcoin-surge-to-66000-is-elevating-blockdag-network-higher-than-ever-before-heres-how-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/the-bitcoin-surge-to-66000-is-elevating-blockdag-network-higher-than-ever-before-heres-how-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cteef3/bitcoin_surges_to_66000_blockdag_network/

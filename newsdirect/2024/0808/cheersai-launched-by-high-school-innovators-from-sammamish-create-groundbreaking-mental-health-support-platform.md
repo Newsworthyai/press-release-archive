@@ -50,6 +50,9 @@ Company Websitehttps://cheersai.co
 
 View source version on newsdirect.com: https://newsdirect.com/news/cheersai-launched-by-high-school-innovators-from-sammamish-create-groundbreaking-mental-health-support-platform-970726678 
 
-[Original/Source Press Release](https://newsdirect.com/news/cheersai-launched-by-high-school-innovators-from-sammamish-create-groundbreaking-mental-health-support-platform-970726678) 
+[Original/Source Press Release](https://newsdirect.com/news/cheersai-launched-by-high-school-innovators-from-sammamish-create-groundbreaking-mental-health-support-platform-970726678)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1en2ihj/cheersai_high_school_innovators_launch/

@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/greatland-gold-achieves-significant-q1-success-at-havieron-with-partner-newmont-573774565 
 
-[Original/Source Press Release](https://newsdirect.com/news/greatland-gold-achieves-significant-q1-success-at-havieron-with-partner-newmont-573774565) 
+[Original/Source Press Release](https://newsdirect.com/news/greatland-gold-achieves-significant-q1-success-at-havieron-with-partner-newmont-573774565)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cg2mr8/greatland_gold_achieves_significant_q1_success_at/

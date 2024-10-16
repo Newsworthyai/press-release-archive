@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kodiak-coppers-esg-efforts-rewarded-with-aa-rating-from-digbee-740621139 
 
-[Original/Source Press Release](https://newsdirect.com/news/kodiak-coppers-esg-efforts-rewarded-with-aa-rating-from-digbee-740621139) 
+[Original/Source Press Release](https://newsdirect.com/news/kodiak-coppers-esg-efforts-rewarded-with-aa-rating-from-digbee-740621139)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1dp0ogh/kodiak_coppers_esg_efforts_rewarded_with_aa/

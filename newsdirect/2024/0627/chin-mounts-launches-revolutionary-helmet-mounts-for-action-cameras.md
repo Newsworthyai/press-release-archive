@@ -26,6 +26,9 @@ Company Websitehttps://chinmounts.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/chin-mounts-launches-revolutionary-helmet-mounts-for-action-cameras-471798854 
 
-[Original/Source Press Release](https://newsdirect.com/news/chin-mounts-launches-revolutionary-helmet-mounts-for-action-cameras-471798854) 
+[Original/Source Press Release](https://newsdirect.com/news/chin-mounts-launches-revolutionary-helmet-mounts-for-action-cameras-471798854)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dpo6uv/chin_mounts_launches_revolutionary_helmet_mounts/

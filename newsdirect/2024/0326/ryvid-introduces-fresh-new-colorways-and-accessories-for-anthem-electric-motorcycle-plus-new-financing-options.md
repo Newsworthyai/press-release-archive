@@ -66,6 +66,9 @@ Company Websitehttps://ryvid.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/ryvid-introduces-fresh-new-colorways-and-accessories-for-anthem-electric-motorcycle-plus-new-financing-options-250769605 
 
-[Original/Source Press Release](https://newsdirect.com/news/ryvid-introduces-fresh-new-colorways-and-accessories-for-anthem-electric-motorcycle-plus-new-financing-options-250769605) 
+[Original/Source Press Release](https://newsdirect.com/news/ryvid-introduces-fresh-new-colorways-and-accessories-for-anthem-electric-motorcycle-plus-new-financing-options-250769605)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1bo8unj/ryvid_introduces_fresh_new_colorways_and/

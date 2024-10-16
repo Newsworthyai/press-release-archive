@@ -30,6 +30,9 @@ CUMMING, GA - (NewMediaWire) - September 16, 2024 - Metavesco, Inc. (OTC PINK:M
 
  CONTACT: info@metavesco.com (678) 341-5898 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/metavesco-and-local-choice-spirits-announce-joint-venture-to-launch-limited-edition-bourbon-series-7076055) 
+[Original/Source Press Release](https://www.newmediawire.com/news/metavesco-and-local-choice-spirits-announce-joint-venture-to-launch-limited-edition-bourbon-series-7076055)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1figvyk/metavesco_partners_with_local_choice_spirits_to/

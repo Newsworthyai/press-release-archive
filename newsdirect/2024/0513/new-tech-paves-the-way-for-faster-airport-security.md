@@ -72,6 +72,9 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-tech-paves-the-way-for-faster-airport-security-793973013 
 
-[Original/Source Press Release](https://newsdirect.com/news/new-tech-paves-the-way-for-faster-airport-security-793973013) 
+[Original/Source Press Release](https://newsdirect.com/news/new-tech-paves-the-way-for-faster-airport-security-793973013)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1cqyf3c/new_tech_paves_the_way_for_faster_airport_security/

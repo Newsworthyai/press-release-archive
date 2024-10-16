@@ -58,6 +58,9 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/alzamend-neuro-partners-with-massachusetts-general-hospital-for-phase-ii-trial-of-next-generation-treatment-for-major-depressive-disorder-278270744 
 
-[Original/Source Press Release](https://newsdirect.com/news/alzamend-neuro-partners-with-massachusetts-general-hospital-for-phase-ii-trial-of-next-generation-treatment-for-major-depressive-disorder-278270744) 
+[Original/Source Press Release](https://newsdirect.com/news/alzamend-neuro-partners-with-massachusetts-general-hospital-for-phase-ii-trial-of-next-generation-treatment-for-major-depressive-disorder-278270744)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eqe0w9/alzamend_neuro_and_massachusetts_general_hospital/

@@ -62,6 +62,9 @@ Company Websitehttps://www.zoomex.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/zoomex-transforming-your-crypto-trading-experience-676098595 
 
-[Original/Source Press Release](https://newsdirect.com/news/zoomex-transforming-your-crypto-trading-experience-676098595) 
+[Original/Source Press Release](https://newsdirect.com/news/zoomex-transforming-your-crypto-trading-experience-676098595)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dmpdwb/zoomex_revolutionizes_crypto_trading_experience/

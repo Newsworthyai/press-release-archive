@@ -26,6 +26,9 @@ Company Websitehttps://www.bridgeft.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bridgeft-achieves-soc-2-type-ii-certification-for-wealthtech-as-a-service-platform-706371706 
 
-[Original/Source Press Release](https://newsdirect.com/news/bridgeft-achieves-soc-2-type-ii-certification-for-wealthtech-as-a-service-platform-706371706) 
+[Original/Source Press Release](https://newsdirect.com/news/bridgeft-achieves-soc-2-type-ii-certification-for-wealthtech-as-a-service-platform-706371706)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1btygpw/bridgeft_achieves_soc_2_type_ii_certification_for/

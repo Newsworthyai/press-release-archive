@@ -46,6 +46,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/laser-photonics-is-trailblazing-with-advanced-lasers-that-include-cutting-edge-tech-177739420 
 
-[Original/Source Press Release](https://newsdirect.com/news/laser-photonics-is-trailblazing-with-advanced-lasers-that-include-cutting-edge-tech-177739420) 
+[Original/Source Press Release](https://newsdirect.com/news/laser-photonics-is-trailblazing-with-advanced-lasers-that-include-cutting-edge-tech-177739420)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e5h74q/laser_photonics_corp_trailblazing_with_advanced/

@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kartoon-studios-amex-toon-is-keeping-stan-lees-legacy-alive-with-its-brand-new-stan-lee-store-on-amazon-and-youtube-channel-774405638 
 
-[Original/Source Press Release](https://newsdirect.com/news/kartoon-studios-amex-toon-is-keeping-stan-lees-legacy-alive-with-its-brand-new-stan-lee-store-on-amazon-and-youtube-channel-774405638) 
+[Original/Source Press Release](https://newsdirect.com/news/kartoon-studios-amex-toon-is-keeping-stan-lees-legacy-alive-with-its-brand-new-stan-lee-store-on-amazon-and-youtube-channel-774405638)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1c1dxrc/kartoon_studios_keeping_stan_lees_legacy_alive/

@@ -34,6 +34,9 @@ PawFury is a groundbreaking memecoin that merges the digital currency world with
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/pawfurys-presale-raises-over-3-million-set-to-surpass-pepe-and-shib) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/pawfurys-presale-raises-over-3-million-set-to-surpass-pepe-and-shib)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fvg1zf/pawfury_achieves_over_3_million_in_presale/

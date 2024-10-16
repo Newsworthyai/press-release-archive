@@ -34,6 +34,9 @@ Discord: https://discord.com/invite/ctXrm6wfeg
 
 Medium: https://medium.com/@bedrock_defi 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bedrock-a-multi-asset-liquid-restaking-protocol-expands-to-bitcoin-with-strong-backers) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bedrock-a-multi-asset-liquid-restaking-protocol-expands-to-bitcoin-with-strong-backers)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1ci4cqj/bedrock_secures_fundraising_to_accelerate_liquid/

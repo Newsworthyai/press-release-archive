@@ -12,6 +12,9 @@ This profitable year is a testament to PSE Trading's strategic acumen, innovatio
 
 ![](https://api.blockchainwire.io/uploads/BitMartExchange/editor_image/ff8ae47a-efff-4564-af42-825a3ac6b8f8.png) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/hedge-fund-pse-trading-announces-a-1485-profit-increase-in-2023-collaborates-with-top-tier-audit-firm) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/hedge-fund-pse-trading-announces-a-1485-profit-increase-in-2023-collaborates-with-top-tier-audit-firm)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avxh62/pse_trading_reports_1485_profit_surge_in_core/

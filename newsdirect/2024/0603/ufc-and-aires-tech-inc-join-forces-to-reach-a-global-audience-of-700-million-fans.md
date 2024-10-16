@@ -38,6 +38,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ufc-and-aires-tech-inc-join-forces-to-reach-a-global-audience-of-700-million-fans-690083731 
 
-[Original/Source Press Release](https://newsdirect.com/news/ufc-and-aires-tech-inc-join-forces-to-reach-a-global-audience-of-700-million-fans-690083731) 
+[Original/Source Press Release](https://newsdirect.com/news/ufc-and-aires-tech-inc-join-forces-to-reach-a-global-audience-of-700-million-fans-690083731)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d7lyu5/american_aires_inc_partners_with_ufc_to_reach/

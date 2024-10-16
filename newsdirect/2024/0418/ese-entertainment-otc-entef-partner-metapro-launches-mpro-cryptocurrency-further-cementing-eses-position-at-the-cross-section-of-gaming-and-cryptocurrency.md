@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ese-entertainment-otc-entef-partner-metapro-launches-mpro-cryptocurrency-further-cementing-eses-position-at-the-cross-section-of-gaming-and-cryptocurrency-856137572 
 
-[Original/Source Press Release](https://newsdirect.com/news/ese-entertainment-otc-entef-partner-metapro-launches-mpro-cryptocurrency-further-cementing-eses-position-at-the-cross-section-of-gaming-and-cryptocurrency-856137572) 
+[Original/Source Press Release](https://newsdirect.com/news/ese-entertainment-otc-entef-partner-metapro-launches-mpro-cryptocurrency-further-cementing-eses-position-at-the-cross-section-of-gaming-and-cryptocurrency-856137572)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1c73a20/ese_entertainment_inc_and_metapro_launch_mpro/

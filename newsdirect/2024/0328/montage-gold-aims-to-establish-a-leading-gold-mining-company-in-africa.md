@@ -24,6 +24,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/montage-gold-aims-to-establish-a-leading-gold-mining-company-in-africa-894163970 
 
-[Original/Source Press Release](https://newsdirect.com/news/montage-gold-aims-to-establish-a-leading-gold-mining-company-in-africa-894163970) 
+[Original/Source Press Release](https://newsdirect.com/news/montage-gold-aims-to-establish-a-leading-gold-mining-company-in-africa-894163970)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bpumuy/montage_gold_aims_to_establish_leading_gold/

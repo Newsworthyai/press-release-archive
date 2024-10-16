@@ -57,6 +57,9 @@ Visit Our Website
 * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/atapfoundation/news_release/1448) 
+[Original/Source Press Release](https://newsroom.prkarma.com/atapfoundation/news_release/1448)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1cder1i/atap_foundation_awards_7500_in_scholarships_to/

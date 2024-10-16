@@ -38,6 +38,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kairos-pharma-nyseamerican-kapa-advancing-new-strategies-to-overcome-cancer-treatment-challenges-558015559 
 
-[Original/Source Press Release](https://newsdirect.com/news/kairos-pharma-nyseamerican-kapa-advancing-new-strategies-to-overcome-cancer-treatment-challenges-558015559) 
+[Original/Source Press Release](https://newsdirect.com/news/kairos-pharma-nyseamerican-kapa-advancing-new-strategies-to-overcome-cancer-treatment-challenges-558015559)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1g3cekf/kairos_pharma_nyse_american_kapa_advancing_new/

@@ -80,6 +80,9 @@ BOTS INC.
 
 Telephone: 939-212-9068 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/bots-inc-btzi-appoints-grok-as-its-president-in-historic-ai-leadership-move-7076040) 
+[Original/Source Press Release](https://www.newmediawire.com/news/bots-inc-btzi-appoints-grok-as-its-president-in-historic-ai-leadership-move-7076040)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1ff06gw/bots_inc_appoints_grok_as_ai_president_ushering/

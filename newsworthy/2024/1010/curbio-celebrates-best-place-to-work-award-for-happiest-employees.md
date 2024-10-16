@@ -20,6 +20,9 @@ Curbio prioritizes employee growth, providing opportunity and support for contin
 
 Media Contact Amanda Pflieger press@curbio.com 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202410101312/curbio-celebrates-best-place-to-work-award-for-happiest-employees) 
+[Original/Source Press Release](https://newsworthy.ai/news/202410101312/curbio-celebrates-best-place-to-work-award-for-happiest-employees)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1g3k5u4/curbio_recognized_as_best_place_to_work_for/

@@ -42,6 +42,9 @@ Rare is a pioneering tokenized art and design studio, merging the realms of art,
 
 Learn more about Rare’s innovative projects and tokenomics on the official websites: Our Collection, Token Chart, About RARE Tokens. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/redefine-art-ownership-with-rare-defi-and-tokenized-real-world-assets-rwa) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/redefine-art-ownership-with-rare-defi-and-tokenized-real-world-assets-rwa)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1d7mme4/rare_unveils_tokenized_art_studio_partnerships/

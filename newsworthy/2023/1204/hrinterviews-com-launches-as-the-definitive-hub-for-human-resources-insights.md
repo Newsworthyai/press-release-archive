@@ -18,6 +18,9 @@ HRInterviews.com stands as a beacon for HR professionals and enthusiasts, offeri
 
 Discover the nuances of human resources by visiting www.HRInterviews.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231204825/hrinterviews-com-launches-as-the-definitive-hub-for-human-resources-insights) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231204825/hrinterviews-com-launches-as-the-definitive-hub-for-human-resources-insights)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1avct2z/new_digital_platform_hrinterviewscom_unveiled_to/

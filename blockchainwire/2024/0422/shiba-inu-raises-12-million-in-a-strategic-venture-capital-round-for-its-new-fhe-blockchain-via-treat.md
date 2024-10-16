@@ -14,6 +14,9 @@ About Shiba Inu
 
 Shiba Inu, a world-leading ecosystem of decentralized cryptocurrencies has gained popularity among millions of holders worldwide. It has 3.8 million X followers and is frequently ranked as the second-most searched crypto project by Google. Its ecosystem of tokens includes $SHIB, $LEASH, and $BONE, plus native SHIBOSHIS and SHEboshi NFTs. SHIB.io utilizes the Shiba Inu Ecosystem to power quality technologies, including SHIB:The Metaverse and Shibarium, the Layer 2 blockchain providing a solid foundation, scalability, security, and innovation for a decentralized world. To learn more about $SHIB, please visit the official website: https://shibatoken.com. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/shiba-inu-raises-12-million-in-a-strategic-venture-capital-round-for-its-new-fhe-blockchain-via-treat) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/shiba-inu-raises-12-million-in-a-strategic-venture-capital-round-for-its-new-fhe-blockchain-via-treat)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ca9321/shiba_inu_raises_12m_investment_for_new/

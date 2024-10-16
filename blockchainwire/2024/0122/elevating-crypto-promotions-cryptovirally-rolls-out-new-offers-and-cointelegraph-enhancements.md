@@ -16,6 +16,9 @@ Embracing the Future with CryptoVirallyCryptoVirally stands out as a one-stop-sh
 
 For more information on these transformative services and limited-time offers, visit CryptoVirally's official website. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/elevating-crypto-promotions-cryptovirally-rolls-out-new-offers-and-cointelegraph-enhancements) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/elevating-crypto-promotions-cryptovirally-rolls-out-new-offers-and-cointelegraph-enhancements)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avdsxq/cryptovirally_revolutionizes_crypto_marketing/

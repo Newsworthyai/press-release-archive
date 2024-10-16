@@ -14,6 +14,9 @@ About New Direction Functional Psychiatry:
 
 New Direction Functional Psychiatry is an adult and child psychiatry clinic located in Lancaster, PA. Founded by Dr. Sarah Gatumu, MD, their mission is to provide comprehensive and personalized psychiatric care to individuals of all ages. The clinic offers a wide range of services, including Neurofeedback Therapy, medication-assisted therapy, trauma treatment, and transcranial magnetic stimulation (TMS). 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231214910/neurofeedback-therapy-transforming-lives-at-new-direction-functional-psychiatry) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231214910/neurofeedback-therapy-transforming-lives-at-new-direction-functional-psychiatry)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcu1j/new_direction_functional_psychiatry_launches/

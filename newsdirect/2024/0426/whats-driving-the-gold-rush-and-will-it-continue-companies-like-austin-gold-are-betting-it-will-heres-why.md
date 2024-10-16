@@ -38,6 +38,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/whats-driving-the-gold-rush-and-will-it-continue-companies-like-austin-gold-are-betting-it-will-heres-why-641797447 
 
-[Original/Source Press Release](https://newsdirect.com/news/whats-driving-the-gold-rush-and-will-it-continue-companies-like-austin-gold-are-betting-it-will-heres-why-641797447) 
+[Original/Source Press Release](https://newsdirect.com/news/whats-driving-the-gold-rush-and-will-it-continue-companies-like-austin-gold-are-betting-it-will-heres-why-641797447)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1cdk5ui/gold_prices_set_to_surge_historical_trends_and/

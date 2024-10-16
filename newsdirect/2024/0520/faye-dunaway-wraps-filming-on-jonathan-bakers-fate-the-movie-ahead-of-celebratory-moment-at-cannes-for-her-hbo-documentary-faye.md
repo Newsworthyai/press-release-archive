@@ -75,6 +75,9 @@ Company Websitehttps://www.bakerentertainmentgroup.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/faye-dunaway-wraps-filming-on-jonathan-bakers-fate-the-movie-ahead-of-celebratory-moment-at-cannes-for-her-hbo-documentary-faye-432944974 
 
-[Original/Source Press Release](https://newsdirect.com/news/faye-dunaway-wraps-filming-on-jonathan-bakers-fate-the-movie-ahead-of-celebratory-moment-at-cannes-for-her-hbo-documentary-faye-432944974) 
+[Original/Source Press Release](https://newsdirect.com/news/faye-dunaway-wraps-filming-on-jonathan-bakers-fate-the-movie-ahead-of-celebratory-moment-at-cannes-for-her-hbo-documentary-faye-432944974)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1cwni6z/faye_dunaway_wraps_filming_on_jonathan_bakers/

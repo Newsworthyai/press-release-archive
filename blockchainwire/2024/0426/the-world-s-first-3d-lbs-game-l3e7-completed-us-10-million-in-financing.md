@@ -16,6 +16,9 @@ X: https://twitter.com/L3E7_Official
 
 Email: [info@l3e7.io](mailto:info@l3e7.io) Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/the-worlds-first-3d-lbs-game-l3e7-completed-us10-millioninfinancing) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/the-worlds-first-3d-lbs-game-l3e7-completed-us10-millioninfinancing)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1ce0tbm/l3e7_launches_inaugural_testing_phase_with/

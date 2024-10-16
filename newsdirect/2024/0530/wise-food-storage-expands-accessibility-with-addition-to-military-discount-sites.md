@@ -26,6 +26,9 @@ Ajorgensen@readywise.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/wise-food-storage-expands-accessibility-with-addition-to-military-discount-sites-181301277 
 
-[Original/Source Press Release](https://newsdirect.com/news/wise-food-storage-expands-accessibility-with-addition-to-military-discount-sites-181301277) 
+[Original/Source Press Release](https://newsdirect.com/news/wise-food-storage-expands-accessibility-with-addition-to-military-discount-sites-181301277)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d44qm6/wise_food_storage_expands_accessibility_with/

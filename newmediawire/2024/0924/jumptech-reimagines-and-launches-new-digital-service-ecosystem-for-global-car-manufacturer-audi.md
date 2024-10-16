@@ -32,6 +32,9 @@ Enterprise Digitization Company Develops and Releases Four-Part, Comprehensive D
 
  JumpTech Solutions, Corp. undertakes no obligation to update or revise any forward-looking statements to reflect events or circumstances after the date of this press release, except as required by applicable law. Readers are cautioned not to place undue reliance on these forward-looking statements, which are made only as of the date hereof. 
 
-[Original/Source Press Release](http://www.newmediawire.com/news/jumptech-reimagines-and-launches-new-digital-service-ecosystem-for-global-car-manufacturer-audi-7076082) 
+[Original/Source Press Release](http://www.newmediawire.com/news/jumptech-reimagines-and-launches-new-digital-service-ecosystem-for-global-car-manufacturer-audi-7076082)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1frcav4/jumptech_solutions_corp_launches_comprehensive/

@@ -38,6 +38,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/options-market-on-the-rise-870036114 
 
-[Original/Source Press Release](https://newsdirect.com/news/options-market-on-the-rise-870036114) 
+[Original/Source Press Release](https://newsdirect.com/news/options-market-on-the-rise-870036114)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dvxqee/options_trading_gains_momentum_with_retail/

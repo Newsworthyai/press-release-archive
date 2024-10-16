@@ -32,6 +32,9 @@ Twitter: https://x.com/missdogita
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/dogita-advances-to-the-next-big-stage-integration-with-solana-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/dogita-advances-to-the-next-big-stage-integration-with-solana-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fvgqyo/dogita_memecoin_integrates_with_solana_network/

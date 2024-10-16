@@ -40,6 +40,9 @@ Company Websitehttps://ir.quantasing.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/quantasing-nasdaq-qsg-sets-its-sights-on-global-expansion-leverages-kellys-education-buy-to-build-awareness-in-hong-kong-u-s-and-beyond-295638480 
 
-[Original/Source Press Release](https://newsdirect.com/news/quantasing-nasdaq-qsg-sets-its-sights-on-global-expansion-leverages-kellys-education-buy-to-build-awareness-in-hong-kong-u-s-and-beyond-295638480) 
+[Original/Source Press Release](https://newsdirect.com/news/quantasing-nasdaq-qsg-sets-its-sights-on-global-expansion-leverages-kellys-education-buy-to-build-awareness-in-hong-kong-u-s-and-beyond-295638480)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c7321h/quantasing_nasdaq_qsg_expands_globally_and/

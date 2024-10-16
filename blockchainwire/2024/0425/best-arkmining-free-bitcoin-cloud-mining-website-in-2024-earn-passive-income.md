@@ -77,6 +77,9 @@ With its intuitive platform and commitment to seamless profits, ARKMining is poi
 
 For additional information on ARKMining, please visit their website at: https://arkmining.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/best-arkmining-free-bitcoin-cloud-mining-website-in-2024---earn-passive-income-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/best-arkmining-free-bitcoin-cloud-mining-website-in-2024---earn-passive-income-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cczgbl/arkmining_redefines_cryptocurrency_mining_with/

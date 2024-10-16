@@ -80,6 +80,9 @@ Company Websitehttps://ryvid.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/ryvid-partners-with-sosa-metalworks-for-a-truly-custom-electric-motorcycle-741920656 
 
-[Original/Source Press Release](https://newsdirect.com/news/ryvid-partners-with-sosa-metalworks-for-a-truly-custom-electric-motorcycle-741920656) 
+[Original/Source Press Release](https://newsdirect.com/news/ryvid-partners-with-sosa-metalworks-for-a-truly-custom-electric-motorcycle-741920656)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1djj80n/ryvid_partners_with_sosa_metalworks_for_a_truly/

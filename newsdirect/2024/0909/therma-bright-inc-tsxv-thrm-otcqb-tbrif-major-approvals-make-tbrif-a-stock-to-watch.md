@@ -38,6 +38,9 @@ Company Websitehttps://razorpitch.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/therma-bright-inc-tsxv-thrm-otcqb-tbrif-major-approvals-make-tbrif-a-stock-to-watch-846772299 
 
-[Original/Source Press Release](https://newsdirect.com/news/therma-bright-inc-tsxv-thrm-otcqb-tbrif-major-approvals-make-tbrif-a-stock-to-watch-846772299) 
+[Original/Source Press Release](https://newsdirect.com/news/therma-bright-inc-tsxv-thrm-otcqb-tbrif-major-approvals-make-tbrif-a-stock-to-watch-846772299)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fclwh2/therma_bright_inc_tsxv_thrm_otcqb_tbrif_major/

@@ -30,6 +30,9 @@ Company Websitehttps://www.fishercapitalgroup.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/alexander-spellane-welcomes-marketing-thought-leader-tyler-sickmeyer-on-the-right-wing-voice-podcast-728721317 
 
-[Original/Source Press Release](https://newsdirect.com/news/alexander-spellane-welcomes-marketing-thought-leader-tyler-sickmeyer-on-the-right-wing-voice-podcast-728721317) 
+[Original/Source Press Release](https://newsdirect.com/news/alexander-spellane-welcomes-marketing-thought-leader-tyler-sickmeyer-on-the-right-wing-voice-podcast-728721317)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1ehn111/marketing_thought_leader_tyler_sickmeyer_shares/

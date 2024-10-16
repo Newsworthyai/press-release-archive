@@ -46,6 +46,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/battery-swapping-stocks-are-trending-heres-why-u-power-is-on-the-list-908924923 
 
-[Original/Source Press Release](https://newsdirect.com/news/battery-swapping-stocks-are-trending-heres-why-u-power-is-on-the-list-908924923) 
+[Original/Source Press Release](https://newsdirect.com/news/battery-swapping-stocks-are-trending-heres-why-u-power-is-on-the-list-908924923)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1ebtvd9/u_power_revolutionizes_ev_batteryswapping_services/

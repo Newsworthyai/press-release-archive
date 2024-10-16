@@ -28,6 +28,9 @@ Mailsoftly is an AI-powered email marketing platform that offers the most afford
 
 To learn more about Mailsoftly's new email templates, CloudFlare partnership for email authentication, and enhanced automation with Zapier, visit Mailsoftly’s website. Sign up for a demo today and experience the Mailsoftly difference. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202406201199/mailsoftly-announces-new-email-templates-cloudflare-partnership-and-enhanced-automation-with-zapier-integration) 
+[Original/Source Press Release](https://newsworthy.ai/news/202406201199/mailsoftly-announces-new-email-templates-cloudflare-partnership-and-enhanced-automation-with-zapier-integration)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1dkikyy/mailsoftly_unveils_new_developments_to_empower/

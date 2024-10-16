@@ -28,6 +28,9 @@ Company Websitehttp://www.collisionright.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/collisionright-reaches-100-collision-repair-shops-258802591 
 
-[Original/Source Press Release](https://newsdirect.com/news/collisionright-reaches-100-collision-repair-shops-258802591) 
+[Original/Source Press Release](https://newsdirect.com/news/collisionright-reaches-100-collision-repair-shops-258802591)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1feb739/collisionright_reaches_100_collision_repair_shops/

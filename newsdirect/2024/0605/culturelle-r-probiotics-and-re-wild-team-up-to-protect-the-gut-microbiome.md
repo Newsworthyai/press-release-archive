@@ -38,6 +38,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/culturelle-r-probiotics-and-re-wild-team-up-to-protect-the-gut-microbiome-548844489 
 
-[Original/Source Press Release](https://newsdirect.com/news/culturelle-r-probiotics-and-re-wild-team-up-to-protect-the-gut-microbiome-548844489) 
+[Original/Source Press Release](https://newsdirect.com/news/culturelle-r-probiotics-and-re-wild-team-up-to-protect-the-gut-microbiome-548844489)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1d8zble/culturelle_probiotics_and_rewild_team_up_to/

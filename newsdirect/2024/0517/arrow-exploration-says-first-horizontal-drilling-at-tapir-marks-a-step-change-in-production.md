@@ -18,6 +18,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/arrow-exploration-says-first-horizontal-drilling-at-tapir-marks-a-step-change-in-production-602576008 
 
-[Original/Source Press Release](https://newsdirect.com/news/arrow-exploration-says-first-horizontal-drilling-at-tapir-marks-a-step-change-in-production-602576008) 
+[Original/Source Press Release](https://newsdirect.com/news/arrow-exploration-says-first-horizontal-drilling-at-tapir-marks-a-step-change-in-production-602576008)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cu91d3/arrow_exploration_marks_a_step_change_in/

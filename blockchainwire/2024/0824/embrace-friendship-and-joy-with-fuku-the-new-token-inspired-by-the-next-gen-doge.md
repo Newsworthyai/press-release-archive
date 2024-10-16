@@ -30,6 +30,9 @@ Call to Action: Join the $FUKU community today and be a part of a project that c
 
 Risk Warning and Disclaimer: Disclaimer: The information provided in this press release is not intended as, and shall not be construed as, investment advice. The information herein is provided for informational purposes only and does not constitute an offer to sell, a solicitation to buy, or a recommendation for any security by Bad Idea AI or any third party. Users are advised to conduct their own due diligence and consult with a qualified financial advisor before making any investment decisions. Bad Idea AI does not endorse or recommend any commercial products, processes, or services. The views and opinions of authors expressed on Bad Idea AI's websites do not necessarily state or reflect those of Bad Idea AI, and they may not be used for advertising or product endorsement purposes. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/embrace-friendship-and-joy-with-fuku-the-new-token-inspired-by-the-next-gen-doge) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/embrace-friendship-and-joy-with-fuku-the-new-token-inspired-by-the-next-gen-doge)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1f0v84u/new_fuku_token_launched_to_celebrate_doge_legacy/

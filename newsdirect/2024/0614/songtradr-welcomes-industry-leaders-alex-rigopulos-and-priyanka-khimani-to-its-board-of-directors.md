@@ -25,6 +25,9 @@ Company Websitehttps://www.songtradr.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/songtradr-welcomes-industry-leaders-alex-rigopulos-and-priyanka-khimani-to-its-board-of-directors-129989028 
 
-[Original/Source Press Release](https://newsdirect.com/news/songtradr-welcomes-industry-leaders-alex-rigopulos-and-priyanka-khimani-to-its-board-of-directors-129989028) 
+[Original/Source Press Release](https://newsdirect.com/news/songtradr-welcomes-industry-leaders-alex-rigopulos-and-priyanka-khimani-to-its-board-of-directors-129989028)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dfrngp/songtradr_appoints_industry_leaders_to_board_of/

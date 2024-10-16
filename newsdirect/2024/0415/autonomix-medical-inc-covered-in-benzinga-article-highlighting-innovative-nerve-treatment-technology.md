@@ -28,6 +28,9 @@ Zephyr@platodata.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/autonomix-medical-inc-covered-in-benzinga-article-highlighting-innovative-nerve-treatment-technology-637782507 
 
-[Original/Source Press Release](https://newsdirect.com/news/autonomix-medical-inc-covered-in-benzinga-article-highlighting-innovative-nerve-treatment-technology-637782507) 
+[Original/Source Press Release](https://newsdirect.com/news/autonomix-medical-inc-covered-in-benzinga-article-highlighting-innovative-nerve-treatment-technology-637782507)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1c4q7f9/autonomix_medical_inc_pioneers_innovative_nerve/

@@ -24,6 +24,9 @@ Company Websitehttp://rainsaaronseo.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/aaron-rains-seo-introduces-innovative-e-e-a-t-strategy-for-improved-search-engine-performance-490140926 
 
-[Original/Source Press Release](https://newsdirect.com/news/aaron-rains-seo-introduces-innovative-e-e-a-t-strategy-for-improved-search-engine-performance-490140926) 
+[Original/Source Press Release](https://newsdirect.com/news/aaron-rains-seo-introduces-innovative-e-e-a-t-strategy-for-improved-search-engine-performance-490140926)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d8wnhn/aaron_rains_seo_introduces_innovative_eeat/

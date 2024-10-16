@@ -64,6 +64,9 @@ Company Websitehttp://RazorPitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/6-stocks-positioned-to-soar-as-investors-focus-on-mash-411511691 
 
-[Original/Source Press Release](https://newsdirect.com/news/6-stocks-positioned-to-soar-as-investors-focus-on-mash-411511691) 
+[Original/Source Press Release](https://newsdirect.com/news/6-stocks-positioned-to-soar-as-investors-focus-on-mash-411511691)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1ca70zq/investors_eyeing_lucrative_opportunities_in_mash/

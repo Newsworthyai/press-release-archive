@@ -44,6 +44,9 @@ Website | Twitter | Discord | Telegram
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/merlin-chain-launches-merl-a-major-leap-forward-in-bitcoin-layer-2-solutions) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/merlin-chain-launches-merl-a-major-leap-forward-in-bitcoin-layer-2-solutions)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1c87476/merlin_chain_launches_merl_token_to_enhance/

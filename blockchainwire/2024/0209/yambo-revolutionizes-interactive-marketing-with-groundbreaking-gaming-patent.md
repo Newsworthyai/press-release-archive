@@ -28,6 +28,9 @@ Email: wassup@yambo.com
 
 Website: [https://www.yambo.com](https://yambo.com) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/yambo-revolutionizes-interactive-marketing-with-groundbreaking-gaming-patent) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/yambo-revolutionizes-interactive-marketing-with-groundbreaking-gaming-patent)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1avjz2z/yambo_redefines_interactive_marketing_with/

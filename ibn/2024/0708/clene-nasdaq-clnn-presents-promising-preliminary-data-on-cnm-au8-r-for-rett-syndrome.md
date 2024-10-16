@@ -20,6 +20,9 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/clene-nasdaq-clnn-presents-promising-preliminary-data-on-cnm-au8r-for-rett-syndrome/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/clene-nasdaq-clnn-presents-promising-preliminary-data-on-cnm-au8r-for-rett-syndrome/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1f2qwe4/clene_unveils_promising_data_on_cnmau8_for_rett/

@@ -27,6 +27,9 @@
 
  TechMediaWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/rising-domestic-violence-incidents-represents-expanding-opportunity-for-supercom-nasdaq-spcb/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/rising-domestic-violence-incidents-represents-expanding-opportunity-for-supercom-nasdaq-spcb/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2fgjt/new_tennessee_law_requires_electronic_gps/

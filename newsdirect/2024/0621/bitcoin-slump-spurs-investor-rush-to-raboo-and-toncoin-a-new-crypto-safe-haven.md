@@ -32,6 +32,9 @@ Company Websitehttps://rabootoken.com?&utm_source=marketing&utm_campaign=NDPR&ut
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitcoin-slump-spurs-investor-rush-to-raboo-and-toncoin-a-new-crypto-safe-haven-181408234 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitcoin-slump-spurs-investor-rush-to-raboo-and-toncoin-a-new-crypto-safe-haven-181408234) 
+[Original/Source Press Release](https://newsdirect.com/news/bitcoin-slump-spurs-investor-rush-to-raboo-and-toncoin-a-new-crypto-safe-haven-181408234)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dlastb/bitcoin_slump_spurs_investor_rush_to_raboo_and/

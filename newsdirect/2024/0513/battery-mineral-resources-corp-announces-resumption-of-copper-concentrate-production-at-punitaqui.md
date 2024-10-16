@@ -76,6 +76,9 @@ Company Websitehttps://bmrcorp.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/battery-mineral-resources-corp-announces-resumption-of-copper-concentrate-production-at-punitaqui-629946229 
 
-[Original/Source Press Release](https://newsdirect.com/news/battery-mineral-resources-corp-announces-resumption-of-copper-concentrate-production-at-punitaqui-629946229) 
+[Original/Source Press Release](https://newsdirect.com/news/battery-mineral-resources-corp-announces-resumption-of-copper-concentrate-production-at-punitaqui-629946229)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cqyf5o/battery_mineral_resources_corp_resumes_copper/

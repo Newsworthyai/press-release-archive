@@ -50,6 +50,9 @@
 
  heart.org and stroke.org 
 
-[Original/Source Press Release](http://www.newmediawire.com/news/international-research-challenge-to-tackle-knowledge-gaps-in-women-s-cardiovascular-health-7076088) 
+[Original/Source Press Release](http://www.newmediawire.com/news/international-research-challenge-to-tackle-knowledge-gaps-in-women-s-cardiovascular-health-7076088)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1frcb1t/american_heart_association_joins_global_effort_to/

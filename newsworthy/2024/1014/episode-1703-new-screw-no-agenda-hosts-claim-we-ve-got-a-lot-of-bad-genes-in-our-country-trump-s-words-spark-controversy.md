@@ -24,6 +24,9 @@ Executive ProducersMister Black, Larry Erenberger, Sir Ken of the Iron-Sukkah, l
 
 Associate Executive ProducersMike Cislo, Eli the coffee guy, Kayce Konrad, Dan Richman, Linda Lu, Duchess of Jobs & Writer of Resumes 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202410141319/no-agenda-hosts-claim-we-ve-got-a-lot-of-bad-genes-in-our-country-trump-s-words-spark-controversy) 
+[Original/Source Press Release](https://newsworthy.ai/news/202410141319/no-agenda-hosts-claim-we-ve-got-a-lot-of-bad-genes-in-our-country-trump-s-words-spark-controversy)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1g3fgtm/no_agenda_podcast_analyzes_trumps_controversial/

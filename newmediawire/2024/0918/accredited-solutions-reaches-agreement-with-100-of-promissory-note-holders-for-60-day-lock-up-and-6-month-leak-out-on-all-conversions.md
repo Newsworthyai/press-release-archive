@@ -20,6 +20,9 @@ Follow Us on: X (Twitter): @asii_Inc
 
 Source: Accredited Solutions, Inc. https://www.diamondcreekwater.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/accredited-solutions-reaches-agreement-with-100-of-promissory-note-holders-for-60-day-lock-up-and-6-month-leak-out-on-all-conversions-7076062) 
+[Original/Source Press Release](https://www.newmediawire.com/news/accredited-solutions-reaches-agreement-with-100-of-promissory-note-holders-for-60-day-lock-up-and-6-month-leak-out-on-all-conversions-7076062)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fjrifb/accredited_solutions_reaches_agreement_to_avoid/

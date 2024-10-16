@@ -16,6 +16,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nextech3d-ai-divests-map-dynamics-to-focus-on-core-3d-modeling-business-657933436 
 
-[Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-divests-map-dynamics-to-focus-on-core-3d-modeling-business-657933436) 
+[Original/Source Press Release](https://newsdirect.com/news/nextech3d-ai-divests-map-dynamics-to-focus-on-core-3d-modeling-business-657933436)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cxbmnc/nextech3dai_divests_map_dynamics_to_focus_on_core/

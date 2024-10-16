@@ -32,6 +32,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bidens-chinese-battery-tariff-hike-could-see-us-manufacturers-like-dragonfly-energy-gain-ground-423080101 
 
-[Original/Source Press Release](https://newsdirect.com/news/bidens-chinese-battery-tariff-hike-could-see-us-manufacturers-like-dragonfly-energy-gain-ground-423080101) 
+[Original/Source Press Release](https://newsdirect.com/news/bidens-chinese-battery-tariff-hike-could-see-us-manufacturers-like-dragonfly-energy-gain-ground-423080101)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d9heaf/bidens_chinese_battery_tariff_hike_could_see_us/

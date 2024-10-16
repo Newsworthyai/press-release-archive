@@ -66,6 +66,9 @@ Email: jessy@asteroidtoken.vip
 
 [https://x.com/Asteroid_Token](https://x.com/Asteroid_Token)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/dpcryptox-global-innovation-summit-to-be-held-in-singapore-in-january-2025-focusing-on-the-future-of-digital-currency) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/dpcryptox-global-innovation-summit-to-be-held-in-singapore-in-january-2025-focusing-on-the-future-of-digital-currency)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1g2v9jm/dpcryptox_to_host_global_innovation_summit_in/

@@ -18,6 +18,9 @@
 
  To book your school, contact the Martial Arts History Museum at (818) 245-6051 or email info@MAmuseum.com. The museum is located at 201 N. Brand Blvd., B100, Glendale, CA 91203. 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/martial-arts-history-museum-a-cultural-enrichment-for-local-schools-7075964) 
+[Original/Source Press Release](https://www.newmediawire.com/news/martial-arts-history-museum-a-cultural-enrichment-for-local-schools-7075964)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f7lojo/new_martial_arts_history_museum_opens_in_glendale/

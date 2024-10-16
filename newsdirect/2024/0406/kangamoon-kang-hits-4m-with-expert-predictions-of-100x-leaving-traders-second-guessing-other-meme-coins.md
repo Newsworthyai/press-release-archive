@@ -40,6 +40,9 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/kangamoon-kang-hits-4m-with-expert-predictions-of-100x-leaving-traders-second-guessing-other-meme-coins-413029856 
 
-[Original/Source Press Release](https://newsdirect.com/news/kangamoon-kang-hits-4m-with-expert-predictions-of-100x-leaving-traders-second-guessing-other-meme-coins-413029856) 
+[Original/Source Press Release](https://newsdirect.com/news/kangamoon-kang-hits-4m-with-expert-predictions-of-100x-leaving-traders-second-guessing-other-meme-coins-413029856)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1bxdqab/kangamoon_kang_set_to_surpass_pepe_and_bonk_in/

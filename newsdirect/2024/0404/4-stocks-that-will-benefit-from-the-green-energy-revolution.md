@@ -66,6 +66,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/4-stocks-that-will-benefit-from-the-green-energy-revolution-259516764 
 
-[Original/Source Press Release](https://newsdirect.com/news/4-stocks-that-will-benefit-from-the-green-energy-revolution-259516764) 
+[Original/Source Press Release](https://newsdirect.com/news/4-stocks-that-will-benefit-from-the-green-energy-revolution-259516764)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1bvsm3n/4_stocks_poised_to_benefit_from_the_green_energy/

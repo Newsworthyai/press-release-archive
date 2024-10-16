@@ -30,6 +30,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-rising-demand-for-whiskey-how-investors-can-capitalize-on-the-trend-108585370 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-rising-demand-for-whiskey-how-investors-can-capitalize-on-the-trend-108585370) 
+[Original/Source Press Release](https://newsdirect.com/news/the-rising-demand-for-whiskey-how-investors-can-capitalize-on-the-trend-108585370)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dzver3/dont_miss_out_on_benzingas_whiskey_investing/

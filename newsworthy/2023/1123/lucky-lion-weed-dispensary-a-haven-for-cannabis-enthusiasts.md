@@ -24,6 +24,9 @@ Oregrown leads with organic, sustainable cultivation practices, while Wyld Gummi
 
 Explore more about this seamless integration of quality cannabis products by visiting our website at www.luckylionpdx.com. It's the ideal gateway to experiencing the uniqueness and fulfillment that Lucky Lion and other dispensaries bring to the thriving cannabis industry in Portland. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231123893/lucky-lion-weed-dispensary-a-haven-for-cannabis-enthusiasts) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231123893/lucky-lion-weed-dispensary-a-haven-for-cannabis-enthusiasts)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1avcsad/lucky_lion_premier_recreational_cannabis/

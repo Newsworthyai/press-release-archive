@@ -90,6 +90,9 @@ Company Websitehttps://www.freedomholdingcorp.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fide-announces-finalists-for-the-2024-world-corporate-chess-championship-484420767 
 
-[Original/Source Press Release](https://newsdirect.com/news/fide-announces-finalists-for-the-2024-world-corporate-chess-championship-484420767) 
+[Original/Source Press Release](https://newsdirect.com/news/fide-announces-finalists-for-the-2024-world-corporate-chess-championship-484420767)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d7xgdr/fide_announces_finalists_for_2024_world_corporate/

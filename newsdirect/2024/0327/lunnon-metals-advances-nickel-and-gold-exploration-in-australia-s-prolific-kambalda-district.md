@@ -26,6 +26,9 @@ writers.australia@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lunnon-metals-advances-nickel-and-gold-exploration-in-australias-prolific-kambalda-district-729068558 
 
-[Original/Source Press Release](https://newsdirect.com/news/lunnon-metals-advances-nickel-and-gold-exploration-in-australias-prolific-kambalda-district-729068558) 
+[Original/Source Press Release](https://newsdirect.com/news/lunnon-metals-advances-nickel-and-gold-exploration-in-australias-prolific-kambalda-district-729068558)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bp045y/lunnon_metals_advances_nickel_and_gold/

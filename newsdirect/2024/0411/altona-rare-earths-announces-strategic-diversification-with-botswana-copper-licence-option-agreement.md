@@ -22,6 +22,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/altona-rare-earths-announces-strategic-diversification-with-botswana-copper-licence-option-agreement-337794614 
 
-[Original/Source Press Release](https://newsdirect.com/news/altona-rare-earths-announces-strategic-diversification-with-botswana-copper-licence-option-agreement-337794614) 
+[Original/Source Press Release](https://newsdirect.com/news/altona-rare-earths-announces-strategic-diversification-with-botswana-copper-licence-option-agreement-337794614)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c1cmxr/altona_rare_earths_announces_strategic/

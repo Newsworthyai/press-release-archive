@@ -44,6 +44,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/copper-is-having-a-resurgence-thanks-to-renewable-energy-and-ev-push-and-world-copper-is-positioning-itself-to-benefit-251504844 
 
-[Original/Source Press Release](https://newsdirect.com/news/copper-is-having-a-resurgence-thanks-to-renewable-energy-and-ev-push-and-world-copper-is-positioning-itself-to-benefit-251504844) 
+[Original/Source Press Release](https://newsdirect.com/news/copper-is-having-a-resurgence-thanks-to-renewable-energy-and-ev-push-and-world-copper-is-positioning-itself-to-benefit-251504844)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ehfnxj/copper_demand_surges_world_copper_positioned_for/

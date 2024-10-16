@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/terra-balcanica-updates-on-bosnia-drilling-and-saskatchewan-uranium-projects-617474850 
 
-[Original/Source Press Release](https://newsdirect.com/news/terra-balcanica-updates-on-bosnia-drilling-and-saskatchewan-uranium-projects-617474850) 
+[Original/Source Press Release](https://newsdirect.com/news/terra-balcanica-updates-on-bosnia-drilling-and-saskatchewan-uranium-projects-617474850)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d2mzig/terra_balcanica_resources_ceo_provides_promising/

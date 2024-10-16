@@ -20,6 +20,9 @@ Since 2010, TalentCulture has been connecting and engaging professionals to shap
 
 TalentCulture is regarded as a renowned authority in HR and HR Technology promotions, marketing, and influence dedicated to providing cutting-edge insights, resources, and solutions that empower HR and HR Tech Marketing professionals worldwide. Through a blend of expertise, technology, influence and thought leadership, TalentCulture aims to revolutionize the HR industry and HR Technology space to drive positive change. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202403271132/talentculture-2024-human-resources-tech-winners-announced) 
+[Original/Source Press Release](https://newsworthy.ai/news/202403271132/talentculture-2024-human-resources-tech-winners-announced)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1bp1i9h/talentculture_announces_2024_hr_technology_award/

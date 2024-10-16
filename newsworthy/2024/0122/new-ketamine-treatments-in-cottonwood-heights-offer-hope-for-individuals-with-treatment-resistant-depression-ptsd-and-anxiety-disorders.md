@@ -12,6 +12,9 @@ While the initial effects of ketamine may diminish after a few days, ongoing tre
 
 With the introduction of ketamine treatment in Cottonwood Heights, individuals, benefiting from the enhanced efficacy of 9 Line integrations, are finally equipped with a glimmer of hope. The combination of rapid relief, enhanced efficacy in treatment-resistant cases, reduction in suicidal thoughts, and longer-lasting effects, amplified by 9 Line capabilities, makes ketamine treatment a compelling breakthrough in mental health care. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401221012/new-ketamine-treatments-in-cottonwood-heights-offer-hope-for-individuals-with-treatment-resistant-depression-ptsd-and-anxiety-disorders) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401221012/new-ketamine-treatments-in-cottonwood-heights-offer-hope-for-individuals-with-treatment-resistant-depression-ptsd-and-anxiety-disorders)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avldx2/innovative_ketamine_treatment_integrated_with_9/

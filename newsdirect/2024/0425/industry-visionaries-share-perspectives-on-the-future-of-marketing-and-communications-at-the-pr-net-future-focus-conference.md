@@ -74,6 +74,9 @@ Company Websitehttps://theprnet.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/industry-visionaries-share-perspectives-on-the-future-of-marketing-and-communications-at-the-pr-net-future-focus-conference-434689580 
 
-[Original/Source Press Release](https://newsdirect.com/news/industry-visionaries-share-perspectives-on-the-future-of-marketing-and-communications-at-the-pr-net-future-focus-conference-434689580) 
+[Original/Source Press Release](https://newsdirect.com/news/industry-visionaries-share-perspectives-on-the-future-of-marketing-and-communications-at-the-pr-net-future-focus-conference-434689580)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1ccve2g/insights_from_future_focus_conference_reinventing/

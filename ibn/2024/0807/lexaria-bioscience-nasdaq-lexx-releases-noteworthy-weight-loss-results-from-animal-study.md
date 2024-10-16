@@ -24,6 +24,9 @@ Lexaria Bioscience (NASDAQ: LEXX, LEXXW), a global innovator in drug-delivery pl
 
  CanadianCannabisWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-bioscience-nasdaq-lexx-releases-noteworthy-weight-loss-results-from-animal-study/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-bioscience-nasdaq-lexx-releases-noteworthy-weight-loss-results-from-animal-study/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1f2ff1p/lexaria_bioscience_reports_noteworthy_results/

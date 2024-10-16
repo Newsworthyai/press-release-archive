@@ -45,6 +45,9 @@ Company Websitehttps://fitness.chelseapiers.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/chelsea-piers-fitness-unveils-a-luxurious-60-000-square-foot-club-in-flatiron-194334183 
 
-[Original/Source Press Release](https://newsdirect.com/news/chelsea-piers-fitness-unveils-a-luxurious-60-000-square-foot-club-in-flatiron-194334183) 
+[Original/Source Press Release](https://newsdirect.com/news/chelsea-piers-fitness-unveils-a-luxurious-60-000-square-foot-club-in-flatiron-194334183)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ehgq73/chelsea_piers_fitness_unveils_luxurious_60000/

@@ -59,6 +59,9 @@ Company Websitehttps://www.debt.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/rising-credit-card-debt-fuels-unprecedented-stress-levels-aggravating-mental-health-issues-272658105 
 
-[Original/Source Press Release](https://newsdirect.com/news/rising-credit-card-debt-fuels-unprecedented-stress-levels-aggravating-mental-health-issues-272658105) 
+[Original/Source Press Release](https://newsdirect.com/news/rising-credit-card-debt-fuels-unprecedented-stress-levels-aggravating-mental-health-issues-272658105)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1fz8n98/rising_credit_card_debt_fuels_unprecedented/

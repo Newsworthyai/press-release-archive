@@ -38,6 +38,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mainz-biomed-nasdaq-mynz-and-liquid-biosciences-team-up-to-fight-pancreatic-cancer-with-early-detection-tool-214850127 
 
-[Original/Source Press Release](https://newsdirect.com/news/mainz-biomed-nasdaq-mynz-and-liquid-biosciences-team-up-to-fight-pancreatic-cancer-with-early-detection-tool-214850127) 
+[Original/Source Press Release](https://newsdirect.com/news/mainz-biomed-nasdaq-mynz-and-liquid-biosciences-team-up-to-fight-pancreatic-cancer-with-early-detection-tool-214850127)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1f9rhhp/mainz_biomed_nv_and_liquid_biosciences_partner_to/

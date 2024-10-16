@@ -22,6 +22,9 @@ About The Job Helpers:The Job Helpers is a leading provider of career services, 
 
 For media inquiries or further information, please contact:Amanda Dissanayake, Head of MarketingAmanda@TheJobHelpers.comThe Job Helpershttps://TheJobHelpers.com/ 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202405241172/the-job-helpers-introduces-jobpromax-the-ultimate-ai-suite-of-solutions-for-career-advancement-and-hiring) 
+[Original/Source Press Release](https://newsworthy.ai/news/202405241172/the-job-helpers-introduces-jobpromax-the-ultimate-ai-suite-of-solutions-for-career-advancement-and-hiring)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1czjes9/jobpromax_your_ultimate_career_assistance_tool/

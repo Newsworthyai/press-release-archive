@@ -16,6 +16,9 @@
 
  To sign up, visit https://www.kickstarter.com/projects/moonrockcomics/samurai-brothers-escape-from-exile 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/museum-teams-up-to-launch-new-samurai-game-7075987) 
+[Original/Source Press Release](https://www.newmediawire.com/news/museum-teams-up-to-launch-new-samurai-game-7075987)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1f7lpey/martial_arts_history_museum_partners_with_moon/

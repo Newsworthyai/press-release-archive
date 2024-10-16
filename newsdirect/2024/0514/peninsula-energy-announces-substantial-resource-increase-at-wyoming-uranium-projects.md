@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/peninsula-energy-announces-substantial-resource-increase-at-wyoming-uranium-projects-794889705 
 
-[Original/Source Press Release](https://newsdirect.com/news/peninsula-energy-announces-substantial-resource-increase-at-wyoming-uranium-projects-794889705) 
+[Original/Source Press Release](https://newsdirect.com/news/peninsula-energy-announces-substantial-resource-increase-at-wyoming-uranium-projects-794889705)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cs1pgq/peninsula_energy_announces_substantial_resource/

@@ -61,6 +61,9 @@ Website: www.stakingfarm.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-aiming-to-elevate-customer-support-to-secure-top-staking-platform-spot) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/stakingfarm-aiming-to-elevate-customer-support-to-secure-top-staking-platform-spot)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c27mz3/stakingfarm_enhances_customer_support_and_service/

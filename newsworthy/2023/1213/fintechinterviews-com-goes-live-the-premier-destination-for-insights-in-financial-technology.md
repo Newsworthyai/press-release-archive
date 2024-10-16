@@ -18,6 +18,9 @@ FintechInterviews.com is designed to be an indispensable resource for all things
 
 Navigate the nuances of financial technology at www.FintechInterviews.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231213820/fintechinterviews-com-goes-live-the-premier-destination-for-insights-in-financial-technology) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231213820/fintechinterviews-com-goes-live-the-premier-destination-for-insights-in-financial-technology)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1avctxl/fintechinterviewscom_decoding_financial/

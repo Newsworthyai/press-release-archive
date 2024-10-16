@@ -10,6 +10,9 @@ A journalist and former saddle bronc rider himself, Holten says he originally cr
 
 Don't miss BEK TV’s debuts of Special Cowboy Moments on Wednesday, February 28, at 5 pm CT on BEK TV! Learn more on BEK Buzz. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402281103/bek-tv-debuts-special-cowboy-moments-capturing-the-essence-of-cowboy-life-and-legacy) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402281103/bek-tv-debuts-special-cowboy-moments-capturing-the-essence-of-cowboy-life-and-legacy)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1b6roe9/north_dakota_native_hosts_compelling_cowboy/

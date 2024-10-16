@@ -28,6 +28,9 @@ Visit the links below for more information about Pandoshi (PAMBO):
 
 Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/final-stage-of-pandoshi-pambo-presale-nearly-complete-85-of-tokens-already-sold) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/final-stage-of-pandoshi-pambo-presale-nearly-complete-85-of-tokens-already-sold)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avc9tb/pandoshi_pambo_presale_nears_completion_with_85/

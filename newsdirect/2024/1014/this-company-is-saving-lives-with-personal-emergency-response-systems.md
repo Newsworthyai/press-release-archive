@@ -26,6 +26,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/this-company-is-saving-lives-with-personal-emergency-response-systems-377451642 
 
-[Original/Source Press Release](https://newsdirect.com/news/this-company-is-saving-lives-with-personal-emergency-response-systems-377451642) 
+[Original/Source Press Release](https://newsdirect.com/news/this-company-is-saving-lives-with-personal-emergency-response-systems-377451642)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1g3foaz/logicmark_ceo_discusses_growth_strategies_and/

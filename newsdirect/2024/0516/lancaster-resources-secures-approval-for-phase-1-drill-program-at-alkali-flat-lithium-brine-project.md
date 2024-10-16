@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lancaster-resources-secures-approval-for-phase-1-drill-program-at-alkali-flat-lithium-brine-project-244177370 
 
-[Original/Source Press Release](https://newsdirect.com/news/lancaster-resources-secures-approval-for-phase-1-drill-program-at-alkali-flat-lithium-brine-project-244177370) 
+[Original/Source Press Release](https://newsdirect.com/news/lancaster-resources-secures-approval-for-phase-1-drill-program-at-alkali-flat-lithium-brine-project-244177370)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cthewg/lancaster_resources_secures_approval_for_phase_1/

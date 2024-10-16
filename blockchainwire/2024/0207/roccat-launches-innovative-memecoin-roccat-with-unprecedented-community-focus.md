@@ -18,6 +18,9 @@ About ROCCAT:
 
 ROCCAT is an emerging company that dedicates its efforts to pushing the boundaries of innovation in cryptocurrency. The company aims to redefine the memecoin landscape through its groundbreaking project, $ROCCAT, focusing on community engagement and empowerment.Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/-roccat-launches-innovative-memecoin-roccat-with-unprecedented-community-focus-2) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/-roccat-launches-innovative-memecoin-roccat-with-unprecedented-community-focus-2)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjxxr/roccat_unveils_roccat_an_innovative_memecoin_set/

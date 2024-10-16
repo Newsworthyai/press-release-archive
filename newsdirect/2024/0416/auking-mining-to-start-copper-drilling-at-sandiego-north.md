@@ -14,6 +14,9 @@ Jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/auking-mining-to-start-copper-drilling-at-sandiego-north-558255707 
 
-[Original/Source Press Release](https://newsdirect.com/news/auking-mining-to-start-copper-drilling-at-sandiego-north-558255707) 
+[Original/Source Press Release](https://newsdirect.com/news/auking-mining-to-start-copper-drilling-at-sandiego-north-558255707)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c5oux9/auking_mining_to_commence_copper_drilling_at/

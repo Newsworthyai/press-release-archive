@@ -50,6 +50,9 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-liquid-restaking-airdrops-millions-of-merl-tokens-more-rewards-on-the-horizon-517390593 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-liquid-restaking-airdrops-millions-of-merl-tokens-more-rewards-on-the-horizon-517390593) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-liquid-restaking-airdrops-millions-of-merl-tokens-more-rewards-on-the-horizon-517390593)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cazunm/htxs_liquid_restaking_event_airdrops_millions_of/

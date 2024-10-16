@@ -38,6 +38,9 @@ dean@locxlabs.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/btc-halving-could-see-wild-volatility-swings-icos-offer-steady-gains-175494425 
 
-[Original/Source Press Release](https://newsdirect.com/news/btc-halving-could-see-wild-volatility-swings-icos-offer-steady-gains-175494425) 
+[Original/Source Press Release](https://newsdirect.com/news/btc-halving-could-see-wild-volatility-swings-icos-offer-steady-gains-175494425)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cg4m0g/bitcoin_halving_sparks_volatility_galaxy_fox_ico/

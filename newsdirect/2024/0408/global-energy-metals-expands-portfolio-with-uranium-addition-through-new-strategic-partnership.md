@@ -20,6 +20,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/global-energy-metals-expands-portfolio-with-uranium-addition-through-new-strategic-partnership-250809654 
 
-[Original/Source Press Release](https://newsdirect.com/news/global-energy-metals-expands-portfolio-with-uranium-addition-through-new-strategic-partnership-250809654) 
+[Original/Source Press Release](https://newsdirect.com/news/global-energy-metals-expands-portfolio-with-uranium-addition-through-new-strategic-partnership-250809654)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1byvsaz/global_energy_metals_expands_portfolio_with/

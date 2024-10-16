@@ -22,6 +22,9 @@ handlery@landispr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/handlery-hotel-to-brighten-up-union-square-with-a-summer-of-lights-943175404 
 
-[Original/Source Press Release](https://newsdirect.com/news/handlery-hotel-to-brighten-up-union-square-with-a-summer-of-lights-943175404) 
+[Original/Source Press Release](https://newsdirect.com/news/handlery-hotel-to-brighten-up-union-square-with-a-summer-of-lights-943175404)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dit4xg/handlery_hotels_launches_summer_lights/

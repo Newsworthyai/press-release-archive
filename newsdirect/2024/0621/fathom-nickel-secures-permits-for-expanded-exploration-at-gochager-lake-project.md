@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fathom-nickel-secures-permits-for-expanded-exploration-at-gochager-lake-project-875902243 
 
-[Original/Source Press Release](https://newsdirect.com/news/fathom-nickel-secures-permits-for-expanded-exploration-at-gochager-lake-project-875902243) 
+[Original/Source Press Release](https://newsdirect.com/news/fathom-nickel-secures-permits-for-expanded-exploration-at-gochager-lake-project-875902243)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dlak2x/fathom_nickel_secures_permits_for_expanded/

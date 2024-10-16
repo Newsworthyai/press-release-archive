@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/skye-bioscience-moves-to-nasdaq-hits-milestone-in-clinical-program-751538817 
 
-[Original/Source Press Release](https://newsdirect.com/news/skye-bioscience-moves-to-nasdaq-hits-milestone-in-clinical-program-751538817) 
+[Original/Source Press Release](https://newsdirect.com/news/skye-bioscience-moves-to-nasdaq-hits-milestone-in-clinical-program-751538817)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1cmfr30/skye_bioscience_achieves_nasdaq_uplisting_and/

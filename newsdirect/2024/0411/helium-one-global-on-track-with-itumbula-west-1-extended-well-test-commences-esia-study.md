@@ -22,6 +22,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/helium-one-global-on-track-with-itumbula-west-1-extended-well-test-commences-esia-study-191676989 
 
-[Original/Source Press Release](https://newsdirect.com/news/helium-one-global-on-track-with-itumbula-west-1-extended-well-test-commences-esia-study-191676989) 
+[Original/Source Press Release](https://newsdirect.com/news/helium-one-global-on-track-with-itumbula-west-1-extended-well-test-commences-esia-study-191676989)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c1ct5z/helium_one_global_making_strides_in_tanzanias/

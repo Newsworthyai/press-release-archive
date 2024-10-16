@@ -38,6 +38,9 @@ Company Websitehttps://www.dino.co.uk/
 
 View source version on newsdirect.com: https://newsdirect.com/news/dino-decking-ltd-sets-new-standards-in-composite-decking-financial-growth-and-sustainability-milestones-139904261 
 
-[Original/Source Press Release](https://newsdirect.com/news/dino-decking-ltd-sets-new-standards-in-composite-decking-financial-growth-and-sustainability-milestones-139904261) 
+[Original/Source Press Release](https://newsdirect.com/news/dino-decking-ltd-sets-new-standards-in-composite-decking-financial-growth-and-sustainability-milestones-139904261)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1dp6nxg/dino_decking_ltd_achieves_financial_growth_and/

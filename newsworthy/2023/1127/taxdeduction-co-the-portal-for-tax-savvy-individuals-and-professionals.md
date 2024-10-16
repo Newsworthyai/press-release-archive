@@ -18,6 +18,9 @@ TaxDeduction.co aspires to be the beacon for taxpayers across all brackets – f
 
 Stay informed and elevate your tax planning game at www.TaxDeduction.co. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231127881/taxdeduction-co-the-portal-for-tax-savvy-individuals-and-professionals) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231127881/taxdeduction-co-the-portal-for-tax-savvy-individuals-and-professionals)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx095/taxdeductionco_launches_to_simplify_tax/

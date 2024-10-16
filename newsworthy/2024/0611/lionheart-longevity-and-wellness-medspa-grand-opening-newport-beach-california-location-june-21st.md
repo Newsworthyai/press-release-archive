@@ -44,6 +44,9 @@ Lionheart Health, Inc. Leonhardt Ventures LLC 1 Kent CourtMission Viejo, CA 9269
 
 email: howard@leonhardtventures.com 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202406111192/lionheart-longevity-and-wellness-medspa-grand-opening-newport-beach-california-location-june-21st) 
+[Original/Source Press Release](https://newsworthy.ai/news/202406111192/lionheart-longevity-and-wellness-medspa-grand-opening-newport-beach-california-location-june-21st)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ddk7w0/lionheart_health_announces_grand_opening_of/

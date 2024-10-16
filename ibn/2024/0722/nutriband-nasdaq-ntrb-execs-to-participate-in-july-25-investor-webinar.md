@@ -28,6 +28,9 @@ Nutriband (NASDAQ: NTRB), a pharmaceutical company with a special focus on trans
 
  BioMedWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/nutriband-nasdaq-ntrb-execs-to-participate-in-july-25-investor-webinar/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/nutriband-nasdaq-ntrb-execs-to-participate-in-july-25-investor-webinar/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1f2fg31/nutriband_nasdaq_ntrb_to_host_live_webinar_on/

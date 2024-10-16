@@ -50,6 +50,9 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/analyst-gives-insights-on-fantom-and-injective-5-reasons-why-kang-is-at-the-top-262444134 
 
-[Original/Source Press Release](https://newsdirect.com/news/analyst-gives-insights-on-fantom-and-injective-5-reasons-why-kang-is-at-the-top-262444134) 
+[Original/Source Press Release](https://newsdirect.com/news/analyst-gives-insights-on-fantom-and-injective-5-reasons-why-kang-is-at-the-top-262444134)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cbu20o/crypto_tonys_insights_on_fantom_injective_and/

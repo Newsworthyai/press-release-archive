@@ -34,6 +34,9 @@ X (Twitter) | Telegram | TikTok | Instagram
 
 Disclaimer: This is a press release and does not contain any financial advice. Readers should do their own research before taking any actions related to the company mentioned. You are solely responsible, directly or indirectly, for any damage or loss caused or alleged to be caused by or in connection with the use of or reliance on any content, goods, or services mentioned in the press release. Cryptocurrency is volatile. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/ivacay-launches-ico-campaign-to-revolutionize-vacation-ownership) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/ivacay-launches-ico-campaign-to-revolutionize-vacation-ownership)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bko8fa/vacaycoin_ico_launch_transforming_travel_with/

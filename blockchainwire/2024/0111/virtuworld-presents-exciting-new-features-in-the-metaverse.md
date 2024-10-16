@@ -32,6 +32,9 @@ Anyone curious about the potential of the metaverse can refer to VirtuWorld's o
 
 X (Twitter) | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/virtuworld-presents-exciting-new-features-in-the-metaverse) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/virtuworld-presents-exciting-new-features-in-the-metaverse)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1avdpw1/virtuworld_to_unveil_exciting_new_features_in_the/

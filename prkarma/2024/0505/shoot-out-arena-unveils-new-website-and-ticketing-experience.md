@@ -28,6 +28,9 @@ Visit Our Website
 * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/shootoutarena/news_release/1454) 
+[Original/Source Press Release](https://newsroom.prkarma.com/shootoutarena/news_release/1454)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cuarp8/exciting_debut_of_newly_redesigned_shoot_out/

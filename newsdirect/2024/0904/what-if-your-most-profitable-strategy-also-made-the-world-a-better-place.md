@@ -57,6 +57,9 @@ Company Websitehttps://www.fordham.edu/gabelli-school-of-business/
 
 View source version on newsdirect.com: https://newsdirect.com/news/what-if-your-most-profitable-strategy-also-made-the-world-a-better-place-159229890 
 
-[Original/Source Press Release](https://newsdirect.com/news/what-if-your-most-profitable-strategy-also-made-the-world-a-better-place-159229890) 
+[Original/Source Press Release](https://newsdirect.com/news/what-if-your-most-profitable-strategy-also-made-the-world-a-better-place-159229890)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1f9gt7t/new_study_explores_how_companies_can_generate/

@@ -44,6 +44,9 @@ About The Hampton Cannabis ("THC") Expo
 
 THC Expo (www.CanXpo.com) explores the intersections of cannabis, psychedelics, and integrative medicine. Through annual conferences, CanXpo advances the understanding and acceptance of plant-based therapies in mainstream healthcare, offering a comprehensive day of learning, networking, and exploration of the latest trends and innovations. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202407221214/the-hampton-cannabis-thc-expo-announces-its-7th-annual-event-with-a-focus-on-integrative-medicine-medical-cannabis-and-psychedelics) 
+[Original/Source Press Release](https://newsworthy.ai/news/202407221214/the-hampton-cannabis-thc-expo-announces-its-7th-annual-event-with-a-focus-on-integrative-medicine-medical-cannabis-and-psychedelics)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1ehj7rm/7th_annual_hamptons_cannabis_event_psychedelics/

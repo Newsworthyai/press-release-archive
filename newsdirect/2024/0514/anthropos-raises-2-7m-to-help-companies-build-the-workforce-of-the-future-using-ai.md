@@ -48,6 +48,9 @@ Company Websitehttps://anthropos.work/
 
 View source version on newsdirect.com: https://newsdirect.com/news/anthropos-raises-2-7m-to-help-companies-build-the-workforce-of-the-future-using-ai-267948178 
 
-[Original/Source Press Release](https://newsdirect.com/news/anthropos-raises-2-7m-to-help-companies-build-the-workforce-of-the-future-using-ai-267948178) 
+[Original/Source Press Release](https://newsdirect.com/news/anthropos-raises-2-7m-to-help-companies-build-the-workforce-of-the-future-using-ai-267948178)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Leadership_Management/comments/1crrvlc/anthropos_raises_27m_to_revolutionize_workforce/

@@ -118,6 +118,9 @@ Company Websitehttps://www.nafa.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/nafas-2024-iande-media-day-unveils-cutting-edge-fleet-innovations-and-insights-377069084 
 
-[Original/Source Press Release](https://newsdirect.com/news/nafas-2024-iande-media-day-unveils-cutting-edge-fleet-innovations-and-insights-377069084) 
+[Original/Source Press Release](https://newsdirect.com/news/nafas-2024-iande-media-day-unveils-cutting-edge-fleet-innovations-and-insights-377069084)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1caq1q8/nafas_ie_media_day_unveils_cuttingedge_fleet/

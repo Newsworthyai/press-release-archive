@@ -20,6 +20,9 @@ Peapack-Gladstone Financial Corporation is a New Jersey bank holding company wit
 
 Contact:  Denise M. Pace-Sanders, SVP-Managing Principal, Brand and Marketing Director, dpace@pgbank.com, 908.470.3322, Peapack-Gladstone Bank, 500 Hills Drive, Suite 300, Bedminster, NJ 07921. 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/peapack-gladstone-financial-corporation-and-peapack-gladstone-bank-s-investment-grade-ratings-confirmed-by-moody-s-investors-service-7076125) 
+[Original/Source Press Release](https://www.newmediawire.com/news/peapack-gladstone-financial-corporation-and-peapack-gladstone-bank-s-investment-grade-ratings-confirmed-by-moody-s-investors-service-7076125)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fswxah/moodys_confirms_investor_grade_ratings_for/

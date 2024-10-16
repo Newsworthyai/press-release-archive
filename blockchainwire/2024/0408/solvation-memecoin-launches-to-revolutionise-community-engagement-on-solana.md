@@ -18,6 +18,9 @@ Tg: @solvation_coin
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/solvation-memecoin-launches-to-revolutionise-community-engagement-on-solana) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/solvation-memecoin-launches-to-revolutionise-community-engagement-on-solana)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bz3iyq/solvation_launches_as_a_pioneering_solanabased/

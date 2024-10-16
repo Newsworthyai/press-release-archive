@@ -38,6 +38,9 @@ Company Websitehttps://www.toolsgroup.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/from-demand-to-delivery-toolsgroup-transforms-slf-greeces-supply-chain-798745006 
 
-[Original/Source Press Release](https://newsdirect.com/news/from-demand-to-delivery-toolsgroup-transforms-slf-greeces-supply-chain-798745006) 
+[Original/Source Press Release](https://newsdirect.com/news/from-demand-to-delivery-toolsgroup-transforms-slf-greeces-supply-chain-798745006)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eglk2j/slf_greece_implements_toolsgroup_so99_software/

@@ -18,6 +18,9 @@ Built for the curious minds in maritime construction, Shipbuilding.io endeavors 
 
 Embark on a journey of shipbuilding knowledge at www.Shipbuilding.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231130875/shipbuilding-io-sets-sail-maritime-construction-insights-and-expert-knowledge) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231130875/shipbuilding-io-sets-sail-maritime-construction-insights-and-expert-knowledge)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1avx19j/revolutionizing_shipbuilding_new_platform_offers/

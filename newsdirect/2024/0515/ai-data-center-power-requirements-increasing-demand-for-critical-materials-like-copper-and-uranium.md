@@ -54,6 +54,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ai-data-center-power-requirements-increasing-demand-for-critical-materials-like-copper-and-uranium-700669708 
 
-[Original/Source Press Release](https://newsdirect.com/news/ai-data-center-power-requirements-increasing-demand-for-critical-materials-like-copper-and-uranium-700669708) 
+[Original/Source Press Release](https://newsdirect.com/news/ai-data-center-power-requirements-increasing-demand-for-critical-materials-like-copper-and-uranium-700669708)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1csjq5y/ai_and_data_center_power_requirements_driving/

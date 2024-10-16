@@ -24,6 +24,9 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/d-wave-nyse-qbts-expands-product-roadmap-to-bring-power-of-quantum-to-ai-ml/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/d-wave-nyse-qbts-expands-product-roadmap-to-bring-power-of-quantum-to-ai-ml/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1f2g1nt/dwave_quantum_expands_roadmap_for_quantum_ai/

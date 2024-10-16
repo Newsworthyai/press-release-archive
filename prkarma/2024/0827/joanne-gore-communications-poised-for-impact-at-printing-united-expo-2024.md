@@ -53,6 +53,9 @@ Visit Our Blog
 * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1542) 
+[Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1542)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1f6i64e/joanne_gore_communications_to_showcase_expanded/

@@ -31,6 +31,9 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-releases-the-energy-and-power-spotlight-global-transformer-industry-report-365625735 
 
-[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-releases-the-energy-and-power-spotlight-global-transformer-industry-report-365625735) 
+[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-releases-the-energy-and-power-spotlight-global-transformer-industry-report-365625735)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1ff6pl2/benchmark_international_releases_global/

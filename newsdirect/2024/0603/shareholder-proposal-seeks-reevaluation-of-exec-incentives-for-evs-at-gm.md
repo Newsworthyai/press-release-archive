@@ -38,6 +38,9 @@ Company Websitehttp://www.nlpc.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/shareholder-proposal-seeks-reevaluation-of-exec-incentives-for-evs-at-gm-366775689 
 
-[Original/Source Press Release](https://newsdirect.com/news/shareholder-proposal-seeks-reevaluation-of-exec-incentives-for-evs-at-gm-366775689) 
+[Original/Source Press Release](https://newsdirect.com/news/shareholder-proposal-seeks-reevaluation-of-exec-incentives-for-evs-at-gm-366775689)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d7lo4l/shareholder_proposal_seeks_reevaluation_of_exec/

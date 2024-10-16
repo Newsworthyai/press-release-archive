@@ -40,6 +40,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kampgrounds-of-americas-summer-camping-guide-and-trends-311282823 
 
-[Original/Source Press Release](https://newsdirect.com/news/kampgrounds-of-americas-summer-camping-guide-and-trends-311282823) 
+[Original/Source Press Release](https://newsdirect.com/news/kampgrounds-of-americas-summer-camping-guide-and-trends-311282823)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1dpvrss/kampgrounds_of_americas_summer_camping_guide_and/

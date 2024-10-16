@@ -46,6 +46,9 @@ Company Websitehttps://amerilife.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/amerilife-and-succession-capital-alliance-partner-to-expand-distribution-platform-for-advanced-life-insurance-solutions-159155538 
 
-[Original/Source Press Release](https://newsdirect.com/news/amerilife-and-succession-capital-alliance-partner-to-expand-distribution-platform-for-advanced-life-insurance-solutions-159155538) 
+[Original/Source Press Release](https://newsdirect.com/news/amerilife-and-succession-capital-alliance-partner-to-expand-distribution-platform-for-advanced-life-insurance-solutions-159155538)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dcl5hh/amerilife_and_succession_capital_alliance_partner/

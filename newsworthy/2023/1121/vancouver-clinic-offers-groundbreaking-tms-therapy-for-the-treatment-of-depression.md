@@ -12,6 +12,9 @@ While TMS NW does not manage client medications long-term, the clinic offers ass
 
 TMS NW understands that the cost of treatment can be a concern for many individuals. As a result, the clinic works with most insurance providers and offers flexible payment options. Patients may be required to pay an insurance copay or percentage (coinsurance) at each session to make the therapy more affordable. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231121730/vancouver-clinic-offers-groundbreaking-tms-therapy-for-the-treatment-of-depression) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231121730/vancouver-clinic-offers-groundbreaking-tms-therapy-for-the-treatment-of-depression)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcrsa/revolutionary_tms_therapy_for_depression_offered/

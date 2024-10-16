@@ -20,6 +20,9 @@ About XLINK
 
 XLINK is a pioneering bridge designed to enable seamless interoperability between Bitcoin and EVM Layer 2 solutions and provide essential infrastructure in Bitcoin DeFi. Acting as a Bitcoin Bridge, XLINK aggregates liquidity across Bitcoin L2s, aiming to bring native DeFi experience to Bitcoin and beyond. For more information, visit https://www.xlink.network/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/alex-acquires-the-stacks-assets-xbtc-and-xusd-of-wrappedcom-and-integrates-them-into-abtc-and-susdt-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/alex-acquires-the-stacks-assets-xbtc-and-xusd-of-wrappedcom-and-integrates-them-into-abtc-and-susdt-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ebcdcw/alex_and_wrappedcom_acquire_xbtc_and_xusd/

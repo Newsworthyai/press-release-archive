@@ -34,6 +34,9 @@ Company Websitehttp://www.nlpc.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/reid-hoffman-wished-death-upon-trump-and-funded-lawfare-he-must-be-removed-from-microsofts-board-and-defense-innovation-board-860365509 
 
-[Original/Source Press Release](https://newsdirect.com/news/reid-hoffman-wished-death-upon-trump-and-funded-lawfare-he-must-be-removed-from-microsofts-board-and-defense-innovation-board-860365509) 
+[Original/Source Press Release](https://newsdirect.com/news/reid-hoffman-wished-death-upon-trump-and-funded-lawfare-he-must-be-removed-from-microsofts-board-and-defense-innovation-board-860365509)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e32zqd/nlpc_calls_for_reid_hoffmans_removal_from/

@@ -10,6 +10,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/north-bay-resources-prepares-for-underground-operations-at-recently-acquired-mt-vernon-gold-mine-516464523 
 
-[Original/Source Press Release](https://newsdirect.com/news/north-bay-resources-prepares-for-underground-operations-at-recently-acquired-mt-vernon-gold-mine-516464523) 
+[Original/Source Press Release](https://newsdirect.com/news/north-bay-resources-prepares-for-underground-operations-at-recently-acquired-mt-vernon-gold-mine-516464523)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ecgxhu/north_bay_resources_ceo_provides_update_on_mt/

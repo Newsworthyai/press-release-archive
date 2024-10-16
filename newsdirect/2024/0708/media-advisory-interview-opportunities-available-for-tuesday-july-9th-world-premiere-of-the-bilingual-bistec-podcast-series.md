@@ -38,6 +38,9 @@ bistec@brillamedia.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/media-advisory-interview-opportunities-available-for-tuesday-july-9th-world-premiere-of-the-bilingual-bistec-podcast-series-345463046 
 
-[Original/Source Press Release](https://newsdirect.com/news/media-advisory-interview-opportunities-available-for-tuesday-july-9th-world-premiere-of-the-bilingual-bistec-podcast-series-345463046) 
+[Original/Source Press Release](https://newsdirect.com/news/media-advisory-interview-opportunities-available-for-tuesday-july-9th-world-premiere-of-the-bilingual-bistec-podcast-series-345463046)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dydr7b/world_premiere_of_bistec_podcast_series_a/

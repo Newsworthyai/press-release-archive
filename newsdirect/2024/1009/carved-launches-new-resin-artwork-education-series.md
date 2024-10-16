@@ -40,6 +40,9 @@ Company Websitehttps://www.carved.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/carved-launches-new-resin-artwork-education-series-976194588 
 
-[Original/Source Press Release](https://newsdirect.com/news/carved-launches-new-resin-artwork-education-series-976194588) 
+[Original/Source Press Release](https://newsdirect.com/news/carved-launches-new-resin-artwork-education-series-976194588)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1fzwmlf/carved_launches_new_resin_artwork_education_series/

@@ -36,6 +36,9 @@ Overall, Furrever Token's captivating concept, strategic tokenomics, stringent s
 
 Media Contact: Robert Smith support(at)furrevertoken.com [https://furrevertoken.com/](https://www.globenewswire.com/Tracker?data=hBpwz6tecI0Pd6iRIMUwqSxl_cWT00-EcT0PR_BmHGUVM_K_HyXTsIz4c575dSum2d4A6JKksG_JEa1Kpr67WsduGjr1BUW5TqqXdzGvOQg=)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/navigating-high-roi-in-cryptocurrency-ethereum-eth-shiba-inu-shib-and-furrever-token-furr) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/navigating-high-roi-in-cryptocurrency-ethereum-eth-shiba-inu-shib-and-furrever-token-furr)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c2jk1i/crypto_market_update_eth_and_shib_face_challenges/

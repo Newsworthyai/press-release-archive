@@ -24,6 +24,9 @@ Lionheart Health - Lionheart Health Stim
 
 http://www.lionheartlongevity.com 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202405081161/lionheart-health-and-electromedical-technologies-emed-join-forces-to-accelerate-market-growth-of-bioelectric-regeneration-platform) 
+[Original/Source Press Release](https://newsworthy.ai/news/202405081161/lionheart-health-and-electromedical-technologies-emed-join-forces-to-accelerate-market-growth-of-bioelectric-regeneration-platform)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cndzey/lionheart_health_and_electromedical_technologies/

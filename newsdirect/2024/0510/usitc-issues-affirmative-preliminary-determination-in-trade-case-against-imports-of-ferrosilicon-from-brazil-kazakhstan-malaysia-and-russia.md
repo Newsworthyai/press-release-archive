@@ -18,6 +18,9 @@ elizabeth@eahstrategiesllc.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/usitc-issues-affirmative-preliminary-determination-in-trade-case-against-imports-of-ferrosilicon-from-brazil-kazakhstan-malaysia-and-russia-329547383 
 
-[Original/Source Press Release](https://newsdirect.com/news/usitc-issues-affirmative-preliminary-determination-in-trade-case-against-imports-of-ferrosilicon-from-brazil-kazakhstan-malaysia-and-russia-329547383) 
+[Original/Source Press Release](https://newsdirect.com/news/usitc-issues-affirmative-preliminary-determination-in-trade-case-against-imports-of-ferrosilicon-from-brazil-kazakhstan-malaysia-and-russia-329547383)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1coz80c/usitc_determines_ferrosilicon_imports_causing/

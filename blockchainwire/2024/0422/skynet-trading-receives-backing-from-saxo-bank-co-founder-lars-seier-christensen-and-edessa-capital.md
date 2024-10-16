@@ -30,6 +30,9 @@ Seier Capital: Mr. Christensen, [info@seiercapital.com](mailto:info@seiercapital
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/skynet-trading-receives-backing-from-saxo-bank-co-founder-lars-seier-christensen-and-edessa-capital--) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/skynet-trading-receives-backing-from-saxo-bank-co-founder-lars-seier-christensen-and-edessa-capital--)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1calssy/skynet_trading_announces_private_transaction_with/

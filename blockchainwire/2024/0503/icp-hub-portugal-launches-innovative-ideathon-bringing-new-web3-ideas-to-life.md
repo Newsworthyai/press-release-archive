@@ -28,6 +28,9 @@ About Internet Protocol (ICP)
 
 The Internet Computer Protocol (ICP) is a blockchain network, forging the next generation of IT architecture and infrastructure. Founded by the DFINITY Foundation, ICP is empowering builders and developers with the tools needed to create inclusive and decentralised digital infrastructure, without the fear of centralised entities looming over - an open internet where everyone can contribute and has control over their data 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/icp-hub-portugal-launches-innovative-ideathon-bringing-new-web3-ideas-to-life) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/icp-hub-portugal-launches-innovative-ideathon-bringing-new-web3-ideas-to-life)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cjdobz/icp_hub_lisbon_announces_ideathon_for_aspiring/

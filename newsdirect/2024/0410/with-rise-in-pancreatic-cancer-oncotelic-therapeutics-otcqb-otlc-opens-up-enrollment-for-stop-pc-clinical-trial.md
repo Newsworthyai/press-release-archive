@@ -38,6 +38,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/with-rise-in-pancreatic-cancer-oncotelic-therapeutics-otcqb-otlc-opens-up-enrollment-for-stop-pc-clinical-trial-128435263 
 
-[Original/Source Press Release](https://newsdirect.com/news/with-rise-in-pancreatic-cancer-oncotelic-therapeutics-otcqb-otlc-opens-up-enrollment-for-stop-pc-clinical-trial-128435263) 
+[Original/Source Press Release](https://newsdirect.com/news/with-rise-in-pancreatic-cancer-oncotelic-therapeutics-otcqb-otlc-opens-up-enrollment-for-stop-pc-clinical-trial-128435263)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1c0kpe3/oncotelic_therapeutics_opens_enrollment_for/

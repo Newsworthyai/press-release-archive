@@ -30,6 +30,9 @@ Media contact: jade@transformgroup.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/jade-city-releases-white-paper-detailing-the-new-tokenomics-of-its-real-world-asset-rwa-platform-for-jade-gemstones) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/jade-city-releases-white-paper-detailing-the-new-tokenomics-of-its-real-world-asset-rwa-platform-for-jade-gemstones)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fnpg5j/jade_city_announces_white_paper_release_detailing/

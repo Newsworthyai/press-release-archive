@@ -44,6 +44,9 @@ You can learn more about MetFi DAO and Marine Moguls by visiting the MetFi websi
 
 X (Twitter) | Instagram | Telegram (Chat) | Telegram (News) | Discord | YouTube | TikTok | Medium | LinkedIn | Certik Audits | GitHub | CoinMarketCap | CoinGecko 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/marine-moguls-by-metfi-announces-59-million-erc-404-token-and-nft-airdrop-running-until-may) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/marine-moguls-by-metfi-announces-59-million-erc-404-token-and-nft-airdrop-running-until-may)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1bfdi2r/marine_moguls_airdrop_collect_free_mogul_tokens/

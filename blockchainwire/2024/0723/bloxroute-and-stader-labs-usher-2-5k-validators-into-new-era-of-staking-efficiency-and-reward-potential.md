@@ -22,6 +22,9 @@ About bloXroutebloXroute is a leading blockchain infrastructure company, providi
 
 About Stader LabsStader Labs is a pioneer in blockchain infrastructure solutions, providing comprehensive services for validator operations and node management. With its commitment to innovation and excellence, Stader Labs delivers state-of-the-art solutions to meet the evolving needs of the blockchain ecosystem. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bloxroute-and-stader-labs-usher-25k-validators-into-new-era-of-staking-efficiency-and-reward-potential) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bloxroute-and-stader-labs-usher-25k-validators-into-new-era-of-staking-efficiency-and-reward-potential)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvf2i1/bloxroute_and_stader_labs_collaborate_to/

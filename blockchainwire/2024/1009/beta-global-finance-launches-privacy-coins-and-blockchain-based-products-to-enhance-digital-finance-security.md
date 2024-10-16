@@ -26,6 +26,9 @@ Setting New Standards in the Digital Finance Industry
 
 Beta Global Finance’s focus on innovation and security positions the company as a leader in the digital finance space. With a mission to promote the healthy growth of the digital asset market, the introduction of these new products reflects the company’s commitment to delivering user-centric solutions that prioritize privacy and security. The development of privacy coins, alongside decentralized finance and blockchain solutions, underscores Beta Global Finance's role in shaping the future of global finance. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/beta-global-finance-launches-privacy-coins-and-blockchain-based-products-to-enhance-digital-finance-security) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/beta-global-finance-launches-privacy-coins-and-blockchain-based-products-to-enhance-digital-finance-security)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fzv682/beta_global_finance_unveils_new_products_to/

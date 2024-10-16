@@ -30,6 +30,9 @@ Company Websitehttps://paxful.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/paxful-launches-global-ethereum-support-in-over-150-countries-with-major-free-trading-and-signup-promotions-643517266 
 
-[Original/Source Press Release](https://newsdirect.com/news/paxful-launches-global-ethereum-support-in-over-150-countries-with-major-free-trading-and-signup-promotions-643517266) 
+[Original/Source Press Release](https://newsdirect.com/news/paxful-launches-global-ethereum-support-in-over-150-countries-with-major-free-trading-and-signup-promotions-643517266)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bu06c4/paxful_launches_global_ethereum_support_with/

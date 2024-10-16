@@ -24,6 +24,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/artisanal-spirits-company-targets-new-markets-as-it-expands-global-experience-for-afficionados-885508845 
 
-[Original/Source Press Release](https://newsdirect.com/news/artisanal-spirits-company-targets-new-markets-as-it-expands-global-experience-for-afficionados-885508845) 
+[Original/Source Press Release](https://newsdirect.com/news/artisanal-spirits-company-targets-new-markets-as-it-expands-global-experience-for-afficionados-885508845)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c59y23/artisanal_spirits_company_expands_global_market/

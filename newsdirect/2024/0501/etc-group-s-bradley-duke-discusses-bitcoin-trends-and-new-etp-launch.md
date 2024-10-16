@@ -20,6 +20,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/etc-groups-bradley-duke-discusses-bitcoin-trends-and-new-etp-launch-204250980 
 
-[Original/Source Press Release](https://newsdirect.com/news/etc-groups-bradley-duke-discusses-bitcoin-trends-and-new-etp-launch-204250980) 
+[Original/Source Press Release](https://newsdirect.com/news/etc-groups-bradley-duke-discusses-bitcoin-trends-and-new-etp-launch-204250980)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1chndqm/etc_group_founder_bradley_duke_discusses_bitcoin/

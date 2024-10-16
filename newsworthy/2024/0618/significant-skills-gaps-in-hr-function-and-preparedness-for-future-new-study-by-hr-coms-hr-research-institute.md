@@ -29,6 +29,9 @@ Become a part of HR.com’s HR Research Influencer panel today. Participate in s
 
 Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202406181198/significant-skills-gaps-in-hr-function-and-preparedness-for-future-new-study-by-hr-coms-hr-research-institute) 
+[Original/Source Press Release](https://newsworthy.ai/news/202406181198/significant-skills-gaps-in-hr-function-and-preparedness-for-future-new-study-by-hr-coms-hr-research-institute)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1dip7qb/new_study_reveals_critical_gap_in_hr_function/

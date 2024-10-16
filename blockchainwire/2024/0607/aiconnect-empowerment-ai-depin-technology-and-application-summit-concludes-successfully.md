@@ -52,6 +52,9 @@ Email: jcvip@jcoin.info
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/aiconnect-empowerment-aidepin-technology-and-application-summit-concludes-successfully) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/aiconnect-empowerment-aidepin-technology-and-application-summit-concludes-successfully)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dag0rh/aidepin_technology_summit_aiconnect_and_jucoin/

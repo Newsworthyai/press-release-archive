@@ -36,6 +36,9 @@ All meme coin fans can check out this new token at the project's official websit
 
 X (Twitter) | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/philosoraptor-announces-the-arrival-of-phil-the-new-meme-token-on-solana) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/philosoraptor-announces-the-arrival-of-phil-the-new-meme-token-on-solana)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bzqo2z/philosoraptor_team_launches_phil_the_new_meme/

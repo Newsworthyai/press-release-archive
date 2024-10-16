@@ -18,6 +18,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-technologies-unveils-versatile-new-generation-of-buoy-systems-911881541 
 
-[Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-unveils-versatile-new-generation-of-buoy-systems-911881541) 
+[Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-unveils-versatile-new-generation-of-buoy-systems-911881541)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cc47ag/ocean_power_technologies_unveils_nextgen_buoy/

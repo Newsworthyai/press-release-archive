@@ -18,6 +18,9 @@ Waves3 Hub Portugal is one of the latest additions to ICP’s global developer c
 
 Eligibility detailsFor more on how you can apply to take part in the hackathon, see the information on the landing page 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/build-on-icp---the-first-icp-hackathon-in-portugal) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/build-on-icp---the-first-icp-hackathon-in-portugal)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1avwy4f/inaugural_build_on_icp_hackathon_set_to_cultivate/

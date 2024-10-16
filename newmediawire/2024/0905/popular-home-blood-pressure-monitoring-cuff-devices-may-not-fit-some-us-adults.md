@@ -67,6 +67,9 @@ Research Highlights:
 
  heart.org and stroke.org 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/popular-home-blood-pressure-monitoring-cuff-devices-may-not-fit-some-us-adults-7076003) 
+[Original/Source Press Release](https://www.newmediawire.com/news/popular-home-blood-pressure-monitoring-cuff-devices-may-not-fit-some-us-adults-7076003)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f9rpo8/new_research_reveals_athome_blood_pressure/

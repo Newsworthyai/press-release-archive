@@ -20,6 +20,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/empire-metals-focuses-on-titanium-potential-at-pitfield-project-after-strategic-refinement-141236322 
 
-[Original/Source Press Release](https://newsdirect.com/news/empire-metals-focuses-on-titanium-potential-at-pitfield-project-after-strategic-refinement-141236322) 
+[Original/Source Press Release](https://newsdirect.com/news/empire-metals-focuses-on-titanium-potential-at-pitfield-project-after-strategic-refinement-141236322)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1chn11y/empire_metals_focuses_on_titanium_potential_at/

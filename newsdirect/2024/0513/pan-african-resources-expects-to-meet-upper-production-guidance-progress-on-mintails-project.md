@@ -16,6 +16,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pan-african-resources-expects-to-meet-upper-production-guidance-progress-on-mintails-project-123614425 
 
-[Original/Source Press Release](https://newsdirect.com/news/pan-african-resources-expects-to-meet-upper-production-guidance-progress-on-mintails-project-123614425) 
+[Original/Source Press Release](https://newsdirect.com/news/pan-african-resources-expects-to-meet-upper-production-guidance-progress-on-mintails-project-123614425)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cr1k5v/pan_african_resources_expects_to_meet_upper/

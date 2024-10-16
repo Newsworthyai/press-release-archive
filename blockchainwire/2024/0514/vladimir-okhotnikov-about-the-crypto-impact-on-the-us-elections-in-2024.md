@@ -28,6 +28,9 @@ The Okhotnikov company specializes in global analysis, trend forecasting and pro
 
 Vladimir Okhotnikov is the founder of the company, an outstanding specialist in the field of finance, whose knowledge and experience are respected by many authoritative publications. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/vladimir-okhotnikov-about-the-crypto-impact-on-the-us-elections-in-2024) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/vladimir-okhotnikov-about-the-crypto-impact-on-the-us-elections-in-2024)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cs4tkx/crypto_expert_okhotnikov_analyzes_impact_on_2024/

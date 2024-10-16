@@ -34,6 +34,9 @@ Company Websitehttps://trustandwill.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/trust-and-will-named-to-the-2024-cnbc-disruptor-50-list-for-pioneering-online-estate-planning-513105555 
 
-[Original/Source Press Release](https://newsdirect.com/news/trust-and-will-named-to-the-2024-cnbc-disruptor-50-list-for-pioneering-online-estate-planning-513105555) 
+[Original/Source Press Release](https://newsdirect.com/news/trust-and-will-named-to-the-2024-cnbc-disruptor-50-list-for-pioneering-online-estate-planning-513105555)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1crplex/trust_will_named_to_2024_cnbc_disruptor_50_list/

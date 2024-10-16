@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/north-bay-resources-announces-further-results-from-trench-work-at-fran-gold-joint-venture-408372463 
 
-[Original/Source Press Release](https://newsdirect.com/news/north-bay-resources-announces-further-results-from-trench-work-at-fran-gold-joint-venture-408372463) 
+[Original/Source Press Release](https://newsdirect.com/news/north-bay-resources-announces-further-results-from-trench-work-at-fran-gold-joint-venture-408372463)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1djkchi/north_bay_resources_ceo_shares_exciting/

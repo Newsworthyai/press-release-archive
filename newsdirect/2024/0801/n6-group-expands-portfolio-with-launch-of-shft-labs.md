@@ -40,6 +40,9 @@ Company Websitehttps://northsixthgroup.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/n6-group-expands-portfolio-with-launch-of-shft-labs-765367124 
 
-[Original/Source Press Release](https://newsdirect.com/news/n6-group-expands-portfolio-with-launch-of-shft-labs-765367124) 
+[Original/Source Press Release](https://newsdirect.com/news/n6-group-expands-portfolio-with-launch-of-shft-labs-765367124)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ehgb5u/n6_group_expands_portfolio_with_launch_of_shft/

@@ -42,6 +42,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/may-is-motorcycle-safety-awareness-month-gear-up-for-safety-with-airbags-save-514191078 
 
-[Original/Source Press Release](https://newsdirect.com/news/may-is-motorcycle-safety-awareness-month-gear-up-for-safety-with-airbags-save-514191078) 
+[Original/Source Press Release](https://newsdirect.com/news/may-is-motorcycle-safety-awareness-month-gear-up-for-safety-with-airbags-save-514191078)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1chndhf/cycle_gear_president_promotes_airbags_save/

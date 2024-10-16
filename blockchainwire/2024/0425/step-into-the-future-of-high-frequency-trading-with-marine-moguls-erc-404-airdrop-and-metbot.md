@@ -50,6 +50,9 @@ CoinMarketCap: https://coinmarketcap.com/currencies/metfi2
 
 CoinGecko: https://www.coingecko.com/en/coins/metfiInstagram: https://instagram.com/metfidao 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/step-into-the-future-of-high-frequency-trading-with-marine-moguls-erc-404-airdrop-and-metbot) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/step-into-the-future-of-high-frequency-trading-with-marine-moguls-erc-404-airdrop-and-metbot)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1ccsxz4/metfi_dao_unveils_marine_moguls_token_and_metbot/

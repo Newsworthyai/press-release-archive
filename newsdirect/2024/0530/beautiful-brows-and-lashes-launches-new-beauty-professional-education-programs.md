@@ -34,6 +34,9 @@ Company Websitehttps://beautifulbrowsandlashes.us/
 
 View source version on newsdirect.com: https://newsdirect.com/news/beautiful-brows-and-lashes-launches-new-beauty-professional-education-programs-800623096 
 
-[Original/Source Press Release](https://newsdirect.com/news/beautiful-brows-and-lashes-launches-new-beauty-professional-education-programs-800623096) 
+[Original/Source Press Release](https://newsdirect.com/news/beautiful-brows-and-lashes-launches-new-beauty-professional-education-programs-800623096)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d49xq2/beautiful_brows_and_lashes_launches_new_beauty/

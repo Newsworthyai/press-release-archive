@@ -36,6 +36,9 @@ With the presale nearing its end, now is the perfect time to invest in Furrever 
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/crypto-roundup-bitcoin-stays-steady-ethereum-jumps-23-and-furrever-tokens-15x-returns-capture-attention) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/crypto-roundup-bitcoin-stays-steady-ethereum-jumps-23-and-furrever-tokens-15x-returns-capture-attention)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cyqp04/ethereum_surges_23_amid_record_etf_trading_volumes/

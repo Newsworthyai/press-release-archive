@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/redhill-biopharma-secures-u-s-government-funding-through-barda-to-advance-opaganib-for-ebola-treatment-746756154 
 
-[Original/Source Press Release](https://newsdirect.com/news/redhill-biopharma-secures-u-s-government-funding-through-barda-to-advance-opaganib-for-ebola-treatment-746756154) 
+[Original/Source Press Release](https://newsdirect.com/news/redhill-biopharma-secures-u-s-government-funding-through-barda-to-advance-opaganib-for-ebola-treatment-746756154)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1g492xk/redhill_biopharma_secures_us_government_funding/

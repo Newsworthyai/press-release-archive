@@ -12,6 +12,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lithium-universe-utilises-proven-procurement-strategy-for-efficient-refinery-build-365668629 
 
-[Original/Source Press Release](https://newsdirect.com/news/lithium-universe-utilises-proven-procurement-strategy-for-efficient-refinery-build-365668629) 
+[Original/Source Press Release](https://newsdirect.com/news/lithium-universe-utilises-proven-procurement-strategy-for-efficient-refinery-build-365668629)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1d3m239/lithium_universe_implements_proven_procurement/

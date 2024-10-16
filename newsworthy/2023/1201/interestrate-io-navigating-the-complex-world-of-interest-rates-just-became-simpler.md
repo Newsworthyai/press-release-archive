@@ -18,6 +18,9 @@ Embarking on a journey to bridge knowledge gaps in the realm of interest rates, 
 
 For an unparalleled exploration of interest rates and expert views, visit www.InterestRate.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231201829/interestrate-io-navigating-the-complex-world-of-interest-rates-just-became-simpler) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231201829/interestrate-io-navigating-the-complex-world-of-interest-rates-just-became-simpler)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1avct1e/interestrateio_launches_as_a_gamechanger_in/

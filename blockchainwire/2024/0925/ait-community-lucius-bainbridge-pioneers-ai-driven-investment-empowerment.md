@@ -26,6 +26,9 @@ As the landscape of investing continues to evolve, AIT Community remains committ
 
 This commitment to innovation and education not only positions AIT Community as a leader in fintech but also ensures that its members are well-prepared to capitalize on opportunities in a global economy characterized by rapid change. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/ait-community-lucius-bainbridge-pioneers-ai-driven-investment-empowerment) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/ait-community-lucius-bainbridge-pioneers-ai-driven-investment-empowerment)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1fp8a5w/revolutionizing_investment_with_ai_technology_and/

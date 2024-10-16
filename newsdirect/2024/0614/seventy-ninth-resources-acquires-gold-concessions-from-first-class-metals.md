@@ -40,6 +40,9 @@ Company Websitehttps://the79thgroup.co.uk/
 
 View source version on newsdirect.com: https://newsdirect.com/news/seventy-ninth-resources-acquires-gold-concessions-from-first-class-metals-540193145 
 
-[Original/Source Press Release](https://newsdirect.com/news/seventy-ninth-resources-acquires-gold-concessions-from-first-class-metals-540193145) 
+[Original/Source Press Release](https://newsdirect.com/news/seventy-ninth-resources-acquires-gold-concessions-from-first-class-metals-540193145)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dfr3al/seventy_ninth_resources_acquires_gold_concessions/

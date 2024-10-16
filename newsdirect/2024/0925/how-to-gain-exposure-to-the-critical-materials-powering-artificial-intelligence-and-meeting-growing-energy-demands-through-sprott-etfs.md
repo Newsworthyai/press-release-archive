@@ -66,6 +66,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-to-gain-exposure-to-the-critical-materials-powering-artificial-intelligence-and-meeting-growing-energy-demands-through-sprott-etfs-844696087 
 
-[Original/Source Press Release](https://newsdirect.com/news/how-to-gain-exposure-to-the-critical-materials-powering-artificial-intelligence-and-meeting-growing-energy-demands-through-sprott-etfs-844696087) 
+[Original/Source Press Release](https://newsdirect.com/news/how-to-gain-exposure-to-the-critical-materials-powering-artificial-intelligence-and-meeting-growing-energy-demands-through-sprott-etfs-844696087)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1fp3ut0/the_growing_demand_for_critical_materials_in_ai/

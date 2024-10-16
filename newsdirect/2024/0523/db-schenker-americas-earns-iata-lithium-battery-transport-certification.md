@@ -38,6 +38,9 @@ Company Websitehttps://www.dbschenker.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/db-schenker-americas-earns-iata-lithium-battery-transport-certification-367920787 
 
-[Original/Source Press Release](https://newsdirect.com/news/db-schenker-americas-earns-iata-lithium-battery-transport-certification-367920787) 
+[Original/Source Press Release](https://newsdirect.com/news/db-schenker-americas-earns-iata-lithium-battery-transport-certification-367920787)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cysepk/db_schenker_americas_earns_iata_lithium_battery/

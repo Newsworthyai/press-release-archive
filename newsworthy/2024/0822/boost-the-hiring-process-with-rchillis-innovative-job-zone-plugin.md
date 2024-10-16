@@ -38,6 +38,9 @@ Make your recruitment process future-ready with RChilli’s AI-powered solutions
 
 Since 2010, RChilli has been enabling companies to hire better talent faster. It is ISO 27001:2022, SOC 2 Type II, HIPAA certified, and GDPR compliant. RChilli's multilingual resume parsing app is available on Oracle Cloud Marketplace and Salesforce AppExchange, ensuring global reach and accessibility. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202408221244/boost-the-hiring-process-with-rchillis-innovative-job-zone-plugin) 
+[Original/Source Press Release](https://newsworthy.ai/news/202408221244/boost-the-hiring-process-with-rchillis-innovative-job-zone-plugin)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1eyoykw/rchilli_introduces_innovative_job_zone_plugin_for/

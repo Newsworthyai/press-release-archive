@@ -29,6 +29,9 @@ Become a part of HR.com’s HR Research Influencer panel today. Participate in s
 
 Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202408271247/most-organizations-struggle-with-effective-employee-communication-and-collaboration-new-study-by-hr-research-institute) 
+[Original/Source Press Release](https://newsworthy.ai/news/202408271247/most-organizations-struggle-with-effective-employee-communication-and-collaboration-new-study-by-hr-research-institute)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Leadership_Management/comments/1f2jg2u/new_study_reveals_widespread_dissatisfaction_with/

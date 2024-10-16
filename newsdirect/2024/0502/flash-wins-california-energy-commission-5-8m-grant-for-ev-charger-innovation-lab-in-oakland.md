@@ -32,6 +32,9 @@ Company Websitehttps://www.flashparking.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/flash-wins-california-energy-commission-5-8m-grant-for-ev-charger-innovation-lab-in-oakland-740609510 
 
-[Original/Source Press Release](https://newsdirect.com/news/flash-wins-california-energy-commission-5-8m-grant-for-ev-charger-innovation-lab-in-oakland-740609510) 
+[Original/Source Press Release](https://newsdirect.com/news/flash-wins-california-energy-commission-5-8m-grant-for-ev-charger-innovation-lab-in-oakland-740609510)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1ciitda/flash_wins_58m_grant_for_ev_charger_innovation_lab/

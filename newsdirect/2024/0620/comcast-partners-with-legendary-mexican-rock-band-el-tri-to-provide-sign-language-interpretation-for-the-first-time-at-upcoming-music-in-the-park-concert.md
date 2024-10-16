@@ -50,6 +50,9 @@ Company Websitehttps://california.comcast.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/comcast-partners-with-legendary-mexican-rock-band-el-tri-to-provide-sign-language-interpretation-for-the-first-time-at-upcoming-music-in-the-park-concert-865057716 
 
-[Original/Source Press Release](https://newsdirect.com/news/comcast-partners-with-legendary-mexican-rock-band-el-tri-to-provide-sign-language-interpretation-for-the-first-time-at-upcoming-music-in-the-park-concert-865057716) 
+[Original/Source Press Release](https://newsdirect.com/news/comcast-partners-with-legendary-mexican-rock-band-el-tri-to-provide-sign-language-interpretation-for-the-first-time-at-upcoming-music-in-the-park-concert-865057716)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1dkhz83/comcast_partners_with_el_tri_to_provide_sign/

@@ -32,6 +32,9 @@ Company Websitehttps://www.quarktwin.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/quarktwin-electronics-unveils-revolutionary-innovations-in-consumer-technology-486802108 
 
-[Original/Source Press Release](https://newsdirect.com/news/quarktwin-electronics-unveils-revolutionary-innovations-in-consumer-technology-486802108) 
+[Original/Source Press Release](https://newsdirect.com/news/quarktwin-electronics-unveils-revolutionary-innovations-in-consumer-technology-486802108)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1czftwp/quarktwin_electronics_unveils_revolutionary/

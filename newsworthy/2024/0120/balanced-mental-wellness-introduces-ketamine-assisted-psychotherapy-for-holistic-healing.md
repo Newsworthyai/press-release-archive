@@ -8,6 +8,9 @@ During a 2-hour session at Balanced Mental Wellness, ketamine is administered ei
 
 Integrating indigenous practices with psychedelic medicines, Balanced Mental Wellness firmly believes in the inherent wholeness of every individual. By combining ketamine therapy with integration therapy before and after each session, they aim to assist individuals in reconnecting with themselves, healing emotional wounds, and staying connected to their authentic selves. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401201000/balanced-mental-wellness-introduces-ketamine-assisted-psychotherapy-for-holistic-healing) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401201000/balanced-mental-wellness-introduces-ketamine-assisted-psychotherapy-for-holistic-healing)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avk03u/denvers_balanced_mental_wellness_introduces/

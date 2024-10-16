@@ -46,6 +46,9 @@ Company Websitehttps://gainjuryadvocates.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/marietta-personal-injury-attorney-ramiro-rodriguez-is-promoting-safe-driving-and-workplace-safety-768892961 
 
-[Original/Source Press Release](https://newsdirect.com/news/marietta-personal-injury-attorney-ramiro-rodriguez-is-promoting-safe-driving-and-workplace-safety-768892961) 
+[Original/Source Press Release](https://newsdirect.com/news/marietta-personal-injury-attorney-ramiro-rodriguez-is-promoting-safe-driving-and-workplace-safety-768892961)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1bq7jww/marietta_personal_injury_attorney_launches/

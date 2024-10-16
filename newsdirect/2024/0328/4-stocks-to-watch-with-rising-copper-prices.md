@@ -72,6 +72,9 @@ Company Websitehttp://CapitalGainsReport.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/4-stocks-to-watch-with-rising-copper-prices-685902463 
 
-[Original/Source Press Release](https://newsdirect.com/news/4-stocks-to-watch-with-rising-copper-prices-685902463) 
+[Original/Source Press Release](https://newsdirect.com/news/4-stocks-to-watch-with-rising-copper-prices-685902463)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bpr228/seismic_shift_in_global_copper_market_key_players/

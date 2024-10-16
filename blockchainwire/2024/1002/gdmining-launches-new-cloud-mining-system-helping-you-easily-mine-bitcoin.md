@@ -23,6 +23,9 @@ GDMining is a leading cloud mining platform, offering innovative and secure solu
 
 For more information or to get started with GDMining, visit www.gdmining.com. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-launches-new-cloud-mining-system-helping-you-easily-mine-bitcoin) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/gdmining-launches-new-cloud-mining-system-helping-you-easily-mine-bitcoin)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fuopf6/gdmining_unveils_enhanced_cloud_mining_system_for/

@@ -54,6 +54,9 @@ Company Websitehttps://gcc-advisors.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/gcc-advisors-announces-strategic-initiatives-to-enhance-global-business-expansion-services-333243173 
 
-[Original/Source Press Release](https://newsdirect.com/news/gcc-advisors-announces-strategic-initiatives-to-enhance-global-business-expansion-services-333243173) 
+[Original/Source Press Release](https://newsdirect.com/news/gcc-advisors-announces-strategic-initiatives-to-enhance-global-business-expansion-services-333243173)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eexp9g/gcc_advisors_announces_strategic_initiatives_to/

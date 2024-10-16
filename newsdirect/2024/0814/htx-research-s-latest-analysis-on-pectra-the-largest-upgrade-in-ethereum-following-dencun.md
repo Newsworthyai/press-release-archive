@@ -340,6 +340,9 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-researchs-latest-analysis-on-pectra-the-largest-upgrade-in-ethereum-following-dencun-171754607 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-researchs-latest-analysis-on-pectra-the-largest-upgrade-in-ethereum-following-dencun-171754607) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-researchs-latest-analysis-on-pectra-the-largest-upgrade-in-ethereum-following-dencun-171754607)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvdnaw/pectra_upgrade_in_q4_key_proposals_and/

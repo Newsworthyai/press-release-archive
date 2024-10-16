@@ -48,6 +48,9 @@ Company Websitehttps://www.kevin.eu/
 
 View source version on newsdirect.com: https://newsdirect.com/news/kevin-triomphe-avec-la-premiere-transaction-nfc-de-compte-a-compte-sur-iphone-577928902 
 
-[Original/Source Press Release](https://newsdirect.com/news/kevin-triomphe-avec-la-premiere-transaction-nfc-de-compte-a-compte-sur-iphone-577928902) 
+[Original/Source Press Release](https://newsdirect.com/news/kevin-triomphe-avec-la-premiere-transaction-nfc-de-compte-a-compte-sur-iphone-577928902)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1c1dd94/kevin_makes_history_with_first_nfc/

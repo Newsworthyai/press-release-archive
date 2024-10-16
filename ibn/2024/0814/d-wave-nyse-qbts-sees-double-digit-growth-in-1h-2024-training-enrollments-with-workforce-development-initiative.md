@@ -24,6 +24,9 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/d-wave-nyse-qbts-sees-double-digit-growth-in-1h-2024-training-enrollments-with-workforce-development-initiative/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/d-wave-nyse-qbts-sees-double-digit-growth-in-1h-2024-training-enrollments-with-workforce-development-initiative/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2fgmr/dwave_quantum_inc_sees_significant_increase_in/

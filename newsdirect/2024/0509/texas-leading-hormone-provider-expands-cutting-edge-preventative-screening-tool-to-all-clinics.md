@@ -39,6 +39,9 @@ Company Websitehttps://forumhealth.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/texas-leading-hormone-provider-expands-cutting-edge-preventative-screening-tool-to-all-clinics-899288747 
 
-[Original/Source Press Release](https://newsdirect.com/news/texas-leading-hormone-provider-expands-cutting-edge-preventative-screening-tool-to-all-clinics-899288747) 
+[Original/Source Press Release](https://newsdirect.com/news/texas-leading-hormone-provider-expands-cutting-edge-preventative-screening-tool-to-all-clinics-899288747)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cnwt7r/hormones_by_design_acquires_diti_imaging_to/

@@ -30,6 +30,9 @@ For press inquiries, please contact CryptoSafe Ltd. at contact-us@cryptosafe.ai
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/dedy-lase-elevates-cryptosafe-a-strategic-journey-following-95m-valuation) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/dedy-lase-elevates-cryptosafe-a-strategic-journey-following-95m-valuation)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avcbbp/cryptosafe_secures_20_million_funding_led_by/

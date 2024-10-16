@@ -38,6 +38,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/entertain-with-ease-expert-tips-for-hosting-a-summer-party-948348739 
 
-[Original/Source Press Release](https://newsdirect.com/news/entertain-with-ease-expert-tips-for-hosting-a-summer-party-948348739) 
+[Original/Source Press Release](https://newsdirect.com/news/entertain-with-ease-expert-tips-for-hosting-a-summer-party-948348739)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dkhyt0/expert_tips_for_easy_and_memorable_summer/

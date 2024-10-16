@@ -28,6 +28,9 @@ Company Websitehttps://www.flashparking.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/live-nation-taps-flashs-parkwhiz-as-official-parking-provider-for-41-premier-venues-nationwide-595485592 
 
-[Original/Source Press Release](https://newsdirect.com/news/live-nation-taps-flashs-parkwhiz-as-official-parking-provider-for-41-premier-venues-nationwide-595485592) 
+[Original/Source Press Release](https://newsdirect.com/news/live-nation-taps-flashs-parkwhiz-as-official-parking-provider-for-41-premier-venues-nationwide-595485592)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1en7pxp/flashs_parkwhiz_becomes_official_parking_provider/

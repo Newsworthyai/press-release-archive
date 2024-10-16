@@ -15,6 +15,9 @@ About Wemade
 
 A renowned industry leader and innovator in game development, WEMADE is leading a once-in-a-generation shift as the gaming industry pivots to blockchain technology. WEMADE aims to accelerate the mass adoption of blockchain technology, and is building through its WEMIX subsidiary, an experience-based, platform-driven, and service-oriented mega-ecosystem that will offer access to a wide spectrum of intuitive, convenient, and easy-to-use Web3 services. www.wemade.com / www.wemix.com/communication 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/wemix30-welcomes-sygnum-as-node-council-partner-wonder-18) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/wemix30-welcomes-sygnum-as-node-council-partner-wonder-18)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1avxi4f/sygnum_joins_wemix30_mainnet_as_node_council/

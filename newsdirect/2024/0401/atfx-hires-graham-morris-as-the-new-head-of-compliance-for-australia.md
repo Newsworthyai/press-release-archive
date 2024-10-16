@@ -32,6 +32,9 @@ Company Websitehttps://www.atfx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/atfx-hires-graham-morris-as-the-new-head-of-compliance-for-australia-552263622 
 
-[Original/Source Press Release](https://newsdirect.com/news/atfx-hires-graham-morris-as-the-new-head-of-compliance-for-australia-552263622) 
+[Original/Source Press Release](https://newsdirect.com/news/atfx-hires-graham-morris-as-the-new-head-of-compliance-for-australia-552263622)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bt8727/atfx_appoints_graham_morris_as_head_of_compliance/

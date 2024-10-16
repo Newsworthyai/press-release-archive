@@ -50,6 +50,9 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/kangamoon-kang-surpasses-3-7m-milestone-myro-surges-34-can-pepefork-keep-up-699508286 
 
-[Original/Source Press Release](https://newsdirect.com/news/kangamoon-kang-surpasses-3-7m-milestone-myro-surges-34-can-pepefork-keep-up-699508286) 
+[Original/Source Press Release](https://newsdirect.com/news/kangamoon-kang-surpasses-3-7m-milestone-myro-surges-34-can-pepefork-keep-up-699508286)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1burw94/myro_myro_surges_34_and_kangamoon_kang_raises_37m/

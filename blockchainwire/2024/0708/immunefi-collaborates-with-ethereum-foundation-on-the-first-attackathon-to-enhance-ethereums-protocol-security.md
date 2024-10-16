@@ -36,6 +36,9 @@ EF is a non-profit and part of a community of organizations and people working t
 
 ![](https://blockchainwire.s3.amazonaws.com/MAFamily/editor_image/677597d7-c8f6-4c3f-b4f9-ea8e004bc463.png) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/immunefi-collaborates-with-ethereum-foundation-on-the-first-attackathon-to-enhance-ethereums-protocol-security) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/immunefi-collaborates-with-ethereum-foundation-on-the-first-attackathon-to-enhance-ethereums-protocol-security)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dy8jxb/immunefi_and_ethereum_foundation_partner_for/

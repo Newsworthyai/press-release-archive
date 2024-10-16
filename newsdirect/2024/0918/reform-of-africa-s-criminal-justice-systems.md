@@ -46,6 +46,9 @@ johann@studebaker.group
 
 View source version on newsdirect.com: https://newsdirect.com/news/reform-of-africas-criminal-justice-systems-741867016 
 
-[Original/Source Press Release](https://newsdirect.com/news/reform-of-africas-criminal-justice-systems-741867016) 
+[Original/Source Press Release](https://newsdirect.com/news/reform-of-africas-criminal-justice-systems-741867016)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1fk3f6u/reform_of_africas_criminal_justice_systems/

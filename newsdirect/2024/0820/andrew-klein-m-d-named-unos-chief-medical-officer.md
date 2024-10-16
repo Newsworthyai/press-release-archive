@@ -30,6 +30,9 @@ Company Websitehttps://unos.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/andrew-klein-m-d-named-unos-chief-medical-officer-786874397 
 
-[Original/Source Press Release](https://newsdirect.com/news/andrew-klein-m-d-named-unos-chief-medical-officer-786874397) 
+[Original/Source Press Release](https://newsdirect.com/news/andrew-klein-m-d-named-unos-chief-medical-officer-786874397)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ex50bt/dr_andrew_s_klein_named_unos_chief_medical_officer/

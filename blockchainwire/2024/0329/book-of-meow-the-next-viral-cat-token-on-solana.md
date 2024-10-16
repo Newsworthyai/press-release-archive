@@ -18,6 +18,9 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/book-of-meow---the-next-viral-cat-token-on-solana) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/book-of-meow---the-next-viral-cat-token-on-solana)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bqxe02/book_of_meow_launches_revolutionary_bomeow_coin/

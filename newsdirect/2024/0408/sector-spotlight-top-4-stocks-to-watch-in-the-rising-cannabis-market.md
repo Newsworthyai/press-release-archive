@@ -66,6 +66,9 @@ makrrmckelvie@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sector-spotlight-top-4-stocks-to-watch-in-the-rising-cannabis-market-813306881 
 
-[Original/Source Press Release](https://newsdirect.com/news/sector-spotlight-top-4-stocks-to-watch-in-the-rising-cannabis-market-813306881) 
+[Original/Source Press Release](https://newsdirect.com/news/sector-spotlight-top-4-stocks-to-watch-in-the-rising-cannabis-market-813306881)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1bytdrq/rising_cannabis_market_top_4_stocks_to_watch/

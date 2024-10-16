@@ -28,6 +28,9 @@ Company Websitehttps://www.businessphoto.ai/
 
 View source version on newsdirect.com: https://newsdirect.com/news/business-photo-ai-launches-cutting-edge-ai-driven-headshot-service-545114025 
 
-[Original/Source Press Release](https://newsdirect.com/news/business-photo-ai-launches-cutting-edge-ai-driven-headshot-service-545114025) 
+[Original/Source Press Release](https://newsdirect.com/news/business-photo-ai-launches-cutting-edge-ai-driven-headshot-service-545114025)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Leadership_Management/comments/1do71vs/business_photo_ai_launches_cuttingedge_aidriven/

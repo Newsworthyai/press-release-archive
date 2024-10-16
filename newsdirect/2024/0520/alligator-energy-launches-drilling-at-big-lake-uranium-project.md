@@ -12,6 +12,9 @@ Jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/alligator-energy-launches-drilling-at-big-lake-uranium-project-198013312 
 
-[Original/Source Press Release](https://newsdirect.com/news/alligator-energy-launches-drilling-at-big-lake-uranium-project-198013312) 
+[Original/Source Press Release](https://newsdirect.com/news/alligator-energy-launches-drilling-at-big-lake-uranium-project-198013312)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cwp3pj/alligator_energy_launches_drilling_at_big_lake/

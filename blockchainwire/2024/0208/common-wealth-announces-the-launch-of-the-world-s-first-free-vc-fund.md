@@ -47,6 +47,9 @@ hello@common-wealth.io
 
 ** Common Wealth reserves the right to extend the campaign at its discretion. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/common-wealth-announces-the-launch-of-the-worlds-first-free-vc-fund) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/common-wealth-announces-the-launch-of-the-worlds-first-free-vc-fund)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjyzn/common_wealth_launches_free_earntoown_vc_fund_for/

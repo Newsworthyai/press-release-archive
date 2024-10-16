@@ -36,6 +36,9 @@ Discord: https://discord.gg/Q7BxghMVyu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/looking-for-a-fool-proof-crypto-mining-experience-trendsetting-blockdag-network-just-launched-its-x1-miner-app-and-its-a-game-changer-for-smart-mining) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/looking-for-a-fool-proof-crypto-mining-experience-trendsetting-blockdag-network-just-launched-its-x1-miner-app-and-its-a-game-changer-for-smart-mining)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1db3tck/blockdag_network_launches_x1_miner_app_making/

@@ -14,6 +14,9 @@ About BitMart
 
 BitMart is the premier global digital asset trading platform. With millions of users worldwide and ranked among the top crypto exchanges on CoinGecko, it currently offers 1500+ trading pairs with competitive trading fees. Constantly evolving and growing, BitMart is interested in crypto’s potential to drive innovation and promote financial inclusion. To learn more about BitMart, visit its website, follow its X (Twitter) or join its Telegram for updates, news and promotions. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-named-investopedias-best-crypto-exchange-for-altcoins-in-june-2024-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bitmart-named-investopedias-best-crypto-exchange-for-altcoins-in-june-2024-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1d8qwkg/bitmart_named_best_crypto_exchange_for_altcoins/

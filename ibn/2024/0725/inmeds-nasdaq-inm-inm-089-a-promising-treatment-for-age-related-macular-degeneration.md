@@ -26,6 +26,9 @@
 
  CannabisNewsWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/inmeds-nasdaq-inm-inm-089-a-promising-treatment-for-age-related-macular-degeneration/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/inmeds-nasdaq-inm-inm-089-a-promising-treatment-for-age-related-macular-degeneration/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1f2fn0j/inmed_pharmaceuticals_advances_promising/

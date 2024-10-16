@@ -30,6 +30,9 @@ Company Websitehttp://www.aprubrands.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/apple-rush-company-inc-announces-acquisition-of-trucking-company-to-fuel-growth-acquisition-expected-to-increase-top-line-revenues-by-over-10-million-dollars-in-2025-821444887 
 
-[Original/Source Press Release](https://newsdirect.com/news/apple-rush-company-inc-announces-acquisition-of-trucking-company-to-fuel-growth-acquisition-expected-to-increase-top-line-revenues-by-over-10-million-dollars-in-2025-821444887) 
+[Original/Source Press Release](https://newsdirect.com/news/apple-rush-company-inc-announces-acquisition-of-trucking-company-to-fuel-growth-acquisition-expected-to-increase-top-line-revenues-by-over-10-million-dollars-in-2025-821444887)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1eiftg7/apple_rush_company_announces_acquisition_of/

@@ -16,6 +16,9 @@ This successful deployment signifies an important milestone in Bitdeer's dedicat
 
  Website: [https://www.Bitdeer.com](https://www.Bitdeer.com)Facebook: [https://www.facebook.com/BitDeerplatform](https://www.facebook.com/BitDeerplatform)Twitter: [https://twitter.com/BitDeerOfficial](https://twitter.com/BitDeerOfficial)Marketing Contact: [Marketing@Bitdeer.com](mailto:Marketing@Bitdeer.com)Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bitdeer-announces-completion-and-successful-validation-of-nvidia-dgx-superpod-h100-system) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bitdeer-announces-completion-and-successful-validation-of-nvidia-dgx-superpod-h100-system)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bhrni6/bitdeer_completes_deployment_of_nvidia_dgx/

@@ -20,6 +20,9 @@ D-Wave Quantum Inc. (NYSE: QBTS) has been nominated as a finalist for the 2024
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-bags-gamechanger-nomination-could-win-tech-impact-award/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-nyse-qbts-bags-gamechanger-nomination-could-win-tech-impact-award/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1f2q1mp/dwave_quantum_inc_nominated_for_2024_tech_impact/

@@ -242,6 +242,9 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/exploring-investment-opportunities-where-ai-meets-crypto-769114738 
 
-[Original/Source Press Release](https://newsdirect.com/news/exploring-investment-opportunities-where-ai-meets-crypto-769114738) 
+[Original/Source Press Release](https://newsdirect.com/news/exploring-investment-opportunities-where-ai-meets-crypto-769114738)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvjdgx/exploring_investment_opportunities_where_ai_meets/

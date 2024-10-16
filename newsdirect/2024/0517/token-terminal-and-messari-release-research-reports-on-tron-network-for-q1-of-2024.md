@@ -52,6 +52,9 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/token-terminal-and-messari-release-research-reports-on-tron-network-for-q1-of-2024-720338497 
 
-[Original/Source Press Release](https://newsdirect.com/news/token-terminal-and-messari-release-research-reports-on-tron-network-for-q1-of-2024-720338497) 
+[Original/Source Press Release](https://newsdirect.com/news/token-terminal-and-messari-release-research-reports-on-tron-network-for-q1-of-2024-720338497)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cu3neq/token_terminal_messari_release_reports_on_tron/

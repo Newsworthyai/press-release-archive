@@ -57,6 +57,9 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/cointelegraph-and-cryptoquant-research-reveal-trons-inelastic-activity-maintaining-stability-871575395 
 
-[Original/Source Press Release](https://newsdirect.com/news/cointelegraph-and-cryptoquant-research-reveal-trons-inelastic-activity-maintaining-stability-871575395) 
+[Original/Source Press Release](https://newsdirect.com/news/cointelegraph-and-cryptoquant-research-reveal-trons-inelastic-activity-maintaining-stability-871575395)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fve2in/cointelegraph_and_cryptoquant_research_reveals/

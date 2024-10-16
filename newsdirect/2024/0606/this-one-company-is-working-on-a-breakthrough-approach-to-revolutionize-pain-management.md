@@ -35,6 +35,9 @@ Company Websitehttps://autonomix.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/this-one-company-is-working-on-a-breakthrough-approach-to-revolutionize-pain-management-840932661 
 
-[Original/Source Press Release](https://newsdirect.com/news/this-one-company-is-working-on-a-breakthrough-approach-to-revolutionize-pain-management-840932661) 
+[Original/Source Press Release](https://newsdirect.com/news/this-one-company-is-working-on-a-breakthrough-approach-to-revolutionize-pain-management-840932661)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1d9ht5m/autonomix_medical_innovates_nervous_system/

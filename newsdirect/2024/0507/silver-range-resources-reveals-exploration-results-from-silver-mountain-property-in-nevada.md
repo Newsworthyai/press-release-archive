@@ -18,6 +18,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/silver-range-resources-reveals-exploration-results-from-silver-mountain-property-in-nevada-348542299 
 
-[Original/Source Press Release](https://newsdirect.com/news/silver-range-resources-reveals-exploration-results-from-silver-mountain-property-in-nevada-348542299) 
+[Original/Source Press Release](https://newsdirect.com/news/silver-range-resources-reveals-exploration-results-from-silver-mountain-property-in-nevada-348542299)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cmfzpf/silver_range_resources_unveils_exploration/

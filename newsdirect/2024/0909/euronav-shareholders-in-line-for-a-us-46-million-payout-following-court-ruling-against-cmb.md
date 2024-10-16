@@ -54,6 +54,9 @@ Company Websitehttps://www.fourworldcapital.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/euronav-shareholders-in-line-for-a-us-46-million-payout-following-court-ruling-against-cmb-362267644 
 
-[Original/Source Press Release](https://newsdirect.com/news/euronav-shareholders-in-line-for-a-us-46-million-payout-following-court-ruling-against-cmb-362267644) 
+[Original/Source Press Release](https://newsdirect.com/news/euronav-shareholders-in-line-for-a-us-46-million-payout-following-court-ruling-against-cmb-362267644)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fch0tc/brussels_market_court_rules_against_cmb_in/

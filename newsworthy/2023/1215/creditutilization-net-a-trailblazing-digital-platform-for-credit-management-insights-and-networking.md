@@ -18,6 +18,9 @@ Setting new standards in credit knowledge sharing, CreditUtilization.net is your
 
 Embark on your journey towards credit management excellence at www.CreditUtilization.net. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231215802/creditutilization-net-a-trailblazing-digital-platform-for-credit-management-insights-and-networking) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231215802/creditutilization-net-a-trailblazing-digital-platform-for-credit-management-insights-and-networking)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx49q/introducing_creditutilizationnet_a_new_digital/

@@ -34,6 +34,9 @@ Company Websitehttps://celebian.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/celebian-continues-its-phenomenal-growth-transforming-the-social-media-landscape-632881002 
 
-[Original/Source Press Release](https://newsdirect.com/news/celebian-continues-its-phenomenal-growth-transforming-the-social-media-landscape-632881002) 
+[Original/Source Press Release](https://newsdirect.com/news/celebian-continues-its-phenomenal-growth-transforming-the-social-media-landscape-632881002)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1g3dfa1/celebian_transforming_the_social_media_landscape/

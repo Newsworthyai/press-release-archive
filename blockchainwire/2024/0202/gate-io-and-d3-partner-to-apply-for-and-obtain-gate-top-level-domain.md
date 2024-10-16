@@ -30,6 +30,9 @@ D3 Global is a digital infrastructure provider that delivers secure, decentraliz
 
 Learn more about D3 at https://www.d3.app/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/gateio-and-d3-partner-to-apply-for-and-obtain-gate-top-level-domain) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/gateio-and-d3-partner-to-apply-for-and-obtain-gate-top-level-domain)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjvzh/gateio_announces_partnership_with_d3_global_to/

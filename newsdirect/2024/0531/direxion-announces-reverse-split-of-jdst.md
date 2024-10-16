@@ -118,6 +118,9 @@ Company Websitehttps://www.direxion.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/direxion-announces-reverse-split-of-jdst-757494301 
 
-[Original/Source Press Release](https://newsdirect.com/news/direxion-announces-reverse-split-of-jdst-757494301) 
+[Original/Source Press Release](https://newsdirect.com/news/direxion-announces-reverse-split-of-jdst-757494301)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1d577de/direxion_announces_reverse_split_of_jdst_shares/

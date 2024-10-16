@@ -30,6 +30,9 @@ DISCLAIMER
 
 This report is for informational use only. This is not investment advice or an offering to purchase securities and nothing herein should be interpreted as a recommendation. This information is based on current information that we consider reliable such as, for example, the company pitchbook, website and credible third-party industry reports, but we do not represent it as accurate or complete, and it should not be relied on as such. While MarketMind, Alpha Sigma Capital and Alpha Transform Holdings have obtained data, statistics, and information from sources they believe to be reliable, these parties do not perform an audit or seek independent verification of any of the data, statistics or information they receive. The information, opinions, estimates, and forecasts contained herein are as of the date hereof and are subject to change without prior notification. We seek to update our information as appropriate. Unless otherwise provided in a separate agreement, these parties do not represent that the contents meet all of the presentation and/or disclosure standards applicable in the jurisdiction the recipient is located. These parties and their officers, directors, and employees shall not be responsible or liable for any trading decisions, damages, or other losses resulting from, or related to, the information, data, analyses, or opinions herein. At present, MarketMind does not and does not intend to acquire digital assets. However, it may seek to provide services to parties who may own such assets in cases in cases where MarketMind’s fees are not directly related to the performance of such assets. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/enzo-villani-veteran-fintech-entrepreneur-joins-marketmind-as-chairman-and-co-founder) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/enzo-villani-veteran-fintech-entrepreneur-joins-marketmind-as-chairman-and-co-founder)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1b6rqng/enzo_villani_joins_marketmind_technologies_as/

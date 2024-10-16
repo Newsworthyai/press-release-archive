@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/voyageur-pharmaceuticals-secures-1-9-million-sales-contract-for-latin-america-798037756 
 
-[Original/Source Press Release](https://newsdirect.com/news/voyageur-pharmaceuticals-secures-1-9-million-sales-contract-for-latin-america-798037756) 
+[Original/Source Press Release](https://newsdirect.com/news/voyageur-pharmaceuticals-secures-1-9-million-sales-contract-for-latin-america-798037756)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d2jji4/voyageur_pharmaceuticals_secures_19_million_sales/

@@ -16,6 +16,9 @@ About NOWPayments.ioNOWPayments is a leading payment gateway for instant cryptoc
 
 For additional information about[NOWPayments](https://nowpayments.io/?utm_source=cryptovi&utm_medium=press+release&utm_campaign=sol_arb_op&utm_id=stablecoins) and their services, please visit the official [website](https://nowpayments.io/?utm_source=cryptovi&utm_medium=press+release&utm_campaign=sol_arb_op&utm_id=stablecoins) or contact them directly via email [sergey.i@nowpayments.io](mailto:sergey.i@nowpayments.io). 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/nowpayments-reveals-the-dynamics-in-stablecoin-use-in-its-crypto-payment-gateway) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/nowpayments-reveals-the-dynamics-in-stablecoin-use-in-its-crypto-payment-gateway)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bwcocp/nowpayments_study_reveals_trends_in_stablecoin/

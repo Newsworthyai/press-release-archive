@@ -30,6 +30,9 @@ info-media@acroudmedia.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/unlimitedfreespins-com-exclusive-pre-launch-access-to-new-slot-game-western-reels-for-canadian-players-338804042 
 
-[Original/Source Press Release](https://newsdirect.com/news/unlimitedfreespins-com-exclusive-pre-launch-access-to-new-slot-game-western-reels-for-canadian-players-338804042) 
+[Original/Source Press Release](https://newsdirect.com/news/unlimitedfreespins-com-exclusive-pre-launch-access-to-new-slot-game-western-reels-for-canadian-players-338804042)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f9gtek/exciting_launch_of_unlimitedfreespinscom_with/

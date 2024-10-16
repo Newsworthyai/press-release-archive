@@ -22,6 +22,9 @@ Lions International is the largest service club organization in the world. More 
 
 Shauna Schuda Primary: 630-468-7075 Public Relations Dept. Manager   [Shauna.Schuda@LionsClubs.org](mailto:Shauna.Schuda@LionsClubs.org)View source version on newsdirect.com: https://newsdirect.com/news/lion-leaders-meet-with-members-of-congress-in-washington-d-c-244051583 
 
-[Original/Source Press Release](https://newsdirect.com/news/lion-leaders-meet-with-members-of-congress-in-washington-d-c-244051583) 
+[Original/Source Press Release](https://newsdirect.com/news/lion-leaders-meet-with-members-of-congress-in-washington-d-c-244051583)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c5im0r/lions_international_leaders_advocate_for/

@@ -42,6 +42,9 @@ https://twitter.com/Option2Trade
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/has-option2trade-o2t-got-a-license) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/has-option2trade-o2t-got-a-license)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c2a98n/option2trade_o2t_navigating_regulatory_compliance/

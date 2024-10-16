@@ -14,6 +14,9 @@ This acquisition capitalizes on Bytter’s extensive technical expertise and ser
 
 Mr. Ji Kun, the co-founder and president of Linklogis, highlighted, "This acquisition is a strategic move to broaden our business scope and a key step in responding to evolving market demands. Intelligent treasury management is crucial for the development of enterprises. By integrating Bytter’s technological strengths and customer resources, Linklogis will enhance its industry-finance treasury solutions and solidify its leading position in financial technology. This transaction will significantly elevate Linklogis’ product capabilities and core competitiveness, maximizing company value and returns for shareholders." 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/linklogis-strategically-acquires-bytter-to-develop-a-new-tresasury-management-ecosystem) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/linklogis-strategically-acquires-bytter-to-develop-a-new-tresasury-management-ecosystem)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1f45y2t/linklogis_to_acquire_controlling_shareholder_of/

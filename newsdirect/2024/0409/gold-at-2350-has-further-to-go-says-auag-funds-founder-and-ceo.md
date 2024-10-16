@@ -20,6 +20,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gold-at-2-350-has-further-to-go-says-auag-funds-founder-and-ceo-161836938 
 
-[Original/Source Press Release](https://newsdirect.com/news/gold-at-2-350-has-further-to-go-says-auag-funds-founder-and-ceo-161836938) 
+[Original/Source Press Release](https://newsdirect.com/news/gold-at-2-350-has-further-to-go-says-auag-funds-founder-and-ceo-161836938)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1bzo35g/auag_funds_ceo_eric_strand_discusses_gold_market/

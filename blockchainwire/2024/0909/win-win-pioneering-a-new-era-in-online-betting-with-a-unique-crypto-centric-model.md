@@ -36,6 +36,9 @@ Join the Win-Win RevolutionAs Win-Win expands its global reach, we invite player
 
 For Media Inquiries:Mohammed Mehar - Founderinfo@win-win.email Website 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/win-win-pioneering-a-new-era-in-online-betting-with-a-unique-crypto-centric-model) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/win-win-pioneering-a-new-era-in-online-betting-with-a-unique-crypto-centric-model)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fqygec/winwin_redefining_online_gambling_with_innovative/

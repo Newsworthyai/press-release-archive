@@ -28,6 +28,9 @@ As QTM Community prepares for its official launch event, interest is mounting am
 
 With the increasing complexity of financial markets, QTM Community is dedicated to equipping investors with the knowledge and tools necessary to succeed. The emphasis on personalized education and data-driven insights positions the community as a leader in the investment education space. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/qtm-community-quinlan-sutters-innovative-ai-tool-redefines-investment-education) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/qtm-community-quinlan-sutters-innovative-ai-tool-redefines-investment-education)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1fszdmx/quantummind_ai_inc_revolutionizes_investment/

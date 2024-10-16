@@ -28,6 +28,8 @@ HOUSTON - (NewMediaWire) - September 1, 2024 - PickleJar Entertainment Group, (
 
  anna@picklejar.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/picklejar-debuts-nationwide-jackson-dean-fan-experience-contest-with-big-machine-records-7075986) 
+[Original/Source Press Release](https://www.newmediawire.com/news/picklejar-debuts-nationwide-jackson-dean-fan-experience-contest-with-big-machine-records-7075986)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+

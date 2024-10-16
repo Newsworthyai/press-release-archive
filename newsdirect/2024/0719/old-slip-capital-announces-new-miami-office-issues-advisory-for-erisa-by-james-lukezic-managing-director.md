@@ -26,6 +26,9 @@ Company Websitehttps://www.oldslipcap.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/old-slip-capital-announces-new-miami-office-issues-advisory-for-erisa-by-james-lukezic-managing-director-591289154 
 
-[Original/Source Press Release](https://newsdirect.com/news/old-slip-capital-announces-new-miami-office-issues-advisory-for-erisa-by-james-lukezic-managing-director-591289154) 
+[Original/Source Press Release](https://newsdirect.com/news/old-slip-capital-announces-new-miami-office-issues-advisory-for-erisa-by-james-lukezic-managing-director-591289154)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e732ba/old_slip_capital_opens_new_miami_office_issues/

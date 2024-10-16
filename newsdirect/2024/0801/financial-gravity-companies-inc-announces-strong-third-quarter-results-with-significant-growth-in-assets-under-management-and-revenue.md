@@ -34,6 +34,9 @@ Company Websitehttps://financialgravity.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/financial-gravity-companies-inc-announces-strong-third-quarter-results-with-significant-growth-in-assets-under-management-and-revenue-506022327 
 
-[Original/Source Press Release](https://newsdirect.com/news/financial-gravity-companies-inc-announces-strong-third-quarter-results-with-significant-growth-in-assets-under-management-and-revenue-506022327) 
+[Original/Source Press Release](https://newsdirect.com/news/financial-gravity-companies-inc-announces-strong-third-quarter-results-with-significant-growth-in-assets-under-management-and-revenue-506022327)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1ehd0hc/financial_gravity_companies_inc_announces_strong/

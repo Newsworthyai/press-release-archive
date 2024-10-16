@@ -34,6 +34,9 @@ Company Websitehttps://playactivate.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/largest-immersive-gaming-facility-in-the-world-is-now-open-at-torontos-stockyards-191691248 
 
-[Original/Source Press Release](https://newsdirect.com/news/largest-immersive-gaming-facility-in-the-world-is-now-open-at-torontos-stockyards-191691248) 
+[Original/Source Press Release](https://newsdirect.com/news/largest-immersive-gaming-facility-in-the-world-is-now-open-at-torontos-stockyards-191691248)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1fnkp0r/activate_opens_largest_immersive_gaming_facility/

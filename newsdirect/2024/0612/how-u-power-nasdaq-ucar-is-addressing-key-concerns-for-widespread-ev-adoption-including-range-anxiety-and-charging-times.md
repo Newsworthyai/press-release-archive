@@ -56,6 +56,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-u-power-nasdaq-ucar-is-addressing-key-concerns-for-widespread-ev-adoption-including-range-anxiety-and-charging-times-825665407 
 
-[Original/Source Press Release](https://newsdirect.com/news/how-u-power-nasdaq-ucar-is-addressing-key-concerns-for-widespread-ev-adoption-including-range-anxiety-and-charging-times-825665407) 
+[Original/Source Press Release](https://newsdirect.com/news/how-u-power-nasdaq-ucar-is-addressing-key-concerns-for-widespread-ev-adoption-including-range-anxiety-and-charging-times-825665407)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dedbr5/u_power_revolutionizes_electric_vehicle_adoption/

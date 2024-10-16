@@ -58,6 +58,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/wolfpack-financial-has-a-plan-to-help-millennials-and-gen-z-attain-their-american-dream-607307686 
 
-[Original/Source Press Release](https://newsdirect.com/news/wolfpack-financial-has-a-plan-to-help-millennials-and-gen-z-attain-their-american-dream-607307686) 
+[Original/Source Press Release](https://newsdirect.com/news/wolfpack-financial-has-a-plan-to-help-millennials-and-gen-z-attain-their-american-dream-607307686)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1f1nmng/wolfpack_financial_innovates_to_empower/

@@ -12,6 +12,9 @@ About Yoga West
 
 Yoga West is a welcoming yoga sanctuary located in downtown Napa, offering a variety of classes for different skill levels and preferences. They provide heart-pumping power flows, alignment-based hatha, and restorative meditations. The Napa yoga studio also offers private one-on-one sessions, group events, and unique experiences like combining yoga with mimosas and snacks. Located at 1215 West Street, next to Napa Valley Bike Shop, they provide loaner equipment and have a boutique with yoga gear, clothing, and healthy snacks. For more information, visit their website at Yoga West. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401241041/yoga-west-opens-its-doors-in-napa-valley) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401241041/yoga-west-opens-its-doors-in-napa-valley)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1avxpxl/yoga_west_studio_offers_tranquility_and_community/

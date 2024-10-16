@@ -52,6 +52,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/entertain-in-style-this-spring-season-122359850 
 
-[Original/Source Press Release](https://newsdirect.com/news/entertain-in-style-this-spring-season-122359850) 
+[Original/Source Press Release](https://newsdirect.com/news/entertain-in-style-this-spring-season-122359850)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bp3iml/elevate_your_spring_entertaining_and_outdoor/

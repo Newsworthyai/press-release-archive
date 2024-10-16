@@ -8,6 +8,9 @@ Recognizing the unique nature of pain treatment with ketamine, the clinic has es
 
 In addition to ketamine therapy, Innovative Psychedelics also provides Spravato treatments for both depression and pain. Patients have convenient access to their bills and records through the clinic's patient portal, simplifying the administrative aspects of their treatment. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231229950/innovative-psychedelics-introduces-ketamine-for-pain-treatment-at-its-chicago-clinic) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231229950/innovative-psychedelics-introduces-ketamine-for-pain-treatment-at-its-chicago-clinic)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avcwkq/innovative_psychedelics_offers_groundbreaking/

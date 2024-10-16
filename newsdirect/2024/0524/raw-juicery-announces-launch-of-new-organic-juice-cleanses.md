@@ -33,6 +33,9 @@ Company Websitehttps://rawjuicery.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/raw-juicery-announces-launch-of-new-organic-juice-cleanses-222638514 
 
-[Original/Source Press Release](https://newsdirect.com/news/raw-juicery-announces-launch-of-new-organic-juice-cleanses-222638514) 
+[Original/Source Press Release](https://newsdirect.com/news/raw-juicery-announces-launch-of-new-organic-juice-cleanses-222638514)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1czo6r5/raw_juicery_launches_new_line_of_organic_juice/

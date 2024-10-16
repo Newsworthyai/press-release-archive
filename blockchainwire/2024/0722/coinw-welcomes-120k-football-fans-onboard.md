@@ -14,6 +14,9 @@ About CoinW
 
 [CoinW](https://www.globenewswire.com/Tracker?data=Ag3Il80NDQkyTMxglvj6Yz2A9cFUgcrC1yYMxuYtEoW4LlCtRbpzwRLakFVK9Sp-QvQXCUKcrBIHzOlzDFb2mw==) is a pioneering crypto trading platform prioritizing security, transparency, and user-centric principles. With advanced technology, deep liquidity, and a wide range of supported cryptocurrencies, the company has amassed a broad user base to become one of the world’s most secure crypto exchanges. Committed to security, transparency, and compliance, the CoinW exchange upholds the highest regulatory standards and actively contributes to the advancement of the crypto industry. To learn more about CoinW, you can visit the official [website](https://www.globenewswire.com/Tracker?data=hC7pj4aLiBoq8lWXpFOuOjAh_L2s7G1vUirJDz509HMMcSEa9lgSWdhqDSmiCgxLQA1o9bDSpsXWG_7bIMzLGQ==), and follow CoinW's [Twitter Account](https://www.globenewswire.com/Tracker?data=dvE1pljZrJ25hzMF3Lf6J5rXLit1FhnxgsIRMJa_G7Y8DlXfv7fen8BZ_2iVem311oGbEhLu803uSssQVqnpbwBjQHc1zpmlg7Zx7ul28qip6jkKzD_uf60974nXNe_vuHpm1476gj00BnVuKga0OY8139U2g46A_vwvwJIT8EYXbDSQaIdQ0l8T7X8A0yYl), [Btok](https://www.globenewswire.com/Tracker?data=mLvytZPWMf3WQIuWDZ-qJkPkSVPaClEiPjA1DummBjZ8T1kojjTF31BMZZdwAn6qtP2S_vYQJsNbdcihJ4SyuqcpgTrYxL5M5YxE8SWLTww=), and [Telegram Group](https://www.globenewswire.com/Tracker?data=QeiysCYsFCE7rJTQVhTGQApPnQTNa1LacieZ-5kO7csnasMCU5fUU4gMvGx4gf6N7wj9tnWsoCxNAZksh_Yxu3-_ekhhDwDbFxymEayAYjM=). 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-welcomes-120k-football-fans-onboard) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-welcomes-120k-football-fans-onboard)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1e9qlmx/coinws_goal_rush_challenge_concludes_with_35000/

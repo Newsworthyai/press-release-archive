@@ -30,6 +30,9 @@ About Oracle PartnerNetwork
 
 Oracle PartnerNetwork (OPN) is Oracle’s partner program designed to enable partners to accelerate the transition to cloud and drive superior customer business outcomes. The OPN program allows partners to engage with Oracle through track(s) aligned to how they go to market: Cloud Build for partners that provide products or services built on or integrated with Oracle Cloud; Cloud Sell for partners that resell Oracle Cloud technology; Cloud Service for partners that implement, deploy and manage Oracle Cloud Services; Industry Healthcare for partners that provide commercially available products and/or services built with Oracle Cloud and Oracle Health technologies; and License & Hardware for partners that build, service or sell Oracle software licenses or hardware products. Customers can expedite their business objectives with OPN partners who have achieved Expertise in a product family or cloud service. To learn more visit: http://www.oracle.com/partnernetwork. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409041254/rchilli-a-sponsor-and-exhibitor-at-oracle-cloudworld-2024) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409041254/rchilli-a-sponsor-and-exhibitor-at-oracle-cloudworld-2024)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1f9gthb/rchilli_to_showcase_aipowered_recruitment/

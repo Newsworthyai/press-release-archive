@@ -52,6 +52,9 @@ Company Websitehttps://colorado.comcast.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/comcast-rise-to-award-100-small-businesses-in-southern-colorado-with-grant-packages-that-include-a-5-000-monetary-grant-marketing-and-technology-resources-and-more-782877460 
 
-[Original/Source Press Release](https://newsdirect.com/news/comcast-rise-to-award-100-small-businesses-in-southern-colorado-with-grant-packages-that-include-a-5-000-monetary-grant-marketing-and-technology-resources-and-more-782877460) 
+[Original/Source Press Release](https://newsdirect.com/news/comcast-rise-to-award-100-small-businesses-in-southern-colorado-with-grant-packages-that-include-a-5-000-monetary-grant-marketing-and-technology-resources-and-more-782877460)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bzxktw/comcast_rise_to_award_grant_packages_to_100_small/

@@ -24,6 +24,9 @@ khewitt@onwrdupwrd.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tca-da-la-bienvenida-a-olympic-transport-como-primer-transportista-miembro-mexicano-ampliando-su-alcance-en-norteamerica-910271467 
 
-[Original/Source Press Release](https://newsdirect.com/news/tca-da-la-bienvenida-a-olympic-transport-como-primer-transportista-miembro-mexicano-ampliando-su-alcance-en-norteamerica-910271467) 
+[Original/Source Press Release](https://newsdirect.com/news/tca-da-la-bienvenida-a-olympic-transport-como-primer-transportista-miembro-mexicano-ampliando-su-alcance-en-norteamerica-910271467)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eajya3/tca_welcomes_olympic_transport_as_first_mexican/

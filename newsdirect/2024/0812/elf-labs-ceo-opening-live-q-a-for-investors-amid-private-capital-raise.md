@@ -43,6 +43,9 @@ Company Websitehttps://www.elflabs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/elf-labs-ceo-opening-live-qanda-for-investors-amid-private-capital-raise-820822983 
 
-[Original/Source Press Release](https://newsdirect.com/news/elf-labs-ceo-opening-live-qanda-for-investors-amid-private-capital-raise-820822983) 
+[Original/Source Press Release](https://newsdirect.com/news/elf-labs-ceo-opening-live-qanda-for-investors-amid-private-capital-raise-820822983)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eqdc2v/elf_labs_ceo_to_host_exclusive_investor/

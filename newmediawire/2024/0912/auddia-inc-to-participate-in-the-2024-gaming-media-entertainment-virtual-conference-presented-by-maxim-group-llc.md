@@ -22,6 +22,9 @@ ksmith@pcgadvisory.com
 
 www.pcgadvisory.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/auddia-inc-to-participate-in-the-2024-gaming-media-entertainment-virtual-conference-presented-by-maxim-group-llc-7076041) 
+[Original/Source Press Release](https://www.newmediawire.com/news/auddia-inc-to-participate-in-the-2024-gaming-media-entertainment-virtual-conference-presented-by-maxim-group-llc-7076041)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1ff06ld/auddia_inc_executive_chairman_to_present_at_2024/

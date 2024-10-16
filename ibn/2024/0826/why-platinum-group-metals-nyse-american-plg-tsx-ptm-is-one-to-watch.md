@@ -26,6 +26,9 @@ Platinum Group Metals Ltd. (NYSE American: PLG) (TSX: PTM) is the operator of th
 
  MiningNewsWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/why-platinum-group-metals-nyse-american-plg-tsx-ptm-is-one-to-watch/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/why-platinum-group-metals-nyse-american-plg-tsx-ptm-is-one-to-watch/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2fqv3/platinum_group_metals_ltd_advances_waterberg/

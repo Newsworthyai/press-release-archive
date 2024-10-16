@@ -30,6 +30,9 @@ Twitter: https://x.com/aerobloc
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/aeroblocs-internet-of-aviation-takes-off-in-singapore-winning-best-project-overall-and-generating-buzz-among-vcs) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/aeroblocs-internet-of-aviation-takes-off-in-singapore-winning-best-project-overall-and-generating-buzz-among-vcs)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1g1kw9p/aerobloc_wins_best_project_overall_at_global/

@@ -30,6 +30,9 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-unveils-the-2024-global-transportation-and-logistics-industry-report-626173534 
 
-[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-unveils-the-2024-global-transportation-and-logistics-industry-report-626173534) 
+[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-unveils-the-2024-global-transportation-and-logistics-industry-report-626173534)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1ehgb8t/benchmark_international_unveils_2024_global/

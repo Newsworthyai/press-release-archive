@@ -79,6 +79,9 @@ Telegram Group: https://t.me/jjcverseGroup
 
 PlayStore: [https://play.google.com/store/apps/details?id=com.jojojojo.VOS](https://play.google.com/store/apps/details?id=com.jojojojo.VOS) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/play-earn-conquer-victory-of-suckers-mega-gaming-competition) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/play-earn-conquer-victory-of-suckers-mega-gaming-competition)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1avk00q/jjcverse_revolutionizes_gaming_earnings_with_web3/

@@ -48,6 +48,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/why-nvidia-daimler-truck-nikon-and-top-u-s-security-organization-are-partnering-with-this-ai-chip-stock-774089712 
 
-[Original/Source Press Release](https://newsdirect.com/news/why-nvidia-daimler-truck-nikon-and-top-u-s-security-organization-are-partnering-with-this-ai-chip-stock-774089712) 
+[Original/Source Press Release](https://newsdirect.com/news/why-nvidia-daimler-truck-nikon-and-top-u-s-security-organization-are-partnering-with-this-ai-chip-stock-774089712)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1fjrwt9/aeva_technologies_inc_revolutionizes_automated/

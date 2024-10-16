@@ -20,6 +20,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sostravel-com-strategy-unveiled-interview-with-edoardo-zarghetta-275156869 
 
-[Original/Source Press Release](https://newsdirect.com/news/sostravel-com-strategy-unveiled-interview-with-edoardo-zarghetta-275156869) 
+[Original/Source Press Release](https://newsdirect.com/news/sostravel-com-strategy-unveiled-interview-with-edoardo-zarghetta-275156869)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/TravelAndLeisureNews/comments/1cnupy9/sostravelcom_strategy_unveiled_in_interview_with/

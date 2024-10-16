@@ -14,6 +14,9 @@ BEK TV is the largest television broadcaster of high school and collegiate athle
 
 The concept behind BEK’s news programming is to provide a media service platform that is unscripted and uncensored. BEK TV hosts are untrained broadcasters who share their perspectives and views on topics and issues that North Dakotans are talking about. The BEK network never controls the messaging. For more information, log onto bek.tv and bek.news. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231130902/bek-tv-welcomes-the-ramsey-show-to-weekday-lineup-becomes-only-tv-network-to-pick-up-daily-program) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231130902/bek-tv-welcomes-the-ramsey-show-to-weekday-lineup-becomes-only-tv-network-to-pick-up-daily-program)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1avcbdx/bek_tv_adds_the_ramsey_show_to_weekday_lineup/

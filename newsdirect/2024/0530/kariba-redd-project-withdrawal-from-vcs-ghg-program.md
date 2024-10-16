@@ -42,6 +42,9 @@ Company Websitehttps://carbongreenafrica.net/
 
 View source version on newsdirect.com: https://newsdirect.com/news/kariba-redd-project-withdrawal-from-vcs-ghg-program-927556172 
 
-[Original/Source Press Release](https://newsdirect.com/news/kariba-redd-project-withdrawal-from-vcs-ghg-program-927556172) 
+[Original/Source Press Release](https://newsdirect.com/news/kariba-redd-project-withdrawal-from-vcs-ghg-program-927556172)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d44z7g/carbon_green_investments_withdraws_kariba_and/

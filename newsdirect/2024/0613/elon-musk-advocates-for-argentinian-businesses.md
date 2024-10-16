@@ -44,6 +44,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/elon-musk-advocates-for-argentinian-businesses-732115816 
 
-[Original/Source Press Release](https://newsdirect.com/news/elon-musk-advocates-for-argentinian-businesses-732115816) 
+[Original/Source Press Release](https://newsdirect.com/news/elon-musk-advocates-for-argentinian-businesses-732115816)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dey41x/elon_musk_advocates_for_argentinian_businesses/

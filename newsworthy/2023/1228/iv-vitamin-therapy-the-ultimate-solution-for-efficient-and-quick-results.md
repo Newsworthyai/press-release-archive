@@ -14,6 +14,9 @@ For individuals curious about IV vitamin therapy, a range of packages are availa
 
 IV Vitamin Therapy is gaining popularity due to its ability to deliver efficient and quick results. With its wide range of benefits and customizable packages, it is becoming the go-to solution for individuals seeking to optimize their health and well-being. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231228947/iv-vitamin-therapy-the-ultimate-solution-for-efficient-and-quick-results) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231228947/iv-vitamin-therapy-the-ultimate-solution-for-efficient-and-quick-results)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcwfs/expert_touts_benefits_of_iv_vitamin_therapy_for/

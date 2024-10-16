@@ -42,6 +42,9 @@ Company Websitehttps://forumhealth.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/forum-health-breaks-into-denver-market-with-acquisition-of-concierge-functional-and-regenerative-medicine-practice-614339937 
 
-[Original/Source Press Release](https://newsdirect.com/news/forum-health-breaks-into-denver-market-with-acquisition-of-concierge-functional-and-regenerative-medicine-practice-614339937) 
+[Original/Source Press Release](https://newsdirect.com/news/forum-health-breaks-into-denver-market-with-acquisition-of-concierge-functional-and-regenerative-medicine-practice-614339937)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1e6iyvb/forum_health_expands_into_denver_with_acquisition/

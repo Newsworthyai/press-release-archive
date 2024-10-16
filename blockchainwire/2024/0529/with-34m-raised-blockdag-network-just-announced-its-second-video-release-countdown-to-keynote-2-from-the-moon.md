@@ -44,6 +44,9 @@ Discord: https://discord.gg/Q7BxghMVyu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/with-34m-raised-blockdag-network-just-announced-its-second-video-release-countdown-to-keynote-2-from-the-moon-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/with-34m-raised-blockdag-network-just-announced-its-second-video-release-countdown-to-keynote-2-from-the-moon-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fvbmtb/blockdag_network_set_to_launch_keynote_video_2/

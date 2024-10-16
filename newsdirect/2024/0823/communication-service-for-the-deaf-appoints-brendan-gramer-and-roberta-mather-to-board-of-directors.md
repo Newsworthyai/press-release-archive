@@ -28,6 +28,9 @@ Company Websitehttps://www.csd.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/communication-service-for-the-deaf-appoints-brendan-gramer-and-roberta-mather-to-board-of-directors-867976629 
 
-[Original/Source Press Release](https://newsdirect.com/news/communication-service-for-the-deaf-appoints-brendan-gramer-and-roberta-mather-to-board-of-directors-867976629) 
+[Original/Source Press Release](https://newsdirect.com/news/communication-service-for-the-deaf-appoints-brendan-gramer-and-roberta-mather-to-board-of-directors-867976629)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Leadership_Management/comments/1ezb3ky/nonprofit_csd_appoints_amazon_ux_manager_and/

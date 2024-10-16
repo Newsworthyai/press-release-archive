@@ -32,6 +32,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/three-investment-banks-initiate-coverage-on-bitdeer-with-buy-ratings-and-price-targets-implying-potential-triple-digit-upside-698321832 
 
-[Original/Source Press Release](https://newsdirect.com/news/three-investment-banks-initiate-coverage-on-bitdeer-with-buy-ratings-and-price-targets-implying-potential-triple-digit-upside-698321832) 
+[Original/Source Press Release](https://newsdirect.com/news/three-investment-banks-initiate-coverage-on-bitdeer-with-buy-ratings-and-price-targets-implying-potential-triple-digit-upside-698321832)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1btxq1c/three_investment_banks_initiate_coverage_on/

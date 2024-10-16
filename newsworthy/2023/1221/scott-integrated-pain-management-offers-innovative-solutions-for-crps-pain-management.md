@@ -10,6 +10,9 @@ Additionally, the clinic is proud to be one of the few providers that accept ins
 
 Scott Integrated Pain Management also offers a multidisciplinary approach to the treatment of pain, encompassing not only physical interventions but also medical management and depression treatments for those experiencing the emotional toll of chronic pain. With a focus on opioid alternatives, the clinic strives to find individualized solutions for some of the most challenging pain conditions. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231221919/scott-integrated-pain-management-offers-innovative-solutions-for-crps-pain-management) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231221919/scott-integrated-pain-management-offers-innovative-solutions-for-crps-pain-management)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcvfb/scott_integrated_pain_management_offers/

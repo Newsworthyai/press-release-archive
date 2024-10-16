@@ -30,6 +30,9 @@ ChainGPT is the leading provider of AI-powered infrastructure for crypto, blockc
 
 For more information, visit: [https://www.chaingpt.org/](https://www.chaingpt.org/) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/chaingpt-unveils-1m-grant-scheme-for-startups-supercharging-web3-ai-innovation) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/chaingpt-unveils-1m-grant-scheme-for-startups-supercharging-web3-ai-innovation)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bc4j4b/chaingpt_launches_1m_grant_program_for/

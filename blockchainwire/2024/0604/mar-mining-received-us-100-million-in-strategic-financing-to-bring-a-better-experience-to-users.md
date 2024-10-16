@@ -50,6 +50,9 @@ Download MAR MiningAPP https://marmining.com/download/.
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/mar-mining-received-us100-million-in-strategic-financing-to-bring-a-better-experience-to-users-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/mar-mining-received-us100-million-in-strategic-financing-to-bring-a-better-experience-to-users-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d88acp/mar_mining_completes_100m_financing_round_for/

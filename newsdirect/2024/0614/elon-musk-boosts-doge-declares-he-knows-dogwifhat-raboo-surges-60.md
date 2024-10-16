@@ -46,6 +46,9 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/elon-musk-boosts-doge-declares-he-knows-dogwifhat-raboo-surges-60-537701695 
 
-[Original/Source Press Release](https://newsdirect.com/news/elon-musk-boosts-doge-declares-he-knows-dogwifhat-raboo-surges-60-537701695) 
+[Original/Source Press Release](https://newsdirect.com/news/elon-musk-boosts-doge-declares-he-knows-dogwifhat-raboo-surges-60-537701695)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dfodtp/elon_musks_influence_on_doge_and_dogwifhat_raboos/

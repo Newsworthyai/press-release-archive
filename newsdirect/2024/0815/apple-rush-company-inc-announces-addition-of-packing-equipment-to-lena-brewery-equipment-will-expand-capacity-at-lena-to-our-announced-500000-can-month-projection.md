@@ -36,6 +36,9 @@ Company Websitehttp://www.aprubrands.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/apple-rush-company-inc-announces-addition-of-packing-equipment-to-lena-brewery-equipment-will-expand-capacity-at-lena-to-our-announced-500-000-can-month-projection-265253737 
 
-[Original/Source Press Release](https://newsdirect.com/news/apple-rush-company-inc-announces-addition-of-packing-equipment-to-lena-brewery-equipment-will-expand-capacity-at-lena-to-our-announced-500-000-can-month-projection-265253737) 
+[Original/Source Press Release](https://newsdirect.com/news/apple-rush-company-inc-announces-addition-of-packing-equipment-to-lena-brewery-equipment-will-expand-capacity-at-lena-to-our-announced-500-000-can-month-projection-265253737)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1esvksa/apple_rush_company_inc_expands_brewing_operations/

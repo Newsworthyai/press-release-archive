@@ -46,6 +46,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-technology-powering-aevas-nyse-aeva-vision-for-a-safer-autonomous-future-and-why-it-could-be-game-changing-723129789 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-technology-powering-aevas-nyse-aeva-vision-for-a-safer-autonomous-future-and-why-it-could-be-game-changing-723129789) 
+[Original/Source Press Release](https://newsdirect.com/news/the-technology-powering-aevas-nyse-aeva-vision-for-a-safer-autonomous-future-and-why-it-could-be-game-changing-723129789)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1f9rpi9/aeva_technologies_advanced_lidar_technology/

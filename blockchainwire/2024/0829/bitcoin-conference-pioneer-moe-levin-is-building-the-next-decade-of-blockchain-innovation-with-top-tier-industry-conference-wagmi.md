@@ -20,6 +20,9 @@ Media Contact: WAGMI@transformgroup.com
 
 Disclaimer: The information provided in this press release is for informational purposes only and does not constitute financial advice. Cryptocurrency investments are subject to market risks, and individuals should research before making investment decisions. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-conference-pioneer-moe-levin-is-building-the-next-decade-of-blockchain-innovation-with-top-tier-industry-conference-wagmi) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-conference-pioneer-moe-levin-is-building-the-next-decade-of-blockchain-innovation-with-top-tier-industry-conference-wagmi)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1f412nc/moe_levin_to_lead_groundbreaking_blockchain_event/

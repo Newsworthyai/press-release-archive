@@ -6,6 +6,9 @@ Introducing Dark Coin (DMV)At the core of Dark Universe lies Dark Coin (DMV)—a
 
 Zero Code Smart ContractsExperience the future of smart contract deployment with Dark Universe's zero-code smart contracts. Developers can deploy smart contracts without writing a single line of code, streamlining the development process and democratizing access to blockchain technology.Universal NFT MarketplaceUnlock the potential of non-fungible tokens (NFTs) with the Universal NFT Marketplace—a world-class platform for buying, selling, and trading digital assets. With features like one-click payment gateways, NFT minting, and wallet integrations, the Universal NFT Marketplace offers a seamless and user-friendly experience for collectors and creators alike.Dark MetaVerse: A Cosmic JourneyEmbark on a cosmic journey with the Dark MetaVerse—a vast and immersive digital realm inspired by the mysteries of the universe. With 12 interconnected planets, a radiant sun, and a mysterious moon, the Dark MetaVerse offers endless opportunities for exploration and discovery, inviting users to unlock the secrets of the cosmos.Dark Universe is set to launch its initial decentralized offering (IDO) on Ixirpad on 26th March, followed by listings on P2BExchange on 28th March. For more information about Dark Universe and Dark Coin (DMV), visit www.darkuniverse.ioAbout Dark Universe:Dark Universe is a revolutionary blockchain ecosystem that offers users unparalleled privacy, decentralization, and immersive experiences. With its flagship cryptocurrency, Dark Coin (DMV), and a suite of innovative products, Dark Universe is redefining the boundaries of what's possible in the digital realm.For media inquiries, please contact:Amir SayeedFounder & CEOamir@darkuniverse.io 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/-dark-universe-revolutionizes-blockchain-ecosystem-with-dark-coin-dmv-and-innovative-products) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/-dark-universe-revolutionizes-blockchain-ecosystem-with-dark-coin-dmv-and-innovative-products)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bpo90r/dark_universe_introduces_groundbreaking_ecosystem/

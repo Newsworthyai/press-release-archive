@@ -88,6 +88,9 @@ Beverly Hills, Ca. 90210
 
 www.creativemanagementpartners.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/creative-management-partners-chaingmai-book-manuscript-screen-writing-proposals-cut-authors-cost-70-7076038) 
+[Original/Source Press Release](https://www.newmediawire.com/news/creative-management-partners-chaingmai-book-manuscript-screen-writing-proposals-cut-authors-cost-70-7076038)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1fec598/cmp_agent_alan_morell_reaches_137th_milestone/

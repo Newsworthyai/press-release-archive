@@ -44,6 +44,9 @@ About the Texas Whiskey Festival
 
 The festival's mission is simple: To create events, collaborations, and blends that celebrate Texas Whiskey and its community. We want to promote and educate Texans about the whiskeys produced in our great state. As an organization, we know that Texas has some of the best distilleries and whiskeys globally. The Texas Whiskey Festival is an opportunity to showcase that. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202404091142/ranger-creek-brewing-and-distillings-305-single-malt-is-crowned-top-texas-whiskey) 
+[Original/Source Press Release](https://newsworthy.ai/news/202404091142/ranger-creek-brewing-and-distillings-305-single-malt-is-crowned-top-texas-whiskey)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bzw4of/texas_whiskey_festival_announces_2024_competition/

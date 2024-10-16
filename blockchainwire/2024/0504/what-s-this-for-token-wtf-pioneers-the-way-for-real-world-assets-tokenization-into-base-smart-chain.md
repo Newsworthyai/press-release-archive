@@ -30,6 +30,9 @@ Website: https://whatsthisfor.io
 
 Presale: presale.whatsthisfor.ioDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/whats-this-for-token-wtf-pioneers-the-way-for-real-world-assets-tokenization-into-base-smart-chain-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/whats-this-for-token-wtf-pioneers-the-way-for-real-world-assets-tokenization-into-base-smart-chain-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ckb1gk/revolutionary_wtf_token_presale_now_live_on_base/

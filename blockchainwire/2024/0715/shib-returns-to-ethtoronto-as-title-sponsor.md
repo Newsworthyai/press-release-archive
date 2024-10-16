@@ -20,6 +20,9 @@ SHIB is a world-leading ecosystem of decentralized finance (DeFi) cryptocurrenci
 
 To learn more about SHIB, please visit the official website: https://www.shib.io. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/shib-returns-to-ethtoronto-as-title-sponsor) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/shib-returns-to-ethtoronto-as-title-sponsor)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1e6j0th/shib_named_title_sponsor_of_canadas_largest_web3/

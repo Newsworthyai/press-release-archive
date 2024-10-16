@@ -20,6 +20,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/firefly-metals-raises-52-million-secures-port-access-agreement-123419960 
 
-[Original/Source Press Release](https://newsdirect.com/news/firefly-metals-raises-52-million-secures-port-access-agreement-123419960) 
+[Original/Source Press Release](https://newsdirect.com/news/firefly-metals-raises-52-million-secures-port-access-agreement-123419960)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bq7k0i/firefly_metals_raises_a52_million_secures_port/

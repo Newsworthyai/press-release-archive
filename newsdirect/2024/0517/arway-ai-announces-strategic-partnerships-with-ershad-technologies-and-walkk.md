@@ -16,6 +16,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/arway-ai-announces-strategic-partnerships-with-ershad-technologies-and-walkk-534360197 
 
-[Original/Source Press Release](https://newsdirect.com/news/arway-ai-announces-strategic-partnerships-with-ershad-technologies-and-walkk-534360197) 
+[Original/Source Press Release](https://newsdirect.com/news/arway-ai-announces-strategic-partnerships-with-ershad-technologies-and-walkk-534360197)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cu91g0/arwayai_announces_new_strategic_partnerships_with/

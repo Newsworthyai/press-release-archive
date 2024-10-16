@@ -26,6 +26,9 @@ For additional details on Pandoshi (PAMBO), please refer to the following links:
 
 Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/investors-rush-to-buy-pandoshi-pambo-in-phase-5-as-it-nears-completion) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/investors-rush-to-buy-pandoshi-pambo-in-phase-5-as-it-nears-completion)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjxd8/pandoshi_pambo_enters_final_phase_of_presale/

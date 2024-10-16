@@ -16,6 +16,9 @@ About Tomo: Tomo is an all-in-one Web3 social app that transforms your online pr
 
 [Website](https://tomo.inc/) - [Tomo Web Version](https://pro.tomo.inc/keys) - [Blog](https://medium.com/tomoinc) - [X (formerly Twitter)](https://twitter.com/tomo_social) - [iOS app](https://apps.apple.com/us/app/tomo-inc/id6468010287) - [Android app](https://play.google.com/store/apps/details?id=tomo.app.unyx) - [Mint LONG](https://x.com/tomo_social/status/1775517408897425833?s=20) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/tomo-leads-digital-art-revolution-introducing-erc-404-tomojis-and-the-premier-of-long-collection-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/tomo-leads-digital-art-revolution-introducing-erc-404-tomojis-and-the-premier-of-long-collection-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1buz0l6/tomo_launches_erc404_meme_launchpad_tomoji_for/

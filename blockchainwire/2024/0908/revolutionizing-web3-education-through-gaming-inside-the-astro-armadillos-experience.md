@@ -56,6 +56,9 @@ Resources:
 
 White Paper | Tokenomics | Linktree | Telegram | Twitter | YouTube | Discord | 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/revolutionizing-web3-education-through-gaming-inside-the-astro-armadillos-experience) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/revolutionizing-web3-education-through-gaming-inside-the-astro-armadillos-experience)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1ffh45x/astro_armadillos_revolutionizing_web3_education/

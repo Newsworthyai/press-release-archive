@@ -38,6 +38,9 @@ Company Websitehttps://www.downtownmusic.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/downtowns-neighbouring-rights-division-announces-raft-of-cross-company-signings-including-academy-award-nominated-artist-anohni-902697126 
 
-[Original/Source Press Release](https://newsdirect.com/news/downtowns-neighbouring-rights-division-announces-raft-of-cross-company-signings-including-academy-award-nominated-artist-anohni-902697126) 
+[Original/Source Press Release](https://newsdirect.com/news/downtowns-neighbouring-rights-division-announces-raft-of-cross-company-signings-including-academy-award-nominated-artist-anohni-902697126)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BookNews/comments/1c74frq/dnr_announces_new_signings_and_partnerships_with/

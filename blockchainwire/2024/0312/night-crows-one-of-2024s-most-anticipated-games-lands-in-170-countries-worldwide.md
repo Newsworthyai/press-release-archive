@@ -54,6 +54,9 @@ Night Crows can be downloaded from Google Play Store and the Apple Store.
 
 Contact us if you need more information or have an interview request. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/night-crows-one-of-2024s-most-anticipated-games-lands-in-170-countries-worldwide) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/night-crows-one-of-2024s-most-anticipated-games-lands-in-170-countries-worldwide)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1bcwkm3/night_crows_takes_flight_wemades_first_multichain/

@@ -30,6 +30,9 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-wallet-supercharges-user-experience-with-instant-swap-mode-and-prioritized-solana-transactions-879778136 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitget-wallet-supercharges-user-experience-with-instant-swap-mode-and-prioritized-solana-transactions-879778136) 
+[Original/Source Press Release](https://newsdirect.com/news/bitget-wallet-supercharges-user-experience-with-instant-swap-mode-and-prioritized-solana-transactions-879778136)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1con7qy/bitget_wallet_introduces_instant_swap_mode_and/

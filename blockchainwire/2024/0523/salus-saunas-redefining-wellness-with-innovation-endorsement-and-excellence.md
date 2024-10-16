@@ -18,6 +18,9 @@ Salus Saunas stands as one of the USA’s foremost sauna brands. Originating fro
 
 In pursuit of this vision, Salus Saunas has served as a one-stop shop for all things sauna for over 11 years, offering a diverse array of options to cater to various preferences. Their extensive product line includes indoor and outdoor traditional saunas, far infrared and full-spectrum infrared saunas, hybrid saunas, barrel saunas, cabin saunas, and the upcoming addition of cold plunges. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/salus-saunas-redefining-wellness-with-innovation-endorsement-and-excellence-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/salus-saunas-redefining-wellness-with-innovation-endorsement-and-excellence-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cysext/prominent_wellness_brand_salus_saunas_launches/

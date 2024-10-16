@@ -41,6 +41,9 @@ Visit Our Blog
 * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/ycommunicate/news_release/1544) 
+[Original/Source Press Release](https://newsroom.prkarma.com/ycommunicate/news_release/1544)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f6i67a/project_petals_receives_accreditation_from_unep/

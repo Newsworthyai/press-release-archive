@@ -56,6 +56,9 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-collaborates-with-astar-network-to-accelerate-blockchain-innovation-through-the-tge-catalyst-grant-559027281 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-collaborates-with-astar-network-to-accelerate-blockchain-innovation-through-the-tge-catalyst-grant-559027281) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-collaborates-with-astar-network-to-accelerate-blockchain-innovation-through-the-tge-catalyst-grant-559027281)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cn90jm/htx_collaborates_with_astar_network_to_accelerate/

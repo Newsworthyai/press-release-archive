@@ -14,6 +14,9 @@ About IntelagenIntelagen (formerly Cloudbench) is an AI integrator and developme
 
 Contact:Tom RicherCEOinvestorrelations@intelagen.ai 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/intelagen-announces-new-sales-leadership-to-continue-growth) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/intelagen-announces-new-sales-leadership-to-continue-growth)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ebupqp/intelagen_appoints_greg_wilson_as_head_of_google/

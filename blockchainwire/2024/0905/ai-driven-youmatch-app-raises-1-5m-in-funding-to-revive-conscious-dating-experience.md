@@ -20,6 +20,9 @@ Website: https://youmatch.ai/
 
 partners@youmatch.ai 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/ai-driven-youmatch-app-raises-15m-in-funding-to-revive-conscious-dating-experience) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/ai-driven-youmatch-app-raises-15m-in-funding-to-revive-conscious-dating-experience)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/StartupBusinessNews/comments/1ffh43h/youmatch_secures_15m_investment_for_aidriven/

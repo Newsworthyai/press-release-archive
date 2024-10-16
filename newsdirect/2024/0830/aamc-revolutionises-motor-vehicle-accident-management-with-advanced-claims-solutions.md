@@ -42,6 +42,9 @@ Company Websitehttps://www.aamc.com.au/
 
 View source version on newsdirect.com: https://newsdirect.com/news/aamc-revolutionises-motor-vehicle-accident-management-with-advanced-claims-solutions-903702403 
 
-[Original/Source Press Release](https://newsdirect.com/news/aamc-revolutionises-motor-vehicle-accident-management-with-advanced-claims-solutions-903702403) 
+[Original/Source Press Release](https://newsdirect.com/news/aamc-revolutionises-motor-vehicle-accident-management-with-advanced-claims-solutions-903702403)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f4wlqx/aamc_sets_new_standard_with_advanced_claims/

@@ -18,6 +18,9 @@ Media Contact:Justin McKenzieHost, The Building Texas Showjustin@buildingtexassh
 
 About The Building Texas Show:The Building Texas Show, hosted by Justin McKenzie, is dedicated to exploring the stories of innovators and business leaders in Texas, with a focus on the commercial space industry and entrepreneurial ventures shaping the state’s economy. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409181265/assemble-cocktail-a-journey-of-entrepreneurial-innovation-and-community-building) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409181265/assemble-cocktail-a-journey-of-entrepreneurial-innovation-and-community-building)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/StartupBusinessNews/comments/1fjrbqm/assemble_cocktail_founder_shares_entrepreneurial/

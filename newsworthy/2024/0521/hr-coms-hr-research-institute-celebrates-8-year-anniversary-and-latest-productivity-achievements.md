@@ -28,6 +28,9 @@ Visit www.hr.com/hrresearchinstitute to download research (always free) and to m
 
 Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202405211173/hr-coms-hr-research-institute-celebrates-8-year-anniversary-and-latest-productivity-achievements) 
+[Original/Source Press Release](https://newsworthy.ai/news/202405211173/hr-coms-hr-research-institute-celebrates-8-year-anniversary-and-latest-productivity-achievements)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1cx6bzr/hrcoms_hr_research_institute_celebrates_8th/

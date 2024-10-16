@@ -34,6 +34,9 @@ About Multicoin Capital
 
 Multicoin Capital is a thesis-driven investment firm that invests in cryptocurrencies, tokens, and blockchain companies. Crypto networks and companies will create trillions of dollars of value over the next decade. But investing in tokens is fundamentally different than investing in companies. New tools, heuristics, and security measures are needed to responsibly invest in this ecosystem. We leverage our deep understanding of blockchain technology and crypto markets to deliver exceptional returns. For more information, visit: [https://multicoin.capital](https://multicoin.capital). Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/-zkme-secures-4m-from-multicoin-capital-to-build-fatf--and-mica-compliant-identity-solution-for-web3-applications-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/-zkme-secures-4m-from-multicoin-capital-to-build-fatf--and-mica-compliant-identity-solution-for-web3-applications-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ewwp6n/zkme_technology_secures_4m_seed_round_for/

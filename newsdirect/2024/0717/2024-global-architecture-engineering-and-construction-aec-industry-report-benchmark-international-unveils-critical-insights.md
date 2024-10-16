@@ -31,6 +31,9 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/2024-global-architecture-engineering-and-construction-aec-industry-report-benchmark-international-unveils-critical-insights-967768851 
 
-[Original/Source Press Release](https://newsdirect.com/news/2024-global-architecture-engineering-and-construction-aec-industry-report-benchmark-international-unveils-critical-insights-967768851) 
+[Original/Source Press Release](https://newsdirect.com/news/2024-global-architecture-engineering-and-construction-aec-industry-report-benchmark-international-unveils-critical-insights-967768851)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e5ll5h/benchmark_international_releases_2024_global_aec/

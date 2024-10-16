@@ -21,6 +21,9 @@ Cost: BitAngels presentation passes are free for accredited investors. Full-conf
 
 Disclaimer: Tokenize! is being presented as part of Consensus Week side events and is otherwise not affiliated with Consensus or CoinDesk. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/tokenize-austin-conference-caps-off-consensus-week-with-24-company-presentations-and-key-speakers-in-ai-real-world-assets-rwa-tokenized-finance-and-gaming) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/tokenize-austin-conference-caps-off-consensus-week-with-24-company-presentations-and-key-speakers-in-ai-real-world-assets-rwa-tokenized-finance-and-gaming)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvo54y/tokenize_austin_leading_crypto_entrepreneurs_and/

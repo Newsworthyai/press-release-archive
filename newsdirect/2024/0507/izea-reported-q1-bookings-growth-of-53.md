@@ -48,6 +48,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/izea-reported-q1-bookings-growth-of-53-658204872 
 
-[Original/Source Press Release](https://newsdirect.com/news/izea-reported-q1-bookings-growth-of-53-658204872) 
+[Original/Source Press Release](https://newsdirect.com/news/izea-reported-q1-bookings-growth-of-53-658204872)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cmb1fh/influencer_marketing_market_booms_izea_reports_q1/

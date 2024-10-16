@@ -36,6 +36,9 @@ Company Websitehttps://hbonm.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/hbo-announces-listing-and-issue-tokens-409488940 
 
-[Original/Source Press Release](https://newsdirect.com/news/hbo-announces-listing-and-issue-tokens-409488940) 
+[Original/Source Press Release](https://newsdirect.com/news/hbo-announces-listing-and-issue-tokens-409488940)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cdpu64/hbo_to_go_public_and_launch_hbo_token_in_q3_2024/

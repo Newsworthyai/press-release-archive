@@ -24,6 +24,9 @@ The team consists of healthcare experts with over a decade of experience in top-
 
 You can learn more about Welshare Health and stay up-to-date with its developments here: Website | X (Twitter) | Telegram | Discord 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/welshare-health-introduces-ai-driven-app-to-inaugurate-the-future-of-patient-driven-medical-research) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/welshare-health-introduces-ai-driven-app-to-inaugurate-the-future-of-patient-driven-medical-research)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1fqlu3q/welshare_health_develops_decentralized_app_for/

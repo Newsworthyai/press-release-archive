@@ -46,6 +46,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitdeer-creates-first-generation-bitcoin-mining-chip-in-major-step-to-becoming-the-first-fully-integrated-miner-686776405 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitdeer-creates-first-generation-bitcoin-mining-chip-in-major-step-to-becoming-the-first-fully-integrated-miner-686776405) 
+[Original/Source Press Release](https://newsdirect.com/news/bitdeer-creates-first-generation-bitcoin-mining-chip-in-major-step-to-becoming-the-first-fully-integrated-miner-686776405)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1burwbt/bitdeer_unveils_seal01_chip_sets_stage_for_full/

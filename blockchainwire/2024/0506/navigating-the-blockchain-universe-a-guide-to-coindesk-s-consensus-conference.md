@@ -62,6 +62,9 @@ Picture this: a vibrant gathering where the brightest minds in blockchain and cr
 
 Consensus is the epicenter of innovation in blockchain and crypto. It's where ideas are born, connections are made, and the future is shaped. Don't miss out on Consensus 2024 – it's where the action is. So why wait? Join Consensus 2024 and be part of the conversation that's shaping the future of crypto and Web3. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/navigating-the-blockchain-universe-a-guide-to-coindesks-consensus-conference) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/navigating-the-blockchain-universe-a-guide-to-coindesks-consensus-conference)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cltv3w/consensus_2024_the_epicenter_of_crypto_and_web3/

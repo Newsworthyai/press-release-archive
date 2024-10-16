@@ -88,6 +88,9 @@ Company Websitehttps://navex.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/navex-announces-2024-excellence-awards-finalists-667139679 
 
-[Original/Source Press Release](https://newsdirect.com/news/navex-announces-2024-excellence-awards-finalists-667139679) 
+[Original/Source Press Release](https://newsdirect.com/news/navex-announces-2024-excellence-awards-finalists-667139679)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1f80jei/navex_announces_2024_excellence_awards_finalists/

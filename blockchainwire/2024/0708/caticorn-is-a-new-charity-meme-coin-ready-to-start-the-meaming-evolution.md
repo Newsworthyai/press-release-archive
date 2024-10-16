@@ -14,6 +14,9 @@ The Caticorn team plans on forming a nonprofit foundation after launch and an ec
 
 To learn more about the Meaming Meme Evolution and Caticorn Token visit: https://www.caticorntoken.com/ and join the conversation on Telegram: https://t.me/CaticornTokenOfficial 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/caticorn-is-a-new-charity-meme-coin-ready-to-start-the-meaming-evolution) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/caticorn-is-a-new-charity-meme-coin-ready-to-start-the-meaming-evolution)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dyiqmt/caticorn_announced_as_the_new_meaming_meme_in/

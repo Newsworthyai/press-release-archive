@@ -27,6 +27,9 @@ Sales Team
 
 sales@mybikebits.co.uk 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202408061221/mybikebits-launches-one-man-s-passion-becomes-the-uk-s-new-destination-for-motorcycle-parts) 
+[Original/Source Press Release](https://newsworthy.ai/news/202408061221/mybikebits-launches-one-man-s-passion-becomes-the-uk-s-new-destination-for-motorcycle-parts)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1elc7j5/former_soldier_turned_amazon_engineer_launches/

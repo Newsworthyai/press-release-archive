@@ -34,6 +34,9 @@ kat@joinadro.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/adro-and-funds-validator-join-forces-to-improve-international-student-mobility-access-to-financial-services-471892109 
 
-[Original/Source Press Release](https://newsdirect.com/news/adro-and-funds-validator-join-forces-to-improve-international-student-mobility-access-to-financial-services-471892109) 
+[Original/Source Press Release](https://newsdirect.com/news/adro-and-funds-validator-join-forces-to-improve-international-student-mobility-access-to-financial-services-471892109)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cg0fk6/adro_partners_with_funds_validator_to_improve/

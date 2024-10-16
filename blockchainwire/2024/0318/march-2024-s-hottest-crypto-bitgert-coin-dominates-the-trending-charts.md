@@ -26,6 +26,9 @@ Buy on Pancakeswap
 
 Buy on Uniswap 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/march-2024s-hottest-crypto-bitgert-coin-dominates-the-trending-charts) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/march-2024s-hottest-crypto-bitgert-coin-dominates-the-trending-charts)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bhstpg/bitgert_the_next_generation_of_blockchain_systems/

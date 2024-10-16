@@ -32,6 +32,9 @@ The Summer launch of this project is gathering the attention of many crypto enth
 
 X (Twitter) | Instagram | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/mr-based-to-launch-purpose-driven-memecoin-on-the-basechain) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/mr-based-to-launch-purpose-driven-memecoin-on-the-basechain)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fve2lf/mr_based_launches_purposedriven_memecoin_on_base/

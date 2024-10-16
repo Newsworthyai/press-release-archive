@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/personalized-learning-with-ai-this-company-is-delivering-results-globally-172819557 
 
-[Original/Source Press Release](https://newsdirect.com/news/personalized-learning-with-ai-this-company-is-delivering-results-globally-172819557) 
+[Original/Source Press Release](https://newsdirect.com/news/personalized-learning-with-ai-this-company-is-delivering-results-globally-172819557)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1er7a2k/genius_group_ceo_secures_22_million_contract_with/

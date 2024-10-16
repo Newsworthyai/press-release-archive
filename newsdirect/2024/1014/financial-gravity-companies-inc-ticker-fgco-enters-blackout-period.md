@@ -28,6 +28,9 @@ Company Websitehttps://financialgravity.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/financial-gravity-companies-inc-ticker-fgco-enters-blackout-period-709901951 
 
-[Original/Source Press Release](https://newsdirect.com/news/financial-gravity-companies-inc-ticker-fgco-enters-blackout-period-709901951) 
+[Original/Source Press Release](https://newsdirect.com/news/financial-gravity-companies-inc-ticker-fgco-enters-blackout-period-709901951)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1g3ceix/financial_gravity_companies_inc_enters_blackout/

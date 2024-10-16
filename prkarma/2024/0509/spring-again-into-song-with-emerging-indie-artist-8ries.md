@@ -35,6 +35,9 @@ Visit Our Blog
 * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/ycommunicate/news_release/1464) 
+[Original/Source Press Release](https://newsroom.prkarma.com/ycommunicate/news_release/1464)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1cuaryq/argo_vibes_announces_debut_of_the_spring_song_by/

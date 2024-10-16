@@ -40,6 +40,9 @@ The Future of Energy is DecentralisedThe future of energy is decentralised, and 
 
 Rowan Energy's blockchain, running on a Proof of Generation consensus mechanism, exemplifies this. Transactions are verified as renewable energy is produced, ensuring an authentic and transparent system supporting smart grids' evolution into a more secure and reliable energy future. This approach solidifies the role of projects like Rowan in advancing smart grid technology, demonstrating a practical and innovative application of blockchain in enhancing the energy sector. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/decentralised-energy-the-future-of-renewable-energy) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/decentralised-energy-the-future-of-renewable-energy)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1bimf73/decentralised_energy_and_smart_grid_technology/

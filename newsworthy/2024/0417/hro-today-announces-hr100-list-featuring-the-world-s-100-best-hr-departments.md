@@ -38,6 +38,9 @@ About HRO TODAY
 
 HRO Today is the go-to resource for top-level HR executives and leaders across industries and markets. Available online in a dynamic digital format. Renowned for our North American, EMEA, and APAC Forums, HRO Today events bring HR leaders and professionals together, whether they’re in-person, virtual, or in a hybrid format. Our annual event schedule includes our Educational Conference Series, in-person and virtual learning, and networking events focused on key individual areas of talent management. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202404171148/hro-today-announces-hr100-list-featuring-the-world-s-100-best-hr-departments) 
+[Original/Source Press Release](https://newsworthy.ai/news/202404171148/hro-today-announces-hr100-list-featuring-the-world-s-100-best-hr-departments)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1c676pv/hro_today_magazine_unveils_202324_hr100_list_of/

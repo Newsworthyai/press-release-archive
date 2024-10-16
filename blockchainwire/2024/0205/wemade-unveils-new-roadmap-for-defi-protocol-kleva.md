@@ -28,6 +28,9 @@ Renowned industry leader and innovator WEMADE is at the forefront of global Web3
 
 www.wemade.com / www.wemix.com/communication 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/wemade-unveils-new-roadmap-for-defi-protocol-kleva-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/wemade-unveils-new-roadmap-for-defi-protocol-kleva-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjx6z/wemade_prepares_kleva_for_transition_to_wemix30/

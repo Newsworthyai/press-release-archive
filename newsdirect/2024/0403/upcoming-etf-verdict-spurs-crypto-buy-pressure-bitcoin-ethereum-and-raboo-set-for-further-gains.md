@@ -30,6 +30,9 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/upcoming-etf-verdict-spurs-crypto-buy-pressure-bitcoin-ethereum-and-raboo-set-for-further-gains-392090004 
 
-[Original/Source Press Release](https://newsdirect.com/news/upcoming-etf-verdict-spurs-crypto-buy-pressure-bitcoin-ethereum-and-raboo-set-for-further-gains-392090004) 
+[Original/Source Press Release](https://newsdirect.com/news/upcoming-etf-verdict-spurs-crypto-buy-pressure-bitcoin-ethereum-and-raboo-set-for-further-gains-392090004)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bv6pdm/upcoming_etf_verdict_spurs_crypto_buy_pressure/

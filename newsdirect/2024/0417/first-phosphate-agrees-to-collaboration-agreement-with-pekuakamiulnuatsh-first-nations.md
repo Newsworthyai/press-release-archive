@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/first-phosphate-agrees-to-collaboration-agreement-with-pekuakamiulnuatsh-first-nations-800015758 
 
-[Original/Source Press Release](https://newsdirect.com/news/first-phosphate-agrees-to-collaboration-agreement-with-pekuakamiulnuatsh-first-nations-800015758) 
+[Original/Source Press Release](https://newsdirect.com/news/first-phosphate-agrees-to-collaboration-agreement-with-pekuakamiulnuatsh-first-nations-800015758)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c6fgmt/first_phosphate_corp_signs_collaboration/

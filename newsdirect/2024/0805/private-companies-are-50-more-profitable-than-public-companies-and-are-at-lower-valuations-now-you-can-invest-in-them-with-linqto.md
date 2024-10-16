@@ -66,6 +66,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/private-companies-are-50-more-profitable-than-public-companies-and-are-at-lower-valuations-now-you-can-invest-in-them-with-linqto-963815933 
 
-[Original/Source Press Release](https://newsdirect.com/news/private-companies-are-50-more-profitable-than-public-companies-and-are-at-lower-valuations-now-you-can-invest-in-them-with-linqto-963815933) 
+[Original/Source Press Release](https://newsdirect.com/news/private-companies-are-50-more-profitable-than-public-companies-and-are-at-lower-valuations-now-you-can-invest-in-them-with-linqto-963815933)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ekn628/discover_the_lucrative_world_of_preipo_investing/

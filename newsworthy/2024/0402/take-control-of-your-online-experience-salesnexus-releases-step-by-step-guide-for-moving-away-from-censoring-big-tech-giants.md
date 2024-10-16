@@ -16,6 +16,9 @@ To download the guide and learn more about how to leave Big Tech behind, visit: 
 
 For media inquiries or further information about SalesNexus and its initiatives, please contact Craig Klein at cklein @ salesnexus.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202404021137/take-control-of-your-online-experience-salesnexus-releases-step-by-step-guide-for-moving-away-from-censoring-big-tech-giants) 
+[Original/Source Press Release](https://newsworthy.ai/news/202404021137/take-control-of-your-online-experience-salesnexus-releases-step-by-step-guide-for-moving-away-from-censoring-big-tech-giants)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1btx4ft/salesnexus_releases_guide_to_leaving_big_tech_to/

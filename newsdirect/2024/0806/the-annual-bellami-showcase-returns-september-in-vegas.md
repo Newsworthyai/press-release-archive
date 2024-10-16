@@ -64,6 +64,9 @@ Company Websitehttps://www.bellamihair.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-annual-bellami-showcase-returns-september-in-vegas-236418753 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-annual-bellami-showcase-returns-september-in-vegas-236418753) 
+[Original/Source Press Release](https://newsdirect.com/news/the-annual-bellami-showcase-returns-september-in-vegas-236418753)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1elh66m/bellami_showcase_returns_to_las_vegas_in/

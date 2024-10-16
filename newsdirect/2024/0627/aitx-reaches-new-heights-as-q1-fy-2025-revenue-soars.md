@@ -38,6 +38,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/aitx-reaches-new-heights-as-q1-fy-2025-revenue-soars-128374604 
 
-[Original/Source Press Release](https://newsdirect.com/news/aitx-reaches-new-heights-as-q1-fy-2025-revenue-soars-128374604) 
+[Original/Source Press Release](https://newsdirect.com/news/aitx-reaches-new-heights-as-q1-fy-2025-revenue-soars-128374604)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dpnqks/aitx_reaches_new_heights_as_q1_fy_2025_revenue/

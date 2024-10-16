@@ -6,6 +6,9 @@ Below is the remarkable achievements and significant events that shaped NotInu J
 
 Here is a detailed Tutorial on How to Bridge/Migrate to TON Chain- Step 1 - Download the Tonkeeper wallet: [https://tonkeeper.com](https://tonkeeper.com)- Step 2 - Bridge from any chain to TON using any of these:https://bridge.ton.org , https://changenow.io , https://app.rocketx.exchange/swap ,Or send TON from a CEX (HTX, OKX, KuCoin...)- Step 3 - Now, here's where the magic happens. Swap your TON for $NOTINU over at Ston.fiContract Address: EQC6KPc3IH2m1CY7Z3Uonqj7azE-R_RQEimEQ-OHVECu7NpeDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/kabosu-has-passed-on-meet-notinu-the-new-face-of-dog-memes-in-the-crypto-industry) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/kabosu-has-passed-on-meet-notinu-the-new-face-of-dog-memes-in-the-crypto-industry)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1f2ri9h/notinu_achieves_milestones_in_ton_ecosystem/

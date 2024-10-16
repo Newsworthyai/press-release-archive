@@ -18,6 +18,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hive-digital-technologies-reports-strong-bitcoin-production-and-operational-growth-in-april-2024-857602785 
 
-[Original/Source Press Release](https://newsdirect.com/news/hive-digital-technologies-reports-strong-bitcoin-production-and-operational-growth-in-april-2024-857602785) 
+[Original/Source Press Release](https://newsdirect.com/news/hive-digital-technologies-reports-strong-bitcoin-production-and-operational-growth-in-april-2024-857602785)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cndqmv/hive_digital_reports_strong_bitcoin_production/

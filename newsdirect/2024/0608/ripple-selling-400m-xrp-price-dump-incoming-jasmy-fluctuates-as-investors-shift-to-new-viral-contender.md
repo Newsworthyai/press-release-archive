@@ -40,6 +40,9 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/ripple-selling-400m-xrp-price-dump-incoming-jasmy-fluctuates-as-investors-shift-to-new-viral-contender-311313469 
 
-[Original/Source Press Release](https://newsdirect.com/news/ripple-selling-400m-xrp-price-dump-incoming-jasmy-fluctuates-as-investors-shift-to-new-viral-contender-311313469) 
+[Original/Source Press Release](https://newsdirect.com/news/ripple-selling-400m-xrp-price-dump-incoming-jasmy-fluctuates-as-investors-shift-to-new-viral-contender-311313469)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dbe628/ripple_and_jasmycoin_facing_turbulent_times_in/

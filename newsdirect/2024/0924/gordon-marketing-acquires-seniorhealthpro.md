@@ -38,6 +38,9 @@ Company Websitehttps://amerilife.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/gordon-marketing-acquires-seniorhealthpro-192677687 
 
-[Original/Source Press Release](https://newsdirect.com/news/gordon-marketing-acquires-seniorhealthpro-192677687) 
+[Original/Source Press Release](https://newsdirect.com/news/gordon-marketing-acquires-seniorhealthpro-192677687)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1focbvx/gordon_marketing_acquires_seniorhealthpro/

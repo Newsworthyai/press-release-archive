@@ -40,6 +40,9 @@ Company Websitehttp://www.nlpc.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/shareholder-to-return-to-berkshire-hathaway-annual-meeting-one-year-after-arrest-in-omaha-591950088 
 
-[Original/Source Press Release](https://newsdirect.com/news/shareholder-to-return-to-berkshire-hathaway-annual-meeting-one-year-after-arrest-in-omaha-591950088) 
+[Original/Source Press Release](https://newsdirect.com/news/shareholder-to-return-to-berkshire-hathaway-annual-meeting-one-year-after-arrest-in-omaha-591950088)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cbxsn2/shareholder_to_return_to_berkshire_hathaway/

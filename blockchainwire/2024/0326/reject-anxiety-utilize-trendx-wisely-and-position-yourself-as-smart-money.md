@@ -30,6 +30,9 @@ Summary
 
 In summary, utilizing the right strategy tools like TrendX's AlphaSquare in a bull market can significantly enhance profit capture and foster growth among investors. It represents a transformative step in evolving from an ordinary investor to a well-informed, strategic market player. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/reject-anxiety-utilize-trendx-wisely-and-position-yourself-as-smart-money) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/reject-anxiety-utilize-trendx-wisely-and-position-yourself-as-smart-money)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1boj7u9/trendx_launches_alphasquare_a_gamechanger_in/

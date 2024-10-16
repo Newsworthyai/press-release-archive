@@ -42,6 +42,9 @@ In the forthcoming year, while the Inscriptions market remains a part of BitMart
 
 As we wish our BitMartians a prosperous and happy new year, we reaffirm our commitment to global expansion with a localized approach. Understanding and catering to the unique needs of our diverse user base remains at the heart of our expansion strategy. BitMart will continue to evolve, not just as an exchange, but as a global community where every user finds a place to trade, learn, and grow. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/elevating-trust-expanding-horizons-bitmarts-stellar-2023-journey) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/elevating-trust-expanding-horizons-bitmarts-stellar-2023-journey)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avdrm1/bitmart_a_pillar_of_stability_in_the_crypto_market/

@@ -30,6 +30,9 @@ Company Websitehttps://dentakay.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/dentakay-launches-comprehensive-guide-on-dental-implant-procedures-303004047 
 
-[Original/Source Press Release](https://newsdirect.com/news/dentakay-launches-comprehensive-guide-on-dental-implant-procedures-303004047) 
+[Original/Source Press Release](https://newsdirect.com/news/dentakay-launches-comprehensive-guide-on-dental-implant-procedures-303004047)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d7lnox/dentakay_launches_comprehensive_guide_on_dental/

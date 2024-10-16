@@ -43,6 +43,9 @@ Anyone interested in discovering Brighty may get the details on the official web
 
 LinkedIn | Instagram | X (Twitter) | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/brighty-app-launches-innovative-crypto-earning-cards-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/brighty-app-launches-innovative-crypto-earning-cards-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fo6n4w/brighty_app_unveils_new_cryptoearning_cards_and/

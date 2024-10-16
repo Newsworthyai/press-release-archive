@@ -22,6 +22,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/accesso-ceo-unveils-massive-2023-wins-and-plans-for-more-growth-859999047 
 
-[Original/Source Press Release](https://newsdirect.com/news/accesso-ceo-unveils-massive-2023-wins-and-plans-for-more-growth-859999047) 
+[Original/Source Press Release](https://newsdirect.com/news/accesso-ceo-unveils-massive-2023-wins-and-plans-for-more-growth-859999047)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1c72mop/accesso_ceo_unveils_massive_2023_wins_and_plans/

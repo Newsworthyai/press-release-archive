@@ -14,6 +14,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/guardforce-ai-expands-in-thailand-with-new-linguabot-solution-as-it-addresses-ai-demand-614038641 
 
-[Original/Source Press Release](https://newsdirect.com/news/guardforce-ai-expands-in-thailand-with-new-linguabot-solution-as-it-addresses-ai-demand-614038641) 
+[Original/Source Press Release](https://newsdirect.com/news/guardforce-ai-expands-in-thailand-with-new-linguabot-solution-as-it-addresses-ai-demand-614038641)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cxbmq1/guardforce_ai_launches_linguabot_solution_in/

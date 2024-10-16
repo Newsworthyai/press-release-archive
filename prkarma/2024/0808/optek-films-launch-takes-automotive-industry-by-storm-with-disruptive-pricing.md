@@ -51,6 +51,9 @@ Visit Our Website
 * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/counterflowmarketing/news_release/1530) 
+[Original/Source Press Release](https://newsroom.prkarma.com/counterflowmarketing/news_release/1530)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1f1rixv/newly_established_optek_films_offers_premium/

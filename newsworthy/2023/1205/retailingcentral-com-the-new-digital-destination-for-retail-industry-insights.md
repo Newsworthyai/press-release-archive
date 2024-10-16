@@ -18,6 +18,9 @@ With a commitment to illuminate the retail landscape, RetailingCentral.com stand
 
 Discover the future of retail at www.RetailingCentral.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231205873/retailingcentral-com-the-new-digital-destination-for-retail-industry-insights) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231205873/retailingcentral-com-the-new-digital-destination-for-retail-industry-insights)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx1v7/introducing_retailingcentralcom_a_new_digital/

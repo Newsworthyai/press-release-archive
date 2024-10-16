@@ -40,6 +40,9 @@ Company Websitehttps://www.direxion.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/direxion-launches-meta-single-stock-leveraged-and-inverse-etfs-772354307 
 
-[Original/Source Press Release](https://newsdirect.com/news/direxion-launches-meta-single-stock-leveraged-and-inverse-etfs-772354307) 
+[Original/Source Press Release](https://newsdirect.com/news/direxion-launches-meta-single-stock-leveraged-and-inverse-etfs-772354307)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d8pku1/direxion_launches_meta_single_stock_leveraged_and/

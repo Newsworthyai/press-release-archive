@@ -103,6 +103,9 @@ About SUCCESS® Enterprises Founded in 1897, SUCCESS® is a leading multimedia c
 
 Media Contact for SUCCESS® Enterprises: Kerrie Lee Brown 303-493-1719 kerrie.brown@success.com 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202410091310/success-r-announces-weekly-bestseller-lists-across-8-categories-for-week-ending-october-4-2024) 
+[Original/Source Press Release](https://newsworthy.ai/news/202410091310/success-r-announces-weekly-bestseller-lists-across-8-categories-for-week-ending-october-4-2024)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BookNews/comments/1fzsyam/success_announces_weekly_bestseller_lists_across/

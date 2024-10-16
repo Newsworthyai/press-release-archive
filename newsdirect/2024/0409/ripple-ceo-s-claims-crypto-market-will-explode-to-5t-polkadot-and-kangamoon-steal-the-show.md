@@ -40,6 +40,9 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/ripple-ceos-claims-crypto-market-will-explode-to-5t-polkadot-and-kangamoon-steal-the-show-741073619 
 
-[Original/Source Press Release](https://newsdirect.com/news/ripple-ceos-claims-crypto-market-will-explode-to-5t-polkadot-and-kangamoon-steal-the-show-741073619) 
+[Original/Source Press Release](https://newsdirect.com/news/ripple-ceos-claims-crypto-market-will-explode-to-5t-polkadot-and-kangamoon-steal-the-show-741073619)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bzw4lk/ripple_ceo_predicts_5t_crypto_market_polkadot_and/

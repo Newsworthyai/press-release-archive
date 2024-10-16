@@ -32,6 +32,9 @@ Company Websitehttps://www.inklantern.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/crant-launches-updated-product-offerings-revolutionizing-access-to-ai-powered-brand-building-262577395 
 
-[Original/Source Press Release](https://newsdirect.com/news/crant-launches-updated-product-offerings-revolutionizing-access-to-ai-powered-brand-building-262577395) 
+[Original/Source Press Release](https://newsdirect.com/news/crant-launches-updated-product-offerings-revolutionizing-access-to-ai-powered-brand-building-262577395)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1crrveq/crant_launches_ink_lantern_lite_revolutionizing/

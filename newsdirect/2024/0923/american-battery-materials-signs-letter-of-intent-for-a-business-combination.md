@@ -42,6 +42,9 @@ Company Websitehttps://www.americanbatterymaterials.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/american-battery-materials-signs-letter-of-intent-for-a-business-combination-849255177 
 
-[Original/Source Press Release](https://newsdirect.com/news/american-battery-materials-signs-letter-of-intent-for-a-business-combination-849255177) 
+[Original/Source Press Release](https://newsdirect.com/news/american-battery-materials-signs-letter-of-intent-for-a-business-combination-849255177)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1fnkn3i/american_battery_materials_signs_letter_of_intent/

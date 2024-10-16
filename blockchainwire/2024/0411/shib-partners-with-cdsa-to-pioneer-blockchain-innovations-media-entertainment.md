@@ -12,6 +12,9 @@ About SHIB
 
 SHIB, a world-leading ecosystem of decentralized finance (DeFi) cryptocurrencies has gained popularity among millions of holders worldwide. It has 3.6 million Twitter followers and is frequently ranked as the second-most searched crypto project by Google. Its ecosystem of tokens include $SHIB, $LEASH, and $BONE, plus native SHIBOSHIs NFTs. SHIB.io utilizes the Shib Ecosystem to power quality technologies including SHIB:The Metaverse and Shibarium, the Layer 2 blockchain providing a solid foundation, scalability, security, and innovation for a decentralized world. To learn more about SHIB, please visit the official website: https://shibatoken.com. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/shib-partners-with-cdsa-to-pioneer-blockchain-innovations-media--entertainment-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/shib-partners-with-cdsa-to-pioneer-blockchain-innovations-media--entertainment-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c1m0hw/shib_partners_with_cdsa_to_explore/

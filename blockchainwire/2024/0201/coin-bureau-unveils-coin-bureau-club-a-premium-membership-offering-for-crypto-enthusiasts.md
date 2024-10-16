@@ -21,6 +21,9 @@ About the Coin Bureau
 
 Coin Bureau is a leading educational resource for all things cryptocurrency, providing in-depth analysis of the sector. Millions of enthusiasts from around the world rely on Coin Bureau for its unbiased coverage of crypto and the forces, people and trends which shape its continuing development. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/coin-bureau-unveils-coin-bureau-club-a-premium-membership-offering-for-crypto-enthusiasts) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/coin-bureau-unveils-coin-bureau-club-a-premium-membership-offering-for-crypto-enthusiasts)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjvwr/coin_bureau_launches_exclusive_coin_bureau_club/

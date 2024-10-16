@@ -40,6 +40,9 @@ About Broker Complaint Alert:
 
 Broker Complaint Alert is dedicated to assisting victims of online scams and fraudulent investment schemes. With a focus on the cryptocurrency market, BCA offers innovative solutions to recover lost funds, utilizing the latest technological advancements to protect investors and maintain the integrity of the digital currency ecosystem. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/broker-complaint-alert-introduces-ai-driven-scam-analysis-service) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/broker-complaint-alert-introduces-ai-driven-scam-analysis-service)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjvny/broker_complaint_alert_launches_aidriven_scam/

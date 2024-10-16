@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/golden-arrow-resources-corporation-expands-exploration-efforts-in-chile-and-argentina-455924337 
 
-[Original/Source Press Release](https://newsdirect.com/news/golden-arrow-resources-corporation-expands-exploration-efforts-in-chile-and-argentina-455924337) 
+[Original/Source Press Release](https://newsdirect.com/news/golden-arrow-resources-corporation-expands-exploration-efforts-in-chile-and-argentina-455924337)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d1vxyg/golden_arrow_resources_corporation_expands/

@@ -46,6 +46,9 @@ Company Websitehttp://www.mirapharmaceuticals.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/mira-pharmaceuticals-nasdaq-mira-reports-promising-pre-clinical-trial-results-for-mental-health-treatment-to-submit-investigational-new-drug-application-by-end-of-year-382703212 
 
-[Original/Source Press Release](https://newsdirect.com/news/mira-pharmaceuticals-nasdaq-mira-reports-promising-pre-clinical-trial-results-for-mental-health-treatment-to-submit-investigational-new-drug-application-by-end-of-year-382703212) 
+[Original/Source Press Release](https://newsdirect.com/news/mira-pharmaceuticals-nasdaq-mira-reports-promising-pre-clinical-trial-results-for-mental-health-treatment-to-submit-investigational-new-drug-application-by-end-of-year-382703212)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1ef2q4q/mira_pharmaceuticals_reports_promising/

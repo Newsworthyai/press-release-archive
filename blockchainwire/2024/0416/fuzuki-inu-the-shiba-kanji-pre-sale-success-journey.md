@@ -22,6 +22,9 @@ Take advantage of the limited time! The Fuzuki Inu Presale is currently availabl
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/fuzuki-inu---the-shiba-kanji-pre-sale-success-journey) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/fuzuki-inu---the-shiba-kanji-pre-sale-success-journey)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c5fu7l/fuzuki_inu_the_shiba_kanji_transforming_the/

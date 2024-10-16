@@ -14,6 +14,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/reyna-silver-corps-lauren-megaw-discusses-strategic-focus-on-high-grade-silver-projects-376106951 
 
-[Original/Source Press Release](https://newsdirect.com/news/reyna-silver-corps-lauren-megaw-discusses-strategic-focus-on-high-grade-silver-projects-376106951) 
+[Original/Source Press Release](https://newsdirect.com/news/reyna-silver-corps-lauren-megaw-discusses-strategic-focus-on-high-grade-silver-projects-376106951)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cyzynl/reyna_silver_corps_lauren_megaw_discusses/

@@ -50,6 +50,9 @@ Founded in 2018 and operating globally under multiple licenses, XREX offers a 
 
 Sharing the social responsibility of financial inclusion, XREX leverages blockchain technologies to further financial participation, access, and education. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/xrex-plays-key-role-in-taiwans-fraud-combat-scammed-crypto-assets-returned-without-known-defendant-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/xrex-plays-key-role-in-taiwans-fraud-combat-scammed-crypto-assets-returned-without-known-defendant-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1b6rpci/taiwan8217s_criminal_investigation_bureau_cib/

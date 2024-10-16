@@ -12,6 +12,9 @@ Sonia said: “It's a radically important time for Bitcoin with all of the poign
 
 CoinW's growth across the MENA region and Asia begins to look toward Europe and the US as they encourage collaboration across the key calendar dates throughout the year. Their rapid evolution - currently serving over 10 million users across 200 countries - won't stop in Nashville as the team strives to educate and inspire audiences through the momentum of their global [Expedition Trek](https://coinedition.com/coinw-launches-expedition-trek-to-increase-web3-education/), which held its fourth installment at EDCON in Tokyo this week. New developments, partnerships and strategies will continue to emerge as CoinW looks forward into the ensuing bull run. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-continues-commitment-to-bitcoin-ecosystem-with-sponsorship-in-nashville) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/coinw-continues-commitment-to-bitcoin-ecosystem-with-sponsorship-in-nashville)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1eazs1y/coinw_sponsors_bitcoin_nashville_2024_president/

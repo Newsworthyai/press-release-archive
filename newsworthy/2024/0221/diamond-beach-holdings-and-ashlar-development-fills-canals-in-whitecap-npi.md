@@ -28,6 +28,9 @@ About Diamond Beach Holding LLC
 
 Diamond Beach Holdings, LLC is a subsidiary of the International Bancshares Corporation, a multi-bank financial holding company headquartered in Laredo, Texas with 167 facilities and 257 ATMs servicing 75 communities in Texas and Oklahoma. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402211099/diamond-beach-holdings-and-ashlar-development-fills-canals-in-whitecap-npi) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402211099/diamond-beach-holdings-and-ashlar-development-fills-canals-in-whitecap-npi)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1awkm71/new_canal_connects_bay_to_whitecap_npi/

@@ -44,6 +44,9 @@ Website: https://Swifty.global
 
 Twitter : https://twitter.com/SwiftyGlobal 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/dear-cashmere-group-holding-co-aka-swifty-global-signs-binding-letter-of-intent-to-be-acquired-by-signing-day-sports-7076070) 
+[Original/Source Press Release](https://www.newmediawire.com/news/dear-cashmere-group-holding-co-aka-swifty-global-signs-binding-letter-of-intent-to-be-acquired-by-signing-day-sports-7076070)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1fklxn3/swifty_global_to_be_acquired_by_signing_day/

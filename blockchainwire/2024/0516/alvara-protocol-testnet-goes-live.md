@@ -14,6 +14,9 @@ About Alvara Protocol
 
 The Alvara Protocol is a decentralized platform that utilizes the ERC-7621 (Basket Token Standard) to create and manage funds on the blockchain. Alvara offers a comprehensive fund Factory and Marketplace, with a transparent leaderboard showcasing the performance of every BTS created. ALVA and veALVA tokens assume crucial roles in driving the ecosystem’s growth and governance with veALVA holders wielding significant influence over the substantial ALVA reward stream. Removing traditional barriers, Alvara fosters a democratic meritocracy in crypto investing, enabling full lifecycle fund management, from creation to ownership transfer, within its seamless framework. For more information about Alvara Protocol, please visit [https://www.alvaraprotocol.io](https://www.alvaraprotocol.io). 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/alvara-protocol-testnet-goes-live) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/alvara-protocol-testnet-goes-live)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1ctcnfk/alvara_protocol_launches_testnet_for/

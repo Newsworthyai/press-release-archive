@@ -186,6 +186,9 @@ Company Websitehttps://www.direxion.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/direxion-announces-reverse-split-of-dust-tecs-webs-and-yang-612264675 
 
-[Original/Source Press Release](https://newsdirect.com/news/direxion-announces-reverse-split-of-dust-tecs-webs-and-yang-612264675) 
+[Original/Source Press Release](https://newsdirect.com/news/direxion-announces-reverse-split-of-dust-tecs-webs-and-yang-612264675)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1g1ks1h/direxion_announces_reverse_split_of_dust_tecs/

@@ -36,6 +36,9 @@ LAS VEGAS - (NewMediaWire) - October 02, 2024 - Golden Matrix Group Inc. (NASDAQ
 
  brett.milotte@icrinc.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-inc-announces-additional-amendment-to-earnout-structure-of-share-purchase-agreement-with-subsidiary-meridianbet-7076138) 
+[Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-inc-announces-additional-amendment-to-earnout-structure-of-share-purchase-agreement-with-subsidiary-meridianbet-7076138)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsInfo/comments/1fx6hp5/golden_matrix_group_inc_announces_fifth_amendment/

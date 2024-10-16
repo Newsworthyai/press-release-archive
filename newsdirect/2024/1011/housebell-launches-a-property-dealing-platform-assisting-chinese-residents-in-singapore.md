@@ -26,6 +26,9 @@ Company Websitehttps://www.housebell.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/housebell-launches-a-property-dealing-platform-assisting-chinese-residents-in-singapore-645575703 
 
-[Original/Source Press Release](https://newsdirect.com/news/housebell-launches-a-property-dealing-platform-assisting-chinese-residents-in-singapore-645575703) 
+[Original/Source Press Release](https://newsdirect.com/news/housebell-launches-a-property-dealing-platform-assisting-chinese-residents-in-singapore-645575703)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1g1777p/housebell_launches_platform_to_assist_chinese/

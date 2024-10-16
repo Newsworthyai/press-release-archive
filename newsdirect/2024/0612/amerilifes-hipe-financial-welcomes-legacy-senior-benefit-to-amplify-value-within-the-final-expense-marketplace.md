@@ -45,6 +45,9 @@ Company Websitehttps://amerilife.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/amerilifes-hipe-financial-welcomes-legacy-senior-benefit-to-amplify-value-within-the-final-expense-marketplace-473309488 
 
-[Original/Source Press Release](https://newsdirect.com/news/amerilifes-hipe-financial-welcomes-legacy-senior-benefit-to-amplify-value-within-the-final-expense-marketplace-473309488) 
+[Original/Source Press Release](https://newsdirect.com/news/amerilifes-hipe-financial-welcomes-legacy-senior-benefit-to-amplify-value-within-the-final-expense-marketplace-473309488)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1de6adw/hipe_financial_partners_with_legacy_senior/

@@ -46,6 +46,9 @@ Website: https://www.bakedbeans.app
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/baked-beans-reloaded-raises-the-bar-with-its-launch-a-crypto-culinary-adventure-unfolds-on-binance-smart-chain) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/baked-beans-reloaded-raises-the-bar-with-its-launch-a-crypto-culinary-adventure-unfolds-on-binance-smart-chain)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cikt1o/baked_beans_reloaded_a_defi_culinary_adventure/

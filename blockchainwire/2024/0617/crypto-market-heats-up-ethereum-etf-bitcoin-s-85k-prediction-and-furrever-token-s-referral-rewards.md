@@ -24,6 +24,9 @@ Investors looking to capitalize on these dynamic developments may find substanti
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/crypto-market-heats-up-ethereum-etf-bitcoins-85k-prediction-and-furrever-tokens-referral-rewards) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/crypto-market-heats-up-ethereum-etf-bitcoins-85k-prediction-and-furrever-tokens-referral-rewards)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dhztx2/ethereum_etf_bitcoin_surge_and_furrever_token/

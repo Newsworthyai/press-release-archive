@@ -54,6 +54,9 @@ ron.hughes.operations@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/smc-announces-marketing-agreement-with-plato-technologies-inc-945138186 
 
-[Original/Source Press Release](https://newsdirect.com/news/smc-announces-marketing-agreement-with-plato-technologies-inc-945138186) 
+[Original/Source Press Release](https://newsdirect.com/news/smc-announces-marketing-agreement-with-plato-technologies-inc-945138186)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1c87442/smc_announces_marketing_agreement_with_plato/

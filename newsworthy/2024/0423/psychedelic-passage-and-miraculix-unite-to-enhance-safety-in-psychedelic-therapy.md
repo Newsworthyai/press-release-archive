@@ -34,6 +34,9 @@ Miraculix Press Office
 
 Email: info@miraculix-lab.com 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202404231152/psychedelic-passage-and-miraculix-unite-to-enhance-safety-in-psychedelic-therapy) 
+[Original/Source Press Release](https://newsworthy.ai/news/202404231152/psychedelic-passage-and-miraculix-unite-to-enhance-safety-in-psychedelic-therapy)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1cb1v20/psychedelic_passage_and_miraculix_collaborate_to/

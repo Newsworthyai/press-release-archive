@@ -28,6 +28,9 @@ ch@omnipublic.global
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/velodrome-integrates-with-metal-l2-the-banking-layer) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/velodrome-integrates-with-metal-l2-the-banking-layer)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvod8b/velodrome_integrates_with_metal_l2_on_optimism/

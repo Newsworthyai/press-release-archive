@@ -42,6 +42,9 @@ exec@gcuacademy.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kneeling-on-broken-glass-the-chronicles-of-ezekiels-riders-a-journey-of-faith-and-service-launches-this-easter-sunday-521162769 
 
-[Original/Source Press Release](https://newsdirect.com/news/kneeling-on-broken-glass-the-chronicles-of-ezekiels-riders-a-journey-of-faith-and-service-launches-this-easter-sunday-521162769) 
+[Original/Source Press Release](https://newsdirect.com/news/kneeling-on-broken-glass-the-chronicles-of-ezekiels-riders-a-journey-of-faith-and-service-launches-this-easter-sunday-521162769)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BookNews/comments/1bqowv3/new_book_release_kneeling_on_broken_glass/

@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/from-sustainability-to-reliability-how-laser-photonics-ethical-approach-to-engineering-sets-it-apart-from-rivals-446248564 
 
-[Original/Source Press Release](https://newsdirect.com/news/from-sustainability-to-reliability-how-laser-photonics-ethical-approach-to-engineering-sets-it-apart-from-rivals-446248564) 
+[Original/Source Press Release](https://newsdirect.com/news/from-sustainability-to-reliability-how-laser-photonics-ethical-approach-to-engineering-sets-it-apart-from-rivals-446248564)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dpqi9x/laser_photonics_corp_leads_ethical_engineering/

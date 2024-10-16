@@ -10,6 +10,9 @@ Conventions Psychiatry & Counseling, in collaboration with Apollo and NeuroStar 
 
 For more information or to schedule a consultation, please contact Conventions Psychiatry & Counseling at (630) 642 - 1801 or visit https://conventionstms.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402161066/conventions-psychiatry-counseling-partners-with-apollo-and-neurostar-tms-to-offer-groundbreaking-tms-treatment-for-depression) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402161066/conventions-psychiatry-counseling-partners-with-apollo-and-neurostar-tms-to-offer-groundbreaking-tms-treatment-for-depression)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avc88x/revolutionary_tms_therapy_partnership_for/

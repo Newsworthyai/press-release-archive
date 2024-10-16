@@ -99,6 +99,9 @@ Company Websitehttps://www.bakerentertainmentgroup.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/jonathan-bakers-fate-the-movie-adds-brandon-routh-mena-suvari-and-cheech-marin-to-the-cast-955897197 
 
-[Original/Source Press Release](https://newsdirect.com/news/jonathan-bakers-fate-the-movie-adds-brandon-routh-mena-suvari-and-cheech-marin-to-the-cast-955897197) 
+[Original/Source Press Release](https://newsdirect.com/news/jonathan-bakers-fate-the-movie-adds-brandon-routh-mena-suvari-and-cheech-marin-to-the-cast-955897197)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BookNews/comments/1crwjd8/baker_entertainment_group_announces_key_additions/

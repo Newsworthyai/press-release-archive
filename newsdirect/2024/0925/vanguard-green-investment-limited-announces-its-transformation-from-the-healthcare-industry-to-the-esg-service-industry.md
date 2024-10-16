@@ -38,6 +38,9 @@ info@cw-h.net
 
 View source version on newsdirect.com: https://newsdirect.com/news/vanguard-green-investment-limited-announces-its-transformation-from-the-healthcare-industry-to-the-esg-service-industry-935929456 
 
-[Original/Source Press Release](https://newsdirect.com/news/vanguard-green-investment-limited-announces-its-transformation-from-the-healthcare-industry-to-the-esg-service-industry-935929456) 
+[Original/Source Press Release](https://newsdirect.com/news/vanguard-green-investment-limited-announces-its-transformation-from-the-healthcare-industry-to-the-esg-service-industry-935929456)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1forko4/mu_global_holding_limited_rebrands_as_vanguard/

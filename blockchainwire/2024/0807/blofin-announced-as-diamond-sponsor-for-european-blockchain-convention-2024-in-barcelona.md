@@ -23,6 +23,9 @@ Follow us
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/blofin-announced-as-diamond-sponsor-for-european-blockchain-convention-2024-in-barcelona) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/blofin-announced-as-diamond-sponsor-for-european-blockchain-convention-2024-in-barcelona)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1emoyo8/blofin_exchange_announces_role_as_diamond_sponsor/

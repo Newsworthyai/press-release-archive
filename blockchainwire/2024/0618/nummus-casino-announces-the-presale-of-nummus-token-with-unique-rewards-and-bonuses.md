@@ -60,6 +60,9 @@ Telegram
 
 Disclaimer: This is a press release and does not contain any financial advice. Readers should do their own research before taking any actions related to the company mentioned. You are solely responsible, directly or indirectly, for any damage or loss caused or alleged to be caused by or in connection with the use of or reliance on any content, goods, or services mentioned in the press release. Cryptocurrency is volatile. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/nummus-casino-announces-the-presale-of-nummus-token-with-unique-rewards-and-bonuses) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/nummus-casino-announces-the-presale-of-nummus-token-with-unique-rewards-and-bonuses)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dj11qr/nummus_casino_announces_nummus_token_presale/

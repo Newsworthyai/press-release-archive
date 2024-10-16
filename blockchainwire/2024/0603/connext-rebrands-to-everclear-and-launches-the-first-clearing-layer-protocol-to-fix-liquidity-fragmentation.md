@@ -40,6 +40,9 @@ Disclaimer
 
 * The lock-up schedule for this transaction is aligned with core contributors and backers. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/connext-rebrands-to-everclear-and-launches-the-first-clearing-layer-protocol-to-fix-liquidity-fragmentation) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/connext-rebrands-to-everclear-and-launches-the-first-clearing-layer-protocol-to-fix-liquidity-fragmentation)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvpdiv/everclear_rebrands_to_solve_liquidity/

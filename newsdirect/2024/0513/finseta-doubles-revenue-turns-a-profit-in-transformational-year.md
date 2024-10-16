@@ -20,6 +20,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/finseta-doubles-revenue-turns-a-profit-in-transformational-year-402121369 
 
-[Original/Source Press Release](https://newsdirect.com/news/finseta-doubles-revenue-turns-a-profit-in-transformational-year-402121369) 
+[Original/Source Press Release](https://newsdirect.com/news/finseta-doubles-revenue-turns-a-profit-in-transformational-year-402121369)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cr0unu/finseta_doubles_revenue_turns_a_profit_in/

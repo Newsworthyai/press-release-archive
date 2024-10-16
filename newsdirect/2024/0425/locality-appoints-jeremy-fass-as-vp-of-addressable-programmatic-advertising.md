@@ -26,6 +26,9 @@ julia@kitehillpr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/locality-appoints-jeremy-fass-as-vp-of-addressable-and-programmatic-advertising-282290025 
 
-[Original/Source Press Release](https://newsdirect.com/news/locality-appoints-jeremy-fass-as-vp-of-addressable-and-programmatic-advertising-282290025) 
+[Original/Source Press Release](https://newsdirect.com/news/locality-appoints-jeremy-fass-as-vp-of-addressable-and-programmatic-advertising-282290025)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1ccsxsg/locality_appoints_jeremy_fass_as_vp_of/

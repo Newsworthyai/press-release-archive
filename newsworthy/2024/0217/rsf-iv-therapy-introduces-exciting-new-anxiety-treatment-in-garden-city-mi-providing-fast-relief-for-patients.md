@@ -12,6 +12,9 @@ Unlike traditional medications that may take weeks or months to show noticeable 
 
 Don't wait any longer to find relief from your anxiety symptoms. Take the first step towards a brighter future by reaching out to RSF IV Therapy in Garden City, MI. Schedule a consultation today to learn how Ketamine infusions can transform your life. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402171068/rsf-iv-therapy-introduces-exciting-new-anxiety-treatment-in-garden-city-mi-providing-fast-relief-for-patients) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402171068/rsf-iv-therapy-introduces-exciting-new-anxiety-treatment-in-garden-city-mi-providing-fast-relief-for-patients)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avc89g/rsf_iv_therapy_introduces_ketamine_infusions_as/

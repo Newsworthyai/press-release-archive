@@ -6,6 +6,9 @@ A Community-Centric Approach To SuccessFrom its inception, HIPPOSOL has been abo
 
 How to Participate: Visit https://hipposol.xyz/presale to purchase $HIPPOS tokens and secure your spot today.About HipposolHipposol is a groundbreaking initiative on the Solana blockchain that’s revolutionizing the meme coin market. By integrating humor, cutting-edge technology, and user-centric economic models, Hipposol isn’t just about investment returns; it’s about creating a fun and inclusive crypto experience. The project leverages the collective power of its community to drive innovation and growth, making it more than a cryptocurrency—it’s a movement.Stay Connected with usWebsite: https://hipposol.xyzPresale Portal: https://hipposol.xyz/presaleTwitter: https://twitter.com/hippo_on_solTelegram: [https://t.me/hipposol](https://t.me/hipposol)Media Contact:KingHippo[Pod@hipposol.xyz](mailto:Pod@hipposol.xyz)[https://hipposol.xyz](https://hipposol.xyz)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/hipposol-poised-to-become-the-next-bonk-on-solana-with-its-community-driven-growth-and-innovative-approach) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/hipposol-poised-to-become-the-next-bonk-on-solana-with-its-community-driven-growth-and-innovative-approach)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cgumfy/hipposol_a_new_memecoin_contender_gaining/

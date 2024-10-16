@@ -36,6 +36,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/make-a-wish-granting-wishes-transforming-lives-951857015 
 
-[Original/Source Press Release](https://newsdirect.com/news/make-a-wish-granting-wishes-transforming-lives-951857015) 
+[Original/Source Press Release](https://newsdirect.com/news/make-a-wish-granting-wishes-transforming-lives-951857015)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1c0mncl/makeawish_launches_initiative_to_recruit_1/

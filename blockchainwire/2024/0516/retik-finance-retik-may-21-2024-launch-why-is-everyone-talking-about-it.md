@@ -24,6 +24,9 @@ Telegram: www.t.me/retikfinance
 
 Media Contact:Team Retik[bd@retik.com](mailto:bd@retik.com)[https://retik.com/](https://retik.com/)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/retik-finance-retik-may-21-2024-launch-why-is-everyone-talking-about-it) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/retik-finance-retik-may-21-2024-launch-why-is-everyone-talking-about-it)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cthezq/retik_finance_set_to_redefine_defi_landscape_with/

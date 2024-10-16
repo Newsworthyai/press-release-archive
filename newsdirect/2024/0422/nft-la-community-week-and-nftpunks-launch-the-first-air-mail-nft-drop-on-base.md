@@ -24,6 +24,9 @@ Contact DetailsBryan Feinberg
 
 View source version on newsdirect.com: https://newsdirect.com/news/nft-la-community-week-and-nftpunks-launch-the-first-air-mail-nft-drop-on-base-807406793 
 
-[Original/Source Press Release](https://newsdirect.com/news/nft-la-community-week-and-nftpunks-launch-the-first-air-mail-nft-drop-on-base-807406793) 
+[Original/Source Press Release](https://newsdirect.com/news/nft-la-community-week-and-nftpunks-launch-the-first-air-mail-nft-drop-on-base-807406793)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1caehn3/nft_la_and_nftpunks_launch_first_airmail_nft_drop/

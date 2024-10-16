@@ -54,6 +54,9 @@ Company Websitehttps://multiversx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/over-200-passionate-programmers-participated-in-the-bucharest-hackathon-2024-and-the-total-prizes-exceeded-50-000-dollars-431912262 
 
-[Original/Source Press Release](https://newsdirect.com/news/over-200-passionate-programmers-participated-in-the-bucharest-hackathon-2024-and-the-total-prizes-exceeded-50-000-dollars-431912262) 
+[Original/Source Press Release](https://newsdirect.com/news/over-200-passionate-programmers-participated-in-the-bucharest-hackathon-2024-and-the-total-prizes-exceeded-50-000-dollars-431912262)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1ccun4o/the_bucharest_hackathon_2024_over_200_programmers/

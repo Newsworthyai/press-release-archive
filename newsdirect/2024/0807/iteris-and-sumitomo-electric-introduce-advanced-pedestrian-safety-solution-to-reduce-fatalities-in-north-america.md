@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/iteris-and-sumitomo-electric-introduce-advanced-pedestrian-safety-solution-to-reduce-fatalities-in-north-america-512374998 
 
-[Original/Source Press Release](https://newsdirect.com/news/iteris-and-sumitomo-electric-introduce-advanced-pedestrian-safety-solution-to-reduce-fatalities-in-north-america-512374998) 
+[Original/Source Press Release](https://newsdirect.com/news/iteris-and-sumitomo-electric-introduce-advanced-pedestrian-safety-solution-to-reduce-fatalities-in-north-america-512374998)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1emaqdg/iteris_and_sumitomo_electric_introduce_advanced/

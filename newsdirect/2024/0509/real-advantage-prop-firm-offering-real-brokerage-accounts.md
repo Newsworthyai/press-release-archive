@@ -52,6 +52,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/real-advantage-prop-firm-offering-real-brokerage-accounts-612090844 
 
-[Original/Source Press Release](https://newsdirect.com/news/real-advantage-prop-firm-offering-real-brokerage-accounts-612090844) 
+[Original/Source Press Release](https://newsdirect.com/news/real-advantage-prop-firm-offering-real-brokerage-accounts-612090844)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cnweiz/blusky_trading_company_paving_the_path_to_real/

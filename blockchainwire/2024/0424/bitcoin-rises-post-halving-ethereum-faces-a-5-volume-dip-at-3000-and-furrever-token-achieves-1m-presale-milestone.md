@@ -44,6 +44,9 @@ Discover the Most Exclusive Presale Opportunity of 2024 Now:Furrever Token Offic
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-rises-post-halving-ethereum-faces-a-5-volume-dip-at-3000-and-furrever-token-achieves-1m-presale-milestone) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-rises-post-halving-ethereum-faces-a-5-volume-dip-at-3000-and-furrever-token-achieves-1m-presale-milestone)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cc5hvr/cryptocurrency_market_analysis_btc_bullish_eth/

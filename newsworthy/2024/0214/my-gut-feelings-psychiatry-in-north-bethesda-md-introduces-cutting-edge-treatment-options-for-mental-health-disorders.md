@@ -8,6 +8,9 @@ A groundbreaking treatment at My Gut Feelings Psychiatry is the use of psychedel
 
 Beyond psychedelics, My Gut Feelings Psychiatry provides various services to address diverse mental health concerns. The medication management program optimizes treatment plans, ensuring the most effective medication regimen. The weight loss program combines psychiatric support and lifestyle modifications, aiding patients in achieving weight loss goals while improving overall mental well-being. Specializing in chronic gut health issues, the clinic uses a functional medicine approach to promote better gut health and enhance mental health outcomes. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402141063/my-gut-feelings-psychiatry-in-north-bethesda-md-introduces-cutting-edge-treatment-options-for-mental-health-disorders) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402141063/my-gut-feelings-psychiatry-in-north-bethesda-md-introduces-cutting-edge-treatment-options-for-mental-health-disorders)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avcayh/innovative_mental_health_treatments_offered_at_my/

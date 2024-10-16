@@ -53,6 +53,9 @@ info@originalapecoin.com
 
 https://originalapecoin.com.  Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/ape-coin-set-to-launch-the-next-big-memecoin-and-nft-phenomenon-poised-to-take-over-solana) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/ape-coin-set-to-launch-the-next-big-memecoin-and-nft-phenomenon-poised-to-take-over-solana)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fj0e1e/ape_coin_set_to_dominate_as_next_major_memecoin/

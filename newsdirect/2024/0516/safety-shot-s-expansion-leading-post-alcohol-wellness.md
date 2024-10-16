@@ -54,6 +54,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/safety-shots-expansion-leading-post-alcohol-wellness-523389011 
 
-[Original/Source Press Release](https://newsdirect.com/news/safety-shots-expansion-leading-post-alcohol-wellness-523389011) 
+[Original/Source Press Release](https://newsdirect.com/news/safety-shots-expansion-leading-post-alcohol-wellness-523389011)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1ct9jyr/safety_shot_inc_introduces_innovative_alcohol/

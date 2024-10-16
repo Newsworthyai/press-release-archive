@@ -60,6 +60,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/brand-engagement-network-nasdaq-bnai-expands-global-footprint-as-it-secures-5-9m-in-private-placement-financing-and-enters-50m-standby-equity-purchase-agreement-556027394 
 
-[Original/Source Press Release](https://newsdirect.com/news/brand-engagement-network-nasdaq-bnai-expands-global-footprint-as-it-secures-5-9m-in-private-placement-financing-and-enters-50m-standby-equity-purchase-agreement-556027394) 
+[Original/Source Press Release](https://newsdirect.com/news/brand-engagement-network-nasdaq-bnai-expands-global-footprint-as-it-secures-5-9m-in-private-placement-financing-and-enters-50m-standby-equity-purchase-agreement-556027394)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1fdhi8v/brand_engagement_network_expands_reach_in/

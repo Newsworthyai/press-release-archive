@@ -70,6 +70,9 @@ Jennifer Lu, Brand Ambassador | Jennifer.lu@coinstore.com
 
 Coinstore Social MediaTwitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Telegram Announcement 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/value-flow---a-crypto-services-ecosystem) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/value-flow---a-crypto-services-ecosystem)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c4kbb4/value_flow_creating_a_crypto_services_ecosystem/

@@ -22,6 +22,9 @@ Don't lose your opportunity to include Furrever Token to your venture portfolio 
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/shiba-inu-etf-speculation-ethereums-4k-potential-and-furrever-tokens-10-referral-award) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/shiba-inu-etf-speculation-ethereums-4k-potential-and-furrever-tokens-10-referral-award)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dki863/shiba_inu_ethereum_and_furrever_token_the/

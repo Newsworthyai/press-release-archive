@@ -24,6 +24,9 @@ The Forexroboteasy platform is committed to providing maximum transparency and s
 
 Remember that your success in the financial market starts with choosing the right information resource. ForexRoboteasy.com is not just a platform, it is your key to a world of reliable and honest financial services.Disclaimer:This press release may contain forward-looking statements. Forward-looking statements describe future expectations, plans, results, or strategies (including product offerings, regulatory plans and business plans) and may change without notice. You are cautioned that such statements are subject to a multitude of risks and uncertainties that could cause future circumstances, events, or results to differ materially from those projected in the forward-looking statements, including the risks that actual results may differ materially from those projected in the forward-looking statements. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/forexroboteasycom--your-navigator-to-the-world-of-financial-services) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/forexroboteasycom--your-navigator-to-the-world-of-financial-services)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1avjtqf/forexroboteasy_a_beacon_of_trust_and_transparency/

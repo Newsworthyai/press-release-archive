@@ -60,6 +60,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/atlas-lithium-strengthens-position-in-global-market-with-brazilian-mineral-rights-expansion-544477082 
 
-[Original/Source Press Release](https://newsdirect.com/news/atlas-lithium-strengthens-position-in-global-market-with-brazilian-mineral-rights-expansion-544477082) 
+[Original/Source Press Release](https://newsdirect.com/news/atlas-lithium-strengthens-position-in-global-market-with-brazilian-mineral-rights-expansion-544477082)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dncm30/atlas_lithium_strengthens_position_in_global/

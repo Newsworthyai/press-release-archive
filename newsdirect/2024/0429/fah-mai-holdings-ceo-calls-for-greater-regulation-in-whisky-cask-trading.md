@@ -18,6 +18,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fah-mai-holdings-ceo-calls-for-greater-regulation-in-whisky-cask-trading-872426108 
 
-[Original/Source Press Release](https://newsdirect.com/news/fah-mai-holdings-ceo-calls-for-greater-regulation-in-whisky-cask-trading-872426108) 
+[Original/Source Press Release](https://newsdirect.com/news/fah-mai-holdings-ceo-calls-for-greater-regulation-in-whisky-cask-trading-872426108)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cg2w4l/fah_mai_holdings_ceo_calls_for_greater_regulation/

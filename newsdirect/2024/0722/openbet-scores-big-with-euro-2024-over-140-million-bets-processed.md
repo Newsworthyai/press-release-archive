@@ -16,6 +16,9 @@ kim@newmedia.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/openbet-scores-big-with-euro-2024-over-140-million-bets-processed-131321430 
 
-[Original/Source Press Release](https://newsdirect.com/news/openbet-scores-big-with-euro-2024-over-140-million-bets-processed-131321430) 
+[Original/Source Press Release](https://newsdirect.com/news/openbet-scores-big-with-euro-2024-over-140-million-bets-processed-131321430)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1e9qls1/openbet_processes_over_140_million_bets_during/

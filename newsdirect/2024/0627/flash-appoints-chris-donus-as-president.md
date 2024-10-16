@@ -24,6 +24,9 @@ Company Websitehttps://www.flashparking.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/flash-appoints-chris-donus-as-president-654066047 
 
-[Original/Source Press Release](https://newsdirect.com/news/flash-appoints-chris-donus-as-president-654066047) 
+[Original/Source Press Release](https://newsdirect.com/news/flash-appoints-chris-donus-as-president-654066047)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dptm3n/flash_appoints_chris_donus_as_president/

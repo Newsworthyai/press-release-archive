@@ -40,6 +40,9 @@ Company Websitehttps://www.ciachef.edu/
 
 View source version on newsdirect.com: https://newsdirect.com/news/culinary-institute-of-the-pacific-taps-cia-for-new-workforce-development-program-903200386 
 
-[Original/Source Press Release](https://newsdirect.com/news/culinary-institute-of-the-pacific-taps-cia-for-new-workforce-development-program-903200386) 
+[Original/Source Press Release](https://newsdirect.com/news/culinary-institute-of-the-pacific-taps-cia-for-new-workforce-development-program-903200386)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c5hw6w/culinary_institute_of_the_pacific_collaborates/

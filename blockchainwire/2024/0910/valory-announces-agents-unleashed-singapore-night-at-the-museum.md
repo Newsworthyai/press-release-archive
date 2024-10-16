@@ -34,6 +34,9 @@ Valory is a research and deployment company at the intersection of crypto and AI
 
 Useful links: Website, Twitter, LinkedIn, Github 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/valory-announces-agents-unleashed-singapore---night-at-the-museum-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/valory-announces-agents-unleashed-singapore---night-at-the-museum-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1fjrbvi/agents_unleashed_singapore_night_at_the_museum/

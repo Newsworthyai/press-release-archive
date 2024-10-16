@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kula-gold-continues-2024-gold-focus-798288114 
 
-[Original/Source Press Release](https://newsdirect.com/news/kula-gold-continues-2024-gold-focus-798288114) 
+[Original/Source Press Release](https://newsdirect.com/news/kula-gold-continues-2024-gold-focus-798288114)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1bzthcj/kula_gold_makes_promising_strides_in_gold/

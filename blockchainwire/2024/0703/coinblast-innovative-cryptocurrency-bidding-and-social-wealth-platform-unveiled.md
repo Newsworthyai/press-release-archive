@@ -34,6 +34,9 @@ company@coinblast.com
 
 Social Channels:Facebook:https://www.facebook.com/profile.php?id=100091784521727&mibextid=LQQJ4d [X.com](http://X.com) (Twitter) [https://twitter.com/@coinblast_com](https://twitter.com/@coinblast_com)Telegram Channel: [https://t.me/CoinBlast_news](https://t.me/CoinBlast_news)YouTube:https://www.youtube.com/channel/UCEkzAhpR3tVtzElDwL6n-XQDiscord:https://discord.gg/XKKcfeaw 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/coinblast-innovative-cryptocurrency-bidding-and-social-wealth-platform-unveiled) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/coinblast-innovative-cryptocurrency-bidding-and-social-wealth-platform-unveiled)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dudwee/coinblast_unveils_groundbreaking_cryptocurrency/

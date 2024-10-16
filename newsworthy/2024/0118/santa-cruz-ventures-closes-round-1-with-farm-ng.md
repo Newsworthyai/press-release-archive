@@ -34,6 +34,9 @@ About Santa Cruz Ventures
 
 Santa Cruz Ventures is the first institutional venture firm dedicated to funding and supporting the top technology startups in the Santa Cruz and Monterey counties. SCV primarily focuses on startups across clean tech, biotech, robotics, and health/wellness and beyond, aimed at propelling their journeys from audacious ideas to disruptive billion dollar companies. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20240118559/santa-cruz-ventures-closes-round-1-with-farm-ng) 
+[Original/Source Press Release](https://newsworthy.ai/news/20240118559/santa-cruz-ventures-closes-round-1-with-farm-ng)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1avdp5a/santa_cruz_ventures_announces_1005_million/

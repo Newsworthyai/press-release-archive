@@ -46,6 +46,9 @@ Facebook: [https://web.facebook.com/people/Ask2bid-review/61557537878793/](https
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/unveiling-the-future-of-trading-a-comprehensive-evaluation-of-ask2bidnet) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/unveiling-the-future-of-trading-a-comprehensive-evaluation-of-ask2bidnet)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1c4xtcl/ask2bidnet_revolutionizing_trading_with_aipowered/

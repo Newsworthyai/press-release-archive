@@ -20,6 +20,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/iofina-reveals-strong-start-to-2024-with-increased-iodine-production-177655688 
 
-[Original/Source Press Release](https://newsdirect.com/news/iofina-reveals-strong-start-to-2024-with-increased-iodine-production-177655688) 
+[Original/Source Press Release](https://newsdirect.com/news/iofina-reveals-strong-start-to-2024-with-increased-iodine-production-177655688)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c72mqw/iofina_plc_ceo_discusses_strong_firstquarter/

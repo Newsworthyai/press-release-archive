@@ -50,6 +50,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hiru-corp-otc-hiru-forging-a-path-in-metal-mining-exploration-885268119 
 
-[Original/Source Press Release](https://newsdirect.com/news/hiru-corp-otc-hiru-forging-a-path-in-metal-mining-exploration-885268119) 
+[Original/Source Press Release](https://newsdirect.com/news/hiru-corp-otc-hiru-forging-a-path-in-metal-mining-exploration-885268119)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c0h9aj/hiru_corp_otc_hiru_forging_a_path_in_metal_mining/

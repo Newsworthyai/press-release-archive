@@ -22,6 +22,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/european-green-transition-debuts-on-london-stock-exchange-with-strong-investor-support-553134374 
 
-[Original/Source Press Release](https://newsdirect.com/news/european-green-transition-debuts-on-london-stock-exchange-with-strong-investor-support-553134374) 
+[Original/Source Press Release](https://newsdirect.com/news/european-green-transition-debuts-on-london-stock-exchange-with-strong-investor-support-553134374)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c1cgz6/european_green_transition_debuts_on_london_stock/

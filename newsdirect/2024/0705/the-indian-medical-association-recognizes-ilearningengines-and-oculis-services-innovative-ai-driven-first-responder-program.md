@@ -32,6 +32,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-indian-medical-association-recognizes-ilearningengines-and-oculis-services-innovative-ai-driven-first-responder-program-231915243 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-indian-medical-association-recognizes-ilearningengines-and-oculis-services-innovative-ai-driven-first-responder-program-231915243) 
+[Original/Source Press Release](https://newsdirect.com/news/the-indian-medical-association-recognizes-ilearningengines-and-oculis-services-innovative-ai-driven-first-responder-program-231915243)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1dvxbm3/indian_medical_association_acknowledges/

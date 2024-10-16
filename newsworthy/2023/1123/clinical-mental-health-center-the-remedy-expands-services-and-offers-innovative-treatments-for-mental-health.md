@@ -10,6 +10,9 @@ The integration of ketamine infusion therapy and dTMS treatments sets The Remedy
 
 With a team of compassionate professionals who have personally experienced the impact of mental health difficulties, The Remedy understands the challenges faced by patients and their families. Their commitment to creating a specialized environment enables patients to regain control of their lives and flourish. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231123890/clinical-mental-health-center-the-remedy-expands-services-and-offers-innovative-treatments-for-mental-health) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231123890/clinical-mental-health-center-the-remedy-expands-services-and-offers-innovative-treatments-for-mental-health)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcs6i/the_remedy_relocates_to_vadnais_heights_and/

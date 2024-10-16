@@ -38,6 +38,9 @@ Company Websitehttps://towercapital.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tower-capital-group-sponsors-a-global-investment-consortium-747613235 
 
-[Original/Source Press Release](https://newsdirect.com/news/tower-capital-group-sponsors-a-global-investment-consortium-747613235) 
+[Original/Source Press Release](https://newsdirect.com/news/tower-capital-group-sponsors-a-global-investment-consortium-747613235)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1chq8ay/tower_capital_group_sponsors_global_womens_health/

@@ -24,6 +24,9 @@ laurie@mediverarx.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/university-compounding-pharmacy-announces-rebrand-to-medivera-compounding-pharmacy-680473492 
 
-[Original/Source Press Release](https://newsdirect.com/news/university-compounding-pharmacy-announces-rebrand-to-medivera-compounding-pharmacy-680473492) 
+[Original/Source Press Release](https://newsdirect.com/news/university-compounding-pharmacy-announces-rebrand-to-medivera-compounding-pharmacy-680473492)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e4o9fx/medivera_compounding_pharmacy_announces/

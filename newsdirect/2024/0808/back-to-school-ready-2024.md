@@ -12,6 +12,9 @@ Company Websitehttps://newsmg.com/
 
 View original content to download multimedia: https://newsdirect.com/news/back-to-school-ready-2024-324665822 
 
-[Original/Source Press Release](https://newsdirect.com/news/back-to-school-ready-2024-324665822) 
+[Original/Source Press Release](https://newsdirect.com/news/back-to-school-ready-2024-324665822)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1enchp7/new_backtoschool_campaign_2024_launched_by_news/

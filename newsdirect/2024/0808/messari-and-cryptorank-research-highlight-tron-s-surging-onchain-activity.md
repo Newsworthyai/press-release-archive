@@ -58,6 +58,9 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/messari-and-cryptorank-research-highlight-trons-surging-onchain-activity-911586718 
 
-[Original/Source Press Release](https://newsdirect.com/news/messari-and-cryptorank-research-highlight-trons-surging-onchain-activity-911586718) 
+[Original/Source Press Release](https://newsdirect.com/news/messari-and-cryptorank-research-highlight-trons-surging-onchain-activity-911586718)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1emwy7n/messari_and_cryptorank_research_reports_highlight/

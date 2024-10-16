@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sarytogan-graphite-achieves-breakthrough-in-nuclear-grade-purity-734817593 
 
-[Original/Source Press Release](https://newsdirect.com/news/sarytogan-graphite-achieves-breakthrough-in-nuclear-grade-purity-734817593) 
+[Original/Source Press Release](https://newsdirect.com/news/sarytogan-graphite-achieves-breakthrough-in-nuclear-grade-purity-734817593)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cs0htc/sarytogan_graphite_achieves_breakthrough_in/

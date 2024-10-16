@@ -36,6 +36,9 @@ kreynolds@hoytorg.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mou-between-the-u-s-and-peru-provides-a-stepping-stone-for-mining-companies-at-minexpo-2024-649043175 
 
-[Original/Source Press Release](https://newsdirect.com/news/mou-between-the-u-s-and-peru-provides-a-stepping-stone-for-mining-companies-at-minexpo-2024-649043175) 
+[Original/Source Press Release](https://newsdirect.com/news/mou-between-the-u-s-and-peru-provides-a-stepping-stone-for-mining-companies-at-minexpo-2024-649043175)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1fz3wtg/mou_between_the_us_and_peru_provides_a_stepping/

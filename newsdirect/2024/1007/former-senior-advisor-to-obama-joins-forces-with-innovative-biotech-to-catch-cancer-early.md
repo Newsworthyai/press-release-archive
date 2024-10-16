@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/former-senior-advisor-to-obama-joins-forces-with-innovative-biotech-to-catch-cancer-early-506329789 
 
-[Original/Source Press Release](https://newsdirect.com/news/former-senior-advisor-to-obama-joins-forces-with-innovative-biotech-to-catch-cancer-early-506329789) 
+[Original/Source Press Release](https://newsdirect.com/news/former-senior-advisor-to-obama-joins-forces-with-innovative-biotech-to-catch-cancer-early-506329789)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fy6o4u/former_senior_advisor_to_obama_joins_forces_with/

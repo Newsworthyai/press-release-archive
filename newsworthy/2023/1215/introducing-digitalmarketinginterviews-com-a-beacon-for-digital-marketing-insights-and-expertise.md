@@ -18,6 +18,9 @@ A nexus for digital marketing enthusiasts and professionals, DigitalMarketingInt
 
 Stay updated and expand your digital horizons with www.DigitalMarketingInterviews.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231215808/introducing-digitalmarketinginterviews-com-a-beacon-for-digital-marketing-insights-and-expertise) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231215808/introducing-digitalmarketinginterviews-com-a-beacon-for-digital-marketing-insights-and-expertise)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1avcue3/unveiling_of_digitalmarketinginterviewscom_a/

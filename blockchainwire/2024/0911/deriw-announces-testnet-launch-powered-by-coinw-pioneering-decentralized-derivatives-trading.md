@@ -18,6 +18,9 @@ Referral Rebates: DeriW's decentralized rebate system rewards referrers with up
 
 To celebrate this significant launch, DeriW has introduced a Bug Bounty Program to enhance platform security and user engagement. This program rewards users with DER tokens, offering airdrops ranging from 100 to 100,000 DER tokens to those who help identify and report potential security vulnerabilities. Additionally, new users are welcomed with a 1000 DER token airdrop and a 50,000 USDT rewards weekly trading competition, encouraging a robust start in their trading journey on DeriW. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/deriw-announces-testnet-launch-powered-by-coinw-pioneering-decentralized-derivatives-trading) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/deriw-announces-testnet-launch-powered-by-coinw-pioneering-decentralized-derivatives-trading)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fe7khh/deriw_launches_decentralized_trading_platform/

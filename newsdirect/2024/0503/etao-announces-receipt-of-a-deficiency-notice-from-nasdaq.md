@@ -22,6 +22,9 @@ Company Websitehttps://www.etao.world/
 
 View source version on newsdirect.com: https://newsdirect.com/news/etao-announces-receipt-of-a-deficiency-notice-from-nasdaq-786445621 
 
-[Original/Source Press Release](https://newsdirect.com/news/etao-announces-receipt-of-a-deficiency-notice-from-nasdaq-786445621) 
+[Original/Source Press Release](https://newsdirect.com/news/etao-announces-receipt-of-a-deficiency-notice-from-nasdaq-786445621)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cjevje/etao_receives_deficiency_notice_from_nasdaq/

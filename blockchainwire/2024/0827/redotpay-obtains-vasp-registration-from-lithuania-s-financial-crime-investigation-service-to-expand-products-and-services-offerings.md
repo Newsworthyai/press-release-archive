@@ -20,6 +20,9 @@ RedotPay is a fast-growing crypto payment company based in Hong Kong. Our missio
 
 Disclaimer: This publication is for informational purpose only and is not intended to constitute legal, financial, investment or any other form of professional advice. RedotPay assumes no responsibility or liability for any errors or omissions in this publication. The information contained in this publication is provided on an “as is” basis and RedotPay makes no representation or warranty, whether expressed or implied, in relation to it and its use. The information is provided with no guarantees of completeness, accuracy, usefulness or timeliness. Readers should seek professional advice before taking any action in relation to the matters dealt with in this publication. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/redotpay-obtains-vasp-registration-from-lithuanias-financial-crime-investigation-service-to-expand-products-and-services-offerings) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/redotpay-obtains-vasp-registration-from-lithuanias-financial-crime-investigation-service-to-expand-products-and-services-offerings)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1f2bqgj/redotpay_obtains_vasp_registration_from/

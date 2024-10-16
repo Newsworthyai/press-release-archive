@@ -36,6 +36,8 @@ Company Websitehttps://www.direxion.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/direxion-unveils-lmbo-and-rekt-bold-trades-for-and-against-the-crypto-industry-357897683 
 
-[Original/Source Press Release](https://newsdirect.com/news/direxion-unveils-lmbo-and-rekt-bold-trades-for-and-against-the-crypto-industry-357897683) 
+[Original/Source Press Release](https://newsdirect.com/news/direxion-unveils-lmbo-and-rekt-bold-trades-for-and-against-the-crypto-industry-357897683)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+

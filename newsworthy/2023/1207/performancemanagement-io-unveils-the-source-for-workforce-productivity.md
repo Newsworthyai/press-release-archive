@@ -18,6 +18,9 @@ PerformanceManagement.io positions itself as an indispensable asset for HR profe
 
 Dive deep into the world of performance management at www.PerformanceManagement.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231207860/performancemanagement-io-unveils-the-source-for-workforce-productivity) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231207860/performancemanagement-io-unveils-the-source-for-workforce-productivity)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Leadership_Management/comments/1avctjl/performancemanagementio_enriching_insights_for/

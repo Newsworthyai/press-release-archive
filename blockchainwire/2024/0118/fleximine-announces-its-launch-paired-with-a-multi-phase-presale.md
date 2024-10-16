@@ -40,6 +40,9 @@ It is possible to learn more about FlexiMine, its ongoing presale, and features 
 
 X (Twitter) | Instagram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/fleximine-announces-its-launch-paired-with-a-multi-phase-presale) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/fleximine-announces-its-launch-paired-with-a-multi-phase-presale)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avdrvm/fleximine_unveils_exciting_presale_opportunities/

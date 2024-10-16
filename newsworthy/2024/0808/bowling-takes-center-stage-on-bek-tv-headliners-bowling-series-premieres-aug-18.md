@@ -40,6 +40,9 @@ Bismarck, ND (Newsworthy.ai) Thursday Aug 8, 2024 @ 12:00 PM Pacific — BEK TV,
 
  BEK TV is the 2021, 2022, and 2023 winner of the Bismarck Tribune’s Best of the Best contest, selected by the people for “Best Local TV Station” 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202408081230/bowling-takes-center-stage-on-bek-tv-headliners-bowling-series-premieres-aug-18) 
+[Original/Source Press Release](https://newsworthy.ai/news/202408081230/bowling-takes-center-stage-on-bek-tv-headliners-bowling-series-premieres-aug-18)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1eneiek/bek_tv_and_jmar_entertainment_launch_headliners/

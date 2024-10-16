@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/wishpond-announces-launch-of-innovative-new-product-salescloser-ai-155868972 
 
-[Original/Source Press Release](https://newsdirect.com/news/wishpond-announces-launch-of-innovative-new-product-salescloser-ai-155868972) 
+[Original/Source Press Release](https://newsdirect.com/news/wishpond-announces-launch-of-innovative-new-product-salescloser-ai-155868972)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1c0tlts/wishpond_launches_aipowered_salescloser_for/

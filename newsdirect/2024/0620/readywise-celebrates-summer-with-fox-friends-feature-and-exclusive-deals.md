@@ -40,6 +40,9 @@ Company Websitehttps://readywise.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/readywise-celebrates-summer-with-fox-and-friends-feature-and-exclusive-deals-431125872 
 
-[Original/Source Press Release](https://newsdirect.com/news/readywise-celebrates-summer-with-fox-and-friends-feature-and-exclusive-deals-431125872) 
+[Original/Source Press Release](https://newsdirect.com/news/readywise-celebrates-summer-with-fox-and-friends-feature-and-exclusive-deals-431125872)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dmpein/readywise_celebrates_summer_with_exclusive_deals/

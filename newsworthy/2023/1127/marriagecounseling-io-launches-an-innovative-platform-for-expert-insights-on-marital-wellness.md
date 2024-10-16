@@ -18,6 +18,9 @@ With a commitment to marital well-being, MarriageCounseling.io serves as a desti
 
 Find solace, guidance, and expert perspectives at www.MarriageCounseling.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231127845/marriagecounseling-io-launches-an-innovative-platform-for-expert-insights-on-marital-wellness) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231127845/marriagecounseling-io-launches-an-innovative-platform-for-expert-insights-on-marital-wellness)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1avxp14/marriagecounselingio_launches_as_a_revolutionary/

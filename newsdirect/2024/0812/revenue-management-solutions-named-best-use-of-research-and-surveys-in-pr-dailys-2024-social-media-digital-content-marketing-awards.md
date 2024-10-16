@@ -32,6 +32,9 @@ Company Websitehttps://www.revenuemanage.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/revenue-management-solutions-named-best-use-of-research-and-surveys-in-pr-dailys-2024-social-media-digital-and-content-marketing-awards-794492059 
 
-[Original/Source Press Release](https://newsdirect.com/news/revenue-management-solutions-named-best-use-of-research-and-surveys-in-pr-dailys-2024-social-media-digital-and-content-marketing-awards-794492059) 
+[Original/Source Press Release](https://newsdirect.com/news/revenue-management-solutions-named-best-use-of-research-and-surveys-in-pr-dailys-2024-social-media-digital-and-content-marketing-awards-794492059)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1eqcv7w/rms_wins_2024_social_media_digital_content/

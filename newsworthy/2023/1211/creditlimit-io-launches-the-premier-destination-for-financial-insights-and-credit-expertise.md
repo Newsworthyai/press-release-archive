@@ -18,6 +18,9 @@ As a beacon for financial literacy and expertise, CreditLimit.io champions the c
 
 Step into the world of financial mastery at www.CreditLimit.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231211801/creditlimit-io-launches-the-premier-destination-for-financial-insights-and-credit-expertise) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231211801/creditlimit-io-launches-the-premier-destination-for-financial-insights-and-credit-expertise)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1avctlv/introducing_creditlimitio_a_premier_platform_for/

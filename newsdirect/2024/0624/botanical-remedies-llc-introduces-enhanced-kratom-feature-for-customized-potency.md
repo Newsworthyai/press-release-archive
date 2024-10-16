@@ -36,6 +36,9 @@ Company Websitehttp://www.botanicalremediesllc.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/botanical-remedies-llc-introduces-enhanced-kratom-feature-for-customized-potency-722363376 
 
-[Original/Source Press Release](https://newsdirect.com/news/botanical-remedies-llc-introduces-enhanced-kratom-feature-for-customized-potency-722363376) 
+[Original/Source Press Release](https://newsdirect.com/news/botanical-remedies-llc-introduces-enhanced-kratom-feature-for-customized-potency-722363376)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AlternativeHealthNews/comments/1dnerf4/botanical_remedies_llc_introduces_enhanced_kratom/

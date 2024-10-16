@@ -32,6 +32,9 @@ Email- info@tatsuecosystem.io
 
 Website- https://tatsuecosystem.io/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/unveiling-the-tasu-subnet-a-revolution-in-decentralized-networking) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/unveiling-the-tasu-subnet-a-revolution-in-decentralized-networking)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1c782og/tatausu_redefines_decentralized_applications_and/

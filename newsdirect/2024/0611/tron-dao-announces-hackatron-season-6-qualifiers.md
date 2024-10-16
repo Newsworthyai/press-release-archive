@@ -147,6 +147,9 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-announces-hackatron-season-6-qualifiers-381734748 
 
-[Original/Source Press Release](https://newsdirect.com/news/tron-dao-announces-hackatron-season-6-qualifiers-381734748) 
+[Original/Source Press Release](https://newsdirect.com/news/tron-dao-announces-hackatron-season-6-qualifiers-381734748)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvjwa5/hackatron_season_6_tron_dao_announces_qualifiers/

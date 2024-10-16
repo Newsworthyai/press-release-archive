@@ -26,6 +26,9 @@ Website Twitter LinkedIn Medium YouTube Telegram Discord
 
 Press@alchemypay.org Ailona Tsik Head of marketing[n.ivanova@unlimit.com](mailto:n.ivanova@unlimit.com)Nadezhda IvanovaDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. Cryptocurrency mining can be risky. There is potential for loss of funds. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/unlimit-partners-with-alchemy-pay-to-streamline-fiat-to-crypto-purchases-worldwide) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/unlimit-partners-with-alchemy-pay-to-streamline-fiat-to-crypto-purchases-worldwide)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1f5v6bk/unlimit_and_alchemy_pay_expand_partnership_to/

@@ -52,6 +52,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/aeva-enables-customers-to-go-where-they-have-never-gone-before-looking-into-automated-vehicles-and-network-effects-from-an-expanding-list-of-customers-816357239 
 
-[Original/Source Press Release](https://newsdirect.com/news/aeva-enables-customers-to-go-where-they-have-never-gone-before-looking-into-automated-vehicles-and-network-effects-from-an-expanding-list-of-customers-816357239) 
+[Original/Source Press Release](https://newsdirect.com/news/aeva-enables-customers-to-go-where-they-have-never-gone-before-looking-into-automated-vehicles-and-network-effects-from-an-expanding-list-of-customers-816357239)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1g0hs6l/aevas_advanced_lidar_technology_transforming/

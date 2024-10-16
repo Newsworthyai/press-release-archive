@@ -26,6 +26,9 @@ About NEIRO
 
 The lady behind "KABOSU" has decided to adopt a new dog named [NEIRO](https://neiro.live/). 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/neiro-a-meme-coin-will-be-initially-listed-on-coinw-exchange) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/neiro-a-meme-coin-will-be-initially-listed-on-coinw-exchange)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1eex21f/coinw_to_list_neiro_launches_neiro_bounty_program/

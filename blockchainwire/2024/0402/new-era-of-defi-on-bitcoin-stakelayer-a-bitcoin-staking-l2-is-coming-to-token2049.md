@@ -30,6 +30,9 @@ StakeLayer presents a novel approach to unlocking new functionalities for Bitcoi
 
 While the project is still in its early stages, StakeLayer's unique features hold promise for the future of Bitcoin and its integration with the evolving DeFi landscape. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/new-era-of-defi-on-bitcoin-stakelayer-a-bitcoin-staking-l2-is-coming-to-token2049) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/new-era-of-defi-on-bitcoin-stakelayer-a-bitcoin-staking-l2-is-coming-to-token2049)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bu3qnm/stakelayer_showcases_innovative_defi_solution_at/

@@ -62,6 +62,9 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/birmingham-airport-chaos-highlights-dire-need-for-improved-security-913032680 
 
-[Original/Source Press Release](https://newsdirect.com/news/birmingham-airport-chaos-highlights-dire-need-for-improved-security-913032680) 
+[Original/Source Press Release](https://newsdirect.com/news/birmingham-airport-chaos-highlights-dire-need-for-improved-security-913032680)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1clik8e/chaos_at_birmingham_airport_highlights_dire_need/

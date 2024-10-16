@@ -30,6 +30,9 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-releases-global-semiconductor-machinery-manufacturing-industry-report-spotlighting-market-growth-and-key-trends-609648303 
 
-[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-releases-global-semiconductor-machinery-manufacturing-industry-report-spotlighting-market-growth-and-key-trends-609648303) 
+[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-releases-global-semiconductor-machinery-manufacturing-industry-report-spotlighting-market-growth-and-key-trends-609648303)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f45y8p/benchmark_international_releases_global/

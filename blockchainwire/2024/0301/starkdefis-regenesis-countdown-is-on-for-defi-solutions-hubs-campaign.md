@@ -10,6 +10,9 @@ StarkDeFi strives to be the ultimate destination for all things DeFi on Starknet
 
 About StarkDeFi StarkDeFi is a permissionless and trustless hub of comprehensive Defi solutions built to leverage ZK-Rollup on StarkNet's L2 over Ethereum. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/-starkdefis-regenesis-countdown-is-on-for-defi-solutions-hubs-campaign) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/-starkdefis-regenesis-countdown-is-on-for-defi-solutions-hubs-campaign)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1b6rntm/starkdefi_regenesis_campaign_enters_final_stretch/

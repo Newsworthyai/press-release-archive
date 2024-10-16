@@ -22,6 +22,9 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-expands-offerings-by-listing-parcl-prcl-in-solana-ecosystem-and-rwa-zone-639767170 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitget-expands-offerings-by-listing-parcl-prcl-in-solana-ecosystem-and-rwa-zone-639767170) 
+[Original/Source Press Release](https://newsdirect.com/news/bitget-expands-offerings-by-listing-parcl-prcl-in-solana-ecosystem-and-rwa-zone-639767170)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c5bsqc/bitget_lists_parclprcl_in_solana_ecosystem_and/

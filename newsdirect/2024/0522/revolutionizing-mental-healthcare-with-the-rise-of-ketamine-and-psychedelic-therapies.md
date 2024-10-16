@@ -38,6 +38,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/revolutionizing-mental-healthcare-with-the-rise-of-ketamine-and-psychedelic-therapies-112359353 
 
-[Original/Source Press Release](https://newsdirect.com/news/revolutionizing-mental-healthcare-with-the-rise-of-ketamine-and-psychedelic-therapies-112359353) 
+[Original/Source Press Release](https://newsdirect.com/news/revolutionizing-mental-healthcare-with-the-rise-of-ketamine-and-psychedelic-therapies-112359353)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1cxzv3c/rise_of_ketamine_and_psychedelic_therapies_in/

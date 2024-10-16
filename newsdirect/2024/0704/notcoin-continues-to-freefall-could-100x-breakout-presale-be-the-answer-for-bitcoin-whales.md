@@ -32,6 +32,9 @@ Company Websitehttps://rabootoken.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/notcoin-continues-to-freefall-could-100x-breakout-presale-be-the-answer-for-bitcoin-whales-281798060 
 
-[Original/Source Press Release](https://newsdirect.com/news/notcoin-continues-to-freefall-could-100x-breakout-presale-be-the-answer-for-bitcoin-whales-281798060) 
+[Original/Source Press Release](https://newsdirect.com/news/notcoin-continues-to-freefall-could-100x-breakout-presale-be-the-answer-for-bitcoin-whales-281798060)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dvc3nh/notcoins_decline_and_the_rise_of_raboos_100x/

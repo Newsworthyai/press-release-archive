@@ -22,6 +22,9 @@ SX Network blockchain combines smart contracts with an on-chain treasury and pre
 
 X (Twitter) | Discord | YouTube 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/sx-bet-takes-a-giant-leap-in-sports-betting-innovation-with-zero-fees-and-cross-chain-expansion) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/sx-bet-takes-a-giant-leap-in-sports-betting-innovation-with-zero-fees-and-cross-chain-expansion)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bihoik/sx_bet_revolutionizes_sports_betting_with_zero/

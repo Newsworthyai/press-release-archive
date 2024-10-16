@@ -22,6 +22,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cavitation-technologies-enhances-fluid-processing-efficiency-with-green-tech-155468276 
 
-[Original/Source Press Release](https://newsdirect.com/news/cavitation-technologies-enhances-fluid-processing-efficiency-with-green-tech-155468276) 
+[Original/Source Press Release](https://newsdirect.com/news/cavitation-technologies-enhances-fluid-processing-efficiency-with-green-tech-155468276)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1bvsmsp/cavitation_technologies_ceo_neil_voloshin/

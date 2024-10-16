@@ -88,6 +88,9 @@ Company Websitehttps://www.sectorspdrs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/harnessing-power-the-influence-of-energy-sector-etf-xle-in-todays-market-670711788 
 
-[Original/Source Press Release](https://newsdirect.com/news/harnessing-power-the-influence-of-energy-sector-etf-xle-in-todays-market-670711788) 
+[Original/Source Press Release](https://newsdirect.com/news/harnessing-power-the-influence-of-energy-sector-etf-xle-in-todays-market-670711788)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cib2wk/energy_sector_etf_xle_a_valuable_tool_for/

@@ -62,6 +62,9 @@ Toronto, Ontario – September 23, 2024 – Slay School, a leader in innovative 
 
  This article has been amplified by NewsRamp in collaboration with Evertise Studios. 
 
-[Original/Source Press Release](https://evertise.net/slay-school-unveils-ultimate-ai-flashcard-maker-enhancing-study-efficiency-for-medical-and-university-students/) 
+[Original/Source Press Release](https://evertise.net/slay-school-unveils-ultimate-ai-flashcard-maker-enhancing-study-efficiency-for-medical-and-university-students/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1fnnzyx/slay_school_launches_ultimate_ai_flashcard_maker/

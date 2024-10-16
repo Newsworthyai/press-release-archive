@@ -46,6 +46,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitdeer-nasdaq-btdr-receives-100m-investment-from-stablecoin-leader-tether-international-limited-902451832 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitdeer-nasdaq-btdr-receives-100m-investment-from-stablecoin-leader-tether-international-limited-902451832) 
+[Original/Source Press Release](https://newsdirect.com/news/bitdeer-nasdaq-btdr-receives-100m-investment-from-stablecoin-leader-tether-international-limited-902451832)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1da9nsk/tether_international_limited_invests_100m_in/

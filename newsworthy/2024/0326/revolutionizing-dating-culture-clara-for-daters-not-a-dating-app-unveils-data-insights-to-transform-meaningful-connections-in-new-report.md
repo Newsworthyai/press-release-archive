@@ -25,6 +25,9 @@ Our mission is to empower social connection, one intentional date at a time.
 
 Press Inquiries: PR@clarafordaters.com 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202403261128/revolutionizing-dating-culture-clara-for-daters-not-a-dating-app-unveils-data-insights-to-transform-meaningful-connections-in-its-landmark-yea) 
+[Original/Source Press Release](https://newsworthy.ai/news/202403261128/revolutionizing-dating-culture-clara-for-daters-not-a-dating-app-unveils-data-insights-to-transform-meaningful-connections-in-its-landmark-yea)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1boahfv/clara_for_daters_releases_year_one_wrapped_report/

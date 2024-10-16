@@ -10,6 +10,9 @@ TMS Solutions' commitment to excellence is further exemplified by its selection 
 
 Patient testimonials speak volumes about the transformative power of TMS therapy, with individuals expressing relief from self-hate, suicidal thoughts, and shame. Many patients have expressed deep gratitude for the significant improvement in their mental health and overall quality of life, thanks to the dedicated team at TMS Solutions. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402181070/tms-solutions-revolutionizes-depression-treatment-with-tms-therapy) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402181070/tms-solutions-revolutionizes-depression-treatment-with-tms-therapy)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avc9n8/tms_solutions_revolutionizes_mental_health/

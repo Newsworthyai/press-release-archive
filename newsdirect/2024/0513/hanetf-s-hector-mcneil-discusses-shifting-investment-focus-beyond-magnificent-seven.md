@@ -20,6 +20,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hanetfs-hector-mcneil-discusses-shifting-investment-focus-beyond-magnificent-seven-541475233 
 
-[Original/Source Press Release](https://newsdirect.com/news/hanetfs-hector-mcneil-discusses-shifting-investment-focus-beyond-magnificent-seven-541475233) 
+[Original/Source Press Release](https://newsdirect.com/news/hanetfs-hector-mcneil-discusses-shifting-investment-focus-beyond-magnificent-seven-541475233)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1cr1bp7/hanetfs_hector_mcneil_urges_shift_in_investment/

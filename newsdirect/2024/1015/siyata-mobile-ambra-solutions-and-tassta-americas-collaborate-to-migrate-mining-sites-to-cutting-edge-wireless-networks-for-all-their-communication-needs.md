@@ -46,6 +46,9 @@ SYTA@haydenir.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/siyata-mobile-ambra-solutions-and-tassta-americas-collaborate-to-migrate-mining-sites-to-cutting-edge-wireless-networks-for-all-their-communication-needs-954331894 
 
-[Original/Source Press Release](https://newsdirect.com/news/siyata-mobile-ambra-solutions-and-tassta-americas-collaborate-to-migrate-mining-sites-to-cutting-edge-wireless-networks-for-all-their-communication-needs-954331894) 
+[Original/Source Press Release](https://newsdirect.com/news/siyata-mobile-ambra-solutions-and-tassta-americas-collaborate-to-migrate-mining-sites-to-cutting-edge-wireless-networks-for-all-their-communication-needs-954331894)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1g4935m/siyata_mobile_ambra_solutions_and_tassta_americas/

@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/marimed-closes-acquisition-of-a-dispensary-in-illinois-marking-the-companys-5th-in-that-state-772617180 
 
-[Original/Source Press Release](https://newsdirect.com/news/marimed-closes-acquisition-of-a-dispensary-in-illinois-marking-the-companys-5th-in-that-state-772617180) 
+[Original/Source Press Release](https://newsdirect.com/news/marimed-closes-acquisition-of-a-dispensary-in-illinois-marking-the-companys-5th-in-that-state-772617180)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1cc5hsd/marimed_expands_with_acquisition_of_dispensaries/

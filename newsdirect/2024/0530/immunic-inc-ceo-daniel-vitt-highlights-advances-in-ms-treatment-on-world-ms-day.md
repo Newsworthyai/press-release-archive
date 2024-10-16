@@ -18,6 +18,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/immunic-inc-ceo-daniel-vitt-highlights-advances-in-ms-treatment-on-world-ms-day-944295850 
 
-[Original/Source Press Release](https://newsdirect.com/news/immunic-inc-ceo-daniel-vitt-highlights-advances-in-ms-treatment-on-world-ms-day-944295850) 
+[Original/Source Press Release](https://newsdirect.com/news/immunic-inc-ceo-daniel-vitt-highlights-advances-in-ms-treatment-on-world-ms-day-944295850)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d41mz9/immunic_inc_ceo_daniel_vitt_highlights_advances/

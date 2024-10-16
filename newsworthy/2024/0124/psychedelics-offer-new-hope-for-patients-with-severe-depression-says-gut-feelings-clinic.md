@@ -10,6 +10,9 @@ In addition to providing psychedelic treatments, Gut Feelings Psychiatry offers 
 
 Patients interested in exploring the potential benefits of psychedelics and other services offered by Gut Feelings Psychiatry can find more information at www.mygutfeelings.com. The clinic serves patients virtually in CA, NY, TX, FL, CO, IL, NC, and PA, and offers in-person consultations in Oakland, Berkeley, San Francisco, and Walnut Creek. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401241029/psychedelics-offer-new-hope-for-patients-with-severe-depression-says-gut-feelings-clinic) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401241029/psychedelics-offer-new-hope-for-patients-with-severe-depression-says-gut-feelings-clinic)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avlfdg/leading_psychiatry_clinic_adds_psychedelics_to/

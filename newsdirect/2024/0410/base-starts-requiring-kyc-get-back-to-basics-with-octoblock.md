@@ -48,6 +48,9 @@ Company Websitehttps://octoblock.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/base-starts-requiring-kyc-get-back-to-basics-with-octoblock-399370658 
 
-[Original/Source Press Release](https://newsdirect.com/news/base-starts-requiring-kyc-get-back-to-basics-with-octoblock-399370658) 
+[Original/Source Press Release](https://newsdirect.com/news/base-starts-requiring-kyc-get-back-to-basics-with-octoblock-399370658)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1c0kb46/coinbases_base_introduces_kyc_octoblock/

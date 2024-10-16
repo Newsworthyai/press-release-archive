@@ -38,6 +38,9 @@ Disclaimer
 
 The information provided in this release is based on publicly available sources. Tide Capital makes no guarantees regarding its accuracy or completeness. Predictions and opinions are subject to change and may differ significantly from actual results. This content is for informational purposes only and does not constitute investment advice. Investors should seek their own legal and financial advice before makin 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/tide-capital-market-flash-crash-ends-btc-poised-for-recovery) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/tide-capital-market-flash-crash-ends-btc-poised-for-recovery)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ew4dz8/global_market_flash_crash_ends_and_recovery_begins/

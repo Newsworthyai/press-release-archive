@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/this-pharma-company-is-preparing-to-launch-its-lead-candidate-252698575 
 
-[Original/Source Press Release](https://newsdirect.com/news/this-pharma-company-is-preparing-to-launch-its-lead-candidate-252698575) 
+[Original/Source Press Release](https://newsdirect.com/news/this-pharma-company-is-preparing-to-launch-its-lead-candidate-252698575)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1ebui8v/citius_pharmaceuticals_ceo_discusses_exciting/

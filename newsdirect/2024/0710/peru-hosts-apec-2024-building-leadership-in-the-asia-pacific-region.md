@@ -29,6 +29,9 @@ Company Websitehttp://www.promperu.gob.pe
 
 View source version on newsdirect.com: https://newsdirect.com/news/peru-hosts-apec-2024-building-leadership-in-the-asia-pacific-region-262143256 
 
-[Original/Source Press Release](https://newsdirect.com/news/peru-hosts-apec-2024-building-leadership-in-the-asia-pacific-region-262143256) 
+[Original/Source Press Release](https://newsdirect.com/news/peru-hosts-apec-2024-building-leadership-in-the-asia-pacific-region-262143256)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e07aol/peru_to_host_apec_2024_building_leadership_in_the/

@@ -47,6 +47,9 @@ Visit Our Blog
 * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1441) 
+[Original/Source Press Release](https://newsroom.prkarma.com/joannegorecommunications/news_release/1441)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bztpq4/taktiful_software_solutions_launches_innovative/

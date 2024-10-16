@@ -43,6 +43,9 @@ About Dr. Anna Yusim:
 
 Dr. Anna Yusim is a board-certified psychiatrist & Clinical Assistant Professor at Yale Medical School specializing in the integration of psychiatry, psychology, and spiritual healing. With more than a decade of experience, she is committed to transforming mental health care through research, advocacy, and community engagement. Visit the website for more information: www.annayusim.com 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409111260/indigenous-mental-health-integrating-traditional-indigenous-and-modern-approaches-to-mental-health-at-the-un-general-assembly-science-summit) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409111260/indigenous-mental-health-integrating-traditional-indigenous-and-modern-approaches-to-mental-health-at-the-un-general-assembly-science-summit)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1febfr4/workshop_on_integrating_traditional_indigenous/

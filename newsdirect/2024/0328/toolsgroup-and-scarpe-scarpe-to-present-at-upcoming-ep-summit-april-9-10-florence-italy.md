@@ -34,6 +34,9 @@ Company Websitehttps://www.toolsgroup.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/toolsgroup-and-scarpeandscarpe-to-present-at-upcoming-ep-summit-april-9-10-florence-italy-840694558 
 
-[Original/Source Press Release](https://newsdirect.com/news/toolsgroup-and-scarpeandscarpe-to-present-at-upcoming-ep-summit-april-9-10-florence-italy-840694558) 
+[Original/Source Press Release](https://newsdirect.com/news/toolsgroup-and-scarpeandscarpe-to-present-at-upcoming-ep-summit-april-9-10-florence-italy-840694558)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bpv926/toolsgroup_and_scarpescarpe_to_present_at/

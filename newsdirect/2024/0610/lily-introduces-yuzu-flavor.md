@@ -26,6 +26,9 @@ Company Websitehttps://www.drinklily.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/lily-introduces-yuzu-flavor-240032704 
 
-[Original/Source Press Release](https://newsdirect.com/news/lily-introduces-yuzu-flavor-240032704) 
+[Original/Source Press Release](https://newsdirect.com/news/lily-introduces-yuzu-flavor-240032704)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dcmfyd/lily_introduces_vibrant_yuzu_flavor_with_egyptian/

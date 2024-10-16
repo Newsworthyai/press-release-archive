@@ -30,6 +30,9 @@ Company Websitehttps://petrosky.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/petrosky-expands-vps-portfolio-to-enhance-android-emulator-and-bluestacks-performance-212677353 
 
-[Original/Source Press Release](https://newsdirect.com/news/petrosky-expands-vps-portfolio-to-enhance-android-emulator-and-bluestacks-performance-212677353) 
+[Original/Source Press Release](https://newsdirect.com/news/petrosky-expands-vps-portfolio-to-enhance-android-emulator-and-bluestacks-performance-212677353)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1boig44/petrosky_expands_vps_portfolio_to_enhance_android/

@@ -24,6 +24,9 @@ ATLANTA, GA - ![](https://app.newmediawire.com/track/66cfc13ada846f306ac04520/6
 
  Company Contact:   Investor Relations Contact:   Media Contact:[info@geovax.com](mailto:info@geovax.com)   austin.murtagh@precisionaq.com   [sr@roberts-communications.com](mailto:sr@roberts-communications.com)678-384-7220   212-698-8696   202-779-0929 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/geovax-to-raise-approximately-5-0-million-of-gross-proceeds-in-offering-priced-at-the-market-7075974) 
+[Original/Source Press Release](https://www.newmediawire.com/news/geovax-to-raise-approximately-5-0-million-of-gross-proceeds-in-offering-priced-at-the-market-7075974)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1f7lp4l/geovax_labs_inc_announces_securities_purchase/

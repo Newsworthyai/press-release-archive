@@ -73,6 +73,9 @@ Research Highlights:
 
  heart.org and stroke.org 
 
-[Original/Source Press Release](http://www.newmediawire.com/news/measure-of-body-roundness-may-help-to-predict-risk-of-cardiovascular-disease-7076086) 
+[Original/Source Press Release](http://www.newmediawire.com/news/measure-of-body-roundness-may-help-to-predict-risk-of-cardiovascular-disease-7076086)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1frcaww/new_study_body_roundness_index_predicts/

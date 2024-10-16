@@ -20,6 +20,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nexalin-technology-unveils-positive-results-of-clinical-study-for-gen-2-tacs-device-279225647 
 
-[Original/Source Press Release](https://newsdirect.com/news/nexalin-technology-unveils-positive-results-of-clinical-study-for-gen-2-tacs-device-279225647) 
+[Original/Source Press Release](https://newsdirect.com/news/nexalin-technology-unveils-positive-results-of-clinical-study-for-gen-2-tacs-device-279225647)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1bvsmvu/nexalin_technology_unveils_positive_results_of/

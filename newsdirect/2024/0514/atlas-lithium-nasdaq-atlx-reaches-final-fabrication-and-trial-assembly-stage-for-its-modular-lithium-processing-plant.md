@@ -34,6 +34,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/atlas-lithium-nasdaq-atlx-reaches-final-fabrication-and-trial-assembly-stage-for-its-modular-lithium-processing-plant-192925607 
 
-[Original/Source Press Release](https://newsdirect.com/news/atlas-lithium-nasdaq-atlx-reaches-final-fabrication-and-trial-assembly-stage-for-its-modular-lithium-processing-plant-192925607) 
+[Original/Source Press Release](https://newsdirect.com/news/atlas-lithium-nasdaq-atlx-reaches-final-fabrication-and-trial-assembly-stage-for-its-modular-lithium-processing-plant-192925607)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1crrg0e/atlas_lithium_reaches_final_fabrication_stage_for/

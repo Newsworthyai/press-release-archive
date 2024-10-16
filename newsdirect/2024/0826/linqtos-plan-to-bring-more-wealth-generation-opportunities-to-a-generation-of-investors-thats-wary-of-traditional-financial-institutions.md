@@ -46,6 +46,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/linqtos-plan-to-bring-more-wealth-generation-opportunities-to-a-generation-of-investors-thats-wary-of-traditional-financial-institutions-394832727 
 
-[Original/Source Press Release](https://newsdirect.com/news/linqtos-plan-to-bring-more-wealth-generation-opportunities-to-a-generation-of-investors-thats-wary-of-traditional-financial-institutions-394832727) 
+[Original/Source Press Release](https://newsdirect.com/news/linqtos-plan-to-bring-more-wealth-generation-opportunities-to-a-generation-of-investors-thats-wary-of-traditional-financial-institutions-394832727)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1f1un9n/linqtos_mission_shaping_the_future_of_private/

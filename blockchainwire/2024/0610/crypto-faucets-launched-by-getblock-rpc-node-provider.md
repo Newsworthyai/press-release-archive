@@ -38,6 +38,9 @@ Twitter: https://twitter.com/getblockio
 
 Reddit: https://www.reddit.com/user/getblockio 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/crypto-faucets-launched-by-getblock-rpc-node-provider) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/crypto-faucets-launched-by-getblock-rpc-node-provider)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dcs956/getblock_launches_crypto_faucets_dashboard_for/

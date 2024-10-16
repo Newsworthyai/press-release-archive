@@ -42,6 +42,9 @@ Discord: https://discord.gg/Q7BxghMVyu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/how-whales-are-influencing-the-market-bitcoin--blockdag-network-top-choices-for-whales-in-2024-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/how-whales-are-influencing-the-market-bitcoin--blockdag-network-top-choices-for-whales-in-2024-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1di202t/whales_influence_cryptocurrency_market_dynamics/

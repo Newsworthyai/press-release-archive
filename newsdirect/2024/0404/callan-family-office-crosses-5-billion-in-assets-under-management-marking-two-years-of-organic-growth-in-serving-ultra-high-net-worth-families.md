@@ -34,6 +34,9 @@ Company Websitehttps://callanfamilyoffice.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/callan-family-office-crosses-5-billion-in-assets-under-management-marking-two-years-of-organic-growth-in-serving-ultra-high-net-worth-families-486177204 
 
-[Original/Source Press Release](https://newsdirect.com/news/callan-family-office-crosses-5-billion-in-assets-under-management-marking-two-years-of-organic-growth-in-serving-ultra-high-net-worth-families-486177204) 
+[Original/Source Press Release](https://newsdirect.com/news/callan-family-office-crosses-5-billion-in-assets-under-management-marking-two-years-of-organic-growth-in-serving-ultra-high-net-worth-families-486177204)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bvsnj3/callan_family_office_surpasses_5_billion_in/

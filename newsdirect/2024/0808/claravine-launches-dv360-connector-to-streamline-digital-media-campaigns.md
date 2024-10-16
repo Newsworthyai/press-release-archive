@@ -32,6 +32,9 @@ Company Websitehttps://www.claravine.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/claravine-launches-dv360-connector-to-streamline-digital-media-campaigns-956186205 
 
-[Original/Source Press Release](https://newsdirect.com/news/claravine-launches-dv360-connector-to-streamline-digital-media-campaigns-956186205) 
+[Original/Source Press Release](https://newsdirect.com/news/claravine-launches-dv360-connector-to-streamline-digital-media-campaigns-956186205)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1en5l4u/claravine_launches_new_dv360_connector_for/

@@ -26,6 +26,9 @@ Company Websitehttps://www.truchoicefinancial.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/truchoice-achieves-great-place-to-work-certification-for-second-year-312537858 
 
-[Original/Source Press Release](https://newsdirect.com/news/truchoice-achieves-great-place-to-work-certification-for-second-year-312537858) 
+[Original/Source Press Release](https://newsdirect.com/news/truchoice-achieves-great-place-to-work-certification-for-second-year-312537858)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Leadership_Management/comments/1c5hw2m/truchoice_financial_group_llc_earns_great_place/

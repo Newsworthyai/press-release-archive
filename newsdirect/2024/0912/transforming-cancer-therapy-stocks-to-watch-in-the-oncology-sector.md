@@ -64,6 +64,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/transforming-cancer-therapy-stocks-to-watch-in-the-oncology-sector-517934670 
 
-[Original/Source Press Release](https://newsdirect.com/news/transforming-cancer-therapy-stocks-to-watch-in-the-oncology-sector-517934670) 
+[Original/Source Press Release](https://newsdirect.com/news/transforming-cancer-therapy-stocks-to-watch-in-the-oncology-sector-517934670)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1ff13w7/transforming_cancer_therapy_leading_stocks_in/

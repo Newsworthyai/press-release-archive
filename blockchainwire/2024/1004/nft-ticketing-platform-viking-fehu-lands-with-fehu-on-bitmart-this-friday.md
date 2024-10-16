@@ -22,6 +22,9 @@ Until then, the Viking Fehu community is preparing for the official FEHU landing
 
 You can learn more about Viking Fehu and stay up-to-date with its developments here: Website | X (Twitter) | Telegram | YouTube | Instagram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/nft-ticketing-platform-viking-fehu-lands-with-fehu-on-bitmart-this-friday) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/nft-ticketing-platform-viking-fehu-lands-with-fehu-on-bitmart-this-friday)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fw3ot5/viking_fehu_to_land_with_fehu_token_on_bitmart/

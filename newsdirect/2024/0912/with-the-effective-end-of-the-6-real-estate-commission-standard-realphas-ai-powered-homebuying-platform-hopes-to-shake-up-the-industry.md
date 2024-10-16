@@ -50,6 +50,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/with-the-effective-end-of-the-6-real-estate-commission-standard-realphas-ai-powered-homebuying-platform-hopes-to-shake-up-the-industry-142473341 
 
-[Original/Source Press Release](https://newsdirect.com/news/with-the-effective-end-of-the-6-real-estate-commission-standard-realphas-ai-powered-homebuying-platform-hopes-to-shake-up-the-industry-142473341) 
+[Original/Source Press Release](https://newsdirect.com/news/with-the-effective-end-of-the-6-real-estate-commission-standard-realphas-ai-powered-homebuying-platform-hopes-to-shake-up-the-industry-142473341)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1ff1h0x/real_estate_commission_standard_set_to_end/

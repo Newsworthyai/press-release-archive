@@ -18,6 +18,9 @@ Aiming to demystify the intricate world of mergers and acquisitions, MergerAcqui
 
 Navigate the intricate world of M&A at www.MergerAcquisition.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231222849/mergeracquisition-io-debuts-platform-for-m-a-insights-and-expertise) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231222849/mergeracquisition-io-debuts-platform-for-m-a-insights-and-expertise)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx544/introducing_mergeracquisitionio_a_new_hub_for_ma/

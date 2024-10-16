@@ -30,6 +30,9 @@ About OriginTrail
 
 OriginTrail is an ecosystem building a Verifiable Internet for AI, providing an inclusive framework that tackles the world's challenges in the AI era, such as hallucinations, bias, and model collapse, by ensuring the provenance and verifiability of data used by AI systems. OriginTrail is used by global leaders like the British Standards Institution, Swiss Federal Railways, Supplier Compliance Audit Network (SCAN), representing over 40% of US imports and several consortia funded by the European Union among others. Advised by Turing award winner Dr. Bob Metcalfe, renowned for his law of network effects, the Trace Labs team (OriginTrail core developers) plays a crucial role in promoting a more inclusive, transparent, and decentralized AI. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/singularitynet-and-origintrail-advancing-decentralized-knowledge-graphs) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/singularitynet-and-origintrail-advancing-decentralized-knowledge-graphs)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvopnm/singularitynet_and_trace_labs_announce_strategic/

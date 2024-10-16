@@ -34,6 +34,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/one-of-the-most-significant-developments-in-rapid-in-vitro-diagnostics-since-its-invention-says-gemina-labs-ceo-about-companys-revolutionary-technology-893755698 
 
-[Original/Source Press Release](https://newsdirect.com/news/one-of-the-most-significant-developments-in-rapid-in-vitro-diagnostics-since-its-invention-says-gemina-labs-ceo-about-companys-revolutionary-technology-893755698) 
+[Original/Source Press Release](https://newsdirect.com/news/one-of-the-most-significant-developments-in-rapid-in-vitro-diagnostics-since-its-invention-says-gemina-labs-ceo-about-companys-revolutionary-technology-893755698)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1dlak96/gemina_labs_set_to_transform_rapid_testing_with/

@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/botala-energy-makes-significant-serowe-advancements-on-path-to-commercial-development-321862587 
 
-[Original/Source Press Release](https://newsdirect.com/news/botala-energy-makes-significant-serowe-advancements-on-path-to-commercial-development-321862587) 
+[Original/Source Press Release](https://newsdirect.com/news/botala-energy-makes-significant-serowe-advancements-on-path-to-commercial-development-321862587)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1chwv3i/botala_energy_achieves_significant_milestones_in/

@@ -36,6 +36,9 @@ Company Websitehttps://www.direxion.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/direxion-unveils-aibu-and-aibd-leveraged-and-inverse-trades-on-artificial-intelligence-and-big-data-934896153 
 
-[Original/Source Press Release](https://newsdirect.com/news/direxion-unveils-aibu-and-aibd-leveraged-and-inverse-trades-on-artificial-intelligence-and-big-data-934896153) 
+[Original/Source Press Release](https://newsdirect.com/news/direxion-unveils-aibu-and-aibd-leveraged-and-inverse-trades-on-artificial-intelligence-and-big-data-934896153)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cskjno/direxion_unveils_aibu_and_aibd_leveraged_and/

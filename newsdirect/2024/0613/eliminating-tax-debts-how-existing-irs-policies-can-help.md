@@ -59,6 +59,9 @@ Company Websitehttps://republictax.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/eliminating-tax-debts-how-existing-irs-policies-can-help-583680550 
 
-[Original/Source Press Release](https://newsdirect.com/news/eliminating-tax-debts-how-existing-irs-policies-can-help-583680550) 
+[Original/Source Press Release](https://newsdirect.com/news/eliminating-tax-debts-how-existing-irs-policies-can-help-583680550)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dfbxcd/eliminating_tax_debts_how_irs_policies_can_help/

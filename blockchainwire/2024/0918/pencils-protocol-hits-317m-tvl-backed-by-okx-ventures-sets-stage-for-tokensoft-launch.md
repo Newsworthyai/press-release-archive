@@ -39,6 +39,9 @@ Website: https://pencilsprotocol.io/homeTwitter: https://twitter.com/pencilspr
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/pencils-protocol-hits-317m-tvl-backed-by-okx-ventures-sets-stage-for-tokensoft-launch) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/pencils-protocol-hits-317m-tvl-backed-by-okx-ventures-sets-stage-for-tokensoft-launch)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fk43w0/pencils_protocol_to_conduct_dapp_token_sale_on/

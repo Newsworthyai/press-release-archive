@@ -46,6 +46,9 @@ Company Websitehttps://www.dentalplans.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/dentalplans-com-empowering-families-to-live-healthier-lives-through-affordable-and-flexible-dental-savings-plans-226463023 
 
-[Original/Source Press Release](https://newsdirect.com/news/dentalplans-com-empowering-families-to-live-healthier-lives-through-affordable-and-flexible-dental-savings-plans-226463023) 
+[Original/Source Press Release](https://newsdirect.com/news/dentalplans-com-empowering-families-to-live-healthier-lives-through-affordable-and-flexible-dental-savings-plans-226463023)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1doxxqe/dentalplanscom_revolutionizes_dental_savings_plans/

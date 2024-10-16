@@ -26,6 +26,9 @@ Company Websitehttps://www.pathai.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/pathais-aisight-dx-image-management-system-is-ce-marked-for-primary-diagnosis-369331237 
 
-[Original/Source Press Release](https://newsdirect.com/news/pathais-aisight-dx-image-management-system-is-ce-marked-for-primary-diagnosis-369331237) 
+[Original/Source Press Release](https://newsdirect.com/news/pathais-aisight-dx-image-management-system-is-ce-marked-for-primary-diagnosis-369331237)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1f3898l/pathais_aisight_dx_image_management_system/

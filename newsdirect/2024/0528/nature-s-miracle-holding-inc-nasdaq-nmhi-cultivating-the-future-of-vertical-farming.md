@@ -50,6 +50,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/natures-miracle-holding-inc-nasdaq-nmhi-cultivating-the-future-of-vertical-farming-376110854 
 
-[Original/Source Press Release](https://newsdirect.com/news/natures-miracle-holding-inc-nasdaq-nmhi-cultivating-the-future-of-vertical-farming-376110854) 
+[Original/Source Press Release](https://newsdirect.com/news/natures-miracle-holding-inc-nasdaq-nmhi-cultivating-the-future-of-vertical-farming-376110854)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d2jrb7/natures_miracle_nasdaq_nmhi_driving_innovation_in/

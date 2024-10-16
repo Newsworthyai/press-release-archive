@@ -30,6 +30,9 @@ Company Websitehttps://www.flashparking.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/annette-clayton-joins-flash-board-of-directors-900510218 
 
-[Original/Source Press Release](https://newsdirect.com/news/annette-clayton-joins-flash-board-of-directors-900510218) 
+[Original/Source Press Release](https://newsdirect.com/news/annette-clayton-joins-flash-board-of-directors-900510218)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bvvy4x/annette_clayton_joins_flash_board_of_directors/

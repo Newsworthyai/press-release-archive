@@ -58,6 +58,9 @@ As the project grows in popularity, it is possible to follow the team's progress
 
 X (Twitter) | Telegram | Medium 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/0xgpu-presents-new-features-enhancing-gpunpu-decentralized-computing) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/0xgpu-presents-new-features-enhancing-gpunpu-decentralized-computing)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bpq7xc/new_features_enhancing_gpunpu_decentralized/

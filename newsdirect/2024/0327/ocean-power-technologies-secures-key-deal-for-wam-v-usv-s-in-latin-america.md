@@ -20,6 +20,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ocean-power-technologies-secures-key-deal-for-wam-v-usvs-in-latin-america-718569417 
 
-[Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-secures-key-deal-for-wam-v-usvs-in-latin-america-718569417) 
+[Original/Source Press Release](https://newsdirect.com/news/ocean-power-technologies-secures-key-deal-for-wam-v-usvs-in-latin-america-718569417)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1bp6np6/ocean_power_technologies_achieves_historic/

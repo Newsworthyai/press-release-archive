@@ -43,6 +43,9 @@ Company Websitehttps://www.kinderready.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/kinder-ready-tutoring-and-elementary-wise-brings-comprehensive-back-to-school-program-for-preschool-and-elementary-students-led-by-ceo-elizabeth-fraley-759537800 
 
-[Original/Source Press Release](https://newsdirect.com/news/kinder-ready-tutoring-and-elementary-wise-brings-comprehensive-back-to-school-program-for-preschool-and-elementary-students-led-by-ceo-elizabeth-fraley-759537800) 
+[Original/Source Press Release](https://newsdirect.com/news/kinder-ready-tutoring-and-elementary-wise-brings-comprehensive-back-to-school-program-for-preschool-and-elementary-students-led-by-ceo-elizabeth-fraley-759537800)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eryo9c/kinder_ready_and_elementary_wise_launch/

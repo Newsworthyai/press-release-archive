@@ -40,6 +40,9 @@ It is possible to keep up to speed with the team by visiting Ÿ's official websi
 
 X (Twitter) | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/y-to-launch-mvp-with-high-quality-data-oracles-for-crypto-investors-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/y-to-launch-mvp-with-high-quality-data-oracles-for-crypto-investors-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dnbv6m/yoracle_platform_to_launch_aidriven_market/

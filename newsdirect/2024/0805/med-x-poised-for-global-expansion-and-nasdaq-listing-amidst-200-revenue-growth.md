@@ -26,6 +26,9 @@ Company Websitehttps://invest.medx-rx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/med-x-poised-for-global-expansion-and-nasdaq-listing-amidst-200-revenue-growth-298134364 
 
-[Original/Source Press Release](https://newsdirect.com/news/med-x-poised-for-global-expansion-and-nasdaq-listing-amidst-200-revenue-growth-298134364) 
+[Original/Source Press Release](https://newsdirect.com/news/med-x-poised-for-global-expansion-and-nasdaq-listing-amidst-200-revenue-growth-298134364)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ekneij/medx_prepares_for_nasdaq_listing_and_offers/

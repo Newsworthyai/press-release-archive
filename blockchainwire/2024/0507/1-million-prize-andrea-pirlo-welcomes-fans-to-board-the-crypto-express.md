@@ -16,6 +16,9 @@ About CoinW
 
 CoinW is a pioneering crypto trading platform that prioritizes security, transparency, and user-centric principles. With advanced technology, deep liquidity, and a wide range of supported cryptocurrencies, the company has amassed a broad user base to become one of the world’s most secure crypto exchanges. Committed to security, transparency, and compliance, the CoinW exchange upholds the highest regulatory standards and actively contributes to the advancement of the crypto industry. To learn more about CoinW, you can visit the official website, and follow CoinW's Twitter Account, Btok, and Telegram Group. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/1-million-prize-andrea-pirlo-welcomes-fans-to-board-the-crypto-express-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/1-million-prize-andrea-pirlo-welcomes-fans-to-board-the-crypto-express-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cmebv1/andrea_pirlo_becomes_global_brand_ambassador_for/

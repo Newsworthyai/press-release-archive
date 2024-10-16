@@ -34,6 +34,9 @@ As the adoption of cryptocurrency payments expands among financial institutions 
 
 Quantum Ledger Trading Center remains committed to delivering advanced solutions and services, ensuring users remain ahead in the evolving digital finance world. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/quantum-ledger-trading-center-revolutionizing-crypto-payments-before-breakfast) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/quantum-ledger-trading-center-revolutionizing-crypto-payments-before-breakfast)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ena3nv/quantum_ledger_trading_center_leading_the_way_in/

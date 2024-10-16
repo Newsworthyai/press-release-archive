@@ -54,6 +54,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/all-eyes-on-atlas-lithium-as-the-us-assistant-secretary-of-state-for-energy-resources-visits-the-companys-headquarters-in-brazil-385146331 
 
-[Original/Source Press Release](https://newsdirect.com/news/all-eyes-on-atlas-lithium-as-the-us-assistant-secretary-of-state-for-energy-resources-visits-the-companys-headquarters-in-brazil-385146331) 
+[Original/Source Press Release](https://newsdirect.com/news/all-eyes-on-atlas-lithium-as-the-us-assistant-secretary-of-state-for-energy-resources-visits-the-companys-headquarters-in-brazil-385146331)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ecnhwv/atlas_lithium_hosts_us_diplomats_spotlights/

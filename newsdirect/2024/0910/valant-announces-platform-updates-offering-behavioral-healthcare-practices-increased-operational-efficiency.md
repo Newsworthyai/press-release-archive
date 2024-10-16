@@ -31,6 +31,9 @@ valant@trustrelations.agency
 
 View source version on newsdirect.com: https://newsdirect.com/news/valant-announces-platform-updates-offering-behavioral-healthcare-practices-increased-operational-efficiency-789972836 
 
-[Original/Source Press Release](https://newsdirect.com/news/valant-announces-platform-updates-offering-behavioral-healthcare-practices-increased-operational-efficiency-789972836) 
+[Original/Source Press Release](https://newsdirect.com/news/valant-announces-platform-updates-offering-behavioral-healthcare-practices-increased-operational-efficiency-789972836)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1fdgb65/valant_unveils_new_platform_updates_for/

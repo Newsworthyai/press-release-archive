@@ -26,6 +26,9 @@ Company Websitehttps://www.promperu.gob.pe
 
 View source version on newsdirect.com: https://newsdirect.com/news/peru-sede-de-apec-2024-construyendo-liderazgo-en-la-region-asia-pacifico-337488177 
 
-[Original/Source Press Release](https://newsdirect.com/news/peru-sede-de-apec-2024-construyendo-liderazgo-en-la-region-asia-pacifico-337488177) 
+[Original/Source Press Release](https://newsdirect.com/news/peru-sede-de-apec-2024-construyendo-liderazgo-en-la-region-asia-pacifico-337488177)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1e6jag1/perú_será_sede_del_foro_apec_2024/

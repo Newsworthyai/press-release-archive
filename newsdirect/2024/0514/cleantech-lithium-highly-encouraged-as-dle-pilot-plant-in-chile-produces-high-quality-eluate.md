@@ -16,6 +16,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cleantech-lithium-highly-encouraged-as-dle-pilot-plant-in-chile-produces-high-quality-eluate-414487080 
 
-[Original/Source Press Release](https://newsdirect.com/news/cleantech-lithium-highly-encouraged-as-dle-pilot-plant-in-chile-produces-high-quality-eluate-414487080) 
+[Original/Source Press Release](https://newsdirect.com/news/cleantech-lithium-highly-encouraged-as-dle-pilot-plant-in-chile-produces-high-quality-eluate-414487080)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1crtgiu/cleantech_lithiums_dle_pilot_plant_in_chile/

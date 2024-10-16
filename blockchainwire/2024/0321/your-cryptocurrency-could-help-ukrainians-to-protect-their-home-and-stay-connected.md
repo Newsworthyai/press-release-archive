@@ -32,6 +32,9 @@ Whitepay is a SaaS company that provides cryptocurrency solutions for business a
 
 WhiteBIT is one of the largest European crypto exchanges originating from Ukraine, founded in 2018. The exchange offers more than 350+ trading pairs, 270+ digital assets, and 10 state currencies. The company is an official partner of the Ukrainian national football team, FC Barcelona, FC Trabzonspor, FACEIT. The previous fundraising campaigns were aimed at providing humanitarian aid to war victims, those who lost their homes, victims of the Kakhovka dam explosion, and residents of the deoccupied territories. The goal of WhiteBIT is the mass implementation of blockchain technology worldwide. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/your-cryptocurrency-could-help-ukrainians-to-protect-their-home-and-stay-connected-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/your-cryptocurrency-could-help-ukrainians-to-protect-their-home-and-stay-connected-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1bkobyx/ukraine_partners_with_whitebit_and_serhiy_prytula/

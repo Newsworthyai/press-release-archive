@@ -36,6 +36,9 @@ Company Websitehttps://theapp.global
 
 View source version on newsdirect.com: https://newsdirect.com/news/association-of-pickleball-players-announces-historic-sponsorship-with-the-james-at-ohio-state-837441914 
 
-[Original/Source Press Release](https://newsdirect.com/news/association-of-pickleball-players-announces-historic-sponsorship-with-the-james-at-ohio-state-837441914) 
+[Original/Source Press Release](https://newsdirect.com/news/association-of-pickleball-players-announces-historic-sponsorship-with-the-james-at-ohio-state-837441914)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1cnwegs/app_announces_historic_sponsorship_with_the_james/

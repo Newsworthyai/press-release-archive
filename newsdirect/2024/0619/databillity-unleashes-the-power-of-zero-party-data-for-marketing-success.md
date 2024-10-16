@@ -46,6 +46,9 @@ Company Websitehttps://www.databillity.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/databillity-unleashes-the-power-of-zero-party-data-for-marketing-success-338406633 
 
-[Original/Source Press Release](https://newsdirect.com/news/databillity-unleashes-the-power-of-zero-party-data-for-marketing-success-338406633) 
+[Original/Source Press Release](https://newsdirect.com/news/databillity-unleashes-the-power-of-zero-party-data-for-marketing-success-338406633)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1djgygs/databillity_revolutionizes_marketing_with/

@@ -22,6 +22,9 @@ About CARV
 
 Previously a highly popular node-selling project, with token issuance on the 10th, creating the largest modular data layer. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/carv-a-depin-platform-will-be-listed-on-coinw-exchange) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/carv-a-depin-platform-will-be-listed-on-coinw-exchange)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1g0ufq1/coinw_to_list_carv_on_depin_zone_with_5000_usdt/

@@ -10,6 +10,9 @@ At Lone Peak Psychiatry, they understand the need to offer all-around care and m
 
 For those battling severe mental health issues and considering ketamine therapy, Lone Peak Psychiatry stands as a beacon of hope. By simply visiting their website or making a phone call, individuals can embark on a journey towards a more hopeful and brighter future. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20240118995/leading-ketamine-based-psychiatric-clinic-in-murray-utah-offers-revolutionary-treatment-for-mental-health-conditions) 
+[Original/Source Press Release](https://newsworthy.ai/news/20240118995/leading-ketamine-based-psychiatric-clinic-in-murray-utah-offers-revolutionary-treatment-for-mental-health-conditions)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avdpan/lone_peak_psychiatry_introduces_innovative/

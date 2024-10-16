@@ -32,6 +32,9 @@ The recent AI Photo TG Generator launch is just the beginning of Megapix's plans
 
 X (Twitter) | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/megapix-unveils-ai-photo-tg-generator-and-presents-solana-based-token) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/megapix-unveils-ai-photo-tg-generator-and-presents-solana-based-token)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1avcbnq/megapix_unveils_ai_photo_tg_generator_for_web3/

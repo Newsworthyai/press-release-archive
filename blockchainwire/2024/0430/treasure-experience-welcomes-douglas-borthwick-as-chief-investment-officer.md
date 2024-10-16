@@ -32,6 +32,9 @@ one.inx.co/treasure
 
 This press release may contain forward-looking statements regarding expected future events and financial performance. These statements are based on current expectations and are subject to risks and uncertainties that could cause actual results to differ materially from those expressed or implied by such forward-looking statements. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/treasure-experience-welcomes-douglas-borthwick-as-chief-investment-officer) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/treasure-experience-welcomes-douglas-borthwick-as-chief-investment-officer)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cgtx93/treasure_experience_appoints_douglas_borthwick_as/

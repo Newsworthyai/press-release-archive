@@ -48,6 +48,9 @@ Company Websitehttps://www.dentalplans.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/dentalplans-com-addressing-the-gap-in-dental-care-accessibility-through-affordable-dental-plans-431546195 
 
-[Original/Source Press Release](https://newsdirect.com/news/dentalplans-com-addressing-the-gap-in-dental-care-accessibility-through-affordable-dental-plans-431546195) 
+[Original/Source Press Release](https://newsdirect.com/news/dentalplans-com-addressing-the-gap-in-dental-care-accessibility-through-affordable-dental-plans-431546195)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dki8ou/dentalplanscom_making_dental_care_accessible_and/

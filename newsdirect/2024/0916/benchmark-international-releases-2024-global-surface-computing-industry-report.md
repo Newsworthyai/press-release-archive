@@ -32,6 +32,9 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-releases-2024-global-surface-computing-industry-report-135119064 
 
-[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-releases-2024-global-surface-computing-industry-report-135119064) 
+[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-releases-2024-global-surface-computing-industry-report-135119064)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fi48pn/benchmark_international_releases_2024_global/

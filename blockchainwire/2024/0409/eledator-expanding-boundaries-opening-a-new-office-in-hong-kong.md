@@ -12,6 +12,9 @@ Eledator specializes in providing innovative solutions in the field of copy trad
 
 This launching not only depicts the company’s advancement and evolution but also exhibits its dedication to furnishing high-caliber benefactions to its patrons, assisting them accomplish prosperity in the worldwide copy trading exchange. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/eledator-expanding-boundaries---opening-a-new-office-in-hong-kong) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/eledator-expanding-boundaries---opening-a-new-office-in-hong-kong)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bztyag/eledator_expands_to_hong_kong_strengthening/

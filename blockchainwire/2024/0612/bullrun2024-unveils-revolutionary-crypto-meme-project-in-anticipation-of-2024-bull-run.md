@@ -82,6 +82,9 @@ Twitter: https://x.com/BullRun2024MEME
 
 [](https://www.pinksale.finance/solana/launchpad/8NKrQj4aRgAh11vYrrAA69MRKAy6Lkexg4puBGPXKQCk)[](https://www.pinksale.finance/solana/launchpad/8NKrQj4aRgAh11vYrrAA69MRKAy6Lkexg4puBGPXKQCk)[](https://www.pinksale.finance/solana/launchpad/8NKrQj4aRgAh11vYrrAA69MRKAy6Lkexg4puBGPXKQCk)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities.[](https://www.pinksale.finance/solana/launchpad/8NKrQj4aRgAh11vYrrAA69MRKAy6Lkexg4puBGPXKQCk) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bullrun2024-unveils-revolutionary-crypto-meme-project-in-anticipation-of-2024-bull-run) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bullrun2024-unveils-revolutionary-crypto-meme-project-in-anticipation-of-2024-bull-run)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1degcwm/bullrun2024_revolutionizing_crypto_and_meme/

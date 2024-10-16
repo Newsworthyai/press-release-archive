@@ -20,6 +20,9 @@ McEwen Mining Inc. (NYSE: MUX) (TSX: MUX) has announced that it priced a public
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-announces-financing-to-fund-exploration-development-at-fox-complex/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-announces-financing-to-fund-exploration-development-at-fox-complex/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1f2q5rq/mcewen_mining_inc_announces_public_financing_for/

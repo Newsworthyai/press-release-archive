@@ -36,6 +36,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/u-power-and-velo-labs-team-up-to-create-battery-bank-trading-and-funding-platform-266313778 
 
-[Original/Source Press Release](https://newsdirect.com/news/u-power-and-velo-labs-team-up-to-create-battery-bank-trading-and-funding-platform-266313778) 
+[Original/Source Press Release](https://newsdirect.com/news/u-power-and-velo-labs-team-up-to-create-battery-bank-trading-and-funding-platform-266313778)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1g0hwfm/u_power_and_velo_labs_team_up_to_create_battery/

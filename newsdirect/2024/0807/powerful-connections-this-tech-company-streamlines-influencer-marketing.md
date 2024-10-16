@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/powerful-connections-this-tech-company-streamlines-influencer-marketing-387320308 
 
-[Original/Source Press Release](https://newsdirect.com/news/powerful-connections-this-tech-company-streamlines-influencer-marketing-387320308) 
+[Original/Source Press Release](https://newsdirect.com/news/powerful-connections-this-tech-company-streamlines-influencer-marketing-387320308)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1emaqap/izea_worldwide_ceo_ted_murphy_talks_influencer/

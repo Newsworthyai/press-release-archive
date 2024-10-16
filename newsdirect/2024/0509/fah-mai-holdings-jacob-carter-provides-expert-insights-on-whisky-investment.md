@@ -16,6 +16,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fah-mai-holdings-jacob-carter-provides-expert-insights-on-whisky-investment-337664047 
 
-[Original/Source Press Release](https://newsdirect.com/news/fah-mai-holdings-jacob-carter-provides-expert-insights-on-whisky-investment-337664047) 
+[Original/Source Press Release](https://newsdirect.com/news/fah-mai-holdings-jacob-carter-provides-expert-insights-on-whisky-investment-337664047)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cnuw2t/expert_insights_on_whisky_investment_key_tips_for/

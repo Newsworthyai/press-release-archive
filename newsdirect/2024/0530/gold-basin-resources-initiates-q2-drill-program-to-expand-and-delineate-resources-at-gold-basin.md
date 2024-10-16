@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gold-basin-resources-initiates-q2-drill-program-to-expand-and-delineate-resources-at-gold-basin-560885182 
 
-[Original/Source Press Release](https://newsdirect.com/news/gold-basin-resources-initiates-q2-drill-program-to-expand-and-delineate-resources-at-gold-basin-560885182) 
+[Original/Source Press Release](https://newsdirect.com/news/gold-basin-resources-initiates-q2-drill-program-to-expand-and-delineate-resources-at-gold-basin-560885182)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d4bl5d/gold_basin_resources_initiates_q2_drill_program/

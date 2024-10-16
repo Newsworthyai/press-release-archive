@@ -10,6 +10,9 @@ Furthermore, ketamine treatment has shown considerable potential in reducing sui
 
 9 Line Integrations is dedicated to providing personalized care to each patient, ensuring a safe and comfortable environment throughout the ketamine treatment process. Their expertise, coupled with their commitment to mental health advancements, has made them a trusted destination for those seeking effective solutions. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402231087/ketamine-treatments-in-cottonwood-heights-offering-new-hope-for-treatment-resistant-depression-ptsd-and-anxiety-disorders) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402231087/ketamine-treatments-in-cottonwood-heights-offering-new-hope-for-treatment-resistant-depression-ptsd-and-anxiety-disorders)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1az59w4/leading_mental_health_clinic_offers/

@@ -42,6 +42,9 @@ Company Websitehttps://digifora.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/stanton-chase-expands-to-burgeoning-huntsville-alabama-through-its-new-office-126081591 
 
-[Original/Source Press Release](https://newsdirect.com/news/stanton-chase-expands-to-burgeoning-huntsville-alabama-through-its-new-office-126081591) 
+[Original/Source Press Release](https://newsdirect.com/news/stanton-chase-expands-to-burgeoning-huntsville-alabama-through-its-new-office-126081591)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bu54kj/stanton_chase_expands_to_burgeoning_huntsville/

@@ -20,6 +20,9 @@ For those looking to join the crypto revolution, Thera Finanzen offers an unpara
 
 Visit Thera Finanzen today to explore the platform and start your trading journey. With Thera Finanzen, the future of crypto trading is just a click away. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/thera-finanzen-emerges-as-the-top-eu-crypto-trading-platform-for-german-speakers-in-2024) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/thera-finanzen-emerges-as-the-top-eu-crypto-trading-platform-for-german-speakers-in-2024)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fistur/thera_finanzen_recognized_as_top_crypto_trading/

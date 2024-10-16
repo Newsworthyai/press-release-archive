@@ -10,6 +10,9 @@ At Hawaii Ketamine Clinic, the focus is on personalized care tailored to each in
 
 Hawaii Ketamine invites individuals to take the first step towards relief by contacting them for a free consultation. By exploring the possibilities of IV Ketamine Treatment, individuals can regain control of their lives and embark on a journey towards better mental well-being. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401221014/hawaii-ketamine-offers-rapid-and-effective-iv-ketamine-treatment-for-mental-health-conditions) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401221014/hawaii-ketamine-offers-rapid-and-effective-iv-ketamine-treatment-for-mental-health-conditions)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avldt3/hawaii_ketamine_clinic_offers_rapid_relief_from/

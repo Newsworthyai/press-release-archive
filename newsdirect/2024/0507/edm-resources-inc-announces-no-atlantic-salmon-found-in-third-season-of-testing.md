@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/edm-resources-inc-announces-no-atlantic-salmon-found-in-third-season-of-testing-807235214 
 
-[Original/Source Press Release](https://newsdirect.com/news/edm-resources-inc-announces-no-atlantic-salmon-found-in-third-season-of-testing-807235214) 
+[Original/Source Press Release](https://newsdirect.com/news/edm-resources-inc-announces-no-atlantic-salmon-found-in-third-season-of-testing-807235214)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cmikjw/edm_resources_ceo_mark_haywood_provides_update_on/

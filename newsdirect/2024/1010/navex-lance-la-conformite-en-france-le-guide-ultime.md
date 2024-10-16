@@ -36,6 +36,9 @@ Company Websitehttps://www.navex.com/fr-fr/
 
 View source version on newsdirect.com: https://newsdirect.com/news/navex-lance-la-conformite-en-france-le-guide-ultime-785528554 
 
-[Original/Source Press Release](https://newsdirect.com/news/navex-lance-la-conformite-en-france-le-guide-ultime-785528554) 
+[Original/Source Press Release](https://newsdirect.com/news/navex-lance-la-conformite-en-france-le-guide-ultime-785528554)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1g0ii3p/navex_lance_la_conformité_en_france_le_guide/

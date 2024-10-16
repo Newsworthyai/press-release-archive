@@ -20,6 +20,9 @@ Mullen Automotive (NASDAQ: MULN), an emerging electric vehicle (“EV”) manufa
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/mullen-automotive-nasdaq-muln-continues-to-expand-presence-in-higher-education-sector/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/mullen-automotive-nasdaq-muln-continues-to-expand-presence-in-higher-education-sector/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2fjz8/mullen_automotive_sells_class_3_ev_box_truck/

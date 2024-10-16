@@ -28,6 +28,9 @@ Company Websitehttps://minervasurgical.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/minerva-surgical-appoints-darin-hammers-as-chief-executive-officer-and-member-of-the-board-of-directors-971119553 
 
-[Original/Source Press Release](https://newsdirect.com/news/minerva-surgical-appoints-darin-hammers-as-chief-executive-officer-and-member-of-the-board-of-directors-971119553) 
+[Original/Source Press Release](https://newsdirect.com/news/minerva-surgical-appoints-darin-hammers-as-chief-executive-officer-and-member-of-the-board-of-directors-971119553)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ewvtdx/darin_hammers_appointed_as_president_and_ceo_of/

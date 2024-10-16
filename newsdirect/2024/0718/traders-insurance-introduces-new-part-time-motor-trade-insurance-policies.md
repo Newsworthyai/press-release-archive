@@ -22,6 +22,9 @@ Company Websitehttps://www.traders-insurances.co.uk/
 
 View source version on newsdirect.com: https://newsdirect.com/news/traders-insurance-introduces-new-part-time-motor-trade-insurance-policies-567992260 
 
-[Original/Source Press Release](https://newsdirect.com/news/traders-insurance-introduces-new-part-time-motor-trade-insurance-policies-567992260) 
+[Original/Source Press Release](https://newsdirect.com/news/traders-insurance-introduces-new-part-time-motor-trade-insurance-policies-567992260)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1e6iz94/traders_insurance_introduces_new_parttime_motor/

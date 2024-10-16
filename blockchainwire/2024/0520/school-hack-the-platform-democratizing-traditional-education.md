@@ -44,6 +44,9 @@ As a leading global platform for cryptocurrency and blockchain technology, Coins
 
 Coinstore Social MediaTwitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Telegram Announcement 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/school-hack---the-platform-democratizing-traditional-education) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/school-hack---the-platform-democratizing-traditional-education)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cwp3sq/revolutionizing_education_with_school_hack_coin/

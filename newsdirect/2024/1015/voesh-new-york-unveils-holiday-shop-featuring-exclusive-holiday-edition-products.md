@@ -33,6 +33,9 @@ Company Websitehttps://voesh.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/voesh-new-york-unveils-holiday-shop-featuring-exclusive-holiday-edition-products-509278374 
 
-[Original/Source Press Release](https://newsdirect.com/news/voesh-new-york-unveils-holiday-shop-featuring-exclusive-holiday-edition-products-509278374) 
+[Original/Source Press Release](https://newsdirect.com/news/voesh-new-york-unveils-holiday-shop-featuring-exclusive-holiday-edition-products-509278374)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1g493bj/voesh_new_york_unveils_exclusive_holiday_edition/

@@ -48,6 +48,9 @@ Company Websitehttps://www.alexlab.co/
 
 View source version on newsdirect.com: https://newsdirect.com/news/xlink-announces-new-strategic-partnerships-with-fireblocks-and-ancilia-694271568 
 
-[Original/Source Press Release](https://newsdirect.com/news/xlink-announces-new-strategic-partnerships-with-fireblocks-and-ancilia-694271568) 
+[Original/Source Press Release](https://newsdirect.com/news/xlink-announces-new-strategic-partnerships-with-fireblocks-and-ancilia-694271568)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1di1151/xlink_announces_new_strategic_partnerships_with/

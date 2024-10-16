@@ -26,6 +26,9 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/lido-dao-ldo-signaling-a-bullish-outlook-but-all-the-talk-is-polygon-and-newcomer-raboo-904291579 
 
-[Original/Source Press Release](https://newsdirect.com/news/lido-dao-ldo-signaling-a-bullish-outlook-but-all-the-talk-is-polygon-and-newcomer-raboo-904291579) 
+[Original/Source Press Release](https://newsdirect.com/news/lido-dao-ldo-signaling-a-bullish-outlook-but-all-the-talk-is-polygon-and-newcomer-raboo-904291579)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bpzczc/bull_market_buzz_lido_dao_ldo_signals_a_bullish/

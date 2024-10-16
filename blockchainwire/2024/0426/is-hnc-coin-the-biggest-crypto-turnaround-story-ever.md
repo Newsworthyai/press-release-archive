@@ -8,6 +8,9 @@ Listing on Coinstore exchange is another milestone of the execution of hnc's 202
 
 After the ATH of $4,83 on July 14th 2021, and the sudden departure of the previous team head of the project on Nov 2021, the price crashed to its ATL of $0,002 on Sept 10th 2023.A new team under the management of a Greek Lebanese shipowner is running the project now and focuses on making the HNC Coin the biggest crypto turnaround story ever, by entering the RWA market in the fields of real estate, shipping and tourism and become a mode of payment for goods and services, upgrading and updating HNC Coin at all levels.HNC Coin now is trading on [https://p2pb2b.com/](https://p2pb2b.com/) (hnc/usdt & hnc/eth), on [https://www.coinstore.com](https://www.coinstore.com) (hnc/usdt), on [https://xeggex.com/](https://xeggex.com/) (hnc/usdc & hnc/btc) and on [https://www.finexbox.com/](https://www.finexbox.com/) (hnc/usdt & hnc/btc) at the price level of $0,03, with a $2,520,000 market cap while the circulating supply is 84M coins, total supply is 90M coins and the Max supply 100M coins. 10M coins are locked on Masternodes for life.More exciting news are going to be released from HNC’s team pretty soon, stay tuned! Social Links:Website: [https://hnc-coin.com/](https://hnc-coin.com/)Telegram: [https://t.me/HNCCoin_Global](https://t.me/HNCCoin_Global)Twitter X: [https://twitter.com/CoinHnc](https://twitter.com/CoinHnc)Facebook:[https://m.facebook.com/HNCCoin](https://m.facebook.com/HNCCoin)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/is-hnc-coin-the-biggest-crypto-turnaround-story-ever) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/is-hnc-coin-the-biggest-crypto-turnaround-story-ever)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ce0t8v/hnc_coin_announces_new_listing_on_coinstore/

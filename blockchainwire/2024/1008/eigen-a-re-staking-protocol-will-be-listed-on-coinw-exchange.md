@@ -36,6 +36,9 @@ About EIGEN
 
 [EigenLayer](https://www.eigenlayer.xyz/) is an Ethereum-based protocol that introduces restaking, and it is the leading project in the restaking sector. Restaking has now become a central narrative in the Ethereum ecosystem. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/eigen-a-re-staking-protocol-will-be-listed-on-coinw-exchange) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/eigen-a-re-staking-protocol-will-be-listed-on-coinw-exchange)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fyydia/coinw_to_list_eigenlayers_eigen_token_on_defi/

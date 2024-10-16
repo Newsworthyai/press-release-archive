@@ -30,6 +30,9 @@ Email: Betty18@blockypro.com
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/blockypro-unveils-groundbreaking-innovations-at-global-tech-conference-and-initiates-global-expansion) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/blockypro-unveils-groundbreaking-innovations-at-global-tech-conference-and-initiates-global-expansion)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1clikbb/blockypro_unveils_technological_achievements_and/

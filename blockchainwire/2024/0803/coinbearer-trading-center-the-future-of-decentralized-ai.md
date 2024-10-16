@@ -42,6 +42,9 @@ Envisioning Crypto Token Rewards
 
 Supporting Argument: Crypto token incentives are effective for encouraging network growth and behavioral engagement. Many AI-centric applications are expected to adopt this model. The AI companion market presents significant opportunities, with the potential to become a multi-trillion dollar sector. Historical data, such as the $130 billion spent on pets in the U.S. in 2022, suggests a strong market for AI companions. AI companion apps have already shown significant engagement, with average session lengths exceeding one hour. Crypto-incentivized platforms could capture substantial market share in this and other AI application areas. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/coinbearer-trading-center-the-future-of-decentralized-ai) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/coinbearer-trading-center-the-future-of-decentralized-ai)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fve7oi/decentralization_and_web3_technologies_promising/

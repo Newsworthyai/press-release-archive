@@ -20,6 +20,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/rail-vision-score-major-us-order-advancing-railway-safety-using-its-ai-technology-590496425 
 
-[Original/Source Press Release](https://newsdirect.com/news/rail-vision-score-major-us-order-advancing-railway-safety-using-its-ai-technology-590496425) 
+[Original/Source Press Release](https://newsdirect.com/news/rail-vision-score-major-us-order-advancing-railway-safety-using-its-ai-technology-590496425)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c6hpcu/rail_vision_secures_major_us_order_advancing/

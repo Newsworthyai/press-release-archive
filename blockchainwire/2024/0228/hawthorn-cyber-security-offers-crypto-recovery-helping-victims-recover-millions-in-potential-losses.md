@@ -16,6 +16,9 @@ About Hawthorn Cyber security:
 
 Founded in 2016, Hawthorn Cyber Security Limited is a reputable business. Occasionally called "computer forensic science," it offers crypto forensic services, forensic computer consulting, and cybercrime tracking. The investigation specialists collaborate closely with their clients to fully comprehend each need. In addition, it offers businesses and organizations services for monitoring digital assets and reacting to events, threats, or intrusions that affect victims of fraudulent activities. Additionally, by visiting their main website, potential clients can get in touch with the team. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/hawthorn-cyber-security-offers-crypto-recovery-helping-victims-recover-millions-in-potential-losses) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/hawthorn-cyber-security-offers-crypto-recovery-helping-victims-recover-millions-in-potential-losses)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1b6rp4a/hawthorn_cyber_security_recovering_cryptocurrency/

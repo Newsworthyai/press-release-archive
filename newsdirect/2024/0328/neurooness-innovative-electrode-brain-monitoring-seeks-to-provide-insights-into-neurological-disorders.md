@@ -50,6 +50,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/neurooness-innovative-electrode-brain-monitoring-seeks-to-provide-insights-into-neurological-disorders-938157066 
 
-[Original/Source Press Release](https://newsdirect.com/news/neurooness-innovative-electrode-brain-monitoring-seeks-to-provide-insights-into-neurological-disorders-938157066) 
+[Original/Source Press Release](https://newsdirect.com/news/neurooness-innovative-electrode-brain-monitoring-seeks-to-provide-insights-into-neurological-disorders-938157066)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1bpufek/neuroones_innovative_electrode_brain_monitoring/

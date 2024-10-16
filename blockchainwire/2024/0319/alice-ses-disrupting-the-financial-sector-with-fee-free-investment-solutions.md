@@ -20,6 +20,9 @@ As the digital age progresses, Alice-SES's unique approach could very well pave 
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/alice-ses-disrupting-the-financial-sector-with-fee-free-investment-solutions) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/alice-ses-disrupting-the-financial-sector-with-fee-free-investment-solutions)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1bijvmt/aliceses_revolutionizes_financial_landscape_with/

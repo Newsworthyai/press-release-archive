@@ -30,6 +30,9 @@ Website: Dogita.io
 
 Twitter: [x.com/missdogita](http://x.com/missdogita) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/the-success-of-bsc-dogita-is-now-migrating-to-ethereum) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/the-success-of-bsc-dogita-is-now-migrating-to-ethereum)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1crdp66/dogita_transitions_to_ethereum_network_reaches/

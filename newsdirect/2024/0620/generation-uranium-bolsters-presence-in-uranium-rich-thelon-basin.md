@@ -72,6 +72,9 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/generation-uranium-bolsters-presence-in-uranium-rich-thelon-basin-170561906 
 
-[Original/Source Press Release](https://newsdirect.com/news/generation-uranium-bolsters-presence-in-uranium-rich-thelon-basin-170561906) 
+[Original/Source Press Release](https://newsdirect.com/news/generation-uranium-bolsters-presence-in-uranium-rich-thelon-basin-170561906)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dki88u/generation_uranium_expands_presence_in/

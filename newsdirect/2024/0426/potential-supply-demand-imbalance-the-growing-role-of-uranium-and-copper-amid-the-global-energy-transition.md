@@ -38,6 +38,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/potential-supply-demand-imbalance-the-growing-role-of-uranium-and-copper-amid-the-global-energy-transition-502825960 
 
-[Original/Source Press Release](https://newsdirect.com/news/potential-supply-demand-imbalance-the-growing-role-of-uranium-and-copper-amid-the-global-energy-transition-502825960) 
+[Original/Source Press Release](https://newsdirect.com/news/potential-supply-demand-imbalance-the-growing-role-of-uranium-and-copper-amid-the-global-energy-transition-502825960)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cdkdc3/uranium_and_copper_key_players_in_the_global/

@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/this-ev-based-small-cap-has-partnerships-with-walmart-nasa-and-the-u-s-postal-service-is-it-on-your-radar-676734621 
 
-[Original/Source Press Release](https://newsdirect.com/news/this-ev-based-small-cap-has-partnerships-with-walmart-nasa-and-the-u-s-postal-service-is-it-on-your-radar-676734621) 
+[Original/Source Press Release](https://newsdirect.com/news/this-ev-based-small-cap-has-partnerships-with-walmart-nasa-and-the-u-s-postal-service-is-it-on-your-radar-676734621)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1ff2ce0/canoo_inc_partners_with_walmart_nasa_and_us/

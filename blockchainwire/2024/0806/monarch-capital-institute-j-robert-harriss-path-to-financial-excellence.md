@@ -18,6 +18,9 @@ Monarch Capital Institute remains committed to not only educating students but a
 
 For more information about Monarch Capital Institute and its programs, please visit the institute’s website or contact the admissions office. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/monarch-capital-institute-j-robert-harriss-path-to-financial-excellence) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/monarch-capital-institute-j-robert-harriss-path-to-financial-excellence)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ellswh/monarch_capital_institute_advancing_financial/

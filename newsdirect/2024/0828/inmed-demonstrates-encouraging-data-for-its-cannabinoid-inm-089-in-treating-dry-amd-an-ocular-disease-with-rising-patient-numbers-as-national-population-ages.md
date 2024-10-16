@@ -46,6 +46,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/inmed-demonstrates-encouraging-data-for-its-cannabinoid-inm-089-in-treating-dry-amd-an-ocular-disease-with-rising-patient-numbers-as-national-population-ages-362107568 
 
-[Original/Source Press Release](https://newsdirect.com/news/inmed-demonstrates-encouraging-data-for-its-cannabinoid-inm-089-in-treating-dry-amd-an-ocular-disease-with-rising-patient-numbers-as-national-population-ages-362107568) 
+[Original/Source Press Release](https://newsdirect.com/news/inmed-demonstrates-encouraging-data-for-its-cannabinoid-inm-089-in-treating-dry-amd-an-ocular-disease-with-rising-patient-numbers-as-national-population-ages-362107568)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1f3gzmm/inmed_pharmaceuticals_inc_develops_promising/

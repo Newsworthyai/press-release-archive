@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/rainbow-rare-earths-and-us-critical-minerals-policy-ceo-george-bennetts-insights-413680041 
 
-[Original/Source Press Release](https://newsdirect.com/news/rainbow-rare-earths-and-us-critical-minerals-policy-ceo-george-bennetts-insights-413680041) 
+[Original/Source Press Release](https://newsdirect.com/news/rainbow-rare-earths-and-us-critical-minerals-policy-ceo-george-bennetts-insights-413680041)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1chntuv/rainbow_rare_earths_ceo_discusses_us_critical/

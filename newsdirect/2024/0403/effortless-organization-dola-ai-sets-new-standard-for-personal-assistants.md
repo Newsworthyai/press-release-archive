@@ -32,6 +32,9 @@ Company Websitehttps://heydola.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/effortless-organization-dola-ai-sets-new-standard-for-personal-assistants-919528035 
 
-[Original/Source Press Release](https://newsdirect.com/news/effortless-organization-dola-ai-sets-new-standard-for-personal-assistants-919528035) 
+[Original/Source Press Release](https://newsdirect.com/news/effortless-organization-dola-ai-sets-new-standard-for-personal-assistants-919528035)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bv6ppu/dola_ai_revolutionizing_personal_assistant/

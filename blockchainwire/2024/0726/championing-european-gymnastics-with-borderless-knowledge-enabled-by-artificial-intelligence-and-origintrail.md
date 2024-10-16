@@ -12,6 +12,9 @@ Today’s launch of Luigi is accompanied by the launch of the biggest sporting e
 
 You can find Luigi’s digital twin on the European Gymnastics website. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/championing-european-gymnastics-with-borderless-knowledge-enabled-by-artificial-intelligence-and-origintrail) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/championing-european-gymnastics-with-borderless-knowledge-enabled-by-artificial-intelligence-and-origintrail)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1ecteyu/european_gymnastics_launches_ai_assistant_luigi/

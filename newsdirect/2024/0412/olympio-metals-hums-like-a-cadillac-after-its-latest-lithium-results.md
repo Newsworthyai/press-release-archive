@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/olympio-metals-hums-like-a-cadillac-after-its-latest-lithium-results-873851409 
 
-[Original/Source Press Release](https://newsdirect.com/news/olympio-metals-hums-like-a-cadillac-after-its-latest-lithium-results-873851409) 
+[Original/Source Press Release](https://newsdirect.com/news/olympio-metals-hums-like-a-cadillac-after-its-latest-lithium-results-873851409)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c2il4p/olympio_metals_expands_lithium_potential_at/

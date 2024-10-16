@@ -38,6 +38,9 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/peng-up-your-profits-gateio-announces-trade-to-earn-event-worth-5000) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/peng-up-your-profits-gateio-announces-trade-to-earn-event-worth-5000)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bl1wgk/exciting_peng_trade_to_earn_event_with_gateio/

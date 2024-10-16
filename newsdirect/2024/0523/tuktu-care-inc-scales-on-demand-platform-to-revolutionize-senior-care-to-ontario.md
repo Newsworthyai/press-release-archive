@@ -28,6 +28,9 @@ Company Websitehttp://www.tuktu.ca/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tuktu-care-inc-scales-on-demand-platform-to-revolutionize-senior-care-to-ontario-669797441 
 
-[Original/Source Press Release](https://newsdirect.com/news/tuktu-care-inc-scales-on-demand-platform-to-revolutionize-senior-care-to-ontario-669797441) 
+[Original/Source Press Release](https://newsdirect.com/news/tuktu-care-inc-scales-on-demand-platform-to-revolutionize-senior-care-to-ontario-669797441)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cykmx8/tuktu_care_inc_revolutionizes_senior_care_with/

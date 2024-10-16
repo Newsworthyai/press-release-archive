@@ -48,6 +48,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/logicmark-nasdaq-lgmk-makes-expansion-push-with-mobile-personal-safety-app-aster-as-it-pivots-from-medical-alerts-with-cpaas-model-286561384 
 
-[Original/Source Press Release](https://newsdirect.com/news/logicmark-nasdaq-lgmk-makes-expansion-push-with-mobile-personal-safety-app-aster-as-it-pivots-from-medical-alerts-with-cpaas-model-286561384) 
+[Original/Source Press Release](https://newsdirect.com/news/logicmark-nasdaq-lgmk-makes-expansion-push-with-mobile-personal-safety-app-aster-as-it-pivots-from-medical-alerts-with-cpaas-model-286561384)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1ewvuvv/logicmark_launches_safety_app_aster/

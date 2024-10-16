@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/neometals-ltd-advancing-lithium-battery-recycling-and-hydrometallurgical-projects-777709443 
 
-[Original/Source Press Release](https://newsdirect.com/news/neometals-ltd-advancing-lithium-battery-recycling-and-hydrometallurgical-projects-777709443) 
+[Original/Source Press Release](https://newsdirect.com/news/neometals-ltd-advancing-lithium-battery-recycling-and-hydrometallurgical-projects-777709443)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dcnuij/neometals_ltd_upgrades_listing_on_otc_market_in/

@@ -36,6 +36,9 @@ Visit Our Website
 
 Visit Our Blog 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/crothersconsulting/news_release/1424) 
+[Original/Source Press Release](https://newsroom.prkarma.com/crothersconsulting/news_release/1424)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bko957/bardo_tea_opens_first_retail_location_in_portland/

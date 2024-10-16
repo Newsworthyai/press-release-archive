@@ -26,6 +26,9 @@
 
 [2] 2024 Heart Disease and Stroke Statistics: A Report of US and Global Data from the American Heart Association, https://www.ahajournals.org/doi/epub/10.1161/CIR.0000000000001209 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/financial-grants-fuel-well-being-of-k-12-students-nationwide-7076056) 
+[Original/Source Press Release](https://www.newmediawire.com/news/financial-grants-fuel-well-being-of-k-12-students-nationwide-7076056)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1figw58/american_heart_association_awards_grants_to/

@@ -28,6 +28,9 @@ Scinai Immunotherapeutics (NASDAQ: SCNI), a biopharmaceutical company focused o
 
  BioMedWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/scinai-immunotherapeutics-nasdaq-scni-eib-close-on-loan-restructuring-agreement/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/scinai-immunotherapeutics-nasdaq-scni-eib-close-on-loan-restructuring-agreement/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1f2h400/scinai_immunotherapeutics_closes_loan/

@@ -20,6 +20,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tnr-gold-chairman-kirill-klip-discusses-asset-valuations-the-gold-price-and-project-developments-250845748 
 
-[Original/Source Press Release](https://newsdirect.com/news/tnr-gold-chairman-kirill-klip-discusses-asset-valuations-the-gold-price-and-project-developments-250845748) 
+[Original/Source Press Release](https://newsdirect.com/news/tnr-gold-chairman-kirill-klip-discusses-asset-valuations-the-gold-price-and-project-developments-250845748)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1c4tzfb/tnr_gold_corps_kirill_klip_discusses_strategic/

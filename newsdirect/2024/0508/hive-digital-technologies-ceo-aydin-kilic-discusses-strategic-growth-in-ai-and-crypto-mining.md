@@ -20,6 +20,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hive-digital-technologies-ceo-aydin-kilic-discusses-strategic-growth-in-ai-and-crypto-mining-743884837 
 
-[Original/Source Press Release](https://newsdirect.com/news/hive-digital-technologies-ceo-aydin-kilic-discusses-strategic-growth-in-ai-and-crypto-mining-743884837) 
+[Original/Source Press Release](https://newsdirect.com/news/hive-digital-technologies-ceo-aydin-kilic-discusses-strategic-growth-in-ai-and-crypto-mining-743884837)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cn33bt/hive_digital_technologies_ceo_aydin_kilic/

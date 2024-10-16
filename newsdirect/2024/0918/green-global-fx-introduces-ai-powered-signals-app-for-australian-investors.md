@@ -46,6 +46,9 @@ Company Websitehttps://www.greenhillfund.net/
 
 View source version on newsdirect.com: https://newsdirect.com/news/green-global-fx-introduces-ai-powered-signals-app-for-australian-investors-609637571 
 
-[Original/Source Press Release](https://newsdirect.com/news/green-global-fx-introduces-ai-powered-signals-app-for-australian-investors-609637571) 
+[Original/Source Press Release](https://newsdirect.com/news/green-global-fx-introduces-ai-powered-signals-app-for-australian-investors-609637571)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fjukrz/green_global_fx_unveils_aipowered_signals_app_for/

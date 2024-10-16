@@ -44,6 +44,9 @@ mark@razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/asia-broadband-inc-otc-aabb-a-gold-and-digial-asset-duel-threat-447714804 
 
-[Original/Source Press Release](https://newsdirect.com/news/asia-broadband-inc-otc-aabb-a-gold-and-digial-asset-duel-threat-447714804) 
+[Original/Source Press Release](https://newsdirect.com/news/asia-broadband-inc-otc-aabb-a-gold-and-digial-asset-duel-threat-447714804)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1e0ldpb/gold_prices_surge_asia_broadband_inc_makes/

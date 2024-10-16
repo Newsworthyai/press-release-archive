@@ -76,6 +76,9 @@ Company Websitehttps://www.ultrahuman.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/ultrahuman-announces-its-app-store-powerplugs-with-the-worlds-first-afib-detection-technology-on-a-smart-ring-214542345 
 
-[Original/Source Press Release](https://newsdirect.com/news/ultrahuman-announces-its-app-store-powerplugs-with-the-worlds-first-afib-detection-technology-on-a-smart-ring-214542345) 
+[Original/Source Press Release](https://newsdirect.com/news/ultrahuman-announces-its-app-store-powerplugs-with-the-worlds-first-afib-detection-technology-on-a-smart-ring-214542345)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e4n1ev/ultrahuman_launches_powerplugs_with_worlds_first/

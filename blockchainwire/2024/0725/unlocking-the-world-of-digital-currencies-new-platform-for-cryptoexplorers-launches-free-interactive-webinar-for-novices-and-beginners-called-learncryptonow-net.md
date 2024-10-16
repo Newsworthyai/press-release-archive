@@ -20,6 +20,9 @@ For media inquiries, please contact:media@learncryptonow.net
 
 END 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/unlocking-the-world-of-digital-currencies-new-platform-for-cryptoexplorers-launches-free-interactive-webinar-for-novices-and-beginners--called-learncryptonownet) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/unlocking-the-world-of-digital-currencies-new-platform-for-cryptoexplorers-launches-free-interactive-webinar-for-novices-and-beginners--called-learncryptonownet)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ebz8qi/introducing_cryptoexplorers_your_gateway_to_the/

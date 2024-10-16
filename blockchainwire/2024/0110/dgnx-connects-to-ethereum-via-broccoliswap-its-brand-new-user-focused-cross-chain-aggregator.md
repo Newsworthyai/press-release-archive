@@ -24,6 +24,9 @@ The project has successfully completed smart contract auditing and KYC procedure
 
 You can learn more about DGNX at these links: Website | Twitter | Discord | Telegram | Medium 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/dgnx-connects-to-ethereum-via-broccoliswap---its-brand-new-user-focused-cross-chain-aggregator) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/dgnx-connects-to-ethereum-via-broccoliswap---its-brand-new-user-focused-cross-chain-aggregator)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avdpsr/degenx_launches_linkbridge_to_connect_dgnx_to/

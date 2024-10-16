@@ -50,6 +50,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/crossroads-summit-taps-renowned-historian-and-demographer-neil-howe-as-panelist-for-november-event-909854720 
 
-[Original/Source Press Release](https://newsdirect.com/news/crossroads-summit-taps-renowned-historian-and-demographer-neil-howe-as-panelist-for-november-event-909854720) 
+[Original/Source Press Release](https://newsdirect.com/news/crossroads-summit-taps-renowned-historian-and-demographer-neil-howe-as-panelist-for-november-event-909854720)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1f9rhbp/neil_howe_other_experts_to_speak_at_crossroads/

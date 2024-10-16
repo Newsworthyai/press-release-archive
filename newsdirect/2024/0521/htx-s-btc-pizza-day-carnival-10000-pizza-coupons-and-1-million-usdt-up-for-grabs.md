@@ -102,6 +102,9 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htxs-btc-pizza-day-carnival-10-000-pizza-coupons-and-1-million-usdt-up-for-grabs-558520171 
 
-[Original/Source Press Release](https://newsdirect.com/news/htxs-btc-pizza-day-carnival-10-000-pizza-coupons-and-1-million-usdt-up-for-grabs-558520171) 
+[Original/Source Press Release](https://newsdirect.com/news/htxs-btc-pizza-day-carnival-10-000-pizza-coupons-and-1-million-usdt-up-for-grabs-558520171)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cxbmss/htxs_btc_pizza_day_carnival_10000_pizza_coupons/

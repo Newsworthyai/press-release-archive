@@ -31,6 +31,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/etf-insights-with-jay-hatfield-shaping-modern-portfolios-467070976 
 
-[Original/Source Press Release](https://newsdirect.com/news/etf-insights-with-jay-hatfield-shaping-modern-portfolios-467070976) 
+[Original/Source Press Release](https://newsdirect.com/news/etf-insights-with-jay-hatfield-shaping-modern-portfolios-467070976)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cwhj63/join_the_etf_insights_webinar_with_jay_hatfield/

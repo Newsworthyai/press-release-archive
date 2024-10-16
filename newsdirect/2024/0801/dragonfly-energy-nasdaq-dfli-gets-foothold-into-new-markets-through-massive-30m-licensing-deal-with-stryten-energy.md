@@ -46,6 +46,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/dragonfly-energy-nasdaq-dfli-gets-foothold-into-new-markets-through-massive-30m-licensing-deal-with-stryten-energy-442705774 
 
-[Original/Source Press Release](https://newsdirect.com/news/dragonfly-energy-nasdaq-dfli-gets-foothold-into-new-markets-through-massive-30m-licensing-deal-with-stryten-energy-442705774) 
+[Original/Source Press Release](https://newsdirect.com/news/dragonfly-energy-nasdaq-dfli-gets-foothold-into-new-markets-through-massive-30m-licensing-deal-with-stryten-energy-442705774)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ehg2o6/stryten_energy_and_dragonfly_energy_holdings_corp/

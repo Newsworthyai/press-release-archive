@@ -20,6 +20,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/immunic-chief-medical-officer-discusses-promising-treatments-to-mark-world-ibd-day-769721127 
 
-[Original/Source Press Release](https://newsdirect.com/news/immunic-chief-medical-officer-discusses-promising-treatments-to-mark-world-ibd-day-769721127) 
+[Original/Source Press Release](https://newsdirect.com/news/immunic-chief-medical-officer-discusses-promising-treatments-to-mark-world-ibd-day-769721127)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cucxnh/immunic_inc_chief_medical_officer_discusses/

@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/wishpond-q1-results-include-revenue-growth-and-39-increase-in-adjusted-ebitda-537892784 
 
-[Original/Source Press Release](https://newsdirect.com/news/wishpond-q1-results-include-revenue-growth-and-39-increase-in-adjusted-ebitda-537892784) 
+[Original/Source Press Release](https://newsdirect.com/news/wishpond-q1-results-include-revenue-growth-and-39-increase-in-adjusted-ebitda-537892784)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d3ppme/wishpond_technologies_reports_strong_q1_2024/

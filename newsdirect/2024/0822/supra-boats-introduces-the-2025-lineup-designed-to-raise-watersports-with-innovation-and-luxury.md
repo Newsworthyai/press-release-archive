@@ -28,6 +28,9 @@ Company Websitehttps://www.supraboats.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/supra-boats-introduces-the-2025-lineup-designed-to-raise-watersports-with-innovation-and-luxury-463573731 
 
-[Original/Source Press Release](https://newsdirect.com/news/supra-boats-introduces-the-2025-lineup-designed-to-raise-watersports-with-innovation-and-luxury-463573731) 
+[Original/Source Press Release](https://newsdirect.com/news/supra-boats-introduces-the-2025-lineup-designed-to-raise-watersports-with-innovation-and-luxury-463573731)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eyiu29/supra_boats_unveils_2025_lineup_for_enhanced/

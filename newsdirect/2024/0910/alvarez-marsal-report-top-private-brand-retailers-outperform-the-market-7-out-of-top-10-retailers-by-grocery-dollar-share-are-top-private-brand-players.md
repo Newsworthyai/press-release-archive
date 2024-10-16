@@ -41,6 +41,9 @@ Company Websitehttps://www.alvarezandmarsal.com/industries/retail/retail
 
 View source version on newsdirect.com: https://newsdirect.com/news/alvarez-and-marsal-report-top-private-brand-retailers-outperform-the-market-7-out-of-top-10-retailers-by-grocery-dollar-share-are-top-private-brand-players-990596463 
 
-[Original/Source Press Release](https://newsdirect.com/news/alvarez-and-marsal-report-top-private-brand-retailers-outperform-the-market-7-out-of-top-10-retailers-by-grocery-dollar-share-are-top-private-brand-players-990596463) 
+[Original/Source Press Release](https://newsdirect.com/news/alvarez-and-marsal-report-top-private-brand-retailers-outperform-the-market-7-out-of-top-10-retailers-by-grocery-dollar-share-are-top-private-brand-players-990596463)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fdomtx/private_label_market_set_to_surge_report_shows/

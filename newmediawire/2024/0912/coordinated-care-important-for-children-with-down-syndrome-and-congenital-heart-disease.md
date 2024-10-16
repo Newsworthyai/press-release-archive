@@ -53,6 +53,9 @@ Embargoed until 4:00 a.m. CT/5:00 a.m. ET Thursday, September 12, 2024
 
  heart.org and stroke.org 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/coordinated-care-important-for-children-with-down-syndrome-and-congenital-heart-disease-7076039) 
+[Original/Source Press Release](https://www.newmediawire.com/news/coordinated-care-important-for-children-with-down-syndrome-and-congenital-heart-disease-7076039)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1feycff/new_aha_statement_emphasizes_coordinated_care_for/

@@ -40,6 +40,9 @@ Company Websitehttps://www.neuroskills.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/american-heart-association-honors-centre-for-neuro-skills-with-group-stroke-hero-award-292353658 
 
-[Original/Source Press Release](https://newsdirect.com/news/american-heart-association-honors-centre-for-neuro-skills-with-group-stroke-hero-award-292353658) 
+[Original/Source Press Release](https://newsdirect.com/news/american-heart-association-honors-centre-for-neuro-skills-with-group-stroke-hero-award-292353658)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cmlpxr/centre_for_neuro_skills_honored_with_group_stroke/

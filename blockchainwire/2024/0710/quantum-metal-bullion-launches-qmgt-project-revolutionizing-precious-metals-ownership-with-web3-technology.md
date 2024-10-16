@@ -31,6 +31,9 @@ For more information about the $QMGT project, please visit QMGT.io.
 
 Website: https://qmgt.io/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/quantum-metal-bullion-launches-qmgt-project-revolutionizing-precious-metals-ownership-with-web3-technology) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/quantum-metal-bullion-launches-qmgt-project-revolutionizing-precious-metals-ownership-with-web3-technology)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e09xr4/quantum_metal_bullion_launches_quantum_metal_gold/

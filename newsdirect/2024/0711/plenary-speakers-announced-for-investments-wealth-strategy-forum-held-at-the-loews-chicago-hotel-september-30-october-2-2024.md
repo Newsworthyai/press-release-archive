@@ -39,6 +39,9 @@ Company Websitehttps://investmentsandwealth.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/plenary-speakers-announced-for-investments-and-wealth-strategy-forum-held-at-the-loews-chicago-hotel-september-30-october-2-2024-325363737 
 
-[Original/Source Press Release](https://newsdirect.com/news/plenary-speakers-announced-for-investments-and-wealth-strategy-forum-held-at-the-loews-chicago-hotel-september-30-october-2-2024-325363737) 
+[Original/Source Press Release](https://newsdirect.com/news/plenary-speakers-announced-for-investments-and-wealth-strategy-forum-held-at-the-loews-chicago-hotel-september-30-october-2-2024-325363737)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e0zt2h/distinguished_plenary_speakers_announced_for/

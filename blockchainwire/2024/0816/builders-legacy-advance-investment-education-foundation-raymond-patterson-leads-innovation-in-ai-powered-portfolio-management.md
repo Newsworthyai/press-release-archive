@@ -20,6 +20,9 @@ Looking forward, the Foundation is dedicated to further enhancing this system an
 
 Under Raymond Patterson’s leadership, Builders Legacy Advance Investment Education Foundation is setting new standards in investment education. By combining innovative technology with a focus on excellence and security, the Foundation ensures that investors are well-equipped to navigate the complexities of the modern financial world. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/builders-legacy-advance-investment-education-foundation-raymond-patterson-leads-innovation-in-ai-powered-portfolio-management) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/builders-legacy-advance-investment-education-foundation-raymond-patterson-leads-innovation-in-ai-powered-portfolio-management)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1etsxsk/us_stock_market_surges_on_positive_economic_data/

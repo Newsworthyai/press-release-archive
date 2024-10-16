@@ -36,6 +36,9 @@ Website: https://www.colorpencil.com
 
 SOURCE: ColorPencil 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/unlocking-joy-in-numbers-colorpencils-colorful-crusade-against-math-anxiety) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/unlocking-joy-in-numbers-colorpencils-colorful-crusade-against-math-anxiety)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1burweq/colorpencil_igniting_passion_for_learning_with/

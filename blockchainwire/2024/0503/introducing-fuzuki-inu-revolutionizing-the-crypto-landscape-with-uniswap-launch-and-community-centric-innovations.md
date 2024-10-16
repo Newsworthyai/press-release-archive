@@ -30,6 +30,9 @@ To be part of the Fuzuki Community and participate in the Fuzuki Inu token launc
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/introducing-fuzuki-inu-revolutionizing-the-crypto-landscape-with-uniswap-launch-and-community-centric-innovations) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/introducing-fuzuki-inu-revolutionizing-the-crypto-landscape-with-uniswap-launch-and-community-centric-innovations)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cj8784/fuzuki_inu_listed_on_uniswap_dex_token_value/

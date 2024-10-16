@@ -28,6 +28,9 @@ cs@awepay.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitfinex-pay-and-awepay-for-enterprise-payments-collaboration-899732751 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitfinex-pay-and-awepay-for-enterprise-payments-collaboration-899732751) 
+[Original/Source Press Release](https://newsdirect.com/news/bitfinex-pay-and-awepay-for-enterprise-payments-collaboration-899732751)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cnblwv/awepayio_joins_bitfinex_pay_to_accelerate/

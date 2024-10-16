@@ -38,6 +38,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/why-gold-prices-are-at-record-highs-and-what-it-means-for-miners-882889814 
 
-[Original/Source Press Release](https://newsdirect.com/news/why-gold-prices-are-at-record-highs-and-what-it-means-for-miners-882889814) 
+[Original/Source Press Release](https://newsdirect.com/news/why-gold-prices-are-at-record-highs-and-what-it-means-for-miners-882889814)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1cgryhe/gold_prices_surge_to_record_highs_what_it_means/

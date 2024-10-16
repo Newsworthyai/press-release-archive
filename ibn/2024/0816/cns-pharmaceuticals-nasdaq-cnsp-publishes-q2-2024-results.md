@@ -28,6 +28,9 @@ CNS Pharmaceuticals (NASDAQ: CNSP), a biopharmaceutical company specializing in 
 
  BioMedWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/cns-pharmaceuticals-nasdaq-cnsp-publishes-q2-2024-results/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/cns-pharmaceuticals-nasdaq-cnsp-publishes-q2-2024-results/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1f2gkay/cns_pharmaceuticals_releases_q2_2024_financial/

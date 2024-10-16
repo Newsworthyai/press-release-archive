@@ -28,6 +28,9 @@ Lastly, in celebration of its English Live Feed service launch, CoinNess has dec
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/leading-asian-crypto-info-provider-coinness-launches-english-live-feed-with-free-api-offer) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/leading-asian-crypto-info-provider-coinness-launches-english-live-feed-with-free-api-offer)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cn90cz/coinness_launches_english_service_with_live_feed/

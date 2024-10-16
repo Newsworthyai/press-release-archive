@@ -70,6 +70,9 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/activisions-landmark-deal-boosts-esports-team-revenue-831508509 
 
-[Original/Source Press Release](https://newsdirect.com/news/activisions-landmark-deal-boosts-esports-team-revenue-831508509) 
+[Original/Source Press Release](https://newsdirect.com/news/activisions-landmark-deal-boosts-esports-team-revenue-831508509)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1c71uib/activisions_landmark_deal_boosts_esports_team/

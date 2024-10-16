@@ -24,6 +24,9 @@ In conclusion, Furrever Token's rapid rise to prominence in the cryptocurrency s
 
 Media Contact:Robert Smith[https://furrevertoken.com/](https://furrevertoken.com/)[support@furrevertoken.com](mailto:support@furrevertoken.com)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-and-ethereum-saw-a-huge-surge-as-furrever-token-hits-1-million-presale-milestone-launches-10000-competition) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-and-ethereum-saw-a-huge-surge-as-furrever-token-hits-1-million-presale-milestone-launches-10000-competition)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cl14di/bitcoin_and_ethereum_surge_amidst_market/

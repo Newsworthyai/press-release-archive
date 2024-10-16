@@ -29,6 +29,9 @@ Celebrating with UsersAs part of its 11th anniversary, Gate.io has launched a se
 
 Amid the rapid growth of the global cryptocurrency market, the role and responsibility of trading platforms continue to evolve. Gate.io, with its technical expertise and industry experience, aims to introduce the era of comprehensivity, offering more trading options and improved services. It remains confident that this advancement will further cement Gate.io as a leader in driving the industry into a new phase of development and adoption. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/gateio-celebrates-11th-anniversary-with-prize-activities-and-vision-for-the-future) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/gateio-celebrates-11th-anniversary-with-prize-activities-and-vision-for-the-future)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cxy4wj/gateio_announces_11th_anniversary_celebrations/

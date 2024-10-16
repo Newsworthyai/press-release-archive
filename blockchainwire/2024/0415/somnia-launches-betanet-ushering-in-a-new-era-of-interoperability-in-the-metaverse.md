@@ -20,6 +20,9 @@ About Somnia:
 
 Somnia is creating a virtual society with an L1 blockchain and a set of omnichain protocols designed to bring millions of users into an open and unified metaverse, allowing users to move seamlessly across experiences. Somnia opens up endless possibilities for builders to create content that is portable and remixable content by upgrading existing NFTs. Somnia was developed by the Virtual Society Foundation (VSF), a nonprofit organization initiated by MSquared, and Improbable. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/somnia-launches-betanet-ushering-in-a-new-era-of-interoperability-in-the-metaverse) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/somnia-launches-betanet-ushering-in-a-new-era-of-interoperability-in-the-metaverse)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1c4lxsp/somnia_launches_betanet_protocol_for_connected/

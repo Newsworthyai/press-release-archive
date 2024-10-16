@@ -46,6 +46,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/compete-in-bullrushs-fantasy-trading-games-for-as-little-as-5-520397715 
 
-[Original/Source Press Release](https://newsdirect.com/news/compete-in-bullrushs-fantasy-trading-games-for-as-little-as-5-520397715) 
+[Original/Source Press Release](https://newsdirect.com/news/compete-in-bullrushs-fantasy-trading-games-for-as-little-as-5-520397715)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1fobi7w/bullrush_fantasy_trading_platform_offers_lowrisk/

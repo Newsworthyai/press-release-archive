@@ -16,6 +16,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/silver-range-resources-announces-plans-to-raise-capital-as-company-readies-2024-exploration-plans-307435167 
 
-[Original/Source Press Release](https://newsdirect.com/news/silver-range-resources-announces-plans-to-raise-capital-as-company-readies-2024-exploration-plans-307435167) 
+[Original/Source Press Release](https://newsdirect.com/news/silver-range-resources-announces-plans-to-raise-capital-as-company-readies-2024-exploration-plans-307435167)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cgws9g/silver_range_resources_ceo_announces_plans_to/

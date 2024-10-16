@@ -32,6 +32,9 @@ For updates and to participate in the project's journey, the community is invite
 
 X (Twitter) | Telegram (Announcement Channel) | Telegram (Community) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/kona-coin-airdrop-ending-shortly---claim-your-tokens-today) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/kona-coin-airdrop-ending-shortly---claim-your-tokens-today)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cb000k/kona_coin_launches_airdrop_campaign_distributing/

@@ -18,6 +18,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pantheon-resources-unveils-game-changer-kodiak-projects-explosive-potential-484518896 
 
-[Original/Source Press Release](https://newsdirect.com/news/pantheon-resources-unveils-game-changer-kodiak-projects-explosive-potential-484518896) 
+[Original/Source Press Release](https://newsdirect.com/news/pantheon-resources-unveils-game-changer-kodiak-projects-explosive-potential-484518896)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1c0tcms/pantheon_resources_unveils_gamechanger_kodiak/

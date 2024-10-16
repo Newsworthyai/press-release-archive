@@ -36,6 +36,9 @@ SYTA@haydenir.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/a-modern-pairing-siyata-mobile-and-zello-announce-integration-of-top-rated-app-and-sd7-handset-615000900 
 
-[Original/Source Press Release](https://newsdirect.com/news/a-modern-pairing-siyata-mobile-and-zello-announce-integration-of-top-rated-app-and-sd7-handset-615000900) 
+[Original/Source Press Release](https://newsdirect.com/news/a-modern-pairing-siyata-mobile-and-zello-announce-integration-of-top-rated-app-and-sd7-handset-615000900)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e0ooki/siyata_mobile_integrates_zello_ptt_app_on_sd7/

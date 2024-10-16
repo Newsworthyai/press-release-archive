@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/torque-metals-secures-strategic-tenement-package-in-wa-395325023 
 
-[Original/Source Press Release](https://newsdirect.com/news/torque-metals-secures-strategic-tenement-package-in-wa-395325023) 
+[Original/Source Press Release](https://newsdirect.com/news/torque-metals-secures-strategic-tenement-package-in-wa-395325023)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1ctjup4/torque_metals_secures_strategic_tenement_package/

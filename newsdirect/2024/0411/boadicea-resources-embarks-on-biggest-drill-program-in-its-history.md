@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/boadicea-resources-embarks-on-biggest-drill-program-in-its-history-793545143 
 
-[Original/Source Press Release](https://newsdirect.com/news/boadicea-resources-embarks-on-biggest-drill-program-in-its-history-793545143) 
+[Original/Source Press Release](https://newsdirect.com/news/boadicea-resources-embarks-on-biggest-drill-program-in-its-history-793545143)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1c1nrhs/boadicea_resources_embarks_on_biggest_drill/

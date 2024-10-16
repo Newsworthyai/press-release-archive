@@ -8,6 +8,9 @@ One of the most appealing aspects of Deep TMS is its patient-friendly design. It
 
 At Owl and Eagle, Deep TMS is more than a treatment – it's a commitment to transforming mental healthcare. We're dedicated to improving lives by offering this innovative, accessible path to wellness for those battling Depression, Anxious Depression, and OCD. Our goal is to make a profound difference in the quality of life for our patients. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401221011/introducing-owl-and-eagle-health-tms-treatment-a-cutting-edge-solution-for-mental-healthcare) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401221011/introducing-owl-and-eagle-health-tms-treatment-a-cutting-edge-solution-for-mental-healthcare)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avle0m/owl_and_eagle_introduces_revolutionary_deep_tms/

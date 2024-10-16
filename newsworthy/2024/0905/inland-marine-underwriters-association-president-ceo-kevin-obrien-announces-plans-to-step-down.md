@@ -12,6 +12,9 @@ About IMUA
 
 IMUA is the national association for the commercial inland marine insurance industry. It serves as the voice of its member companies, representing over 90 percent of all commercial inland marine insurers. The association, founded in 1930, provides its members with comprehensive professional development programs, research papers, bulletins, and industry analysis. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409051255/inland-marine-underwriters-association-president-ceo-kevin-obrien-announces-plans-to-step-down) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409051255/inland-marine-underwriters-association-president-ceo-kevin-obrien-announces-plans-to-step-down)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Leadership_Management/comments/1f9riar/imua_ceo_kevin_obrien_to_step_down_in_2025_after/

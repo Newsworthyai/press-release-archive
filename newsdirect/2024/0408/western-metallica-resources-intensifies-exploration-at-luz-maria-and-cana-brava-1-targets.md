@@ -24,6 +24,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/western-metallica-resources-intensifies-exploration-at-luz-maria-and-cana-brava-1-targets-374121119 
 
-[Original/Source Press Release](https://newsdirect.com/news/western-metallica-resources-intensifies-exploration-at-luz-maria-and-cana-brava-1-targets-374121119) 
+[Original/Source Press Release](https://newsdirect.com/news/western-metallica-resources-intensifies-exploration-at-luz-maria-and-cana-brava-1-targets-374121119)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1byvsdj/western_metallica_resources_intensifies/

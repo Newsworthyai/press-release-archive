@@ -24,6 +24,9 @@ Nramos@readywise.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/wise-food-storage-emphasizes-the-importance-of-preparedness-this-independence-day-959507661 
 
-[Original/Source Press Release](https://newsdirect.com/news/wise-food-storage-emphasizes-the-importance-of-preparedness-this-independence-day-959507661) 
+[Original/Source Press Release](https://newsdirect.com/news/wise-food-storage-emphasizes-the-importance-of-preparedness-this-independence-day-959507661)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dujrl9/wise_food_storage_4th_of_july_sale_up_to_60_off/

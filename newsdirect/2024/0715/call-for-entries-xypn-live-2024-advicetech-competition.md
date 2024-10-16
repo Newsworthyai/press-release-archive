@@ -48,6 +48,9 @@ Company Websitehttps://www.xyplanningnetwork.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/call-for-entries-xypn-live-2024-advicetech-competition-763024861 
 
-[Original/Source Press Release](https://newsdirect.com/news/call-for-entries-xypn-live-2024-advicetech-competition-763024861) 
+[Original/Source Press Release](https://newsdirect.com/news/call-for-entries-xypn-live-2024-advicetech-competition-763024861)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1e42hx1/xypn_live_2024_seeks_innovative_technology_for/

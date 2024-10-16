@@ -30,6 +30,9 @@ Cyvers leads the Web3 security landscape, assisting companies across the entire 
 
 Its comprehensive security suite includes real-time proactive monitoring, detection, and prevention, all powered by proprietary AI models. Additionally, Cyvers provides pre-transaction threat insights to help companies stay safe and compliant.ContactInverted investement :CEO : Odon Ozark, support@infimultichain.comhttps://infimultichain.com/icoPR : COGYAMadhur Kotoky, hello@cogya.comCyvers :Michael Pearl, michael.p@cyvers.ai 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/inverted-investments-partners-with-cyvers-to-revolutionize-web3-security) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/inverted-investments-partners-with-cyvers-to-revolutionize-web3-security)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1efyu01/inverted_investments_partners_with_cyvers_to/

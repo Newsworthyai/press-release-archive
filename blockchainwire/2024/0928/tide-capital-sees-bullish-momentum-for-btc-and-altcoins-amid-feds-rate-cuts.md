@@ -43,6 +43,9 @@ Institutional interest in Sui is growing rapidly. In September, Grayscale launch
 
 "Sui’s growth trajectory is unmatched in the current market, and its potential is still largely untapped," Tide Capital states. "With its fully diluted valuation (FDV) sitting at $16 billion, Sui offers considerable upside compared to more established blockchains like Solana, whose FDV is nearing $90 billion." 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/tide-capital-sees-bullish-momentum-for-btc-and-altcoins-amid-feds-rate-cuts) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/tide-capital-sees-bullish-momentum-for-btc-and-altcoins-amid-feds-rate-cuts)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fsh8cq/the_end_of_tightening_a_turning_point_for_crypto/

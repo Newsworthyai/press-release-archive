@@ -34,6 +34,9 @@ Company Websitehttps://voesh.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/voesh-new-york-launches-new-28-oz-vegan-hand-and-body-creme-collection-912577457 
 
-[Original/Source Press Release](https://newsdirect.com/news/voesh-new-york-launches-new-28-oz-vegan-hand-and-body-creme-collection-912577457) 
+[Original/Source Press Release](https://newsdirect.com/news/voesh-new-york-launches-new-28-oz-vegan-hand-and-body-creme-collection-912577457)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fadopm/voesh_new_york_launches_new_28_oz_vegan_hand_body/

@@ -32,6 +32,9 @@ Company Websitehttps://finservfoundation.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/finserv-foundation-welcomes-two-distinguished-leaders-to-its-board-of-directors-743047608 
 
-[Original/Source Press Release](https://newsdirect.com/news/finserv-foundation-welcomes-two-distinguished-leaders-to-its-board-of-directors-743047608) 
+[Original/Source Press Release](https://newsdirect.com/news/finserv-foundation-welcomes-two-distinguished-leaders-to-its-board-of-directors-743047608)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dzwqot/finserv_foundation_appoints_esteemed_leaders_to/

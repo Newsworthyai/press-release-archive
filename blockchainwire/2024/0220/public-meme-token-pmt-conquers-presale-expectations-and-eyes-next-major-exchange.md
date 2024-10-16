@@ -42,6 +42,9 @@ Beyond just being a meme token, PMT has real-world asset backing and a buyback a
 
 Telegram | Medium | X (Twitter) | Instagram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/public-meme-token-pmt-conquers-presale-expectations-and-eyes-next-major-exchange) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/public-meme-token-pmt-conquers-presale-expectations-and-eyes-next-major-exchange)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1avwxiv/public_meme_tokens_successful_presale_rounds_and/

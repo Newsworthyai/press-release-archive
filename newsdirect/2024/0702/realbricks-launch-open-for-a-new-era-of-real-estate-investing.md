@@ -62,6 +62,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/realbricks-launch-open-for-a-new-era-of-real-estate-investing-293237143 
 
-[Original/Source Press Release](https://newsdirect.com/news/realbricks-launch-open-for-a-new-era-of-real-estate-investing-293237143) 
+[Original/Source Press Release](https://newsdirect.com/news/realbricks-launch-open-for-a-new-era-of-real-estate-investing-293237143)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1dtkuvu/realbricks_launches_new_era_of_real_estate/

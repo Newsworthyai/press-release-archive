@@ -14,6 +14,9 @@ Edward Jones manages an impressive $1.6 trillion in assets, while BNY Mellon boa
 
 The Flint family has initiated legal proceedings against DeMeo, and the case is identified by court case number 24STCV00317. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20240116983/sandra-demeo-orange-county-probate-attorney-facing-fraud-accusations-as-top-banking-institutions-deny-bl) 
+[Original/Source Press Release](https://newsworthy.ai/news/20240116983/sandra-demeo-orange-county-probate-attorney-facing-fraud-accusations-as-top-banking-institutions-deny-bl)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1avx5gk/probate_attorney_accused_of_embezzlement_and/

@@ -38,6 +38,9 @@ Instagram: https://www.instagram.com/rfccoinofficial
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/royal-finance-coin-pre-sale-announced-an-environmental-friendly-investment-opportunity-prioritizing-long-time-value-growth-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/royal-finance-coin-pre-sale-announced-an-environmental-friendly-investment-opportunity-prioritizing-long-time-value-growth-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cg7o2r/royal_finance_coin_rfc_launches_presale_of_highly/

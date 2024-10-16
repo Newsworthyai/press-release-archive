@@ -20,6 +20,9 @@ For More Details on AINN Layer2 Mainnet:
 
 https://mirror.xyz/0xf6359c54fb0A6aF04056976E16Cc29e5fD344028/MYzF-lAuPfY5RfYZZnJ76BBAXSxL_1e8Wr4KgQP0uks 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/ainn-layer2-mainnet-launch-tvl-surpasses-600-million-on-day-one) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/ainn-layer2-mainnet-launch-tvl-surpasses-600-million-on-day-one)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1c1j3jc/ainn_layer2_mainnet_launch_tvl_surpasses_600/

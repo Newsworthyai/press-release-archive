@@ -12,6 +12,9 @@ Kim Joo-yeon, CEO of LILLIUS, stated, "Through this investment, LILLIUS will con
 
 GSR has over ten years of digital asset market expertise as a liquidity provider and active, multi-stage investor. GSR is embedded in every major sector of the digital asset ecosystem, working with token issuers, institutional investors, miners, and leading trading venues. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/lillius-secures-investment-from-gsr) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/lillius-secures-investment-from-gsr)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bnddta/lillius_secures_investment_from_gsr_for_ai_sports/

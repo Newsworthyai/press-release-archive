@@ -20,6 +20,9 @@ About companyMeta Force is a developer of Meta Force, which is a digital platfor
 
 Lado Okhotnikov is a CEO and founder of Meta Force, an expert in IT, blockchain and cryptocurrency, a publicist, and a developer of large-scale business projects. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/meta-force-from-lado-okhotnikov-launches-trading-p2p-service-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/meta-force-from-lado-okhotnikov-launches-trading-p2p-service-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ch5rmw/meta_force_launches_p2p_service_for_forcecoin/

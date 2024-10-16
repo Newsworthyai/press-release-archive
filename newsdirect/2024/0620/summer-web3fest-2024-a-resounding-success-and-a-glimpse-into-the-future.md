@@ -62,6 +62,9 @@ pascal.arnold@inacta.ch
 
 View source version on newsdirect.com: https://newsdirect.com/news/summer-web3fest-2024-a-resounding-success-and-a-glimpse-into-the-future-213435185 
 
-[Original/Source Press Release](https://newsdirect.com/news/summer-web3fest-2024-a-resounding-success-and-a-glimpse-into-the-future-213435185) 
+[Original/Source Press Release](https://newsdirect.com/news/summer-web3fest-2024-a-resounding-success-and-a-glimpse-into-the-future-213435185)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1dmpecx/swiss_web3fest_2024_a_glimpse_into_the_future_of/

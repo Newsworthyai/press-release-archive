@@ -34,6 +34,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sports-betting-gaming-and-esports-a-deep-dive-203211104 
 
-[Original/Source Press Release](https://newsdirect.com/news/sports-betting-gaming-and-esports-a-deep-dive-203211104) 
+[Original/Source Press Release](https://newsdirect.com/news/sports-betting-gaming-and-esports-a-deep-dive-203211104)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1csmkvr/benzinga_to_host_webinar_on_evolving_landscape_of/

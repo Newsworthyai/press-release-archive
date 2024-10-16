@@ -46,6 +46,9 @@ Company Websitehttps://utah.comcast.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/comcast-awards-50-000-to-neighborhood-house-utah-to-launch-an-innovative-digital-navigator-program-aimed-at-equipping-utahns-with-digital-workforce-skills-775864430 
 
-[Original/Source Press Release](https://newsdirect.com/news/comcast-awards-50-000-to-neighborhood-house-utah-to-launch-an-innovative-digital-navigator-program-aimed-at-equipping-utahns-with-digital-workforce-skills-775864430) 
+[Original/Source Press Release](https://newsdirect.com/news/comcast-awards-50-000-to-neighborhood-house-utah-to-launch-an-innovative-digital-navigator-program-aimed-at-equipping-utahns-with-digital-workforce-skills-775864430)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1g02b1o/comcast_grants_50000_to_neighborhood_house_for/

@@ -18,6 +18,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/atai-life-sciences-co-ceo-says-initial-results-from-ele-101-show-promise-in-treating-depression-153343707 
 
-[Original/Source Press Release](https://newsdirect.com/news/atai-life-sciences-co-ceo-says-initial-results-from-ele-101-show-promise-in-treating-depression-153343707) 
+[Original/Source Press Release](https://newsdirect.com/news/atai-life-sciences-co-ceo-says-initial-results-from-ele-101-show-promise-in-treating-depression-153343707)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1dov9g2/atai_life_sciences_coceo_shares_promising_results/

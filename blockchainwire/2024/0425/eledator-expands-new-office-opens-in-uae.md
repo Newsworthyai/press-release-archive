@@ -56,6 +56,9 @@ Eledator's new office in the UAE is a modern, functional and comfortable space t
 
 Eledator's development prospects in the UAEEledator's development prospects in the UAE are very positive. The company has every chance of becoming the leader in the neuro trading market in the Middle East. Eledator is also doing everything possible to more actively participate in industry events, collaborate with local research centers and support local initiatives in the field of neuro trading. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/eledator-expands---new-office-opens-in-uae) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/eledator-expands---new-office-opens-in-uae)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ccp8bs/eledator_expands_to_uae_strengthening_global/

@@ -32,6 +32,9 @@ Commitment to Excellence
 
 Beaconcto Trading Center maintains the highest standards in security, privacy, compliance, and customer service. With a vast global user base and a robust trading infrastructure, the company remains at the forefront of the cryptocurrency exchange industry. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/-beaconcto-trading-center-innovating-social-investment-and-trading) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/-beaconcto-trading-center-innovating-social-investment-and-trading)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1egr3cd/beaconcto_trading_center_transforming_investment/

@@ -51,6 +51,9 @@ John O’Keeffe, john@qubiclabs.com
 
 Media outlets and reporters are welcome to attend at no cost and will be required to cover event content with speakers before and/or after the conference. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/blockchain-in-healthcare-boston-blockchain-week--event-sept-10--11-2024) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/blockchain-in-healthcare-boston-blockchain-week--event-sept-10--11-2024)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1ew07y2/conv2x_and_boston_blockchain_week_collaborate_for/

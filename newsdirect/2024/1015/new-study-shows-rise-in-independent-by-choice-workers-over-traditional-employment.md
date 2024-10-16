@@ -48,6 +48,9 @@ Company Websitehttps://mbopartners.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-study-shows-rise-in-independent-by-choice-workers-over-traditional-employment-672523437 
 
-[Original/Source Press Release](https://newsdirect.com/news/new-study-shows-rise-in-independent-by-choice-workers-over-traditional-employment-672523437) 
+[Original/Source Press Release](https://newsdirect.com/news/new-study-shows-rise-in-independent-by-choice-workers-over-traditional-employment-672523437)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1g492zr/new_study_shows_rise_in_independent_by_choice/

@@ -34,6 +34,9 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-has-successfully-facilitated-the-transaction-of-plant-drives-and-systems-to-aes-inc-318903623 
 
-[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-has-successfully-facilitated-the-transaction-of-plant-drives-and-systems-to-aes-inc-318903623) 
+[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-has-successfully-facilitated-the-transaction-of-plant-drives-and-systems-to-aes-inc-318903623)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bvzo0o/plant_drives_systems_acquired_by_aes_inc_an/

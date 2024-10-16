@@ -25,6 +25,9 @@ Notable successes for Gate Group in this area include but not limited to:
 
 Gate Group is proud to be a leader in the digital asset industry and is committed to delivering exceptional services to clients worldwide. With its customer and security-centric platforms, approach to regulatory compliance, and adaptability, Gate Group is well-equipped to navigate the ever-evolving digital asset landscape. As its world-class services reach more users globally, Gate Group remains dedicated to exceeding expectations and providing an unparalleled digital asset experience. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/gate-group-expands-its-european-presence-with-italy-vasp-registration) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/gate-group-expands-its-european-presence-with-italy-vasp-registration)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bjeh2o/gate_group_expands_global_reach_with_italian_vasp/

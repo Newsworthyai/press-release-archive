@@ -32,6 +32,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/summer-camp-and-your-childs-mental-health-349793553 
 
-[Original/Source Press Release](https://newsdirect.com/news/summer-camp-and-your-childs-mental-health-349793553) 
+[Original/Source Press Release](https://newsdirect.com/news/summer-camp-and-your-childs-mental-health-349793553)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cxei3q/seriousfun_childrens_network_providing/

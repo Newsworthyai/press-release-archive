@@ -34,6 +34,9 @@ Start Trading with Warrick Beckett Today
 
 Don’t miss the opportunity to join the ranks of traders benefiting from Warrick Beckett’s revolutionary platform. With record-breaking profits and industry-leading technology, the path to financial success has never been clearer. Visit Warrick Beckett to learn more and start your journey toward becoming a member of the crypto elite. The future of trading is here—are you ready to seize it? 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/warrick-beckett-announces-record-breaking-profits-on-its-ai-powered-crypto-trading-platform) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/warrick-beckett-announces-record-breaking-profits-on-its-ai-powered-crypto-trading-platform)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fzzikl/warrick_becketts_aipowered_crypto_trading/

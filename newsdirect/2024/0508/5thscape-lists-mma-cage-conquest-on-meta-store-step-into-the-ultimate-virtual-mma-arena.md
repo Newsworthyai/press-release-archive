@@ -28,6 +28,9 @@ Company Websitehttps://5thscape.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/5thscape-lists-mma-cage-conquest-on-meta-store-step-into-the-ultimate-virtual-mma-arena-983073280 
 
-[Original/Source Press Release](https://newsdirect.com/news/5thscape-lists-mma-cage-conquest-on-meta-store-step-into-the-ultimate-virtual-mma-arena-983073280) 
+[Original/Source Press Release](https://newsdirect.com/news/5thscape-lists-mma-cage-conquest-on-meta-store-step-into-the-ultimate-virtual-mma-arena-983073280)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1cna2rd/5th_scape_unveils_mma_cage_conquest_a_new_era_of/

@@ -46,6 +46,9 @@ Company Websitehttps://california.comcast.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/comcast-to-expand-fiber-broadband-services-across-northern-california-870388345 
 
-[Original/Source Press Release](https://newsdirect.com/news/comcast-to-expand-fiber-broadband-services-across-northern-california-870388345) 
+[Original/Source Press Release](https://newsdirect.com/news/comcast-to-expand-fiber-broadband-services-across-northern-california-870388345)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1ffdfiw/comcast_to_expand_fiber_broadband_services_across/

@@ -22,6 +22,9 @@ Somnia is creating a virtual society with an L1 blockchain and a set of omnichai
 
 For more information, please visit Somnia.Network 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/yuga-labs-partners-with-somnia-to-increase-metaverse-interoperability-and-incentives) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/yuga-labs-partners-with-somnia-to-increase-metaverse-interoperability-and-incentives)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1cj876c/somnia_partners_with_yuga_labs_to_enhance_nft/

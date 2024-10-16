@@ -46,6 +46,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/citius-pharmaceuticals-nears-market-breakthrough-with-two-leading-products-409919572 
 
-[Original/Source Press Release](https://newsdirect.com/news/citius-pharmaceuticals-nears-market-breakthrough-with-two-leading-products-409919572) 
+[Original/Source Press Release](https://newsdirect.com/news/citius-pharmaceuticals-nears-market-breakthrough-with-two-leading-products-409919572)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1eg4q7p/citius_pharmaceuticals_nears_market_breakthrough/

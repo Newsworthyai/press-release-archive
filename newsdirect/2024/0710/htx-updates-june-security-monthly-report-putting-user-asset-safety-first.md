@@ -20,6 +20,9 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-updates-june-security-monthly-report-putting-user-asset-safety-first-132621933 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-updates-june-security-monthly-report-putting-user-asset-safety-first-132621933) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-updates-june-security-monthly-report-putting-user-asset-safety-first-132621933)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1e02iez/htx_prioritizes_user_asset_safety_with_monthly/

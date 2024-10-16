@@ -30,6 +30,9 @@ As No Agenda looks toward the future, Curry and Dvorak reaffirmed their commitme
 
 For more information or to become a producer, visit https://www.noagendashow.net/. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202410041302/no-agenda-show-marks-1700-episodes-of-unfiltered-news-analysis-and-community-engagement) 
+[Original/Source Press Release](https://newsworthy.ai/news/202410041302/no-agenda-show-marks-1700-episodes-of-unfiltered-news-analysis-and-community-engagement)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1fw0ag9/no_agenda_show_celebrates_1700th_episode_with/

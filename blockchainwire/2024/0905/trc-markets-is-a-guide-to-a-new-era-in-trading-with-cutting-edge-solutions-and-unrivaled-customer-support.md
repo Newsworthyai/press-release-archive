@@ -36,6 +36,9 @@ Email: support@trcmarkets.ltd
 
 Address:  The Minster Building, 21 Mincing Lane, London, United Kingdom, EC3R 7AG 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/trc-markets-is-a-guide-to-a-new-era-in-trading-with-cutting-edge-solutions-and-unrivaled-customer-support-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/trc-markets-is-a-guide-to-a-new-era-in-trading-with-cutting-edge-solutions-and-unrivaled-customer-support-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1fhyl8o/trc_markets_revolutionizing_online_trading_with/

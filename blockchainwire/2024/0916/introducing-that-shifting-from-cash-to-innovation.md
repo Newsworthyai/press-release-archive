@@ -38,6 +38,9 @@ About THAT:
 
 Founded by visionary entrepreneur Bailey Nahi, THAT is dedicated to transforming cryptocurrency into a spendable asset in everyday life. Leveraging a secure, scalable, and fast Layer-1 blockchain, THAT aims to create a digital currency that is so accessible and usable it can replace cash and become the mainstream, worldwide currency. The company’s innovative approach, supported by industry-leading technologies, positions THAT within the ongoing global shift toward digital financial solutions, supporting its widespread adoption and practical utility in the crypto space. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/introducing-that-shifting-from-cash-to-innovation) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/introducing-that-shifting-from-cash-to-innovation)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fhykwb/that_launches_as_pioneering_layer1_blockchain/

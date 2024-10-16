@@ -26,6 +26,9 @@ The derivatives trading volume in the crypto market is 4-5 times that of spot tr
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/edgex-the-disruptor-of-the-centralized-derivatives-trading-landscape) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/edgex-the-disruptor-of-the-centralized-derivatives-trading-landscape)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvbove/amber_groups_edgex_launches_decentralized/

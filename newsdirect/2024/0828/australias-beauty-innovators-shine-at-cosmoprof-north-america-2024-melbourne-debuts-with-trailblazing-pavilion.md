@@ -28,6 +28,9 @@ mildred.ruizleal@global.vic.gov.au
 
 View source version on newsdirect.com: https://newsdirect.com/news/australias-beauty-innovators-shine-at-cosmoprof-north-america-2024-melbourne-debuts-with-trailblazing-pavilion-513844921 
 
-[Original/Source Press Release](https://newsdirect.com/news/australias-beauty-innovators-shine-at-cosmoprof-north-america-2024-melbourne-debuts-with-trailblazing-pavilion-513844921) 
+[Original/Source Press Release](https://newsdirect.com/news/australias-beauty-innovators-shine-at-cosmoprof-north-america-2024-melbourne-debuts-with-trailblazing-pavilion-513844921)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f3gzfj/melbourne_australia_beauty_pavilion_shines_at/

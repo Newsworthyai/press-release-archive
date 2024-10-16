@@ -22,6 +22,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/chariot-progresses-onshore-morocco-drill-program-in-what-it-describes-as-a-pivotal-year-620493589 
 
-[Original/Source Press Release](https://newsdirect.com/news/chariot-progresses-onshore-morocco-drill-program-in-what-it-describes-as-a-pivotal-year-620493589) 
+[Original/Source Press Release](https://newsdirect.com/news/chariot-progresses-onshore-morocco-drill-program-in-what-it-describes-as-a-pivotal-year-620493589)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cud5xo/chariot_progresses_onshore_morocco_drill_program/

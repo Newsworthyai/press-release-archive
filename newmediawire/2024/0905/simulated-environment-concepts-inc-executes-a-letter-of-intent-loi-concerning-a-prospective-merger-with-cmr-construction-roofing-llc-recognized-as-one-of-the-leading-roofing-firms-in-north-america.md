@@ -26,6 +26,9 @@ Contact Information:SMEV Shareholder/Investor inquiries can be directed to:Bryan
 
 URL: www.nitroholdingsllc.comX:  X.com/SMEVCO 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/simulated-environment-concepts-inc-executes-a-letter-of-intent-loi-concerning-a-prospective-merger-with-cmr-construction-roofing-llc-recognized-as-one-of-the-leading-roofing-firms-in-north-america-7076009) 
+[Original/Source Press Release](https://www.newmediawire.com/news/simulated-environment-concepts-inc-executes-a-letter-of-intent-loi-concerning-a-prospective-merger-with-cmr-construction-roofing-llc-recognized-as-one-of-the-leading-roofing-firms-in-north-america-7076009)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1f9ri7b/simulated_environment_concepts_inc_and_cmr/

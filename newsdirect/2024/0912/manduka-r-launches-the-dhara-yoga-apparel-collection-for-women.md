@@ -31,6 +31,9 @@ Company Websitehttps://www.manduka.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/manduka-r-launches-the-dhara-yoga-apparel-collection-for-women-719754032 
 
-[Original/Source Press Release](https://newsdirect.com/news/manduka-r-launches-the-dhara-yoga-apparel-collection-for-women-719754032) 
+[Original/Source Press Release](https://newsdirect.com/news/manduka-r-launches-the-dhara-yoga-apparel-collection-for-women-719754032)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1ff2cii/manduka_launches_sustainable_dhara_yoga_apparel/

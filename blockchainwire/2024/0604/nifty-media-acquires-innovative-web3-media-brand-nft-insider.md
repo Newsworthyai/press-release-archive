@@ -28,6 +28,9 @@ Founded in 2021, NFT Insider is a world-leading media outlet specializing in blo
 
 Nifty Media is an industry-leading web3 media company, with its flagship brand NFT Plazas - the #1 news site dedicated to growing the NFT, web3 and metaverse space - having been founded in 2018. Our mission is to be an evangelist for blockchain technology, and highlight the exciting benefits and experiences it can bring. Through groundbreaking coverage of games, crypto art, collectibles, metaverse projects and more, we’re flying the flag for the entire web3 industry. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/nifty-media-acquires-innovative-web3-media-brand-nft-insider) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/nifty-media-acquires-innovative-web3-media-brand-nft-insider)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvlwqs/nifty_media_expands_media_arm_with_acquisition_of/

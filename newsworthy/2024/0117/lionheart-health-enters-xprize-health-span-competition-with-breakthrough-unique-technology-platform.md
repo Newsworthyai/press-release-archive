@@ -30,6 +30,9 @@ http://www.bodstim.com
 
 www.leonhardtventures.com 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20240117982/lionheart-health-enters-xprize-health-span-competition-with-breakthrough-unique-technology-platform) 
+[Original/Source Press Release](https://newsworthy.ai/news/20240117982/lionheart-health-enters-xprize-health-span-competition-with-breakthrough-unique-technology-platform)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdp3f/lionheart_health_enters_xprize_healthspan/

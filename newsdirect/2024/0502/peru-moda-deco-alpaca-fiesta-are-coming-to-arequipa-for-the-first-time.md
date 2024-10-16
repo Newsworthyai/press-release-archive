@@ -29,6 +29,9 @@ Company Websitehttp://www.promperu.gob.pe
 
 View source version on newsdirect.com: https://newsdirect.com/news/peru-moda-deco-and-alpaca-fiesta-are-coming-to-arequipa-for-the-first-time-926989833 
 
-[Original/Source Press Release](https://newsdirect.com/news/peru-moda-deco-and-alpaca-fiesta-are-coming-to-arequipa-for-the-first-time-926989833) 
+[Original/Source Press Release](https://newsdirect.com/news/peru-moda-deco-and-alpaca-fiesta-are-coming-to-arequipa-for-the-first-time-926989833)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1cik2dg/perú_moda_deco_alpaca_fiesta_head_to_arequipa_for/

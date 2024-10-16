@@ -18,6 +18,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fah-mai-holdings-jacob-carter-explains-auction-process-829041850 
 
-[Original/Source Press Release](https://newsdirect.com/news/fah-mai-holdings-jacob-carter-explains-auction-process-829041850) 
+[Original/Source Press Release](https://newsdirect.com/news/fah-mai-holdings-jacob-carter-explains-auction-process-829041850)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1cucxl6/fah_mai_holdings_uk_head_jacob_carter_explains/

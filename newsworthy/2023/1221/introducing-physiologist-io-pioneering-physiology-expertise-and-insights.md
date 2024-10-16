@@ -18,6 +18,9 @@ Physiologist.io aspires to be the cornerstone for all things physiology. Through
 
 Discover the intricacies of physiology at www.Physiologist.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231221862/introducing-physiologist-io-pioneering-physiology-expertise-and-insights) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231221862/introducing-physiologist-io-pioneering-physiology-expertise-and-insights)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcvw6/introducing_physiologistio_a_cuttingedge_platform/

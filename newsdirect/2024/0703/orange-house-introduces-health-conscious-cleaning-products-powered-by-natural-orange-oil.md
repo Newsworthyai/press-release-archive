@@ -34,6 +34,9 @@ Company Websitehttps://www.yfycpg.com/zh-TW/products/5
 
 View source version on newsdirect.com: https://newsdirect.com/news/orange-house-introduces-health-conscious-cleaning-products-powered-by-natural-orange-oil-169218052 
 
-[Original/Source Press Release](https://newsdirect.com/news/orange-house-introduces-health-conscious-cleaning-products-powered-by-natural-orange-oil-169218052) 
+[Original/Source Press Release](https://newsdirect.com/news/orange-house-introduces-health-conscious-cleaning-products-powered-by-natural-orange-oil-169218052)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1duj9p3/orange_house_launches_healthconscious_cleaning/

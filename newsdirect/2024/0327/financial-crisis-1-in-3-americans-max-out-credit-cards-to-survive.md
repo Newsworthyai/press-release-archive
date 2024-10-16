@@ -32,6 +32,9 @@ Company Websitehttps://www.debt.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/financial-crisis-1-in-3-americans-max-out-credit-cards-to-survive-426617290 
 
-[Original/Source Press Release](https://newsdirect.com/news/financial-crisis-1-in-3-americans-max-out-credit-cards-to-survive-426617290) 
+[Original/Source Press Release](https://newsdirect.com/news/financial-crisis-1-in-3-americans-max-out-credit-cards-to-survive-426617290)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1bpgfv9/historic_surge_in_credit_card_debt_hits_americans/

@@ -44,6 +44,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/busting-the-myths-around-weight-loss-medication-311943110 
 
-[Original/Source Press Release](https://newsdirect.com/news/busting-the-myths-around-weight-loss-medication-311943110) 
+[Original/Source Press Release](https://newsdirect.com/news/busting-the-myths-around-weight-loss-medication-311943110)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1ddhgue/busting_the_myths_around_weight_loss_medication/

@@ -36,6 +36,9 @@ Company Websitehttps://www.syrahealth.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/syra-health-wins-contract-valued-at-nearly-6m-to-train-indiana-health-workers-491174997 
 
-[Original/Source Press Release](https://newsdirect.com/news/syra-health-wins-contract-valued-at-nearly-6m-to-train-indiana-health-workers-491174997) 
+[Original/Source Press Release](https://newsdirect.com/news/syra-health-wins-contract-valued-at-nearly-6m-to-train-indiana-health-workers-491174997)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1egmt3v/syra_health_corp_awarded_58m_contract_to_train/

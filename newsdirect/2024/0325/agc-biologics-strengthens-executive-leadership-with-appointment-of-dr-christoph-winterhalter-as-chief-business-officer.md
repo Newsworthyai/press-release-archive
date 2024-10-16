@@ -30,6 +30,9 @@ Company Websitehttps://www.agcbio.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/agc-biologics-strengthens-executive-leadership-with-appointment-of-dr-christoph-winterhalter-as-chief-business-officer-105916827 
 
-[Original/Source Press Release](https://newsdirect.com/news/agc-biologics-strengthens-executive-leadership-with-appointment-of-dr-christoph-winterhalter-as-chief-business-officer-105916827) 
+[Original/Source Press Release](https://newsdirect.com/news/agc-biologics-strengthens-executive-leadership-with-appointment-of-dr-christoph-winterhalter-as-chief-business-officer-105916827)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bnudt2/agc_biologics_promotes_dr_christoph_winterhalter/

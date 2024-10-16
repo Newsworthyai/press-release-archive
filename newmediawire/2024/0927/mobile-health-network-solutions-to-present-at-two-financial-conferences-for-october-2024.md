@@ -42,6 +42,9 @@ SINGAPORE - (NewMediaWire) - September 27, 2024 - Mobile-health Network Solution
 
  Investor Relations Inquiries: Skyline Corporate Communications Group, LLC Scott Powell, President 1177 Avenue of the Americas, 5th Floor New York, New York 10036 Office: (646) 893-5835 Email: info@skylineccg.com 
 
-[Original/Source Press Release](http://www.newmediawire.com/news/mobile-health-network-solutions-to-present-at-two-financial-conferences-for-october-2024-7076101) 
+[Original/Source Press Release](http://www.newmediawire.com/news/mobile-health-network-solutions-to-present-at-two-financial-conferences-for-october-2024-7076101)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1frcgte/mobilehealth_network_solutions_to_present_at/

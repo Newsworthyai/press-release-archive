@@ -40,6 +40,9 @@ Forward-looking statements are based on certain assumptions and analyses made by
 
 Further, any forward-looking statement speaks only as of the date on which such statement is made, and, except as required by applicable law, ZenaTech undertakes no obligation to update any forward-looking statement to reflect events or circumstances after the date on which such statement is made or to reflect the occurrence of unanticipated events. New factors emerge from time to time, and it is not possible for management to predict all such factors and to assess in advance the impact of each such factor on ZenaTech’s business or the extent to which any factor, or combination of factors, may cause actual results to differ materially from those contained in any forward-looking statement. Potential investors should read this document with the understanding that ZenaTech’s actual future results may be materially different from what is currently anticipated. 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/zenatech-inc-ai-drone-and-enterprise-saas-company-announces-direct-listing-on-the-nasdaq-capital-market-under-the-symbol-zena-7076128) 
+[Original/Source Press Release](https://www.newmediawire.com/news/zenatech-inc-ai-drone-and-enterprise-saas-company-announces-direct-listing-on-the-nasdaq-capital-market-under-the-symbol-zena-7076128)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ftmbqq/zenatech_inc_commences_trading_on_nasdaq_capital/

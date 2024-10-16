@@ -22,6 +22,9 @@ Company Websitehttps://ctltrust.net/about/default.aspx
 
 View source version on newsdirect.com: https://newsdirect.com/news/copper-property-ctl-pass-through-trust-issues-monthly-reporting-package-for-july-2024-679251755 
 
-[Original/Source Press Release](https://newsdirect.com/news/copper-property-ctl-pass-through-trust-issues-monthly-reporting-package-for-july-2024-679251755) 
+[Original/Source Press Release](https://newsdirect.com/news/copper-property-ctl-pass-through-trust-issues-monthly-reporting-package-for-july-2024-679251755)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1emmi1o/copper_property_ctl_pass_through_trust_issues/

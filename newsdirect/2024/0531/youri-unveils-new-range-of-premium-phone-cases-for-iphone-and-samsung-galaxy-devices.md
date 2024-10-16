@@ -28,6 +28,9 @@ Company Websitehttps://youri.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/youri-unveils-new-range-of-premium-phone-cases-for-iphone-and-samsung-galaxy-devices-703598344 
 
-[Original/Source Press Release](https://newsdirect.com/news/youri-unveils-new-range-of-premium-phone-cases-for-iphone-and-samsung-galaxy-devices-703598344) 
+[Original/Source Press Release](https://newsdirect.com/news/youri-unveils-new-range-of-premium-phone-cases-for-iphone-and-samsung-galaxy-devices-703598344)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d56b6b/youri_launches_new_line_of_phone_cases_for_iphone/

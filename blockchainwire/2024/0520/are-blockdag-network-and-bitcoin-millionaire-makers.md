@@ -52,6 +52,9 @@ Telegram:https://t.me/blockDAGnetworkOfficial
 
 Discord: https://discord.gg/Q7BxghMVyu 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/are-blockdag-network-and-bitcoin-millionaire-makers-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/are-blockdag-network-and-bitcoin-millionaire-makers-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cwjnk3/unlocking_millionairemaking_potential_in_the/

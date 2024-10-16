@@ -46,6 +46,9 @@ About [Programming.com](https://programming.com/) Programming.com, a leader in t
 
  LaunchXR - Your Business is Now Spatial™ 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402021048/launchxr-groundbreaking-spatial-platform-to-usher-in-the-new-era-of-spatial-commerce) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402021048/launchxr-groundbreaking-spatial-platform-to-usher-in-the-new-era-of-spatial-commerce)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1avxin7/launchxr_unveils_spatial_commerce_platform_for/

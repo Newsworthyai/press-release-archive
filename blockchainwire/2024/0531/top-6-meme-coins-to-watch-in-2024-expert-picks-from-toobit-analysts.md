@@ -16,6 +16,9 @@ DogeBonk (DOBO/USDT)A newer entry, DogeBonk stands out with its unique deflation
 
 Book of Meme (BOME USDT)A fresh and innovative player in the memecoin arena, Book of Meme (BOME) combines the humor of internet culture with the functionality of blockchain technology. BOME aims to create a comprehensive digital library of memes, supported by its native token. In 2024, BOME launched several community-driven projects and partnered with major meme creators to enhance its ecosystem, making it a compelling contender in the market.About ToobitToobit is a premier cryptocurrency analysis and research firm dedicated to providing in-depth insights and reports on digital assets. With a team of seasoned analysts and industry experts, Toobit offers valuable information to help investors navigate the complex world of cryptocurrencies. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/top-6-meme-coins-to-watch-in-2024-expert-picks-from-toobit-analysts) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/top-6-meme-coins-to-watch-in-2024-expert-picks-from-toobit-analysts)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fvexfk/toobit_report_reveals_top_meme_coins_for_2024/

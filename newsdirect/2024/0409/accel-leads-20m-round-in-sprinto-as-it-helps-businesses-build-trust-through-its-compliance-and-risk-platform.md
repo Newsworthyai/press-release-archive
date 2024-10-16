@@ -50,6 +50,9 @@ Company Websitehttps://sprinto.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/accel-leads-20m-round-in-sprinto-as-it-helps-businesses-build-trust-through-its-compliance-and-risk-platform-290531532 
 
-[Original/Source Press Release](https://newsdirect.com/news/accel-leads-20m-round-in-sprinto-as-it-helps-businesses-build-trust-through-its-compliance-and-risk-platform-290531532) 
+[Original/Source Press Release](https://newsdirect.com/news/accel-leads-20m-round-in-sprinto-as-it-helps-businesses-build-trust-through-its-compliance-and-risk-platform-290531532)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bzrwue/sprinto_secures_20m_funding_round_led_by_accel_to/

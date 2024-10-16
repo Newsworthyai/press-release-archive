@@ -30,6 +30,9 @@ Company Websitehttp://www.promperu.gob.pe
 
 View source version on newsdirect.com: https://newsdirect.com/news/machupicchu-is-the-only-wonder-of-the-world-to-have-carbon-neutral-certification-359454624 
 
-[Original/Source Press Release](https://newsdirect.com/news/machupicchu-is-the-only-wonder-of-the-world-to-have-carbon-neutral-certification-359454624) 
+[Original/Source Press Release](https://newsdirect.com/news/machupicchu-is-the-only-wonder-of-the-world-to-have-carbon-neutral-certification-359454624)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1dq3767/machupicchu_recertified_as_carbon_neutral/

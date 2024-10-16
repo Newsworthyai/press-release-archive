@@ -34,6 +34,9 @@ Investors ready to scale their crypto portfolios are encouraged to explore the b
 
 For more information on how PlusInvesting can help you grow your investments, visit www.plusinvestbot.com today. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/plusinvesting-launches-innovative-growth-initiative-a-new-crypto-investment-strategy-to-maximize-client-returns) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/plusinvesting-launches-innovative-growth-initiative-a-new-crypto-investment-strategy-to-maximize-client-returns)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1g4ecbn/plusinvesting_announces_new_growth_initiative_to/

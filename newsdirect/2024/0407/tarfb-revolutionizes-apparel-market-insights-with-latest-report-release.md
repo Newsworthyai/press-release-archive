@@ -32,6 +32,9 @@ Company Websitehttps://tarfb.ca/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tarfb-revolutionizes-apparel-market-insights-with-latest-report-release-211532570 
 
-[Original/Source Press Release](https://newsdirect.com/news/tarfb-revolutionizes-apparel-market-insights-with-latest-report-release-211532570) 
+[Original/Source Press Release](https://newsdirect.com/news/tarfb-revolutionizes-apparel-market-insights-with-latest-report-release-211532570)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bye4bi/tarfb_releases_new_report_revolutionizing_apparel/

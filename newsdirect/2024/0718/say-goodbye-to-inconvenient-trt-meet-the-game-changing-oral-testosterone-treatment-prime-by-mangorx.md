@@ -48,6 +48,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/say-goodbye-to-inconvenient-trt-meet-the-game-changing-oral-testosterone-treatment-prime-by-mangorx-108375890 
 
-[Original/Source Press Release](https://newsdirect.com/news/say-goodbye-to-inconvenient-trt-meet-the-game-changing-oral-testosterone-treatment-prime-by-mangorx-108375890) 
+[Original/Source Press Release](https://newsdirect.com/news/say-goodbye-to-inconvenient-trt-meet-the-game-changing-oral-testosterone-treatment-prime-by-mangorx-108375890)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1e6iyu7/gamechanging_oral_testosterone_treatment_prime_by/

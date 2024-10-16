@@ -270,6 +270,9 @@ Company Websitehttps://nationalland.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/national-land-realty-finds-acreage-prices-remain-stable-through-first-semester-845255983 
 
-[Original/Source Press Release](https://newsdirect.com/news/national-land-realty-finds-acreage-prices-remain-stable-through-first-semester-845255983) 
+[Original/Source Press Release](https://newsdirect.com/news/national-land-realty-finds-acreage-prices-remain-stable-through-first-semester-845255983)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fdji09/national_land_realty_releases_2024_land_sales_data/

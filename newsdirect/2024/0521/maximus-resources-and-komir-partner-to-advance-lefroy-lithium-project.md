@@ -12,6 +12,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/maximus-resources-and-komir-partner-to-advance-lefroy-lithium-project-722196177 
 
-[Original/Source Press Release](https://newsdirect.com/news/maximus-resources-and-komir-partner-to-advance-lefroy-lithium-project-722196177) 
+[Original/Source Press Release](https://newsdirect.com/news/maximus-resources-and-komir-partner-to-advance-lefroy-lithium-project-722196177)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cxkbq4/maximus_resources_and_komir_partner_to_advance/

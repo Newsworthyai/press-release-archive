@@ -30,6 +30,9 @@ About David Dardashti and his Work
 
 Rabbi David Dardashti has dedicated his life to understanding the keys of human potential, happiness, and self-discovery. Through his work, he has helped hundreds of people discover the true power within themselves through his advice. He brings over 35 years of Kabbalah studies to his scientific approach to addressing the challenges of trauma, anxiety, and other common neurological problems through the neuro-stimulus techniques his has developed. To date, over 3000 individuals have received treatment and healing at his facility. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231215906/ibogaine-by-david-dardashti-unveils-breakthrough-new-approach-to-trauma-treatment) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231215906/ibogaine-by-david-dardashti-unveils-breakthrough-new-approach-to-trauma-treatment)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avcuc7/ibogaine_clinic_inc_introduces_groundbreaking/

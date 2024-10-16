@@ -40,6 +40,9 @@ Company Websitehttps://igcpharma.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/igc-pharma-releases-positive-interim-analysis-of-its-ongoing-phase-2-trial-in-alzheimers-research-220018113 
 
-[Original/Source Press Release](https://newsdirect.com/news/igc-pharma-releases-positive-interim-analysis-of-its-ongoing-phase-2-trial-in-alzheimers-research-220018113) 
+[Original/Source Press Release](https://newsdirect.com/news/igc-pharma-releases-positive-interim-analysis-of-its-ongoing-phase-2-trial-in-alzheimers-research-220018113)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1busbk8/igc_pharmas_igcad1_shows_promise_in_alzheimers/

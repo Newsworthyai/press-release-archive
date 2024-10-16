@@ -28,6 +28,9 @@ The developers believe that increased transparency, digital ownership, user-gene
 
 You can learn more about BADMAD ROBOTS at these links: Website | X (Twitter) | YouTube | Discord 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/badmad-robots-announces-listing-on-epic-games-store-and-steam-teams-up-with-immutable-x) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/badmad-robots-announces-listing-on-epic-games-store-and-steam-teams-up-with-immutable-x)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1ccwu7s/badmad_robots_listed_on_epic_games_store_and/

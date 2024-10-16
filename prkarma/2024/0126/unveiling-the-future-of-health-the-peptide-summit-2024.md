@@ -40,6 +40,9 @@ Canada
 * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/drtalks/news_release/1396) 
+[Original/Source Press Release](https://newsroom.prkarma.com/drtalks/news_release/1396)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1bko8n0/drtalks_announces_peptide_summit_2024_featuring/

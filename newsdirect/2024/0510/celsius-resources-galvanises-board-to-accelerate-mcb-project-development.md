@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/celsius-resources-galvanises-board-to-accelerate-mcb-project-development-217698333 
 
-[Original/Source Press Release](https://newsdirect.com/news/celsius-resources-galvanises-board-to-accelerate-mcb-project-development-217698333) 
+[Original/Source Press Release](https://newsdirect.com/news/celsius-resources-galvanises-board-to-accelerate-mcb-project-development-217698333)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1coxcic/celsius_resources_accelerates_mcb_project/

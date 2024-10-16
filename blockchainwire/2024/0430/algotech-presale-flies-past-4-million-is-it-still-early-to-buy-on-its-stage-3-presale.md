@@ -38,6 +38,9 @@ Join The Algotech Community
 
 Media Contact:Robert Smith[Support@algotech.com](mailto:Support@algotech.com)[https://algotechtrade.com](https://algotechtrade.com)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/algotech-presale-flies-past-4-million-is-it-still-early-to-buy-on-its-stage-3-presale) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/algotech-presale-flies-past-4-million-is-it-still-early-to-buy-on-its-stage-3-presale)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cgumiv/algotech_algt_public_presale_exceeds_4_million_is/

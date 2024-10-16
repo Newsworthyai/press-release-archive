@@ -38,6 +38,9 @@ Email:pr@teccrypto.comCompany: Crypto Technology LimitedWebsite: https://teccry
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/teccrypto-launches-educational-initiative-to-empower-aspiring-cryptocurrency-miners) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/teccrypto-launches-educational-initiative-to-empower-aspiring-cryptocurrency-miners)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avc9qw/teccryptocom_unveils_educational_initiative_for/

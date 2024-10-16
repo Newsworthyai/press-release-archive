@@ -54,6 +54,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-you-could-profit-from-the-2024-us-election-with-vantagepoints-ai-software-819454656 
 
-[Original/Source Press Release](https://newsdirect.com/news/how-you-could-profit-from-the-2024-us-election-with-vantagepoints-ai-software-819454656) 
+[Original/Source Press Release](https://newsdirect.com/news/how-you-could-profit-from-the-2024-us-election-with-vantagepoints-ai-software-819454656)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f3h055/us_stock_market_recovery_and_election_volatility/

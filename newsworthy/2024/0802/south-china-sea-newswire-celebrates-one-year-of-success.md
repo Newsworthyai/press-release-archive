@@ -12,6 +12,9 @@ The South China Sea NewsWire has not only grown in its aggregation but also in i
 
 Find the South China Sea NewsWire at the following link HERE. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202408021224/south-china-sea-newswire-celebrates-one-year-of-success) 
+[Original/Source Press Release](https://newsworthy.ai/news/202408021224/south-china-sea-newswire-celebrates-one-year-of-success)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eig92d/south_china_sea_newswire_celebrates_first/

@@ -24,6 +24,9 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/d-wave-nyse-qbts-reveals-findings-of-hyperion-research-quantum-optimization-roi-study/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/d-wave-nyse-qbts-reveals-findings-of-hyperion-research-quantum-optimization-roi-study/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1f2fefr/dwave_quantum_study_reveals_major_roi/

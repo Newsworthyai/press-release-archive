@@ -18,6 +18,9 @@ Designed as a one-stop portal, CMOTimes.com is dedicated to those at the helm of
 
 Elevate your marketing prowess. Begin your journey at www.CMOTimes.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231219793/cmotimes-com-launches-the-ultimate-resource-for-chief-marketing-officers-and-marketing-enthusiasts) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231219793/cmotimes-com-launches-the-ultimate-resource-for-chief-marketing-officers-and-marketing-enthusiasts)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1avcuq0/cmotimescom_launches_as_the_ultimate_online_hub/

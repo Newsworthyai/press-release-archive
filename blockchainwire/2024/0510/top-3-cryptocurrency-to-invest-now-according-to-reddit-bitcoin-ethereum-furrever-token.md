@@ -28,6 +28,9 @@ In summary, Furrever Token stands out in the crypto landscape with its charming 
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/top-3-cryptocurrency-to-invest-now-according-to-reddit-bitcoin-ethereum-furrever-token) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/top-3-cryptocurrency-to-invest-now-according-to-reddit-bitcoin-ethereum-furrever-token)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1coqdpq/furrever_token_announces_20000_giveaway_amid/

@@ -18,6 +18,9 @@ McEwen Mining (NYSE: MUX) (TSX: MUX) has been a standout performer in the basic 
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-stands-out-as-key-player-in-basic-materials-space/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-stands-out-as-key-player-in-basic-materials-space/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2pw32/mcewen_mining_nyse_mux_demonstrates_impressive/

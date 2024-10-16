@@ -62,6 +62,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/4-standout-precious-metals-mining-stocks-101347536 
 
-[Original/Source Press Release](https://newsdirect.com/news/4-standout-precious-metals-mining-stocks-101347536) 
+[Original/Source Press Release](https://newsdirect.com/news/4-standout-precious-metals-mining-stocks-101347536)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1e4kzfu/investor_interest_in_mining_stocks_rises_amid/

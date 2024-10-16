@@ -37,6 +37,9 @@ Company Websitehttps://camilkbank.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/mothers-milk-bank-california-launches-cares-program-and-marks-50-years-of-service-959591928 
 
-[Original/Source Press Release](https://newsdirect.com/news/mothers-milk-bank-california-launches-cares-program-and-marks-50-years-of-service-959591928) 
+[Original/Source Press Release](https://newsdirect.com/news/mothers-milk-bank-california-launches-cares-program-and-marks-50-years-of-service-959591928)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1ehj7oj/mothers_milk_bank_california_marks_50_years_of/

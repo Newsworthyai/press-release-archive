@@ -18,6 +18,9 @@ Shaping the Future of Web3 GamingWith its focus on community building and empowe
 
 About MixMarvelMixMarvel is building the world’s leading blockchain content incubation platform and creators community. Pivoting on investment, incubation, and publication, MixMarvel connects Metaverse entrepreneurs, investors, and mass users through industry investment, gaming incubation, asset distribution, infrastructure development, and other diversified scenarios in a new ecosystem of dapps. MixMarvel’s broad ecosystem comprises gaming IPs like DeHero and MetaCene, tech solutions like MixMarvel SDK and Rangers Protocol, investment organizations like MixMarvel DAO Venture, and other network resources for high-quality Web2 and Web3 native gaming projects.For more information, visit[https://linktr.ee/MIXMARVEL](https://linktr.ee/MIXMARVEL).About Yeeha GamesEstablished in 2021 with an impressive $50 million in funding, Yeeha Games stands as a pioneering platform at the forefront of interactive entertainment's new era. Yeeha offers a diverse array of games catering to audiences of all kinds, while also fostering creativity and innovation through user-friendly tools. Within the dynamic gaming ecosystem, users are encouraged to engage in captivating Yeeha Quests and gain comprehensive game insights. Boasting over 300 onboarded games and collaborations with 50+ projects worldwide, Yeeha has garnered a global user base exceeding 200,000 registered users. Additionally, Yeeha has recently introduced its Web3 all-in-one AI Gaming Explorer strategy, which includes the debut of AI KOL DANA (Deep-learning Algorithmic Navigation Agent) to the public. Furthermore, ExplorerGPT and AI-powered spin-off games are set to be released soon, further enriching the Yeeha experience. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/web3-gaming-powerhouse-emerges-mixmarvel-and-yeeha-forge-galaxy-girl-interactive) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/web3-gaming-powerhouse-emerges-mixmarvel-and-yeeha-forge-galaxy-girl-interactive)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1chp0gq/mixmarvel_and_yeeha_games_launch_galaxy_girl/

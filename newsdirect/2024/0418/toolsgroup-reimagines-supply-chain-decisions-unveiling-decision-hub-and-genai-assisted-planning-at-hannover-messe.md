@@ -32,6 +32,9 @@ Company Websitehttps://www.toolsgroup.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/toolsgroup-reimagines-supply-chain-decisions-unveiling-decision-hub-and-genai-assisted-planning-at-hannover-messe-423412270 
 
-[Original/Source Press Release](https://newsdirect.com/news/toolsgroup-reimagines-supply-chain-decisions-unveiling-decision-hub-and-genai-assisted-planning-at-hannover-messe-423412270) 
+[Original/Source Press Release](https://newsdirect.com/news/toolsgroup-reimagines-supply-chain-decisions-unveiling-decision-hub-and-genai-assisted-planning-at-hannover-messe-423412270)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1c71ua0/toolsgroup_to_unveil_decision_hub_and_genai_at/

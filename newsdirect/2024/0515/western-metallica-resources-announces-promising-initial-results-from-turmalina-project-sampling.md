@@ -20,6 +20,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/western-metallica-resources-announces-promising-initial-results-from-turmalina-project-sampling-447265421 
 
-[Original/Source Press Release](https://newsdirect.com/news/western-metallica-resources-announces-promising-initial-results-from-turmalina-project-sampling-447265421) 
+[Original/Source Press Release](https://newsdirect.com/news/western-metallica-resources-announces-promising-initial-results-from-turmalina-project-sampling-447265421)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cstv9l/western_metallica_resources_announces_promising/

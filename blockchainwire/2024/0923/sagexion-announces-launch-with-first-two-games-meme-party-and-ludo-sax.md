@@ -48,6 +48,9 @@ Those who want more detailed information on Sagexion, its token, and its games s
 
 X (Twitter) | Telegram | Discord 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/sagexion-announces-launch-with-first-two-games-meme-party-and-ludo-sax) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/sagexion-announces-launch-with-first-two-games-meme-party-and-ludo-sax)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1g3kr1n/discovering_two_new_playtoearn_p2e_games_with/

@@ -6,6 +6,9 @@ Founded by seasoned investor Jasper Wu, Tide Capital is an investment institutio
 
 Wealthink AI-Innovation Capital Limited stated in the announcement that the investment in Tide Capital's hedge fund is aimed at enabling deeper involvement in the digital asset and cryptocurrency markets. Leveraging Tide Capital's expertise, it seeks to capture investment opportunities in the digital asset and cryptocurrency sectors. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/tide-capitals-hedge-fund-acquires-strategic-investment-from-hong-kong-listed-company-wealthink-ai-innovation-capital-limited) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/tide-capitals-hedge-fund-acquires-strategic-investment-from-hong-kong-listed-company-wealthink-ai-innovation-capital-limited)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cs9x0y/wealthink_aiinnovation_capital_announces/

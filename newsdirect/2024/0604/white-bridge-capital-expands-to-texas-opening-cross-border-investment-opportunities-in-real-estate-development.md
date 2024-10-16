@@ -43,6 +43,9 @@ Company Websitehttps://www.whitebridge.capital/
 
 View source version on newsdirect.com: https://newsdirect.com/news/white-bridge-capital-expands-to-texas-opening-cross-border-investment-opportunities-in-real-estate-development-723201911 
 
-[Original/Source Press Release](https://newsdirect.com/news/white-bridge-capital-expands-to-texas-opening-cross-border-investment-opportunities-in-real-estate-development-723201911) 
+[Original/Source Press Release](https://newsdirect.com/news/white-bridge-capital-expands-to-texas-opening-cross-border-investment-opportunities-in-real-estate-development-723201911)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1d7xggf/white_bridge_capital_expands_to_texas_opening/

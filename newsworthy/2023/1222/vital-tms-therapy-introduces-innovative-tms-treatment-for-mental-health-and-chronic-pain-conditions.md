@@ -10,6 +10,9 @@ In addition to its effectiveness for treatment-resistant depression, TMS therapy
 
 With the aid of CloudTMS technology, an advanced system that securely stores practice data in the cloud, Vital TMS Therapy can maximize the benefits of TMS treatment and provide personalized care to its patients. On average, most patients require approximately five TMS treatment sessions to achieve optimal results. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231222938/vital-tms-therapy-introduces-innovative-tms-treatment-for-mental-health-and-chronic-pain-conditions) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231222938/vital-tms-therapy-introduces-innovative-tms-treatment-for-mental-health-and-chronic-pain-conditions)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcvsj/vital_tms_therapy_introduces_innovative_tms/

@@ -62,6 +62,9 @@ Daniel.Noonan@Tradeweb.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sec-treasury-clearing-mandate-what-market-participants-need-to-know-181558436 
 
-[Original/Source Press Release](https://newsdirect.com/news/sec-treasury-clearing-mandate-what-market-participants-need-to-know-181558436) 
+[Original/Source Press Release](https://newsdirect.com/news/sec-treasury-clearing-mandate-what-market-participants-need-to-know-181558436)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bo7b6r/sec_adopts_new_rules_for_us_treasury_market/

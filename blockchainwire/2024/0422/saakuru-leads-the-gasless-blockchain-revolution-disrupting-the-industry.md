@@ -33,6 +33,9 @@ Saakuru will soon launch its much-anticipated SKR token, so follow the projectâ€
 
 You can learn more about Saakuru at these links:[X (Twitter)](https://twitter.com/saakuru_labs) |[Telegram](https://t.me/aagventures) |[LinkedIn](https://www.linkedin.com/company/saakurulabs/) |[Medium](https://medium.com/@saakuru) |[YouTube](https://www.youtube.com/@saakuru_labs) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/saakuru-leads-the-gasless-blockchain-revolution-disrupting-the-industry) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/saakuru-leads-the-gasless-blockchain-revolution-disrupting-the-industry)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ca9xds/saakuru_milestones_gasless_blockchain_revolution/

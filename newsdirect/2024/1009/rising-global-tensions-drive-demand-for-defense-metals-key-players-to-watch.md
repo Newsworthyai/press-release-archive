@@ -84,6 +84,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/rising-global-tensions-drive-demand-for-defense-metals-key-players-to-watch-898630912 
 
-[Original/Source Press Release](https://newsdirect.com/news/rising-global-tensions-drive-demand-for-defense-metals-key-players-to-watch-898630912) 
+[Original/Source Press Release](https://newsdirect.com/news/rising-global-tensions-drive-demand-for-defense-metals-key-players-to-watch-898630912)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fzo5r7/rising_global_tensions_drive_demand_for_defense/

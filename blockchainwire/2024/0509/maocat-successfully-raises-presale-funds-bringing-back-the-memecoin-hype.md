@@ -37,6 +37,9 @@ X (Twitter) | Telegram | Instagram | YouTube
 
 Disclaimer: This is a press release and does not contain any financial advice. Readers should do their own research before taking any actions related to the company mentioned. You are solely responsible, directly or indirectly, for any damage or loss caused or alleged to be caused by or in connection with the use of or reliance on any content, goods, or services mentioned in the press release. Cryptocurrency is volatile. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/maocat-successfully-raises-presale-funds-bringing-back-the-memecoin-hype) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/maocat-successfully-raises-presale-funds-bringing-back-the-memecoin-hype)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cnr8dh/maocat_successfully_raises_over_300000_in_presale/

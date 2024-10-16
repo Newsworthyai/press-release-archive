@@ -184,6 +184,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-beachbody-company-nyse-bodi-reports-achieving-positive-turnaround-in-revenue-ebitda-and-cash-flow-in-q1-2024-631979198 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-beachbody-company-nyse-bodi-reports-achieving-positive-turnaround-in-revenue-ebitda-and-cash-flow-in-q1-2024-631979198) 
+[Original/Source Press Release](https://newsdirect.com/news/the-beachbody-company-nyse-bodi-reports-achieving-positive-turnaround-in-revenue-ebitda-and-cash-flow-in-q1-2024-631979198)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1d7lyls/the_beachbody_company_reports_positive_turnaround/

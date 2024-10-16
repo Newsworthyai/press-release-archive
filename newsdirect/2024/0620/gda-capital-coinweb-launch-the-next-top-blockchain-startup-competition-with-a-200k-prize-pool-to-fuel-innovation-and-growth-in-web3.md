@@ -41,6 +41,9 @@ Contact DetailsBryan Feinberg
 
 View source version on newsdirect.com: https://newsdirect.com/news/gda-capital-and-coinweb-launch-the-next-top-blockchain-startup-competition-with-a-200k-prize-pool-to-fuel-innovation-and-growth-in-web3-910580133 
 
-[Original/Source Press Release](https://newsdirect.com/news/gda-capital-and-coinweb-launch-the-next-top-blockchain-startup-competition-with-a-200k-prize-pool-to-fuel-innovation-and-growth-in-web3-910580133) 
+[Original/Source Press Release](https://newsdirect.com/news/gda-capital-and-coinweb-launch-the-next-top-blockchain-startup-competition-with-a-200k-prize-pool-to-fuel-innovation-and-growth-in-web3-910580133)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1dki8yg/gda_capital_and_coinweb_launch_200k_blockchain/

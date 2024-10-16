@@ -32,6 +32,9 @@ Company Websitehttp://www.newsdirect.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/news-direct-unveils-tradeup-powered-by-instinct-688750866 
 
-[Original/Source Press Release](https://newsdirect.com/news/news-direct-unveils-tradeup-powered-by-instinct-688750866) 
+[Original/Source Press Release](https://newsdirect.com/news/news-direct-unveils-tradeup-powered-by-instinct-688750866)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1es0zj0/news_direct_launches_tradeup_powered_by_instinct/

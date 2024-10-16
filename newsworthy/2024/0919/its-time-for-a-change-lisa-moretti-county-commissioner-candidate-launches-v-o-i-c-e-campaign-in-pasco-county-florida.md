@@ -44,6 +44,9 @@ Lisa Moretti’s own platform complements the V.O.I.C.E. initiative to build a b
 
 For more information on Lisa Moretti’s campaign, visit www.votelisamoretti.com or follow her on YouTube. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409191269/its-time-for-a-change-lisa-moretti-county-commissioner-candidate-launches-v-o-i-c-e-campaign-in-pasco-county-florida) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409191269/its-time-for-a-change-lisa-moretti-county-commissioner-candidate-launches-v-o-i-c-e-campaign-in-pasco-county-florida)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1fki9rj/lisa_moretti_endorses_voice_initiative_for_new/

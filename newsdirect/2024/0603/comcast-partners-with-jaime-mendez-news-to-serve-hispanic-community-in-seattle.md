@@ -30,6 +30,9 @@ Company Websitehttps://washington.comcast.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/comcast-partners-with-jaime-mendez-news-to-serve-hispanic-community-in-seattle-806154045 
 
-[Original/Source Press Release](https://newsdirect.com/news/comcast-partners-with-jaime-mendez-news-to-serve-hispanic-community-in-seattle-806154045) 
+[Original/Source Press Release](https://newsdirect.com/news/comcast-partners-with-jaime-mendez-news-to-serve-hispanic-community-in-seattle-806154045)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d7lo6t/comcast_partners_with_jaime_mendez_news_to_serve/

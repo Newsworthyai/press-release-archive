@@ -46,6 +46,9 @@ Company Websitehttps://verity.net/
 
 View source version on newsdirect.com: https://newsdirect.com/news/collaboration-between-on-and-verity-two-pioneering-swiss-brands-to-transform-supply-chain-operations-with-ai-and-robotics-241375800 
 
-[Original/Source Press Release](https://newsdirect.com/news/collaboration-between-on-and-verity-two-pioneering-swiss-brands-to-transform-supply-chain-operations-with-ai-and-robotics-241375800) 
+[Original/Source Press Release](https://newsdirect.com/news/collaboration-between-on-and-verity-two-pioneering-swiss-brands-to-transform-supply-chain-operations-with-ai-and-robotics-241375800)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dexk4h/on_and_verity_partner_to_revolutionize_supply/

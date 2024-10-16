@@ -44,6 +44,9 @@ Fb: https://www.facebook.com/profile.php?id=61560061893972
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/technium-integrates-ai-and-blockchain-to-optimize-global-computing-power-demand) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/technium-integrates-ai-and-blockchain-to-optimize-global-computing-power-demand)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1de82hk/technium_integrates_ai_and_blockchain_to/

@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lithium-energy-agrees-to-spin-out-new-graphite-company-with-novonix-706014513 
 
-[Original/Source Press Release](https://newsdirect.com/news/lithium-energy-agrees-to-spin-out-new-graphite-company-with-novonix-706014513) 
+[Original/Source Press Release](https://newsdirect.com/news/lithium-energy-agrees-to-spin-out-new-graphite-company-with-novonix-706014513)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1bwkkq5/lithium_energy_forms_axon_graphite_ltd_in/

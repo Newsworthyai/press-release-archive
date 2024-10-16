@@ -26,6 +26,9 @@ Company Websitehttps://www.lanadigital.mx
 
 View source version on newsdirect.com: https://newsdirect.com/news/lana-digital-innovatively-launches-revolving-line-of-credit-enhancing-financial-inclusion-562174863 
 
-[Original/Source Press Release](https://newsdirect.com/news/lana-digital-innovatively-launches-revolving-line-of-credit-enhancing-financial-inclusion-562174863) 
+[Original/Source Press Release](https://newsdirect.com/news/lana-digital-innovatively-launches-revolving-line-of-credit-enhancing-financial-inclusion-562174863)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1ewvusr/lana_digital_launches_innovative_revolving_line/

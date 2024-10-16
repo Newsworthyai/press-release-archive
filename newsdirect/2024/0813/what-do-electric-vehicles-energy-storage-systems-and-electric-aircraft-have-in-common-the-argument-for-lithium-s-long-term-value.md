@@ -52,6 +52,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/what-do-electric-vehicles-energy-storage-systems-and-electric-aircraft-have-in-common-the-argument-for-lithiums-long-term-value-496730849 
 
-[Original/Source Press Release](https://newsdirect.com/news/what-do-electric-vehicles-energy-storage-systems-and-electric-aircraft-have-in-common-the-argument-for-lithiums-long-term-value-496730849) 
+[Original/Source Press Release](https://newsdirect.com/news/what-do-electric-vehicles-energy-storage-systems-and-electric-aircraft-have-in-common-the-argument-for-lithiums-long-term-value-496730849)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1er6udq/the_growing_demand_for_lithium_a_strategic/

@@ -41,6 +41,9 @@ Company Websitehttps://www.sapphiretechnologies.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/sapphire-technologies-and-tb-global-technologies-ltd-achieve-first-of-its-kind-industry-milestone-to-accelerate-energy-innovation-in-japan-753608169 
 
-[Original/Source Press Release](https://newsdirect.com/news/sapphire-technologies-and-tb-global-technologies-ltd-achieve-first-of-its-kind-industry-milestone-to-accelerate-energy-innovation-in-japan-753608169) 
+[Original/Source Press Release](https://newsdirect.com/news/sapphire-technologies-and-tb-global-technologies-ltd-achieve-first-of-its-kind-industry-milestone-to-accelerate-energy-innovation-in-japan-753608169)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dpqx48/sapphire_technologies_achieves_milestone_in/

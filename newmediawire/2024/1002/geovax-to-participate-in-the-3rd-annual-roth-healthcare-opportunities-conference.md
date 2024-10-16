@@ -40,6 +40,9 @@ October 9, 2024, 12:30 pm ET
 
    202-779-0929 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/geovax-to-participate-in-the-3rd-annual-roth-healthcare-opportunities-conference-7076141) 
+[Original/Source Press Release](https://www.newmediawire.com/news/geovax-to-participate-in-the-3rd-annual-roth-healthcare-opportunities-conference-7076141)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1fx6hmj/geovax_ceo_to_discuss_innovative_cancer_therapies/

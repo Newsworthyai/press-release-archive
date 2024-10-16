@@ -26,6 +26,9 @@ Company Websitehttps://www.notable.live/
 
 View source version on newsdirect.com: https://newsdirect.com/news/notable-live-announces-partnership-with-nfl-and-tennessee-titans-great-chris-cj2k-johnson-215902208 
 
-[Original/Source Press Release](https://newsdirect.com/news/notable-live-announces-partnership-with-nfl-and-tennessee-titans-great-chris-cj2k-johnson-215902208) 
+[Original/Source Press Release](https://newsdirect.com/news/notable-live-announces-partnership-with-nfl-and-tennessee-titans-great-chris-cj2k-johnson-215902208)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1es180v/former_nfl_star_chris_cj2k_johnson_joins_notable/

@@ -52,6 +52,9 @@ Company Websitehttps://amerilife.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/leadstar-and-rssa-announce-partnership-to-optimize-agent-access-for-social-security-education-platform-974924403 
 
-[Original/Source Press Release](https://newsdirect.com/news/leadstar-and-rssa-announce-partnership-to-optimize-agent-access-for-social-security-education-platform-974924403) 
+[Original/Source Press Release](https://newsdirect.com/news/leadstar-and-rssa-announce-partnership-to-optimize-agent-access-for-social-security-education-platform-974924403)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2jfr3/leadstar_and_rssa_announce_partnership_to_enhance/

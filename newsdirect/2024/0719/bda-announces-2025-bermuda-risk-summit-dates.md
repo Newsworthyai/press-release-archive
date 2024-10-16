@@ -44,6 +44,9 @@ Company Websitehttps://bda.bm
 
 View source version on newsdirect.com: https://newsdirect.com/news/bda-announces-2025-bermuda-risk-summit-dates-275686158 
 
-[Original/Source Press Release](https://newsdirect.com/news/bda-announces-2025-bermuda-risk-summit-dates-275686158) 
+[Original/Source Press Release](https://newsdirect.com/news/bda-announces-2025-bermuda-risk-summit-dates-275686158)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e7agv1/bermuda_risk_summit_2025_a_premier_event_for/

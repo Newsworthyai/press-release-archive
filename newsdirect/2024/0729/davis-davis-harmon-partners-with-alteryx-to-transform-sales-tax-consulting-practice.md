@@ -42,6 +42,9 @@ Company Websitehttp://www.ddhtax.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/davis-davis-and-harmon-partners-with-alteryx-to-transform-sales-tax-consulting-practice-956810180 
 
-[Original/Source Press Release](https://newsdirect.com/news/davis-davis-and-harmon-partners-with-alteryx-to-transform-sales-tax-consulting-practice-956810180) 
+[Original/Source Press Release](https://newsdirect.com/news/davis-davis-and-harmon-partners-with-alteryx-to-transform-sales-tax-consulting-practice-956810180)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eez4pp/davis_davis_harmon_partners_with_alteryx_to/

@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-does-pasofino-golds-dugbe-gold-project-shape-up-against-competitors-371335305 
 
-[Original/Source Press Release](https://newsdirect.com/news/how-does-pasofino-golds-dugbe-gold-project-shape-up-against-competitors-371335305) 
+[Original/Source Press Release](https://newsdirect.com/news/how-does-pasofino-golds-dugbe-gold-project-shape-up-against-competitors-371335305)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dqj31u/west_africas_gold_frontier_opportunities_for/

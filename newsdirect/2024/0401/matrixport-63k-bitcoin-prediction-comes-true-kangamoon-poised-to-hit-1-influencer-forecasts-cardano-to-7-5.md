@@ -46,6 +46,9 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/matrixport-63k-bitcoin-prediction-comes-true-kangamoon-poised-to-hit-1-influencer-forecasts-cardano-to-7-5-422209123 
 
-[Original/Source Press Release](https://newsdirect.com/news/matrixport-63k-bitcoin-prediction-comes-true-kangamoon-poised-to-hit-1-influencer-forecasts-cardano-to-7-5-422209123) 
+[Original/Source Press Release](https://newsdirect.com/news/matrixport-63k-bitcoin-prediction-comes-true-kangamoon-poised-to-hit-1-influencer-forecasts-cardano-to-7-5-422209123)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bt86t5/bitcoin_btc_surpassed_63k_as_predicted_kangamoon/

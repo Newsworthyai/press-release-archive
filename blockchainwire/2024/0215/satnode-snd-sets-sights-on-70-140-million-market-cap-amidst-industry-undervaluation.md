@@ -38,6 +38,9 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/satnode-snd-sets-sights-on-70-140-million-market-cap-amidst-industry-undervaluation) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/satnode-snd-sets-sights-on-70-140-million-market-cap-amidst-industry-undervaluation)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1avwz4h/satnode_snd_announces_ambitious_market_cap_target/

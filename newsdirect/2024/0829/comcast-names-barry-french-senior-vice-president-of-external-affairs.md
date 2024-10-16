@@ -28,6 +28,9 @@ Company Websitehttps://colorado.comcast.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/comcast-names-barry-french-senior-vice-president-of-external-affairs-625345606 
 
-[Original/Source Press Release](https://newsdirect.com/news/comcast-names-barry-french-senior-vice-president-of-external-affairs-625345606) 
+[Original/Source Press Release](https://newsdirect.com/news/comcast-names-barry-french-senior-vice-president-of-external-affairs-625345606)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Leadership_Management/comments/1f4oopo/comcast_names_barry_french_as_senior_vice/

@@ -46,6 +46,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/2023-saw-28-billion-dollar-disasters-hit-america-apis-cor-believes-its-3d-printed-houses-can-help-and-its-currently-raising-funds-621922997 
 
-[Original/Source Press Release](https://newsdirect.com/news/2023-saw-28-billion-dollar-disasters-hit-america-apis-cor-believes-its-3d-printed-houses-can-help-and-its-currently-raising-funds-621922997) 
+[Original/Source Press Release](https://newsdirect.com/news/2023-saw-28-billion-dollar-disasters-hit-america-apis-cor-believes-its-3d-printed-houses-can-help-and-its-currently-raising-funds-621922997)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1es0kf3/28_billiondollar_disasters_in_2023_how_apis_cors/

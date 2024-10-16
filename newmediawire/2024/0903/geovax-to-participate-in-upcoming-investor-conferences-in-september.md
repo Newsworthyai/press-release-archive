@@ -14,6 +14,9 @@ Emerging Growth ConferenceSpeaker:   David Dodd, Chairman & CEODate/Time:   Se
 
  Company Contact:   Investor Relations Contact:   Media Contact:[info@geovax.com](mailto:info@geovax.com)   austin.murtagh@precisionaq.com   [sr@roberts-communications.com](mailto:sr@roberts-communications.com)678-384-7220   212-698-8696   202-779-0929 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/geovax-to-participate-in-upcoming-investor-conferences-in-september-7075992) 
+[Original/Source Press Release](https://www.newmediawire.com/news/geovax-to-participate-in-upcoming-investor-conferences-in-september-7075992)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1f80jvi/geovax_labs_ceo_to_present_at_investor_events/

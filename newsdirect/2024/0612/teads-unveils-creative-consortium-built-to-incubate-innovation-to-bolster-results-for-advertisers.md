@@ -39,6 +39,9 @@ Company Websitehttps://www.teads.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/teads-unveils-creative-consortium-built-to-incubate-innovation-to-bolster-results-for-advertisers-372253137 
 
-[Original/Source Press Release](https://newsdirect.com/news/teads-unveils-creative-consortium-built-to-incubate-innovation-to-bolster-results-for-advertisers-372253137) 
+[Original/Source Press Release](https://newsdirect.com/news/teads-unveils-creative-consortium-built-to-incubate-innovation-to-bolster-results-for-advertisers-372253137)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1deagbj/teads_unveils_creative_consortium_to_boost/

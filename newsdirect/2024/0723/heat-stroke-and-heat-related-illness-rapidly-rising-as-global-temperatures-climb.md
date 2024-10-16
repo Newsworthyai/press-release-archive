@@ -36,6 +36,9 @@ Company Websitehttps://www.neuroskills.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/heat-stroke-and-heat-related-illness-rapidly-rising-as-global-temperatures-climb-916614276 
 
-[Original/Source Press Release](https://newsdirect.com/news/heat-stroke-and-heat-related-illness-rapidly-rising-as-global-temperatures-climb-916614276) 
+[Original/Source Press Release](https://newsdirect.com/news/heat-stroke-and-heat-related-illness-rapidly-rising-as-global-temperatures-climb-916614276)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1eaahsm/rising_global_temperatures_lead_to_increase_in/

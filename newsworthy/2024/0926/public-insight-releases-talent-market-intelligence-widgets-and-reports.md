@@ -20,6 +20,9 @@ About Public Insight
 
 Public Insight develops market intelligence solutions that transform talent, labor, employer, and higher ed market data into insights that inform strategies and increase business development. Our flexible TalentView market intelligence delivery methods include widgets, reports, interactive dashboards, and data licensing and integration (via API). Visit https://publicinsight.io/ 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409261284/public-insight-releases-talent-market-intelligence-widgets-and-reports) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409261284/public-insight-releases-talent-market-intelligence-widgets-and-reports)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fptlia/public_insight_releases_new_talentview_widgets/

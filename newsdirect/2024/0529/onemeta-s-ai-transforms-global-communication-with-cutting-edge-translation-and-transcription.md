@@ -46,6 +46,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/onemetas-ai-transforms-global-communication-with-cutting-edge-translation-and-transcription-155294585 
 
-[Original/Source Press Release](https://newsdirect.com/news/onemetas-ai-transforms-global-communication-with-cutting-edge-translation-and-transcription-155294585) 
+[Original/Source Press Release](https://newsdirect.com/news/onemetas-ai-transforms-global-communication-with-cutting-edge-translation-and-transcription-155294585)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1d3mayi/onemetas_aipowered_translation_and_transcription/

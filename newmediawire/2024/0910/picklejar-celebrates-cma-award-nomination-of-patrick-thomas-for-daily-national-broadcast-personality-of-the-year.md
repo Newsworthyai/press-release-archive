@@ -34,6 +34,9 @@ Anna Benson
 
 anna@picklejar.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/picklejar-celebrates-cma-award-nomination-of-patrick-thomas-for-daily-national-broadcast-personality-of-the-year-7076032) 
+[Original/Source Press Release](https://www.newmediawire.com/news/picklejar-celebrates-cma-award-nomination-of-patrick-thomas-for-daily-national-broadcast-personality-of-the-year-7076032)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1fdvp6y/patrick_thomas_nominated_for_58th_cma_awards/

@@ -22,6 +22,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fendx-technologies-innovates-surface-protection-with-nanotechnology-326962839 
 
-[Original/Source Press Release](https://newsdirect.com/news/fendx-technologies-innovates-surface-protection-with-nanotechnology-326962839) 
+[Original/Source Press Release](https://newsdirect.com/news/fendx-technologies-innovates-surface-protection-with-nanotechnology-326962839)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1byvz0o/fendx_technologies_innovates_surface_protection/

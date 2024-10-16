@@ -39,6 +39,9 @@ Company Websitehttps://playactivate.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-fastest-growing-entertainment-concept-in-the-world-opens-today-in-roseville-minnesota-490503268 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-fastest-growing-entertainment-concept-in-the-world-opens-today-in-roseville-minnesota-490503268) 
+[Original/Source Press Release](https://newsdirect.com/news/the-fastest-growing-entertainment-concept-in-the-world-opens-today-in-roseville-minnesota-490503268)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1eb1f9m/activate_opens_worlds_first_active_gaming/

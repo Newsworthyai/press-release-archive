@@ -17,6 +17,9 @@ The IV Hydration & Vitamin Infusion Therapy options available include:
 
 About [RestoratIV Wellness & Infusion Center](https://restorativwellness.com/)At RestoratIV Wellness & Infusion Center, our clinicians are keenly aware of the frustration experienced by patients dealing with chronic pain, treatment-resistant depression, postpartum depression, bipolar disorders, and PTSD. By using ketamine to effectively address these difficult-to-treat conditions, RestoratIV Wellness provides innovative treatments to those who wish to avoid opioid-based treatment strategies, or who are struggling because other treatment options have failed. We always seek to reduce the number of medications our patients are burdened with on a daily basis. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231230967/iv-hydration-vitamin-infusion-therapy-experience-the-power-of-essential-nutrients) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231230967/iv-hydration-vitamin-infusion-therapy-experience-the-power-of-essential-nutrients)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avdojj/cuttingedge_iv_hydration_vitamin_infusion_therapy/

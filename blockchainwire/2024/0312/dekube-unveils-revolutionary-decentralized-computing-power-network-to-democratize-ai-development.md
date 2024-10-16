@@ -26,6 +26,9 @@ Dekube's platform marks a significant step towards an inclusive, efficient, and 
 
 For more information about Dekube and its revolutionary platform, visit its official website (DEKUBE.AI). 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/dekube-unveils-revolutionary-decentralized-computing-power-network-to-democratize-ai-development) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/dekube-unveils-revolutionary-decentralized-computing-power-network-to-democratize-ai-development)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bd2xux/dekube_launches_decentralized_computing_power/

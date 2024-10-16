@@ -60,6 +60,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/growth-of-combat-sports-presents-a-compelling-opportunity-for-investors-883252442 
 
-[Original/Source Press Release](https://newsdirect.com/news/growth-of-combat-sports-presents-a-compelling-opportunity-for-investors-883252442) 
+[Original/Source Press Release](https://newsdirect.com/news/growth-of-combat-sports-presents-a-compelling-opportunity-for-investors-883252442)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1ct9jwl/combat_sports_market_booming_investors_eye_alta/

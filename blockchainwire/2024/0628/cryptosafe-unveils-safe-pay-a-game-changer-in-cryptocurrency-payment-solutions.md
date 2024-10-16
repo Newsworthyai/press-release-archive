@@ -44,6 +44,9 @@ contact-us@cryptosafe.ai
 
 SafePaycontact-us@safe-pay.ai 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/cryptosafe-unveils-safe-pay-a-game-changer-in-cryptocurrency-payment-solutions) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/cryptosafe-unveils-safe-pay-a-game-changer-in-cryptocurrency-payment-solutions)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dqh6kw/cryptosafe_ltd_launches_safe_pay_revolutionizing/

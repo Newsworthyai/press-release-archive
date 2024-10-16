@@ -176,6 +176,9 @@ info@bdgcommunications.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/taglich-brothers-maintains-speculative-buy-rating-on-cosmos-health-with-4-price-target-highlighting-potential-valuation-upside-184464465 
 
-[Original/Source Press Release](https://newsdirect.com/news/taglich-brothers-maintains-speculative-buy-rating-on-cosmos-health-with-4-price-target-highlighting-potential-valuation-upside-184464465) 
+[Original/Source Press Release](https://newsdirect.com/news/taglich-brothers-maintains-speculative-buy-rating-on-cosmos-health-with-4-price-target-highlighting-potential-valuation-upside-184464465)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fog9kn/cosmos_health_expects_revenue_growth_and/

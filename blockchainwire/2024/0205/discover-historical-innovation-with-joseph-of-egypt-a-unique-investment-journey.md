@@ -38,6 +38,9 @@ This press release is an invitation to explore the intersection between the past
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/discover-historical-innovation-with-joseph-of-egypt-a-unique-investment-journey) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/discover-historical-innovation-with-joseph-of-egypt-a-unique-investment-journey)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjxo3/joseph_of_egypt_joe_reviving_history_through/

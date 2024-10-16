@@ -26,6 +26,9 @@ Codego Group is present in 12 countries with physical offices and related licens
 
 You can learn more about Codego at these links: Website | Twitter | Instagram | LinkedIn 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/codego-group-launches-codegopay---an-all-in-one-payment-app-with-ibans-cards-and-crypto-euro-conversions) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/codego-group-launches-codegopay---an-all-in-one-payment-app-with-ibans-cards-and-crypto-euro-conversions)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1avdq7o/codego_group_launches_innovative_payment_solution/

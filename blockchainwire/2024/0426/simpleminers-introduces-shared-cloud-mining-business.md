@@ -34,6 +34,9 @@ Social Contact X: https://twitter.com/SimpleMinerpro
 
 Facebook: https://web.facebook.com/profile.php?id=61555498297303 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/simpleminers-introduces-shared-cloud-mining-business) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/simpleminers-introduces-shared-cloud-mining-business)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cdmehn/simpleminers_introduces_shared_cloud_mining/

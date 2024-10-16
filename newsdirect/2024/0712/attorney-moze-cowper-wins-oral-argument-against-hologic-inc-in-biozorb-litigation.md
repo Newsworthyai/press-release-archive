@@ -18,6 +18,9 @@ Company Websitehttps://cowperlaw.com/moze-cowper/
 
 View source version on newsdirect.com: https://newsdirect.com/news/attorney-moze-cowper-wins-oral-argument-against-hologic-inc-in-biozorb-litigation-133478728 
 
-[Original/Source Press Release](https://newsdirect.com/news/attorney-moze-cowper-wins-oral-argument-against-hologic-inc-in-biozorb-litigation-133478728) 
+[Original/Source Press Release](https://newsdirect.com/news/attorney-moze-cowper-wins-oral-argument-against-hologic-inc-in-biozorb-litigation-133478728)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1eaan68/cowper_law_successfully_defeats_motion_for/

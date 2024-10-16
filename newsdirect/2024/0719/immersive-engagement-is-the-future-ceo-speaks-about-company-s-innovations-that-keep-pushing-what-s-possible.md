@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/immersive-engagement-is-the-future-ceo-speaks-about-companys-innovations-that-keep-pushing-whats-possible-952626146 
 
-[Original/Source Press Release](https://newsdirect.com/news/immersive-engagement-is-the-future-ceo-speaks-about-companys-innovations-that-keep-pushing-whats-possible-952626146) 
+[Original/Source Press Release](https://newsdirect.com/news/immersive-engagement-is-the-future-ceo-speaks-about-companys-innovations-that-keep-pushing-whats-possible-952626146)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e73hdk/super_league_ceo_discusses_innovations_in/

@@ -22,6 +22,9 @@ Among the most productive and respected HR research institutes globally, the HRR
 
 Become a part of HR.com’s HR Research Influencer panel today. Participate in surveys, share your insights, and earn rewards. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202405141167/strategy-is-lacking-in-the-payroll-function-for-many-organizations-new-study-by-hr-coms-hr-research-institute) 
+[Original/Source Press Release](https://newsworthy.ai/news/202405141167/strategy-is-lacking-in-the-payroll-function-for-many-organizations-new-study-by-hr-coms-hr-research-institute)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Leadership_Management/comments/1crqnx6/new_research_report_reveals_challenges_and/

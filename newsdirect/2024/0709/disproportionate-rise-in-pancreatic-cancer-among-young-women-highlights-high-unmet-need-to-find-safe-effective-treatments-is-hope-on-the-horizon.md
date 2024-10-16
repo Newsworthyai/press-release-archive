@@ -58,6 +58,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/disproportionate-rise-in-pancreatic-cancer-among-young-women-highlights-high-unmet-need-to-find-safe-effective-treatments-is-hope-on-the-horizon-533142563 
 
-[Original/Source Press Release](https://newsdirect.com/news/disproportionate-rise-in-pancreatic-cancer-among-young-women-highlights-high-unmet-need-to-find-safe-effective-treatments-is-hope-on-the-horizon-533142563) 
+[Original/Source Press Release](https://newsdirect.com/news/disproportionate-rise-in-pancreatic-cancer-among-young-women-highlights-high-unmet-need-to-find-safe-effective-treatments-is-hope-on-the-horizon-533142563)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1dz1ta2/innovative_trial_offers_hope_for_pancreatic/

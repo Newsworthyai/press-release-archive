@@ -46,6 +46,9 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/how-inventory-is-handled-in-a-transaction-535207133 
 
-[Original/Source Press Release](https://newsdirect.com/news/how-inventory-is-handled-in-a-transaction-535207133) 
+[Original/Source Press Release](https://newsdirect.com/news/how-inventory-is-handled-in-a-transaction-535207133)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Leadership_Management/comments/1eih8w4/critical_considerations_for_handling_inventory_in/

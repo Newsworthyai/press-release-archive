@@ -48,6 +48,9 @@ Token sale: https://app.crypticorn.com/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/use-crypticorns-ai-crypto-price-predictions-and-bots-to-maximize-profits) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/use-crypticorns-ai-crypto-price-predictions-and-bots-to-maximize-profits)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bdrdxv/crypticorn_introduces_aipowered_ecosystem_for/

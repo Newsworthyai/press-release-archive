@@ -49,6 +49,9 @@ Company Websitehttps://www.clarionpartners.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cprex-enters-orlando-market-with-acquisition-of-fully-leased-industrial-property-146505197 
 
-[Original/Source Press Release](https://newsdirect.com/news/cprex-enters-orlando-market-with-acquisition-of-fully-leased-industrial-property-146505197) 
+[Original/Source Press Release](https://newsdirect.com/news/cprex-enters-orlando-market-with-acquisition-of-fully-leased-industrial-property-146505197)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ex29tz/cprex_acquires_fully_leased_industrial_property/

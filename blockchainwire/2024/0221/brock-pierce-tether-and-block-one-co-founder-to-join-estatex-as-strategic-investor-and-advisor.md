@@ -60,6 +60,9 @@ Brock Pierce Instagram: https://www.instagram.com/brockjpierce/?hl=en
 
 Video of Brock Pierce talking about his work with EstateX is [here](https://docsend.com/view/26ukeznwrbtm89t7). 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/brock-pierce-tether-and-blockone-co-founder-to-join-estatex-as-strategic-investor-and-advisor) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/brock-pierce-tether-and-blockone-co-founder-to-join-estatex-as-strategic-investor-and-advisor)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1ay4q9w/renowned_entrepreneur_brock_pierce_joins_forces/

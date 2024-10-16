@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/magnetite-mines-builds-green-iron-ore-vision-in-pivotal-march-quarter-624486861 
 
-[Original/Source Press Release](https://newsdirect.com/news/magnetite-mines-builds-green-iron-ore-vision-in-pivotal-march-quarter-624486861) 
+[Original/Source Press Release](https://newsdirect.com/news/magnetite-mines-builds-green-iron-ore-vision-in-pivotal-march-quarter-624486861)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cguma4/magnetite_mines_advances_green_iron_ore_vision_in/

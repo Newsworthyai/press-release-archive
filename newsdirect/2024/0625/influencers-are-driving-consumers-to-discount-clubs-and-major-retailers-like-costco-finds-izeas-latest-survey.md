@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/influencers-are-driving-consumers-to-discount-clubs-and-major-retailers-like-costco-finds-izeas-latest-survey-258045693 
 
-[Original/Source Press Release](https://newsdirect.com/news/influencers-are-driving-consumers-to-discount-clubs-and-major-retailers-like-costco-finds-izeas-latest-survey-258045693) 
+[Original/Source Press Release](https://newsdirect.com/news/influencers-are-driving-consumers-to-discount-clubs-and-major-retailers-like-costco-finds-izeas-latest-survey-258045693)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1do5bu7/influencers_driving_consumers_to_discount_clubs/

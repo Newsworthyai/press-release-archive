@@ -24,6 +24,9 @@ Company Websitehttps://unos.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/unos-applauds-house-action-to-prohibit-discrimination-in-organ-transplants-276767569 
 
-[Original/Source Press Release](https://newsdirect.com/news/unos-applauds-house-action-to-prohibit-discrimination-in-organ-transplants-276767569) 
+[Original/Source Press Release](https://newsdirect.com/news/unos-applauds-house-action-to-prohibit-discrimination-in-organ-transplants-276767569)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1foo72r/unos_applauds_house_action_to_prohibit/

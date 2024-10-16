@@ -95,6 +95,9 @@ gazmend.mici@dyp.finance
 
 View source version on newsdirect.com: https://newsdirect.com/news/world-of-dypians-offers-up-to-1m-wod-and-225-000-in-premium-subscriptions-via-the-bnb-chain-airdrop-alliance-program-380501807 
 
-[Original/Source Press Release](https://newsdirect.com/news/world-of-dypians-offers-up-to-1m-wod-and-225-000-in-premium-subscriptions-via-the-bnb-chain-airdrop-alliance-program-380501807) 
+[Original/Source Press Release](https://newsdirect.com/news/world-of-dypians-offers-up-to-1m-wod-and-225-000-in-premium-subscriptions-via-the-bnb-chain-airdrop-alliance-program-380501807)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1chgo0p/world_of_dypians_joins_bnb_chains_airdrop/

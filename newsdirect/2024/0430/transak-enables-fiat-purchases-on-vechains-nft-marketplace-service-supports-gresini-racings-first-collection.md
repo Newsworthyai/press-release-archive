@@ -44,6 +44,9 @@ amankalra@transak.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/transak-enables-fiat-purchases-on-vechains-nft-marketplace-service-supports-gresini-racings-first-collection-619022061 
 
-[Original/Source Press Release](https://newsdirect.com/news/transak-enables-fiat-purchases-on-vechains-nft-marketplace-service-supports-gresini-racings-first-collection-619022061) 
+[Original/Source Press Release](https://newsdirect.com/news/transak-enables-fiat-purchases-on-vechains-nft-marketplace-service-supports-gresini-racings-first-collection-619022061)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1cgryek/transaks_nft_checkout_integration_with_vechains/

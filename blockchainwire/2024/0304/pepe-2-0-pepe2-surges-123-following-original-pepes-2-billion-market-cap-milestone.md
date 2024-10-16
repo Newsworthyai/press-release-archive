@@ -30,6 +30,9 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/pepe-20-pepe2-surges-123-following-original-pepes-2-billion-market-cap-milestone) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/pepe-20-pepe2-surges-123-following-original-pepes-2-billion-market-cap-milestone)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1b6rmsh/pepe_hits_2_billion_market_cap_milestone_pepe_20/

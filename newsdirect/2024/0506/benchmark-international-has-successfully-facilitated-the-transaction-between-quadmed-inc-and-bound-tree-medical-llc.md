@@ -32,6 +32,9 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-has-successfully-facilitated-the-transaction-between-quadmed-inc-and-bound-tree-medical-llc-806900240 
 
-[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-has-successfully-facilitated-the-transaction-between-quadmed-inc-and-bound-tree-medical-llc-806900240) 
+[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-has-successfully-facilitated-the-transaction-between-quadmed-inc-and-bound-tree-medical-llc-806900240)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1clswot/benchmark_international_facilitates_transaction/

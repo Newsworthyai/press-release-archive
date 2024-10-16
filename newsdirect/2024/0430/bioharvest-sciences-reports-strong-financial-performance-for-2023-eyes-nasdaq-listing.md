@@ -18,6 +18,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bioharvest-sciences-reports-strong-financial-performance-for-2023-eyes-nasdaq-listing-178246823 
 
-[Original/Source Press Release](https://newsdirect.com/news/bioharvest-sciences-reports-strong-financial-performance-for-2023-eyes-nasdaq-listing-178246823) 
+[Original/Source Press Release](https://newsdirect.com/news/bioharvest-sciences-reports-strong-financial-performance-for-2023-eyes-nasdaq-listing-178246823)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cgx163/bioharvest_sciences_reports_strong_financial/

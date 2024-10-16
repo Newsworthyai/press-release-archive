@@ -32,6 +32,9 @@ Unless otherwise provided in a separate agreement, Alpha Sigma Capital does not 
 
 Crypto and/or digital currencies involve substantial risk, are speculative in nature, and may not perform as expected. Many digital currency platforms are not subject to regulatory supervision, unlike regulated exchanges. Some platforms may commingle customer assets in shared accounts and provide inadequate custody, which may affect whether or how investors can withdraw their currency and/or subject them to money laundering. Digital currencies may be vulnerable to hacks and cyber fraud as well as significant volatility and price swings. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/alpha-transform-artificial-intelligence-index-aai-powered-by-the-alvara-protocol-erc-7621-token-standard-releases-earliest-performance-metrics-for-high-performance-ai-tokens) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/alpha-transform-artificial-intelligence-index-aai-powered-by-the-alvara-protocol-erc-7621-token-standard-releases-earliest-performance-metrics-for-high-performance-ai-tokens)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bb4xen/alpha_transform_research_releases_alpha_transform/

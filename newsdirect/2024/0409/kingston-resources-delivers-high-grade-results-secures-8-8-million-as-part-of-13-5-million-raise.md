@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/kingston-resources-delivers-high-grade-results-secures-8-8-million-as-part-of-13-5-million-raise-775363933 
 
-[Original/Source Press Release](https://newsdirect.com/news/kingston-resources-delivers-high-grade-results-secures-8-8-million-as-part-of-13-5-million-raise-775363933) 
+[Original/Source Press Release](https://newsdirect.com/news/kingston-resources-delivers-high-grade-results-secures-8-8-million-as-part-of-13-5-million-raise-775363933)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1c00rno/kingston_resources_delivers_highgrade_results/

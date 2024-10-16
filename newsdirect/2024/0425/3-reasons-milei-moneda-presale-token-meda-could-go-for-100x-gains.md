@@ -35,6 +35,9 @@ marketing@rhmedia.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/3-reasons-milei-moneda-presale-token-meda-could-go-for-100x-gains-700072037 
 
-[Original/Source Press Release](https://newsdirect.com/news/3-reasons-milei-moneda-presale-token-meda-could-go-for-100x-gains-700072037) 
+[Original/Source Press Release](https://newsdirect.com/news/3-reasons-milei-moneda-presale-token-meda-could-go-for-100x-gains-700072037)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ccp870/milei_moneda_the_best_crypto_investment_for_100x/

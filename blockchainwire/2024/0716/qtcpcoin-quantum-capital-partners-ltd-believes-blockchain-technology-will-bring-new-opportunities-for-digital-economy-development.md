@@ -10,6 +10,9 @@ Blockchain technology is not a single information technology but a unique integr
 
 QTCPcoin (QUANTUM CAPITAL PARTNERS LTD) is a globally leading digital asset trading company, established in Singapore in 2018. It has officially obtained MSB dual licenses issued by the United States and Canada, as well as regulatory licenses from the U.S. SEC and NFA (compliance operating licenses). Embracing regulation and compliant operation, QTCPcoin continues to promote the development of the crypto industry. QTCPcoin's core team members come from various countries, including Singapore, the United States, the United Kingdom, China, South Korea, and Japan. The technical team comprises highly skilled professionals with many years of experience in the blockchain industry. The team has rich experience in the blockchain ecosystem and cryptocurrency trading systems, building world-class decentralised security systems and asset firewall protection systems, effectively preventing DDoS attacks. In addition, QTCPcoin collaborates deeply with multiple top security agencies worldwide to provide first-class asset security guarantees for global users. The platform offers multilingual, 24/7 customer support services and provides users with concise and smooth app operation tutorials. QTCPcoin is committed to providing a safe, efficient, fair, and transparent trading environment for global users. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/qtcpcoin-quantum-capital-partners-ltd-believes-blockchain-technology-will-bring-new-opportunities-for-digital-economy-development-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/qtcpcoin-quantum-capital-partners-ltd-believes-blockchain-technology-will-bring-new-opportunities-for-digital-economy-development-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvfi0f/qtcpcoin_believes_blockchain_technology_will/

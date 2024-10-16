@@ -14,6 +14,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/first-nordic-metals-reports-significant-discovery-at-paubacken-project-in-northern-sweden-816635712 
 
-[Original/Source Press Release](https://newsdirect.com/news/first-nordic-metals-reports-significant-discovery-at-paubacken-project-in-northern-sweden-816635712) 
+[Original/Source Press Release](https://newsdirect.com/news/first-nordic-metals-reports-significant-discovery-at-paubacken-project-in-northern-sweden-816635712)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dpukeq/first_nordic_metals_ceo_announces_major_gold/

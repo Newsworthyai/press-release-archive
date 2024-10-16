@@ -18,6 +18,9 @@ Conceived with an aim to enhance business acumen, BusinessIncome.net is a beacon
 
 Elevate Your Business Acumen. Embark on a journey of discovery at www.BusinessIncome.net. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231208785/businessincome-net-unveiled-the-premier-digital-hub-for-entrepreneurs-and-business-income-insights) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231208785/businessincome-net-unveiled-the-premier-digital-hub-for-entrepreneurs-and-business-income-insights)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx2ua/businessincomenet_launches_to_demystify_business/

@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/airship-ai-awarded-contract-with-doj-agency-marking-second-big-government-contract-win-since-december-ipo-340612161 
 
-[Original/Source Press Release](https://newsdirect.com/news/airship-ai-awarded-contract-with-doj-agency-marking-second-big-government-contract-win-since-december-ipo-340612161) 
+[Original/Source Press Release](https://newsdirect.com/news/airship-ai-awarded-contract-with-doj-agency-marking-second-big-government-contract-win-since-december-ipo-340612161)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cli1jy/airship_ai_wins_major_doj_contract_for_acropolis/

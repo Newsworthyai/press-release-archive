@@ -22,6 +22,9 @@ Connect with Earn Alliance: Website | Twitter | LinkedIn | Discord
 
 Download Earn Alliance App: Google Play Store | Apple Store 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/earn-alliance-welcomes-new-coo-jeff-drobick-as-company-continues-to-drive-web3-gaming-revolution) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/earn-alliance-welcomes-new-coo-jeff-drobick-as-company-continues-to-drive-web3-gaming-revolution)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1ffh41k/earn_alliance_appoints_jeff_drobick_as_new_coo_to/

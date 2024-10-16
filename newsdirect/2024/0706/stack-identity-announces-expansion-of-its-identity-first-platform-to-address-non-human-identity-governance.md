@@ -47,6 +47,9 @@ Company Websitehttps://stackidentity.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/stack-identity-announces-expansion-of-its-identity-first-platform-to-address-non-human-identity-governance-752417366 
 
-[Original/Source Press Release](https://newsdirect.com/news/stack-identity-announces-expansion-of-its-identity-first-platform-to-address-non-human-identity-governance-752417366) 
+[Original/Source Press Release](https://newsdirect.com/news/stack-identity-announces-expansion-of-its-identity-first-platform-to-address-non-human-identity-governance-752417366)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dwpchq/stack_identity_expands_platform_to_address/

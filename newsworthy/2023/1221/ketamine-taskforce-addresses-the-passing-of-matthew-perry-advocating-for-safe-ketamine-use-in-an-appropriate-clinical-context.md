@@ -16,6 +16,9 @@ The Ketamine Task Force is a dedicated non-profit organization, operated entirel
 
 For further information or to contribute to our cause, please visit https://www.ketaminetaskforce.org/ 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231221921/ketamine-taskforce-addresses-the-passing-of-matthew-perry-advocating-for-safe-ketamine-use-in-an-appropriate-clinical-context) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231221921/ketamine-taskforce-addresses-the-passing-of-matthew-perry-advocating-for-safe-ketamine-use-in-an-appropriate-clinical-context)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avcvbe/ketamine_taskforce_mourns_tragic_passing_and/

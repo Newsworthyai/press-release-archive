@@ -28,6 +28,9 @@ Baked Beans emphasizes its commitment to providing maximum user safety with rigo
 
 The Baked Beans token presale will start on April 20th on Pinksale. Follow the project's development and latest updates by using these links: Website | X (Twitter) | Telegram | Discord | Instagram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/baked-beans-launches-first-gamified-passive-income-miner-on-solana-sets-april-20-token-presale-on-pinksale) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/baked-beans-launches-first-gamified-passive-income-miner-on-solana-sets-april-20-token-presale-on-pinksale)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1c70qg3/baked_beans_token_launches_on_solana_with_presale/

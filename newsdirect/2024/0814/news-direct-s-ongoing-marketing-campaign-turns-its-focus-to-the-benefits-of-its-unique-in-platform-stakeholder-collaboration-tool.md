@@ -12,6 +12,9 @@ Company Websitehttp://www.newsdirect.com
 
 View original content to download multimedia: https://newsdirect.com/news/news-directs-ongoing-marketing-campaign-turns-its-focus-to-the-benefits-of-its-unique-in-platform-stakeholder-collaboration-tool-859510391 
 
-[Original/Source Press Release](https://newsdirect.com/news/news-directs-ongoing-marketing-campaign-turns-its-focus-to-the-benefits-of-its-unique-in-platform-stakeholder-collaboration-tool-859510391) 
+[Original/Source Press Release](https://newsdirect.com/news/news-directs-ongoing-marketing-campaign-turns-its-focus-to-the-benefits-of-its-unique-in-platform-stakeholder-collaboration-tool-859510391)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1es17yc/news_direct_highlights_benefits_of_inplatform/

@@ -40,6 +40,9 @@ Company Websitehttps://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/railtown-ai-technologies-cse-rail-otcqb-rlaif-leveraging-ai-to-revolutionize-software-development-efficiency-647916345 
 
-[Original/Source Press Release](https://newsdirect.com/news/railtown-ai-technologies-cse-rail-otcqb-rlaif-leveraging-ai-to-revolutionize-software-development-efficiency-647916345) 
+[Original/Source Press Release](https://newsdirect.com/news/railtown-ai-technologies-cse-rail-otcqb-rlaif-leveraging-ai-to-revolutionize-software-development-efficiency-647916345)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1f40zez/railtown_ai_technologies_revolutionizing_software/

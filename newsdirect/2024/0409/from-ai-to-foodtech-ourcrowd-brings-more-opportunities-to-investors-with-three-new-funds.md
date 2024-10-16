@@ -46,6 +46,9 @@ Company Websitehttp://www.ourcrowd.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/from-ai-to-foodtech-ourcrowd-brings-more-opportunities-to-investors-with-three-new-funds-393109408 
 
-[Original/Source Press Release](https://newsdirect.com/news/from-ai-to-foodtech-ourcrowd-brings-more-opportunities-to-investors-with-three-new-funds-393109408) 
+[Original/Source Press Release](https://newsdirect.com/news/from-ai-to-foodtech-ourcrowd-brings-more-opportunities-to-investors-with-three-new-funds-393109408)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bzrgqj/ourcrowd_unveils_new_investment_funds_in_ai/

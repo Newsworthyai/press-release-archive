@@ -54,6 +54,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-risks-and-rewards-of-betting-big-on-ai-and-big-data-517904810 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-risks-and-rewards-of-betting-big-on-ai-and-big-data-517904810) 
+[Original/Source Press Release](https://newsdirect.com/news/the-risks-and-rewards-of-betting-big-on-ai-and-big-data-517904810)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1fkjypm/ai_and_semiconductor_stocks_on_the_rise_nvidia/

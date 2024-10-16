@@ -26,6 +26,9 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/gamereum-revolutionizes-gaming-with-the-introduction-of-gaming-optimized-blockchain-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/gamereum-revolutionizes-gaming-with-the-introduction-of-gaming-optimized-blockchain-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1b6rmcj/gamereum_unveils_gamingoptimized_blockchain_for/

@@ -44,6 +44,9 @@ money@moneysource.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/andrew-brown-aka-doctor-troller-becomes-top-3-richest-nft-artist-with-net-worth-of-ps280-million-gbp-672741653 
 
-[Original/Source Press Release](https://newsdirect.com/news/andrew-brown-aka-doctor-troller-becomes-top-3-richest-nft-artist-with-net-worth-of-ps280-million-gbp-672741653) 
+[Original/Source Press Release](https://newsdirect.com/news/andrew-brown-aka-doctor-troller-becomes-top-3-richest-nft-artist-with-net-worth-of-ps280-million-gbp-672741653)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1cy3azk/doctor_troller_from_london_streets_to_top_3/

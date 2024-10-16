@@ -24,6 +24,9 @@ Pepe in a Meme World ($PEW) – where the memes never stop, and neither does the
 
 Disclaimer: $PEW is a meme token and should be treated as such. It’s for entertainment purposes only. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/pepe-in-a-meme-world-launches-innovative-pew-the-ultimate-meme-token-experience-in-digital-currency) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/pepe-in-a-meme-world-launches-innovative-pew-the-ultimate-meme-token-experience-in-digital-currency)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fvh0yj/pepe_in_a_meme_world_pew_emerges_as_a_meme_token/

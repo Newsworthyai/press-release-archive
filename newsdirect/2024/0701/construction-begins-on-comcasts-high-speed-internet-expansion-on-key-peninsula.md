@@ -29,6 +29,9 @@ Company Websitehttps://washington.comcast.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/construction-begins-on-comcasts-high-speed-internet-expansion-on-key-peninsula-182913138 
 
-[Original/Source Press Release](https://newsdirect.com/news/construction-begins-on-comcasts-high-speed-internet-expansion-on-key-peninsula-182913138) 
+[Original/Source Press Release](https://newsdirect.com/news/construction-begins-on-comcasts-high-speed-internet-expansion-on-key-peninsula-182913138)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dt37so/comcast_expands_highspeed_internet_on_key/

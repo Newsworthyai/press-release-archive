@@ -24,6 +24,9 @@ In the waves of the crypto market, KAKAUE, with its advanced technology and robu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/kakaue-leading-with-technology-safeguarding-with-security-the-winning-way-in-the-crypto-market) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/kakaue-leading-with-technology-safeguarding-with-security-the-winning-way-in-the-crypto-market)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1ay4r1m/kakaue_exchange_forms_strategic_partnerships_for/

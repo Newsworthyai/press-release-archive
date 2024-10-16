@@ -44,6 +44,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/panther-minerals-inc-cse-purr-otc-gliof-gears-up-for-growth-in-the-uranium-revival-560294021 
 
-[Original/Source Press Release](https://newsdirect.com/news/panther-minerals-inc-cse-purr-otc-gliof-gears-up-for-growth-in-the-uranium-revival-560294021) 
+[Original/Source Press Release](https://newsdirect.com/news/panther-minerals-inc-cse-purr-otc-gliof-gears-up-for-growth-in-the-uranium-revival-560294021)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1es17vs/panther_minerals_inc_gears_up_for_growth_in_the/

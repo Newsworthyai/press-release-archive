@@ -24,6 +24,9 @@ Cepton (NASDAQ: CPTN), a Silicon Valley innovator and leader in high performance
 
  TechMediaWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/cepton-nasdaq-cptn-enters-definitive-agreement-to-embark-on-new-journey-with-koito/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/cepton-nasdaq-cptn-enters-definitive-agreement-to-embark-on-new-journey-with-koito/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2fgcm/cepton_announces_acquisition_agreement_with_koito/

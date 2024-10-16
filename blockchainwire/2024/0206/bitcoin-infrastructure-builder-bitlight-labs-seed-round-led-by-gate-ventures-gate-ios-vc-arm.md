@@ -24,6 +24,9 @@ About Gate Ventures
 
 Gate Ventures, the venture capital arm of Gate.io, is focused on investments in decentralized infrastructure, middleware, and applications that will reshape the world in the digital age. As a long-term investor, Gate Ventures is committed to offering support in product development, operation scaling, and global growth for its portfolio companies. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-infrastructure-builder-bitlight-labs-seed-round-led-by-gate-ventures-gateios-vc-arm) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-infrastructure-builder-bitlight-labs-seed-round-led-by-gate-ventures-gateios-vc-arm)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avjy0g/gate_ventures_leads_seed_round_for_bitlight_labs/

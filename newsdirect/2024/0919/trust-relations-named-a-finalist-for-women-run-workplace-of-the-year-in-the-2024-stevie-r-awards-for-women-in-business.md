@@ -36,6 +36,9 @@ Company Websitehttps://trustrelations.agency/
 
 View source version on newsdirect.com: https://newsdirect.com/news/trust-relations-named-a-finalist-for-women-run-workplace-of-the-year-in-the-2024-stevie-r-awards-for-women-in-business-743726213 
 
-[Original/Source Press Release](https://newsdirect.com/news/trust-relations-named-a-finalist-for-women-run-workplace-of-the-year-in-the-2024-stevie-r-awards-for-women-in-business-743726213) 
+[Original/Source Press Release](https://newsdirect.com/news/trust-relations-named-a-finalist-for-women-run-workplace-of-the-year-in-the-2024-stevie-r-awards-for-women-in-business-743726213)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1fklxpn/trust_relations_named_finalist_in_2024_stevie/

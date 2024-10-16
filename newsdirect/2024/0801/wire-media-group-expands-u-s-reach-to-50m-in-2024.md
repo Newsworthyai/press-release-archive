@@ -26,6 +26,9 @@ Company Websitehttps://www.wagerwire.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/wire-media-group-expands-u-s-reach-to-50m-in-2024-526427502 
 
-[Original/Source Press Release](https://newsdirect.com/news/wire-media-group-expands-u-s-reach-to-50m-in-2024-526427502) 
+[Original/Source Press Release](https://newsdirect.com/news/wire-media-group-expands-u-s-reach-to-50m-in-2024-526427502)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ehitx3/wire_industries_hits_milestone_with_wire_media/

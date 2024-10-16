@@ -28,6 +28,9 @@ Lexaria Bioscience (NASDAQ: LEXX, LEXXW), a global innovator in drug delivery pl
 
  CBDWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-nasdaq-lexx-announces-positive-interim-animal-study-results-on-dehydratech-cbd-in-diabetes-control/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-nasdaq-lexx-announces-positive-interim-animal-study-results-on-dehydratech-cbd-in-diabetes-control/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1f2h0b6/lexaria_bioscience_announces_promising_results_in/

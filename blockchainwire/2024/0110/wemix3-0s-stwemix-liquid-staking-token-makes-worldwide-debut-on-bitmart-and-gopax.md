@@ -35,6 +35,9 @@ Renowned industry leader and innovator WEMADE is at the forefront of global Web3
 
 The WEMIX blockchain-based mega-ecosystem includes WEMIX, its native coin and bridge that connects all components of the WEMIX mega-ecosystem; WEMIX$, the native fully collateralized stablecoin for the WEMIX blockchain; Kroma a next-gen Ethereum Layer 2 based on EVM-Equivalent ZK Rollup; WEMIX PLAY, the world's largest blockchain gaming platform; NILE (NFT Is Life Evolution), a DAO & NFT platform based on the WEMIX3.0 mainnet; Kurrency, a decentralized financial service designed to offer greater ease-of-use, transparency and reliability; the KLEVA protocol, decentralized exchanges and other DeFi services on multi-chains. www.wemade.com / www.wemix.com/communication 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/wemix30s-stwemix-liquid-staking-token-makes-worldwide-debut-on-bitmart-and-gopax) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/wemix30s-stwemix-liquid-staking-token-makes-worldwide-debut-on-bitmart-and-gopax)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avdpmx/wemade_introduces_stwemix_a_liquid_staking_token/

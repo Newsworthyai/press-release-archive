@@ -36,6 +36,9 @@ Company Websitehttps://www.worldchasetag.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/world-chase-tag-announces-biggest-live-event-in-its-history-747613383 
 
-[Original/Source Press Release](https://newsdirect.com/news/world-chase-tag-announces-biggest-live-event-in-its-history-747613383) 
+[Original/Source Press Release](https://newsdirect.com/news/world-chase-tag-announces-biggest-live-event-in-its-history-747613383)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bvsmdf/world_chase_tag_usa_announces_wct6_world/

@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/itaconix-announces-record-revenue-and-improving-gross-margin-for-2023-eyes-diverse-growth-391050628 
 
-[Original/Source Press Release](https://newsdirect.com/news/itaconix-announces-record-revenue-and-improving-gross-margin-for-2023-eyes-diverse-growth-391050628) 
+[Original/Source Press Release](https://newsdirect.com/news/itaconix-announces-record-revenue-and-improving-gross-margin-for-2023-eyes-diverse-growth-391050628)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1c5doc0/itaconix_achieves_record_revenue_and_eyes_diverse/

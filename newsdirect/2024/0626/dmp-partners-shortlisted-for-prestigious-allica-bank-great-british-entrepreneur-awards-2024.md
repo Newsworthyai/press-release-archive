@@ -42,6 +42,9 @@ david.d@ddmpco.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/dmp-and-partners-shortlisted-for-prestigious-allica-bank-great-british-entrepreneur-awards-2024-913230179 
 
-[Original/Source Press Release](https://newsdirect.com/news/dmp-and-partners-shortlisted-for-prestigious-allica-bank-great-british-entrepreneur-awards-2024-913230179) 
+[Original/Source Press Release](https://newsdirect.com/news/dmp-and-partners-shortlisted-for-prestigious-allica-bank-great-british-entrepreneur-awards-2024-913230179)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1dozfrm/dmp_partners_shortlisted_for_2024_allica_bank/

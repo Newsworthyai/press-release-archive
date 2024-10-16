@@ -42,6 +42,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/non-addictive-options-to-opioids-exploring-pain-relief-options-before-taking-opioids-910173303 
 
-[Original/Source Press Release](https://newsdirect.com/news/non-addictive-options-to-opioids-exploring-pain-relief-options-before-taking-opioids-910173303) 
+[Original/Source Press Release](https://newsdirect.com/news/non-addictive-options-to-opioids-exploring-pain-relief-options-before-taking-opioids-910173303)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1bwqw36/mothers_against_prescription_drug_abuse_launches/

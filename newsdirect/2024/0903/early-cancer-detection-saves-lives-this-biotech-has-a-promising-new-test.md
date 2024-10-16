@@ -30,6 +30,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/early-cancer-detection-saves-lives-this-biotech-has-a-promising-new-test-727980663 
 
-[Original/Source Press Release](https://newsdirect.com/news/early-cancer-detection-saves-lives-this-biotech-has-a-promising-new-test-727980663) 
+[Original/Source Press Release](https://newsdirect.com/news/early-cancer-detection-saves-lives-this-biotech-has-a-promising-new-test-727980663)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1f80jsb/mainz_biomed_cfo_talks_saving_lives_through_early/

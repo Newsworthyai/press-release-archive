@@ -22,6 +22,9 @@ Become a part of HR.com’s HR Research Influencer panel today. Participate in s
 
 Contact: info@hr.com HR.com Newsroom 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202406041186/using-hr-technology-to-gain-actionable-insights-from-analytics-is-the-biggest-tech-challenge-for-hr-new-study-by-hr-coms-hr-research-institute) 
+[Original/Source Press Release](https://newsworthy.ai/news/202406041186/using-hr-technology-to-gain-actionable-insights-from-analytics-is-the-biggest-tech-challenge-for-hr-new-study-by-hr-coms-hr-research-institute)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1d7vlwy/new_research_reveals_pain_points_in_hr_tech_stacks/

@@ -30,6 +30,9 @@ Company Websitehttps://www.carved.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/carved-launches-new-live-edge-wood-cases-for-iphone-15-140882385 
 
-[Original/Source Press Release](https://newsdirect.com/news/carved-launches-new-live-edge-wood-cases-for-iphone-15-140882385) 
+[Original/Source Press Release](https://newsdirect.com/news/carved-launches-new-live-edge-wood-cases-for-iphone-15-140882385)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cx33o5/carved_unveils_unique_live_edge_wood_cases_for/

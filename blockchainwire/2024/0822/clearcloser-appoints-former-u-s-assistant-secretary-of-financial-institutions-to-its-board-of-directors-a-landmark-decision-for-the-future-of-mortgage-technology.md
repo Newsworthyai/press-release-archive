@@ -28,6 +28,9 @@ Christopher E. Campbell and ClearCloser’s leadership team are available for ex
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/clearcloser-appoints-former-us-assistant-secretary-of-financial-institutions-to-its-board-of-directors-a-landmark-decision-for-the-future-of-mortgage-technology-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/clearcloser-appoints-former-us-assistant-secretary-of-financial-institutions-to-its-board-of-directors-a-landmark-decision-for-the-future-of-mortgage-technology-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eylwoe/clearcloser_appoints_christopher_e_campbell_to/

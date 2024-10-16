@@ -43,6 +43,9 @@ Company Websitehttps://www.bridgeft.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/purefacts-financial-solutions-selects-bridgefts-wealthtech-api-to-enhance-data-infrastructure-for-end-to-end-revenue-platform-594536599 
 
-[Original/Source Press Release](https://newsdirect.com/news/purefacts-financial-solutions-selects-bridgefts-wealthtech-api-to-enhance-data-infrastructure-for-end-to-end-revenue-platform-594536599) 
+[Original/Source Press Release](https://newsdirect.com/news/purefacts-financial-solutions-selects-bridgefts-wealthtech-api-to-enhance-data-infrastructure-for-end-to-end-revenue-platform-594536599)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/StartupBusinessNews/comments/1d3maqu/purefacts_financial_solutions_partners_with/

@@ -28,6 +28,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lenovos-meet-your-digital-self-technology-and-mental-health-come-together-780553992 
 
-[Original/Source Press Release](https://newsdirect.com/news/lenovos-meet-your-digital-self-technology-and-mental-health-come-together-780553992) 
+[Original/Source Press Release](https://newsdirect.com/news/lenovos-meet-your-digital-self-technology-and-mental-health-come-together-780553992)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1do9e6n/lenovos_meet_your_digital_self_technology_and/

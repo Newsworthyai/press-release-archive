@@ -40,6 +40,9 @@ markrmckelvie@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/onemeta-inc-otcqb-onei-breaks-barriers-with-language-ai-302638348 
 
-[Original/Source Press Release](https://newsdirect.com/news/onemeta-inc-otcqb-onei-breaks-barriers-with-language-ai-302638348) 
+[Original/Source Press Release](https://newsdirect.com/news/onemeta-inc-otcqb-onei-breaks-barriers-with-language-ai-302638348)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1c5cj33/onemeta_inc_otcqb_onei_breaks_barriers_with/

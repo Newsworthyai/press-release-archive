@@ -35,6 +35,9 @@ Company Websitehttps://prcgsports.com/crisis-communications-in-sports/
 
 View source version on newsdirect.com: https://newsdirect.com/news/prcg-sports-welcomes-renowned-sports-television-commentator-bob-costas-to-the-crisis-communications-in-sports-podcast-492404971 
 
-[Original/Source Press Release](https://newsdirect.com/news/prcg-sports-welcomes-renowned-sports-television-commentator-bob-costas-to-the-crisis-communications-in-sports-podcast-492404971) 
+[Original/Source Press Release](https://newsdirect.com/news/prcg-sports-welcomes-renowned-sports-television-commentator-bob-costas-to-the-crisis-communications-in-sports-podcast-492404971)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d7lnv9/legendary_broadcaster_bob_costas_discusses_impact/

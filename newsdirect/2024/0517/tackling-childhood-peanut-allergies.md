@@ -32,6 +32,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/tackling-childhood-peanut-allergies-865883012 
 
-[Original/Source Press Release](https://newsdirect.com/news/tackling-childhood-peanut-allergies-865883012) 
+[Original/Source Press Release](https://newsdirect.com/news/tackling-childhood-peanut-allergies-865883012)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cu6jeg/new_treatment_options_for_childhood_peanut/

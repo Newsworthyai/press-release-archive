@@ -20,6 +20,9 @@ The potential of cryptocurrencies as a store of value is also gaining recognitio
 
 In conclusion, Golden Block Services PTY LTD is poised to lead the way in the cryptocurrency market through its innovative technology and commitment to security. By addressing the challenges faced by traditional financial systems and providing users with a safe, efficient platform, the exchange is shaping the future of digital trading. As cryptocurrencies continue to evolve, Golden Block Services PTY LTD remains dedicated to fostering a transparent and accessible financial environment for all. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/golden-block-services-pty-ltd-unveils-innovative-technology-for-enhanced-security-and-efficiency-in-cryptocurrency-trading) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/golden-block-services-pty-ltd-unveils-innovative-technology-for-enhanced-security-and-efficiency-in-cryptocurrency-trading)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ftrvqj/golden_block_services_pty_ltd_launches_advanced/

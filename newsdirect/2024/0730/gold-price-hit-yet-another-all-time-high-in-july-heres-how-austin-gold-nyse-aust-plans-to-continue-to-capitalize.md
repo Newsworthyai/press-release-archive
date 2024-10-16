@@ -52,6 +52,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gold-price-hit-yet-another-all-time-high-in-july-heres-how-austin-gold-nyse-aust-plans-to-continue-to-capitalize-952188838 
 
-[Original/Source Press Release](https://newsdirect.com/news/gold-price-hit-yet-another-all-time-high-in-july-heres-how-austin-gold-nyse-aust-plans-to-continue-to-capitalize-952188838) 
+[Original/Source Press Release](https://newsdirect.com/news/gold-price-hit-yet-another-all-time-high-in-july-heres-how-austin-gold-nyse-aust-plans-to-continue-to-capitalize-952188838)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1eg4q4e/gold_price_hits_alltime_high_austin_golds/

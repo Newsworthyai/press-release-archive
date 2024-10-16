@@ -32,6 +32,9 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-pinnacle-fire-systems-inc-and-the-hiller-companies-llc-644371491 
 
-[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-pinnacle-fire-systems-inc-and-the-hiller-companies-llc-644371491) 
+[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-successfully-facilitated-the-transaction-between-pinnacle-fire-systems-inc-and-the-hiller-companies-llc-644371491)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1embef1/benchmark_international_facilitates_transaction/

@@ -36,6 +36,9 @@ Company Websitehttps://www.prosperr.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/prosperr-io-secures-funding-to-launch-ai-tax-management-solution-for-us-individuals-689027201 
 
-[Original/Source Press Release](https://newsdirect.com/news/prosperr-io-secures-funding-to-launch-ai-tax-management-solution-for-us-individuals-689027201) 
+[Original/Source Press Release](https://newsdirect.com/news/prosperr-io-secures-funding-to-launch-ai-tax-management-solution-for-us-individuals-689027201)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1diqgdd/prosperrio_secures_155_million_funding_for_ai_tax/

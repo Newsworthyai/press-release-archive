@@ -62,6 +62,9 @@ Company Websitehttps://trustandwill.com/advisors
 
 View source version on newsdirect.com: https://newsdirect.com/news/trust-and-will-announces-strategic-relationship-with-lpl-financial-805380694 
 
-[Original/Source Press Release](https://newsdirect.com/news/trust-and-will-announces-strategic-relationship-with-lpl-financial-805380694) 
+[Original/Source Press Release](https://newsdirect.com/news/trust-and-will-announces-strategic-relationship-with-lpl-financial-805380694)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ccp89k/trust_will_announces_strategic_relationship_with/

@@ -54,6 +54,9 @@ Company Websitehttps://colorado.comcast.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/comcast-rise-awards-grant-packages-to-100-southern-colorado-small-businesses-120865963 
 
-[Original/Source Press Release](https://newsdirect.com/news/comcast-rise-awards-grant-packages-to-100-southern-colorado-small-businesses-120865963) 
+[Original/Source Press Release](https://newsdirect.com/news/comcast-rise-awards-grant-packages-to-100-southern-colorado-small-businesses-120865963)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1erevnr/comcast_rise_awards_grant_packages_to_100/

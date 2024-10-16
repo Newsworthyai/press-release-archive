@@ -58,6 +58,9 @@ As a leading global platform for cryptocurrency and blockchain technology, Coins
 
 Coinstore Social MediaTwitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Telegram Announcement 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/ptrn---unlocking-big-data) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/ptrn---unlocking-big-data)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dpxyjt/ptrn_the_future_currency_of_location_data/

@@ -28,6 +28,9 @@ Company Websitehttps://www.enchampion.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/enchampion-unveils-advanced-sodium-ion-battery-solution-for-satellite-applications-508943976 
 
-[Original/Source Press Release](https://newsdirect.com/news/enchampion-unveils-advanced-sodium-ion-battery-solution-for-satellite-applications-508943976) 
+[Original/Source Press Release](https://newsdirect.com/news/enchampion-unveils-advanced-sodium-ion-battery-solution-for-satellite-applications-508943976)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f386t0/enchampion_unveils_advanced_sodiumion_battery/

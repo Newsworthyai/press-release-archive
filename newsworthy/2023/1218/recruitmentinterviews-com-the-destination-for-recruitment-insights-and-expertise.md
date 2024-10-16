@@ -18,6 +18,9 @@ RecruitmentInterviews.com aspires to be the go-to platform for recruitment profe
 
 Discover a world of recruitment wisdom at www.RecruitmentInterviews.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231218870/recruitmentinterviews-com-the-destination-for-recruitment-insights-and-expertise) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231218870/recruitmentinterviews-com-the-destination-for-recruitment-insights-and-expertise)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Leadership_Management/comments/1avcumu/recruitmentinterviewscom_revolutionizes_hiring/

@@ -54,6 +54,9 @@ Company Websitehttps://www.airwallex.com/us
 
 View source version on newsdirect.com: https://newsdirect.com/news/companies-like-shein-are-working-with-airwallex-heres-why-and-how-it-could-help-your-business-735206908 
 
-[Original/Source Press Release](https://newsdirect.com/news/companies-like-shein-are-working-with-airwallex-heres-why-and-how-it-could-help-your-business-735206908) 
+[Original/Source Press Release](https://newsdirect.com/news/companies-like-shein-are-working-with-airwallex-heres-why-and-how-it-could-help-your-business-735206908)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1c68oz4/airwallex_revolutionizes_global_business_finances/

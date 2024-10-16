@@ -52,6 +52,9 @@ Company Websitehttps://amerilife.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/leadstar-and-leadingresponse-announce-strategic-partnership-to-enhance-lead-generation-with-in-person-seminar-programming-781305029 
 
-[Original/Source Press Release](https://newsdirect.com/news/leadstar-and-leadingresponse-announce-strategic-partnership-to-enhance-lead-generation-with-in-person-seminar-programming-781305029) 
+[Original/Source Press Release](https://newsdirect.com/news/leadstar-and-leadingresponse-announce-strategic-partnership-to-enhance-lead-generation-with-in-person-seminar-programming-781305029)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1eg4mu2/leadstar_and_leadingresponse_announce_strategic/

@@ -26,6 +26,9 @@ Company Websitehttps://www.toolsgroup.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/toolsgroup-reimagines-supply-chain-decisions-launching-decision-hub-and-real-time-decision-centric-planning-478355573 
 
-[Original/Source Press Release](https://newsdirect.com/news/toolsgroup-reimagines-supply-chain-decisions-launching-decision-hub-and-real-time-decision-centric-planning-478355573) 
+[Original/Source Press Release](https://newsdirect.com/news/toolsgroup-reimagines-supply-chain-decisions-launching-decision-hub-and-real-time-decision-centric-planning-478355573)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1clik5o/toolsgroup_launches_decision_hub_for_realtime/

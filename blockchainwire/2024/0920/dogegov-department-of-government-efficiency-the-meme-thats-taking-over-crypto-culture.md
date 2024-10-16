@@ -44,6 +44,9 @@ Coingecko: Vhttps://www.coingecko.com/en/coins/department-of-government-efficien
 
 CoinMarketcap: https://coinmarketcap.com/currencies/department-of-government-efficiency/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/dogegov-department-of-government-efficiency-the-meme-thats-taking-over-crypto-culture) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/dogegov-department-of-government-efficiency-the-meme-thats-taking-over-crypto-culture)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fm1x09/memepowered_movement_dogegov_takes_crypto_world/

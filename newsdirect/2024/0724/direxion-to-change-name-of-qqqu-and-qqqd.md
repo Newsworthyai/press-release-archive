@@ -34,6 +34,9 @@ Company Websitehttps://www.direxion.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/direxion-to-change-name-of-qqqu-and-qqqd-522033863 
 
-[Original/Source Press Release](https://newsdirect.com/news/direxion-to-change-name-of-qqqu-and-qqqd-522033863) 
+[Original/Source Press Release](https://newsdirect.com/news/direxion-to-change-name-of-qqqu-and-qqqd-522033863)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eb3974/direxion_renames_qqqu_and_qqqd_to_magnificent_7/

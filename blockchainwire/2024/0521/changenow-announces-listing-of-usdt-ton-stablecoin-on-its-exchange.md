@@ -44,6 +44,9 @@ ChangeNOW is committed to making cryptocurrency exchange accessible, secure, and
 
 To learn more, visit ChangeNOW’s website and follow them on Twitter to discover how they are making crypto exchanges faster and more user-friendly for everyone. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/changenow-announces-listing-of-usdt-ton-stablecoin-on-its-exchange-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/changenow-announces-listing-of-usdt-ton-stablecoin-on-its-exchange-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cx59rs/changenow_announces_listing_of_usdt_ton/

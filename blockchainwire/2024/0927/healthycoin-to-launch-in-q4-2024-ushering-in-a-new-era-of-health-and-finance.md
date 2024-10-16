@@ -34,6 +34,9 @@ About HealthyCoin (HYC):HealthyCoin is a blockchain-based cryptocurrency platfo
 
 For more information, visit the [HealthyCoin Twitter](https://x.com/healthycoinhyc?s=21) or email [info@healthycoin.io](mailto:info@healthycoin.io).Media Contact:Joseph Lambertteam@instantpress.co 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/healthycoin-to-launch-in-q4-2024-ushering-in-a-new-era-of-health-and-finance-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/healthycoin-to-launch-in-q4-2024-ushering-in-a-new-era-of-health-and-finance-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fqu6g2/revolutionary_healthycoin_hyc_platform_rewards/

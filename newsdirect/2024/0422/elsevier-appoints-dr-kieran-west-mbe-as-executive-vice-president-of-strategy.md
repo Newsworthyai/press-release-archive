@@ -28,6 +28,9 @@ Dan.james@elsevier.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/elsevier-appoints-dr-kieran-west-mbe-as-executive-vice-president-of-strategy-484266629 
 
-[Original/Source Press Release](https://newsdirect.com/news/elsevier-appoints-dr-kieran-west-mbe-as-executive-vice-president-of-strategy-484266629) 
+[Original/Source Press Release](https://newsdirect.com/news/elsevier-appoints-dr-kieran-west-mbe-as-executive-vice-president-of-strategy-484266629)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ca5abw/elsevier_appoints_dr_kieran_west_mbe_as_executive/

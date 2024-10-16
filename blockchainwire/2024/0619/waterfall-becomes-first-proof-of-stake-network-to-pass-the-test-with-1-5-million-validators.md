@@ -14,6 +14,9 @@ About Waterfall
 
 Waterfall is the leading layer one (L1) architecture to solve decentralization, security, and scalability. Waterfall’s Directed Acyclic Graph (“DAG”) achieves and allows parallelism on multiple levels pushing further the boundaries of combination of scalability and decentralization. Waterfall is Ethereum Virtual Machine (EVM) compatible, allowing for portability of decentralized applications (dAPPs), and has very low entry requirements for the participants to become validators. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/waterfall-becomes-first-proof-of-stake-network-to-pass-the-test-with-15-million-validators-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/waterfall-becomes-first-proof-of-stake-network-to-pass-the-test-with-15-million-validators-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvhavm/waterfall_network_sets_record_with_1573892/

@@ -20,6 +20,9 @@ McEwen Mining (NYSE: MUX) (TSX: MUX) is an asset rich diversified gold and silv
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-chairman-featured-on-the-miningnewswire-podcast/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/mcewen-mining-nyse-mux-tsx-mux-chairman-featured-on-the-miningnewswire-podcast/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2qaen/mcewen_mining_chairman_rob_mcewen_featured_in_the/

@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/whats-driving-record-growth-at-cboe-global-markets-884755983 
 
-[Original/Source Press Release](https://newsdirect.com/news/whats-driving-record-growth-at-cboe-global-markets-884755983) 
+[Original/Source Press Release](https://newsdirect.com/news/whats-driving-record-growth-at-cboe-global-markets-884755983)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1czk5l5/cboe_global_markets_delivers_record_q1_2024/

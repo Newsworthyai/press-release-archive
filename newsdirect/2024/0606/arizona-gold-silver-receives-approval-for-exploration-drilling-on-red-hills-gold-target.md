@@ -14,6 +14,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/arizona-gold-and-silver-receives-approval-for-exploration-drilling-on-red-hills-gold-target-665793516 
 
-[Original/Source Press Release](https://newsdirect.com/news/arizona-gold-and-silver-receives-approval-for-exploration-drilling-on-red-hills-gold-target-665793516) 
+[Original/Source Press Release](https://newsdirect.com/news/arizona-gold-and-silver-receives-approval-for-exploration-drilling-on-red-hills-gold-target-665793516)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d9jcag/arizona_gold_silver_receives_approval_for/

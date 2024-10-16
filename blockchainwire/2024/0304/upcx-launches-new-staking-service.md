@@ -40,6 +40,9 @@ Website: www.upcx.io
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/upcx-launches-new-staking-service) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/upcx-launches-new-staking-service)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1b6rm2x/upcx_launches_new_staking_service_for_competitive/

@@ -10,6 +10,9 @@ Furthermore, ketamine treatment modulates the balance between inhibitory and exc
 
 At Hawaii Ketamine Therapy, a leading treatment center dedicated to providing transformative solutions for individuals with OCD and other mental health conditions, patients receive safe and personalized ketamine treatments administered by a team of renowned experts. By prioritizing patient well-being and fostering a compassionate environment, Hawaii Ketamine Therapy aims to facilitate comprehensive healing and empower individuals on their journey toward wellness. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231228954/hawaii-ketamine-therapy-offering-new-hope-for-individuals-with-ocd) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231228954/hawaii-ketamine-therapy-offering-new-hope-for-individuals-with-ocd)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avcwhc/pioneering_ketamine_treatment_offers_hope_for_ocd/

@@ -31,6 +31,9 @@ Company Websitehttps://navex.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/navex-unveils-compliance-program-management-doj-guidance-928011419 
 
-[Original/Source Press Release](https://newsdirect.com/news/navex-unveils-compliance-program-management-doj-guidance-928011419) 
+[Original/Source Press Release](https://newsdirect.com/news/navex-unveils-compliance-program-management-doj-guidance-928011419)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1csjcka/navex_unveils_compliance_program_management_doj/

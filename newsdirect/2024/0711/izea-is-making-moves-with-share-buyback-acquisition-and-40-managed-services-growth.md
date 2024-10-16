@@ -48,6 +48,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/izea-is-making-moves-with-share-buyback-acquisition-and-40-managed-services-growth-846969299 
 
-[Original/Source Press Release](https://newsdirect.com/news/izea-is-making-moves-with-share-buyback-acquisition-and-40-managed-services-growth-846969299) 
+[Original/Source Press Release](https://newsdirect.com/news/izea-is-making-moves-with-share-buyback-acquisition-and-40-managed-services-growth-846969299)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1e0o6nz/izea_makes_moves_with_share_buyback_acquisition/

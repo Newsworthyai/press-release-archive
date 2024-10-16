@@ -10,6 +10,9 @@ Twitter X : http://twitter.com/gametyio
 
 Telegram : [https://t.me/gametyio](https://t.me/gametyio)Website : [http://gamety.io/](http://gamety.io/)Discord: [https://discord.com/invite/MetaFighter](https://discord.com/invite/MetaFighter)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/why-gamety-is-a-hidden-gem) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/why-gamety-is-a-hidden-gem)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1cuj5zt/gamety_the_hidden_gem_of_blockchain_gaming/

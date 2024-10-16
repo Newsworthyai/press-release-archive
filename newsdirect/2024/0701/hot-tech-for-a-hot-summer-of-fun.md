@@ -62,6 +62,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hot-tech-for-a-hot-summer-of-fun-270326432 
 
-[Original/Source Press Release](https://newsdirect.com/news/hot-tech-for-a-hot-summer-of-fun-270326432) 
+[Original/Source Press Release](https://newsdirect.com/news/hot-tech-for-a-hot-summer-of-fun-270326432)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dsz9w4/hot_tech_ideas_for_a_fun_summer_of_lifestyle/

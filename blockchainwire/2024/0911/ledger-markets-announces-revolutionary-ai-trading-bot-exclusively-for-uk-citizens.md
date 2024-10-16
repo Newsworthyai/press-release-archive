@@ -34,6 +34,9 @@ UK citizens interested in revolutionizing their trading strategies can learn mor
 
 Don’t miss out on the future of trading – take the first step towards smarter, faster, and more profitable trades with Ledger Markets' AI trading bot today. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/ledger-markets-announces-revolutionary-ai-trading-bot-exclusively-for-uk-citizens) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/ledger-markets-announces-revolutionary-ai-trading-bot-exclusively-for-uk-citizens)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fe8pza/ledger_markets_launches_revolutionary_ai_trading/

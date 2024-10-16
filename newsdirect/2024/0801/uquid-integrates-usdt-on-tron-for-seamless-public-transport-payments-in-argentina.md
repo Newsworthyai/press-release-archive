@@ -56,6 +56,9 @@ pr@uquid.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/uquid-integrates-usdt-on-tron-for-seamless-public-transport-payments-in-argentina-305105606 
 
-[Original/Source Press Release](https://newsdirect.com/news/uquid-integrates-usdt-on-tron-for-seamless-public-transport-payments-in-argentina-305105606) 
+[Original/Source Press Release](https://newsdirect.com/news/uquid-integrates-usdt-on-tron-for-seamless-public-transport-payments-in-argentina-305105606)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ehjsv3/uquid_introduces_usdt_on_tron_for_seamless_public/

@@ -26,6 +26,9 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-appoints-gracy-chen-as-ceo-904684111 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitget-appoints-gracy-chen-as-ceo-904684111) 
+[Original/Source Press Release](https://newsdirect.com/news/bitget-appoints-gracy-chen-as-ceo-904684111)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cx6pvh/bitget_appoints_gracy_chen_as_ceo_leading_the/

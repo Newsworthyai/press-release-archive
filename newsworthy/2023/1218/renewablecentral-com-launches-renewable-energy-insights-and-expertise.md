@@ -18,6 +18,9 @@ With a vision to be at the forefront of renewable energy knowledge-sharing, Rene
 
 Dive into the future of green energy at www.RenewableCentral.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231218871/renewablecentral-com-launches-renewable-energy-insights-and-expertise) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231218871/renewablecentral-com-launches-renewable-energy-insights-and-expertise)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1avcukx/renewablecentralcom_a_new_hub_for_renewable/

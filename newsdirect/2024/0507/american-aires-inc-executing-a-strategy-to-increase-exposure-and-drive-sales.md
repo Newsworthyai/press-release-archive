@@ -62,6 +62,9 @@ Company Websitehttp://RazorPitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/american-aires-inc-executing-a-strategy-to-increase-exposure-and-drive-sales-736782652 
 
-[Original/Source Press Release](https://newsdirect.com/news/american-aires-inc-executing-a-strategy-to-increase-exposure-and-drive-sales-736782652) 
+[Original/Source Press Release](https://newsdirect.com/news/american-aires-inc-executing-a-strategy-to-increase-exposure-and-drive-sales-736782652)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cm9e3z/american_aires_inc_leading_the_charge_against/

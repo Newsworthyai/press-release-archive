@@ -70,6 +70,9 @@ Company Websitehttps://www.sectorspdrs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/consumer-discretionary-sector-spdr-fund-xly-tapping-into-the-luxury-consumer-market-687887773 
 
-[Original/Source Press Release](https://newsdirect.com/news/consumer-discretionary-sector-spdr-fund-xly-tapping-into-the-luxury-consumer-market-687887773) 
+[Original/Source Press Release](https://newsdirect.com/news/consumer-discretionary-sector-spdr-fund-xly-tapping-into-the-luxury-consumer-market-687887773)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1btu4bv/invest_in_the_highend_retail_market_with_xly_fund/

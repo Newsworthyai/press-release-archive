@@ -16,6 +16,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/medicus-pharma-ceo-dr-raza-bokhari-announces-updated-phase-2-clinical-protocol-submission-to-fda-649563376 
 
-[Original/Source Press Release](https://newsdirect.com/news/medicus-pharma-ceo-dr-raza-bokhari-announces-updated-phase-2-clinical-protocol-submission-to-fda-649563376) 
+[Original/Source Press Release](https://newsdirect.com/news/medicus-pharma-ceo-dr-raza-bokhari-announces-updated-phase-2-clinical-protocol-submission-to-fda-649563376)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1e4skrp/medicus_pharma_ceo_announces_updated_phase_2/

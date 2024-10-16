@@ -12,6 +12,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/compumedics-set-for-record-breaking-46-million-fy24-revenue-610901332 
 
-[Original/Source Press Release](https://newsdirect.com/news/compumedics-set-for-record-breaking-46-million-fy24-revenue-610901332) 
+[Original/Source Press Release](https://newsdirect.com/news/compumedics-set-for-record-breaking-46-million-fy24-revenue-610901332)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1d20p0p/compumedics_projects_record_46m_revenue_for_fy24/

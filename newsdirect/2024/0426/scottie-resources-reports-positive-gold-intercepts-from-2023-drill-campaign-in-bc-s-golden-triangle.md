@@ -22,6 +22,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/scottie-resources-reports-positive-gold-intercepts-from-2023-drill-campaign-in-bcs-golden-triangle-121259527 
 
-[Original/Source Press Release](https://newsdirect.com/news/scottie-resources-reports-positive-gold-intercepts-from-2023-drill-campaign-in-bcs-golden-triangle-121259527) 
+[Original/Source Press Release](https://newsdirect.com/news/scottie-resources-reports-positive-gold-intercepts-from-2023-drill-campaign-in-bcs-golden-triangle-121259527)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cdolfp/scottie_resources_reports_positive_gold/

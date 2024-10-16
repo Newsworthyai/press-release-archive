@@ -14,6 +14,8 @@ NOWPayments invites all attendees to visit their booth P148 on level 4 at Token 
 
 About NOWPaymentsNOWPayments is a leading crypto payment gatewayproviding easy and secure payment solutions for businesses around the world. With support for over 300 cryptocurrencies and features like auto coin conversion, donation widgets, and e-commerce plugins, NOWPayments offers flexible and robust payment tools for businesses of all sizes. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/nowpayments-and-changenow-are-attending-token-2049-conference-in-singapore-on-september-18-19-2024) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/nowpayments-and-changenow-are-attending-token-2049-conference-in-singapore-on-september-18-19-2024)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+

@@ -50,6 +50,9 @@ Company Websitehttps://www.truck1.eu/
 
 View source version on newsdirect.com: https://newsdirect.com/news/truck1-unveils-premium-and-the-expensive-rvs-for-the-discerning-traveler-575044515 
 
-[Original/Source Press Release](https://newsdirect.com/news/truck1-unveils-premium-and-the-expensive-rvs-for-the-discerning-traveler-575044515) 
+[Original/Source Press Release](https://newsdirect.com/news/truck1-unveils-premium-and-the-expensive-rvs-for-the-discerning-traveler-575044515)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e4lx7p/truck1_redefines_luxury_with_most_expensive_rv/

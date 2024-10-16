@@ -18,6 +18,9 @@ EarnedMedia.io is positioned at the forefront of media engagement strategies. We
 
 Elevate your media strategies with www.EarnedMedia.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231214811/earnedmedia-io-launches-the-premier-destination-for-insightful-media-engagement-strategies) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231214811/earnedmedia-io-launches-the-premier-destination-for-insightful-media-engagement-strategies)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1avx3uj/introducing_earnedmediaio_a_gamechanging_platform/

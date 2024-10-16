@@ -24,6 +24,9 @@ About NOWPayments
 
 NOWPayments is the leading cryptocurrency payment gateway offering support for over 300 digital currencies, enabling businesses and individuals to accept crypto payments with ease. The platform stands out in the market with its low transaction fee of only 0.5%, the lowest fee on the market. Clients can directly withdraw euros to their bank accounts, enhancing the convenience and usability of the service. Each account benefits from personalized attention through a dedicated account manager and round-the-clock support, ensuring a smooth and responsive user experience. With NOWPayments, embracing the power of cryptocurrencies has never been easier or more accessible. For more information, visit the website. Follow Tangem’s latest news on X (Twitter). 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/nowpayments-enables-cryptocurrency-purchases-of-tangem-wallets-expanding-payment-options-with-btc-eth-usdc-and-more) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/nowpayments-enables-cryptocurrency-purchases-of-tangem-wallets-expanding-payment-options-with-btc-eth-usdc-and-more)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cnuq70/nowpayments_and_tangem_revolutionize_crypto/

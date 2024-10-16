@@ -90,6 +90,9 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-reveals-exciting-updates-to-sponsor-and-judge-list-for-hackatron-season-6-602407909 
 
-[Original/Source Press Release](https://newsdirect.com/news/tron-dao-reveals-exciting-updates-to-sponsor-and-judge-list-for-hackatron-season-6-602407909) 
+[Original/Source Press Release](https://newsdirect.com/news/tron-dao-reveals-exciting-updates-to-sponsor-and-judge-list-for-hackatron-season-6-602407909)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1bq348q/hackatron_season_6_introduces_new_sponsors_and/

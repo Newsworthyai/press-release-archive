@@ -52,6 +52,9 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/r-games-worlds-first-ai-and-gaming-token-is-set-to-launch-on-top-exchanges) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/r-games-worlds-first-ai-and-gaming-token-is-set-to-launch-on-top-exchanges)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1bvw7zo/r_games_revolutionizes_web3_gaming_with_rgame/

@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/synertec-secures-a-22-million-in-new-funding-for-powerhouse-technology-expansion-558584711 
 
-[Original/Source Press Release](https://newsdirect.com/news/synertec-secures-a-22-million-in-new-funding-for-powerhouse-technology-expansion-558584711) 
+[Original/Source Press Release](https://newsdirect.com/news/synertec-secures-a-22-million-in-new-funding-for-powerhouse-technology-expansion-558584711)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1co5cwt/synertec_secures_a22_million_in_new_funding_for/

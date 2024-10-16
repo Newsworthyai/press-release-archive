@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/from-faster-medical-service-to-global-crisis-relief-the-potential-of-evtols-to-usher-in-a-new-future-731318591 
 
-[Original/Source Press Release](https://newsdirect.com/news/from-faster-medical-service-to-global-crisis-relief-the-potential-of-evtols-to-usher-in-a-new-future-731318591) 
+[Original/Source Press Release](https://newsdirect.com/news/from-faster-medical-service-to-global-crisis-relief-the-potential-of-evtols-to-usher-in-a-new-future-731318591)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1bpu174/horizon_aircrafts_evtol_prototype_could/

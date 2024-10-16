@@ -61,6 +61,9 @@ Company Websitehttps://www.zoomex.com/en/UEFA
 
 View source version on newsdirect.com: https://newsdirect.com/news/zoomex-unveils-revolutionary-whale-affiliate-program-setting-a-new-standard-in-crypto-affiliate-opportunities-434384558 
 
-[Original/Source Press Release](https://newsdirect.com/news/zoomex-unveils-revolutionary-whale-affiliate-program-setting-a-new-standard-in-crypto-affiliate-opportunities-434384558) 
+[Original/Source Press Release](https://newsdirect.com/news/zoomex-unveils-revolutionary-whale-affiliate-program-setting-a-new-standard-in-crypto-affiliate-opportunities-434384558)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dmpi6s/zoomex_launches_revolutionary_whale_affiliate/

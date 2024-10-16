@@ -56,6 +56,9 @@ Disclaimer: The information provided in this press release is not a solicitation
 
 ation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/unlocking-passive-income-with-defiquants-automated-trading-bot) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/unlocking-passive-income-with-defiquants-automated-trading-bot)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1az5akj/defiquant_unveils_revolutionary_automated_trading/

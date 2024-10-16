@@ -40,6 +40,9 @@ About ioTech International
 
 ioTech International is a leading developer and manufacturer of award-winning oral care products based on the Company’s patented, breakthrough molecular iodine technology. Molecular iodine is the only biocidal iodine species, accounting for all its germicidal activity. Safe and effective, molecular iodine is an essential nutrient required for optimal health. Products based on ioTech’s molecular iodine technology have been adopted for use in medical, dental, agricultural, consumer, and pet health markets. ioRinse, ioTech’s award-winning rinse, and other ioTech products are available at leading dental offices, Amazon.com, and the Company’s website. ioTech International headquarters are in Boynton Beach, FL. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202408151238/is-brushing-flossing-alone-the-best-way-to-prevent-periodontal-disease-maybe-not) 
+[Original/Source Press Release](https://newsworthy.ai/news/202408151238/is-brushing-flossing-alone-the-best-way-to-prevent-periodontal-disease-maybe-not)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eswand/new_study_reveals_importance_of_rinsing_in/

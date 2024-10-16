@@ -42,6 +42,9 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-to-boost-liquid-restaking-quota-totaling-150-million-with-upgraded-point-system-613405027 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-to-boost-liquid-restaking-quota-totaling-150-million-with-upgraded-point-system-613405027) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-to-boost-liquid-restaking-quota-totaling-150-million-with-upgraded-point-system-613405027)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ct9zor/htx_to_boost_liquid_restaking_quota_totaling_150/

@@ -72,6 +72,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/wellness-and-dietary-supplement-company-safety-shot-reports-bringing-worlds-first-patented-rapid-blood-alcohol-detox-solution-to-market-795150189 
 
-[Original/Source Press Release](https://newsdirect.com/news/wellness-and-dietary-supplement-company-safety-shot-reports-bringing-worlds-first-patented-rapid-blood-alcohol-detox-solution-to-market-795150189) 
+[Original/Source Press Release](https://newsdirect.com/news/wellness-and-dietary-supplement-company-safety-shot-reports-bringing-worlds-first-patented-rapid-blood-alcohol-detox-solution-to-market-795150189)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1dipzo3/safety_shot_launches_groundbreaking_beverage_to/

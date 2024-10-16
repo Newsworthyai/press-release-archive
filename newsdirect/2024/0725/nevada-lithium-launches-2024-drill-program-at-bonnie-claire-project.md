@@ -14,6 +14,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nevada-lithium-launches-2024-drill-program-at-bonnie-claire-project-995706420 
 
-[Original/Source Press Release](https://newsdirect.com/news/nevada-lithium-launches-2024-drill-program-at-bonnie-claire-project-995706420) 
+[Original/Source Press Release](https://newsdirect.com/news/nevada-lithium-launches-2024-drill-program-at-bonnie-claire-project-995706420)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ec034g/nevada_lithium_initiates_2024_drill_program_at/

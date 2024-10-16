@@ -32,6 +32,9 @@ Email: partner@athene.network
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/athene-network-ath-network-crosses-3-million-user-milestone-establishes-itself-as-leading-layer-2-ethereum-solution) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/athene-network-ath-network-crosses-3-million-user-milestone-establishes-itself-as-leading-layer-2-ethereum-solution)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1b7kskh/athene_network_ath_network_revolutionizing_mobile/

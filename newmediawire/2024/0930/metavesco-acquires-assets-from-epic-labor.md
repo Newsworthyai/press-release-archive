@@ -24,6 +24,9 @@ info@metavesco.com
 
 SOURCE: Metavesco, Inc. 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/metavesco-acquires-assets-from-epic-labor-7076122) 
+[Original/Source Press Release](https://www.newmediawire.com/news/metavesco-acquires-assets-from-epic-labor-7076122)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1fsucbj/metavesco_inc_acquires_key_assets_from_epic_labor/

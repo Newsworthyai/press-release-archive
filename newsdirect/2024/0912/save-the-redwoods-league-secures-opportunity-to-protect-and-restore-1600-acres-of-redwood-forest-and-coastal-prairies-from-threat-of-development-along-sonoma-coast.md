@@ -60,6 +60,9 @@ Company Websitehttps://www.savetheredwoods.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/save-the-redwoods-league-secures-opportunity-to-protect-and-restore-1-600-acres-of-redwood-forest-and-coastal-prairies-from-threat-of-development-along-sonoma-coast-323769909 
 
-[Original/Source Press Release](https://newsdirect.com/news/save-the-redwoods-league-secures-opportunity-to-protect-and-restore-1-600-acres-of-redwood-forest-and-coastal-prairies-from-threat-of-development-along-sonoma-coast-323769909) 
+[Original/Source Press Release](https://newsdirect.com/news/save-the-redwoods-league-secures-opportunity-to-protect-and-restore-1-600-acres-of-redwood-forest-and-coastal-prairies-from-threat-of-development-along-sonoma-coast-323769909)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ff6pih/save_the_redwoods_league_secures_opportunity_to/

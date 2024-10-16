@@ -32,6 +32,9 @@ YouTube channel
 
 Facebook Page 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409261281/hometown-or-cookie-cutter-sprawl-lisa-moretti-plans-for-real-communities-in-pasco-county-florida) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409261281/hometown-or-cookie-cutter-sprawl-lisa-moretti-plans-for-real-communities-in-pasco-county-florida)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1fptlk8/lisa_moretti_stands_against_cookiecutter_sprawl/

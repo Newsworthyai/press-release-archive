@@ -30,6 +30,9 @@ marco@magopr.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/los-defensores-celebrates-40-years-of-dedicated-service-and-community-empowerment-509176198 
 
-[Original/Source Press Release](https://newsdirect.com/news/los-defensores-celebrates-40-years-of-dedicated-service-and-community-empowerment-509176198) 
+[Original/Source Press Release](https://newsdirect.com/news/los-defensores-celebrates-40-years-of-dedicated-service-and-community-empowerment-509176198)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1ekrhxr/los_defensores_marks_40_years_of_empowering_the/

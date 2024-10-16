@@ -72,6 +72,9 @@ Facebook: https://www.facebook.com/profile.php?id=61552312260533
 
 Youtube: https://www.youtube.com/@GoingforGoldNGT 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/cunningham-mining-ltd-announces-nugget-trap-rwa-token-offering-for-100m-units-at-0-60-usd-and-sets-focus-on-tokenizing-the-mining-industry-7076071) 
+[Original/Source Press Release](https://www.newmediawire.com/news/cunningham-mining-ltd-announces-nugget-trap-rwa-token-offering-for-100m-units-at-0-60-usd-and-sets-focus-on-tokenizing-the-mining-industry-7076071)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1fko51t/nugget_trap_token_launches_revolutionizing_mining/

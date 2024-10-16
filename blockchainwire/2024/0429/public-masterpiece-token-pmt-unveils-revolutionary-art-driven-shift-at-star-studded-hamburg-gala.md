@@ -34,6 +34,9 @@ Telegram: https://t.me/Publicmemetoken_GroupChat
 
 X: https://x.com/publicmemetoken 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/public-masterpiece-token-pmt-unveils-revolutionary-art-driven-shift-at-star-studded-hamburg-gala-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/public-masterpiece-token-pmt-unveils-revolutionary-art-driven-shift-at-star-studded-hamburg-gala-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cg7nyz/public_meme_token_transforms_into_public/

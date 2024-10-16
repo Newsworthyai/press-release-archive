@@ -24,6 +24,9 @@
 
  IBN (InvestorBrandNetwork)Los Angeles, Californiawww.InvestorBrandNetwork.com310.299.1717 OfficeEditor@InvestorBrandNetwork.com 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/d-wave-quantum-nyse-qbts-reports-strong-q2-2024-results/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/d-wave-quantum-nyse-qbts-reports-strong-q2-2024-results/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1f2gw9b/dwave_quantum_inc_reports_strong_q2_2024_results/

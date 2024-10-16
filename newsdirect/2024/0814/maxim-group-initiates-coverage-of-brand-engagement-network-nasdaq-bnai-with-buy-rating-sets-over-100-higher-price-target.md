@@ -58,6 +58,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/maxim-group-initiates-coverage-of-brand-engagement-network-nasdaq-bnai-with-buy-rating-sets-over-100-higher-price-target-929186128 
 
-[Original/Source Press Release](https://newsdirect.com/news/maxim-group-initiates-coverage-of-brand-engagement-network-nasdaq-bnai-with-buy-rating-sets-over-100-higher-price-target-929186128) 
+[Original/Source Press Release](https://newsdirect.com/news/maxim-group-initiates-coverage-of-brand-engagement-network-nasdaq-bnai-with-buy-rating-sets-over-100-higher-price-target-929186128)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1es0rqd/maxim_group_initiates_coverage_of_brand/

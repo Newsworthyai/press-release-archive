@@ -34,6 +34,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/wisas-datavault-technology-launches-academic-credential-verification-platform-for-universities-aims-to-licence-20-30-to-institutions-by-2025-622369122 
 
-[Original/Source Press Release](https://newsdirect.com/news/wisas-datavault-technology-launches-academic-credential-verification-platform-for-universities-aims-to-licence-20-30-to-institutions-by-2025-622369122) 
+[Original/Source Press Release](https://newsdirect.com/news/wisas-datavault-technology-launches-academic-credential-verification-platform-for-universities-aims-to-licence-20-30-to-institutions-by-2025-622369122)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1fqmrpo/wisas_datavault_technology_launches_academic/

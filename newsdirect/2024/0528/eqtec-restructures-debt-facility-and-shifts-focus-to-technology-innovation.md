@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/eqtec-restructures-debt-facility-and-shifts-focus-to-technology-innovation-666644982 
 
-[Original/Source Press Release](https://newsdirect.com/news/eqtec-restructures-debt-facility-and-shifts-focus-to-technology-innovation-666644982) 
+[Original/Source Press Release](https://newsdirect.com/news/eqtec-restructures-debt-facility-and-shifts-focus-to-technology-innovation-666644982)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1d2lknt/eqtec_restructures_debt_facility_and_shifts_focus/

@@ -30,6 +30,9 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-hosts-dubai-whale-night-building-an-open-and-interconnected-web3-ecosystem-764870666 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-hosts-dubai-whale-night-building-an-open-and-interconnected-web3-ecosystem-764870666) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-hosts-dubai-whale-night-building-an-open-and-interconnected-web3-ecosystem-764870666)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ca7you/htx_hosts_dubai_whale_night_building_an_open_and/

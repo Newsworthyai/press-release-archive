@@ -8,6 +8,9 @@ What’s NextFollowing the brand upgrade, PropW will continue to provide the bes
 
 The brand upgrade of PropW marks our new beginning. In the future, PropW will continue to promote the professionalization of trading, launching more innovations and services. We look forward to witnessing this exciting transformation with traders and customers, moving towards a brighter future together. We invite everyone to stay tuned for the latest updates from PropW and look forward to growing with you in the coming days. For more details, please visit our website or contact our customer service team: https://www.propw.com/en_US 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/propw-brand-upgrade-a-new-journey-opening-a-new-era-of-professional-trading) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/propw-brand-upgrade-a-new-journey-opening-a-new-era-of-professional-trading)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dfojgl/propw_announces_brand_upgrade_and_new_logo_design/

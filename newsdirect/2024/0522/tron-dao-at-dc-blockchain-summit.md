@@ -50,6 +50,9 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tron-dao-at-dc-blockchain-summit-847605502 
 
-[Original/Source Press Release](https://newsdirect.com/news/tron-dao-at-dc-blockchain-summit-847605502) 
+[Original/Source Press Release](https://newsdirect.com/news/tron-dao-at-dc-blockchain-summit-847605502)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cy0q2g/tron_dao_shines_as_silver_sponsor_at_dc/

@@ -12,6 +12,9 @@ Company Websitehttp://www.newsdirect.com
 
 View original content to download multimedia: https://newsdirect.com/news/news-direct-turns-its-attention-to-the-comprehensive-reach-it-provides-in-its-continued-marketing-push-319782872 
 
-[Original/Source Press Release](https://newsdirect.com/news/news-direct-turns-its-attention-to-the-comprehensive-reach-it-provides-in-its-continued-marketing-push-319782872) 
+[Original/Source Press Release](https://newsdirect.com/news/news-direct-turns-its-attention-to-the-comprehensive-reach-it-provides-in-its-continued-marketing-push-319782872)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1etoihv/news_direct_corp_highlights_comprehensive_reach/

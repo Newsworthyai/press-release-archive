@@ -16,6 +16,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/u-s-gold-corps-wyoming-mining-project-a-positive-outlook-on-resource-development-699313305 
 
-[Original/Source Press Release](https://newsdirect.com/news/u-s-gold-corps-wyoming-mining-project-a-positive-outlook-on-resource-development-699313305) 
+[Original/Source Press Release](https://newsdirect.com/news/u-s-gold-corps-wyoming-mining-project-a-positive-outlook-on-resource-development-699313305)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d1vu2e/us_gold_corps_wyoming_mining_project_a_positive/

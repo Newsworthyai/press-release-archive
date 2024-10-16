@@ -66,6 +66,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/use-volatility-in-your-favor-with-robinhood-options-trading-in-april-volatility-index-vix-hit-highest-mark-337548674 
 
-[Original/Source Press Release](https://newsdirect.com/news/use-volatility-in-your-favor-with-robinhood-options-trading-in-april-volatility-index-vix-hit-highest-mark-337548674) 
+[Original/Source Press Release](https://newsdirect.com/news/use-volatility-in-your-favor-with-robinhood-options-trading-in-april-volatility-index-vix-hit-highest-mark-337548674)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1d7lo9n/robinhood_makes_options_trading_easier_for_active/

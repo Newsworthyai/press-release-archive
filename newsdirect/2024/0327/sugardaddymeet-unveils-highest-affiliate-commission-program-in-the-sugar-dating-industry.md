@@ -30,6 +30,9 @@ affiliates@sugardaddymeet.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sugardaddymeet-unveils-highest-affiliate-commission-program-in-the-sugar-dating-industry-808502978 
 
-[Original/Source Press Release](https://newsdirect.com/news/sugardaddymeet-unveils-highest-affiliate-commission-program-in-the-sugar-dating-industry-808502978) 
+[Original/Source Press Release](https://newsdirect.com/news/sugardaddymeet-unveils-highest-affiliate-commission-program-in-the-sugar-dating-industry-808502978)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bp80xn/sugardaddymeet_launches_highest_affiliate/

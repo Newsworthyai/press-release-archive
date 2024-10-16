@@ -37,6 +37,9 @@ Company Websitehttps://canadasgiftbaskets.ca/
 
 View source version on newsdirect.com: https://newsdirect.com/news/canadas-gift-baskets-unveils-new-line-of-corporate-gift-baskets-544149563 
 
-[Original/Source Press Release](https://newsdirect.com/news/canadas-gift-baskets-unveils-new-line-of-corporate-gift-baskets-544149563) 
+[Original/Source Press Release](https://newsdirect.com/news/canadas-gift-baskets-unveils-new-line-of-corporate-gift-baskets-544149563)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1enwmmv/canadas_gift_baskets_launches_new_line_of/

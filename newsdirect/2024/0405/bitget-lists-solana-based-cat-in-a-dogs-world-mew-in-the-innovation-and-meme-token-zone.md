@@ -32,6 +32,9 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-lists-solana-based-cat-in-a-dogs-world-mew-in-the-innovation-and-meme-token-zone-316391598 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitget-lists-solana-based-cat-in-a-dogs-world-mew-in-the-innovation-and-meme-token-zone-316391598) 
+[Original/Source Press Release](https://newsdirect.com/news/bitget-lists-solana-based-cat-in-a-dogs-world-mew-in-the-innovation-and-meme-token-zone-316391598)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bwi7ga/bitget_lists_solanabased_cat_in_a_dogs_world_mew/

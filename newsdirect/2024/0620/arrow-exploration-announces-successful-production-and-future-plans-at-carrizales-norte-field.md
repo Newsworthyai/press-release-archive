@@ -16,6 +16,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/arrow-exploration-announces-successful-production-and-future-plans-at-carrizales-norte-field-389379942 
 
-[Original/Source Press Release](https://newsdirect.com/news/arrow-exploration-announces-successful-production-and-future-plans-at-carrizales-norte-field-389379942) 
+[Original/Source Press Release](https://newsdirect.com/news/arrow-exploration-announces-successful-production-and-future-plans-at-carrizales-norte-field-389379942)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dkhyzm/arrow_exploration_ceo_provides_promising_updates/

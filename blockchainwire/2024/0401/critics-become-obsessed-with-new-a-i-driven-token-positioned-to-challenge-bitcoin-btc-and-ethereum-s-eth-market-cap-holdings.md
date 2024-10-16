@@ -42,6 +42,9 @@ https://twitter.com/Option2Trade (O2T)
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/critics-become-obsessed-with-new-ai-driven-token-positioned-to-challenge-bitcoin-btc-and-ethereums-eth-market-cap-holdings) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/critics-become-obsessed-with-new-ai-driven-token-positioned-to-challenge-bitcoin-btc-and-ethereums-eth-market-cap-holdings)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1btinw6/option2trade_o2t_surges_in_popularity_as_rival_to/

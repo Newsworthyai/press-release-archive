@@ -22,6 +22,9 @@ For more information about Cosmic Kittens (CKIT) and to participate in the presa
 
 Website: https://cosmickittens.online/*Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/cosmic-kittens-ckit-unveils-revolutionary-blockchain-gaming-experience) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/cosmic-kittens-ckit-unveils-revolutionary-blockchain-gaming-experience)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dufb0b/cosmic_kittens_ckit_pioneering_a_new_era_in/

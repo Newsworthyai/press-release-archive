@@ -20,6 +20,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/coniagas-battery-metals-secures-new-key-ground-with-focus-on-copper-nickel-cobalt-platinum-556950563 
 
-[Original/Source Press Release](https://newsdirect.com/news/coniagas-battery-metals-secures-new-key-ground-with-focus-on-copper-nickel-cobalt-platinum-556950563) 
+[Original/Source Press Release](https://newsdirect.com/news/coniagas-battery-metals-secures-new-key-ground-with-focus-on-copper-nickel-cobalt-platinum-556950563)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bu43s4/coniagas_battery_metals_expands_footprint_with/

@@ -32,6 +32,9 @@ Instagram:       https://www.instagram.com/public_masterpiece/
 
 Twitter:           https://x.com/pm_token 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/public-masterpiece-partners-with-golden-silk-pheach-unveiling-the-3-million-golden-khmer-flower-of-life) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/public-masterpiece-partners-with-golden-silk-pheach-unveiling-the-3-million-golden-khmer-flower-of-life)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1fi72n0/public_masterpiece_announces_partnership_with/

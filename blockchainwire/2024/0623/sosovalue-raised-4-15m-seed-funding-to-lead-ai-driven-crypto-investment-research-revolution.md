@@ -10,6 +10,9 @@ About SoSoValue
 
 Headquartered in Singapore, SoSoValue is an AI-driven investment research platform transforming how investors access and analyze cryptocurrency information. Dedicated to democratizing access to advanced data technology and insights, the company ensures all investors have equal opportunities. By harnessing advanced AI capabilities, SoSoValue offers comprehensive research tools, real-time analytics, and fosters a vibrant community for collaborative growth. Featuring innovative tools such as the Bitcoin Spot ETF dashboard, AI-powered news aggregator and Crypto Sector Index, SoSoValue has rapidly attracted over 1.2 million organic users within 5 months of its launch, establishing a significant presence in advanced financial markets. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/sosovalue-raised-415m-seed-funding-to-lead-ai-driven-crypto-investment-research-revolution) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/sosovalue-raised-415m-seed-funding-to-lead-ai-driven-crypto-investment-research-revolution)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dmp5sy/sosovalue_closes_415m_seed_funding_round_attracts/

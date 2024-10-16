@@ -52,6 +52,9 @@ OTC Markets Group
 
 johnv@otcmarkets.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/exodus-movement-inc-to-present-at-the-blockchain--digital-asset-virtual-investor-conference-april-25th) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/exodus-movement-inc-to-present-at-the-blockchain--digital-asset-virtual-investor-conference-april-25th)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cbxck4/exodus_movement_inc_to_present_at_blockchain/

@@ -10,6 +10,9 @@ It is important to note that TMS is FDA-cleared for the treatment of depression,
 
 While TMS NW focuses on administering TMS therapy, they encourage clients to continue care with their therapist to complement the treatment and achieve the best results. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401271040/tms-nw-in-vancouver-washington-offers-cutting-edge-tms-therapy-for-depression-and-ocd) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401271040/tms-nw-in-vancouver-washington-offers-cutting-edge-tms-therapy-for-depression-and-ocd)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avlg3g/innovative_tms_therapy_now_available_in_vancouver/

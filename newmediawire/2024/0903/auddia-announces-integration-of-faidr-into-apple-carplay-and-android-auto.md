@@ -38,6 +38,9 @@ ksmith@pcgadvisory.com
 
 www.pcgadvisory.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/auddia-announces-integration-of-faidr-into-apple-carplay-and-android-auto-7075989) 
+[Original/Source Press Release](https://www.newmediawire.com/news/auddia-announces-integration-of-faidr-into-apple-carplay-and-android-auto-7075989)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1f7y4cd/auddia_launches_apple_carplay_and_android_auto/

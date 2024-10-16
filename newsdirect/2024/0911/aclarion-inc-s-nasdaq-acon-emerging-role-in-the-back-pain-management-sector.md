@@ -38,6 +38,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/aclarion-inc-s-nasdaq-acon-emerging-role-in-the-back-pain-management-sector-380926552 
 
-[Original/Source Press Release](https://newsdirect.com/news/aclarion-inc-s-nasdaq-acon-emerging-role-in-the-back-pain-management-sector-380926552) 
+[Original/Source Press Release](https://newsdirect.com/news/aclarion-inc-s-nasdaq-acon-emerging-role-in-the-back-pain-management-sector-380926552)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1fe6mvn/aclarion_inc_nasdaq_acon_leading_innovation_in/

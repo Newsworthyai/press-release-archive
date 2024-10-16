@@ -34,6 +34,9 @@ Company Websitehttps://investmentsandwealth.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/investments-and-wealth-academy-wins-best-in-industry-association-in-the-wealthmanagement-com-2024-wealthie-awards-168429986 
 
-[Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-academy-wins-best-in-industry-association-in-the-wealthmanagement-com-2024-wealthie-awards-168429986) 
+[Original/Source Press Release](https://newsdirect.com/news/investments-and-wealth-academy-wins-best-in-industry-association-in-the-wealthmanagement-com-2024-wealthie-awards-168429986)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1faq4vz/investments_wealth_institute_wins_best_in/

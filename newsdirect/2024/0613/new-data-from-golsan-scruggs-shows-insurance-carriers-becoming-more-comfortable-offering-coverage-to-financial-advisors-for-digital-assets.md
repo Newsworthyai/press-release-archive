@@ -36,6 +36,9 @@ Company Websitehttps://golsanscruggs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/new-data-from-golsan-scruggs-shows-insurance-carriers-becoming-more-comfortable-offering-coverage-to-financial-advisors-for-digital-assets-527446204 
 
-[Original/Source Press Release](https://newsdirect.com/news/new-data-from-golsan-scruggs-shows-insurance-carriers-becoming-more-comfortable-offering-coverage-to-financial-advisors-for-digital-assets-527446204) 
+[Original/Source Press Release](https://newsdirect.com/news/new-data-from-golsan-scruggs-shows-insurance-carriers-becoming-more-comfortable-offering-coverage-to-financial-advisors-for-digital-assets-527446204)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1deyqxl/insurers_more_comfortable_offering_coverage_for/

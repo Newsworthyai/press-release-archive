@@ -28,6 +28,9 @@ Anna Benson
 
 anna@picklejar.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/picklejar-launches-national-get-on-the-bus-campaign-unveils-thompson-square-tour-bus-wrap-7075995) 
+[Original/Source Press Release](https://www.newmediawire.com/news/picklejar-launches-national-get-on-the-bus-campaign-unveils-thompson-square-tour-bus-wrap-7075995)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1f9gtg5/picklejar_entertainment_group_launches_new_brand/

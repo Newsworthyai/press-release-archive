@@ -40,6 +40,9 @@ nramos@readywise.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/dont-wait-for-the-next-crisis-readywises-emergency-labor-day-sale-312815522 
 
-[Original/Source Press Release](https://newsdirect.com/news/dont-wait-for-the-next-crisis-readywises-emergency-labor-day-sale-312815522) 
+[Original/Source Press Release](https://newsdirect.com/news/dont-wait-for-the-next-crisis-readywises-emergency-labor-day-sale-312815522)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1f4oorg/readywise_labor_day_sale_up_to_45_off_emergency/

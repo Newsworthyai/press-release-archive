@@ -16,6 +16,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/european-green-transition-announces-deal-to-acquire-prospective-carbon-credit-project-in-ireland-465079301 
 
-[Original/Source Press Release](https://newsdirect.com/news/european-green-transition-announces-deal-to-acquire-prospective-carbon-credit-project-in-ireland-465079301) 
+[Original/Source Press Release](https://newsdirect.com/news/european-green-transition-announces-deal-to-acquire-prospective-carbon-credit-project-in-ireland-465079301)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cyqv5s/european_green_transition_announces_exclusive/

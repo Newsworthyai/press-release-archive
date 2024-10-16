@@ -18,6 +18,9 @@ Event detailsThe Builder Afterwork event will take place at 17:00,  Friday, 2nd
 
 For all the latest updates and information on Waves3, follow their twitter page [here](https://twitter.com/waves3PT). 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/waves3-icphub-portugal-leading-growth-efforts-with-web3-builder-afterwork) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/waves3-icphub-portugal-leading-growth-efforts-with-web3-builder-afterwork)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1avxhoa/waves3_hosts_first_community_building_event_in/

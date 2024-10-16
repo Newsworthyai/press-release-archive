@@ -14,6 +14,9 @@ About CRUIZIn the dynamic world of rideshare services, CRUIZ stands out with its
 
 Stay Updated on CRUIZVisit CRUIZ’s website: https://cruiz.ai/, follow them on X (formerly Twitter) and join their Telegram channel to stay informed about their journey, milestones, and partnerships. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/revolutionary-depin-rideshare-platform-cruiz-rewards-early-adopters-with-crypto-incentives) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/revolutionary-depin-rideshare-platform-cruiz-rewards-early-adopters-with-crypto-incentives)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1c1ch3h/cruiz_launches_aidriven_rideshare_service_with/

@@ -46,6 +46,9 @@ Company Websitehttps://insurancefornonprofits.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/niac-announces-nonrenewal-of-all-coverages-for-california-foster-family-agencies-804277863 
 
-[Original/Source Press Release](https://newsdirect.com/news/niac-announces-nonrenewal-of-all-coverages-for-california-foster-family-agencies-804277863) 
+[Original/Source Press Release](https://newsdirect.com/news/niac-announces-nonrenewal-of-all-coverages-for-california-foster-family-agencies-804277863)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1ey3eab/niac_announces_nonrenewal_of_coverages_for/

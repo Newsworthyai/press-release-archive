@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/brand-engagement-network-partners-with-valio-technologies-to-support-mental-health-efforts-with-ai-876224616 
 
-[Original/Source Press Release](https://newsdirect.com/news/brand-engagement-network-partners-with-valio-technologies-to-support-mental-health-efforts-with-ai-876224616) 
+[Original/Source Press Release](https://newsdirect.com/news/brand-engagement-network-partners-with-valio-technologies-to-support-mental-health-efforts-with-ai-876224616)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1dqj2yw/ben_partners_with_valio_technologies_to_support/

@@ -18,6 +18,9 @@ Extortion.io stands as a primary resource for those keen to grasp a comprehensiv
 
 For insights on extortion and how to combat it, visit www.Extortion.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231212818/extortion-io-debuts-the-definitive-source-for-insights-on-extortion-and-its-countermeasures) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231212818/extortion-io-debuts-the-definitive-source-for-insights-on-extortion-and-its-countermeasures)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx3hm/new_extortionio_platform_launches_to_provide/

@@ -50,6 +50,9 @@ Company Websitehttps://www.kevin.eu/
 
 View source version on newsdirect.com: https://newsdirect.com/news/kevin-triumphs-with-first-account-to-account-nfc-iphone-transaction-585951130 
 
-[Original/Source Press Release](https://newsdirect.com/news/kevin-triumphs-with-first-account-to-account-nfc-iphone-transaction-585951130) 
+[Original/Source Press Release](https://newsdirect.com/news/kevin-triumphs-with-first-account-to-account-nfc-iphone-transaction-585951130)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1c1ddgl/kevin_achieves_groundbreaking_accounttoaccount/

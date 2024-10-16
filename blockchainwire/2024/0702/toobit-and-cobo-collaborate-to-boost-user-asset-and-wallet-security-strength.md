@@ -14,6 +14,9 @@ Join the revolution with Toobit – Your Trusted Partner in Digital Trading.
 
 For more information on Toobit and its services, visit Toobit. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/toobit-and-cobo-collaborate-to-boost-user-asset-and-wallet-security-strength) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/toobit-and-cobo-collaborate-to-boost-user-asset-and-wallet-security-strength)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dtr80j/toobit_announces_strategic_partnership_with_cobo/

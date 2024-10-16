@@ -20,6 +20,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cloud-dx-achieves-nearly-100-contract-renewals-worth-1-5-million-in-revenue-665565933 
 
-[Original/Source Press Release](https://newsdirect.com/news/cloud-dx-achieves-nearly-100-contract-renewals-worth-1-5-million-in-revenue-665565933) 
+[Original/Source Press Release](https://newsdirect.com/news/cloud-dx-achieves-nearly-100-contract-renewals-worth-1-5-million-in-revenue-665565933)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bu3qhe/cloud_dx_ceo_discusses_100_contract_renewal_goal/

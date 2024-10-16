@@ -16,6 +16,9 @@ Talus Network is an innovative blockchain platform with a focus on decentralizi
 
 [Website](https://talus.network/) | [Twitter](https://twitter.com/TalusNetwork) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/talus-network-raises-3-million-in-funding-led-by-polychain-capital-to-democratize-onchain-ai-with-move) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/talus-network-raises-3-million-in-funding-led-by-polychain-capital-to-democratize-onchain-ai-with-move)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1b6rrbj/talus_network_closes_successful_funding_round_to/

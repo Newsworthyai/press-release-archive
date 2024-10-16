@@ -32,6 +32,9 @@ support@payop.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/payop-appoints-anastasia-semenkova-as-the-new-ceo-646300713 
 
-[Original/Source Press Release](https://newsdirect.com/news/payop-appoints-anastasia-semenkova-as-the-new-ceo-646300713) 
+[Original/Source Press Release](https://newsdirect.com/news/payop-appoints-anastasia-semenkova-as-the-new-ceo-646300713)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bpr244/payop_appoints_anastasia_semenkova_as_new_ceo/

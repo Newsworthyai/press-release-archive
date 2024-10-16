@@ -40,6 +40,9 @@ colon.zaidapr.com@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/san-juan-domino-challenge-distrito-t-mobile-thursday-october-17th-2024-770183405 
 
-[Original/Source Press Release](https://newsdirect.com/news/san-juan-domino-challenge-distrito-t-mobile-thursday-october-17th-2024-770183405) 
+[Original/Source Press Release](https://newsdirect.com/news/san-juan-domino-challenge-distrito-t-mobile-thursday-october-17th-2024-770183405)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1er7j96/exciting_domino_challenge_set_for_san_juan_puerto/

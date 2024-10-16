@@ -52,6 +52,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/elicio-therapeutics-unveils-promising-phase-1a-data-for-eli-002-7p-in-mkras-tumors-739095619 
 
-[Original/Source Press Release](https://newsdirect.com/news/elicio-therapeutics-unveils-promising-phase-1a-data-for-eli-002-7p-in-mkras-tumors-739095619) 
+[Original/Source Press Release](https://newsdirect.com/news/elicio-therapeutics-unveils-promising-phase-1a-data-for-eli-002-7p-in-mkras-tumors-739095619)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1dckjiz/elicio_therapeutics_unveils_promising_phase_1a/

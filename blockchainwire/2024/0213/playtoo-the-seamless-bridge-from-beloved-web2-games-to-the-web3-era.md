@@ -6,6 +6,9 @@ Playtoo offers gamers an ever-expanding library of games, where they can earn th
 
 $PLY Token The $PLY token, central to the Playtoo ecosystem, facilitates transactions, rewards, and access to exclusive content, creating a sustainable economy that benefits all stakeholders. Notably, the $PLY token is tied to the gaming industry at large, rather than to individual games, ensuring stability and long-term value.About PlaytooPlaytoo is pioneering the Web3 gaming space by offering a wide selection of streaming games linked by the $PLY token, redefining entertainment, competition, and earnings in the gaming community. Playtoo is a testament to the potential of bringing the vast Web2 audience into the Web3 era, enhancing the gaming experience for everyone involved.Interested in Playtoo? Follow them:Website: [www.playtoo.io](https://playtoo.io/)X: [https://twitter.com/playtoogames](https://twitter.com/playtoogames)Discord: [https://discord.com/invite/hg2abYc2kP](https://discord.com/invite/hg2abYc2kP)Whitepaper: [https://playtoo.gitbook.io/playtoo-whitepaper/introduction/quick-peek](https://playtoo.gitbook.io/playtoo-whitepaper/introduction/quick-peek) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/playtoo-the-seamless-bridge-from-beloved-web2-games-to-the-web3-era) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/playtoo-the-seamless-bridge-from-beloved-web2-games-to-the-web3-era)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1avcbrn/playtoo_unveils_crossplatform_web3_p2e_ecosystem/

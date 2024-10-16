@@ -43,6 +43,9 @@ YieldNest is backed by Faculty Capital, Backed VC, Proof Capital, and others, al
 
 For more information, please visit https://www.yieldnest.finance/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/yieldnest-launches-liquid-staking-derivatives-ynlsde-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/yieldnest-launches-liquid-staking-derivatives-ynlsde-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvco43/yieldnest_launches_ynlsde_token_for_liquid/

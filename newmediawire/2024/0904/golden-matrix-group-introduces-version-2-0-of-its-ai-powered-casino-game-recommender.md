@@ -60,6 +60,9 @@ LAS VEGAS, NV - (NewMediaWire) - September 04, 2024 - Golden Matrix Group (NASD
 
  Other important factors that may cause actual results and outcomes to differ materially from those contained in the forward-looking statements included in this communication are described in the Company’s publicly-filed reports, including, but not limited to, under the “Special Note Regarding Forward-Looking Statements,” “Risk Factors” and “Management’s Discussion and Analysis of Financial Condition and Results of Operations” sections of the Company’s periodic and current filings with the SEC, including the Form 10-Qs and Form 10-Ks, including, but not limited to, the Company’s Annual Report on Form 10-K for the year ended October 31, 2023 and its Quarterly Report on Form 10-Q for the quarter ended January 31, 2024, and future periodic reports on Form 10-K and Form 10‑Q. These reports are available at www.sec.gov. 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-introduces-version-2-0-of-its-ai-powered-casino-game-recommender-7075996) 
+[Original/Source Press Release](https://www.newmediawire.com/news/golden-matrix-group-introduces-version-2-0-of-its-ai-powered-casino-game-recommender-7075996)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f9gwq9/golden_matrix_group_launches_aipowered_casino/

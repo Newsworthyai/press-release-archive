@@ -34,6 +34,9 @@ marketing@sun.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/sunpump-beta-launches-on-tron-driving-innovation-in-meme-coin-development-207358754 
 
-[Original/Source Press Release](https://newsdirect.com/news/sunpump-beta-launches-on-tron-driving-innovation-in-meme-coin-development-207358754) 
+[Original/Source Press Release](https://newsdirect.com/news/sunpump-beta-launches-on-tron-driving-innovation-in-meme-coin-development-207358754)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1eqwhs2/sunio_launches_sunpump_beta_revolutionizing_meme/

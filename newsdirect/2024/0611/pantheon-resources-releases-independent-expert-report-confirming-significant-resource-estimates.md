@@ -16,6 +16,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/pantheon-resources-releases-independent-expert-report-confirming-significant-resource-estimates-742607337 
 
-[Original/Source Press Release](https://newsdirect.com/news/pantheon-resources-releases-independent-expert-report-confirming-significant-resource-estimates-742607337) 
+[Original/Source Press Release](https://newsdirect.com/news/pantheon-resources-releases-independent-expert-report-confirming-significant-resource-estimates-742607337)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ddif3u/pantheon_resources_releases_independent_expert/

@@ -48,6 +48,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/elevai-labs-nasdaq-elab-acquires-rights-to-develop-muscle-loss-prevention-assets-for-anticipated-use-in-anti-obesity-treatments-launches-two-new-subsidiaries-108007273 
 
-[Original/Source Press Release](https://newsdirect.com/news/elevai-labs-nasdaq-elab-acquires-rights-to-develop-muscle-loss-prevention-assets-for-anticipated-use-in-anti-obesity-treatments-launches-two-new-subsidiaries-108007273) 
+[Original/Source Press Release](https://newsdirect.com/news/elevai-labs-nasdaq-elab-acquires-rights-to-develop-muscle-loss-prevention-assets-for-anticipated-use-in-anti-obesity-treatments-launches-two-new-subsidiaries-108007273)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cu4g0y/global_obesity_study_prompts_acquisition_of/

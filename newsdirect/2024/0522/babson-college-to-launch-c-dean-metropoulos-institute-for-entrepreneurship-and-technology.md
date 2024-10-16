@@ -24,6 +24,9 @@ Babson College prepares and empowers entrepreneurial leaders who create, grow, a
 
 Kate Chaney   Manager, External Communications   [kchaney@babson.edu](mailto:kchaney@babson.edu)View source version on newsdirect.com: https://newsdirect.com/news/babson-college-to-launch-c-dean-metropoulos-institute-for-entrepreneurship-and-technology-910767192 
 
-[Original/Source Press Release](https://newsdirect.com/news/babson-college-to-launch-c-dean-metropoulos-institute-for-entrepreneurship-and-technology-910767192) 
+[Original/Source Press Release](https://newsdirect.com/news/babson-college-to-launch-c-dean-metropoulos-institute-for-entrepreneurship-and-technology-910767192)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/StartupBusinessNews/comments/1cy02fo/babson_college_launches_c_dean_metropoulos/

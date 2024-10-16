@@ -12,6 +12,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/intra-energy-corporation-discovers-high-grade-gold-at-maggie-hays-hill-426581173 
 
-[Original/Source Press Release](https://newsdirect.com/news/intra-energy-corporation-discovers-high-grade-gold-at-maggie-hays-hill-426581173) 
+[Original/Source Press Release](https://newsdirect.com/news/intra-energy-corporation-discovers-high-grade-gold-at-maggie-hays-hill-426581173)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cwnmqc/intra_energy_corporation_discovers_highgrade_gold/

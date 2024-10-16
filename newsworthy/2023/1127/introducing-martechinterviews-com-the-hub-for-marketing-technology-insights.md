@@ -18,6 +18,9 @@ Designed for the inquisitive professionals of marketing technology, MartechInter
 
 Unlock the world of martech knowledge at www.MartechInterviews.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231127846/introducing-martechinterviews-com-the-hub-for-marketing-technology-insights) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231127846/introducing-martechinterviews-com-the-hub-for-marketing-technology-insights)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1avcsk4/introducing_martechinterviewscom_a_new_platform/

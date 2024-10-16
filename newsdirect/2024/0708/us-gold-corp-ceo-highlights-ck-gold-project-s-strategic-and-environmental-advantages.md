@@ -18,6 +18,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/us-gold-corp-ceo-highlights-ck-gold-projects-strategic-and-environmental-advantages-897132771 
 
-[Original/Source Press Release](https://newsdirect.com/news/us-gold-corp-ceo-highlights-ck-gold-projects-strategic-and-environmental-advantages-897132771) 
+[Original/Source Press Release](https://newsdirect.com/news/us-gold-corp-ceo-highlights-ck-gold-projects-strategic-and-environmental-advantages-897132771)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dyehvg/us_gold_corp_ceo_highlights_strategic_and/

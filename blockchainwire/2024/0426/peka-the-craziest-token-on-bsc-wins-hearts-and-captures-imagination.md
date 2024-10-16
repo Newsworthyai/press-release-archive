@@ -26,6 +26,9 @@ Zip Code: 10038
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/-peka-the-craziest-token-on-bsc-wins-hearts-and-captures-imagination) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/-peka-the-craziest-token-on-bsc-wins-hearts-and-captures-imagination)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cdocgn/peka_token_the_wild_ride_thats_taking_the_crypto/

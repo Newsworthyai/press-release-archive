@@ -62,6 +62,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/north-american-gold-rush-spotlights-strategically-positioned-explorers-like-austin-gold-amex-aust-729655724 
 
-[Original/Source Press Release](https://newsdirect.com/news/north-american-gold-rush-spotlights-strategically-positioned-explorers-like-austin-gold-amex-aust-729655724) 
+[Original/Source Press Release](https://newsdirect.com/news/north-american-gold-rush-spotlights-strategically-positioned-explorers-like-austin-gold-amex-aust-729655724)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dlaof7/gold_rush_price_reaches_alltime_high/

@@ -12,6 +12,9 @@ Jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/aruma-resources-acquires-copper-and-uranium-assets-in-game-changing-play-850392326 
 
-[Original/Source Press Release](https://newsdirect.com/news/aruma-resources-acquires-copper-and-uranium-assets-in-game-changing-play-850392326) 
+[Original/Source Press Release](https://newsdirect.com/news/aruma-resources-acquires-copper-and-uranium-assets-in-game-changing-play-850392326)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d24myn/aruma_resources_acquires_copper_and_uranium/

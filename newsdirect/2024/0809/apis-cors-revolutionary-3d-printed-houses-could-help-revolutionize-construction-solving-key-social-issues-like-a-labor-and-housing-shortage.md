@@ -44,6 +44,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/apis-cors-revolutionary-3d-printed-houses-could-help-revolutionize-construction-solving-key-social-issues-like-a-labor-and-housing-shortage-804641321 
 
-[Original/Source Press Release](https://newsdirect.com/news/apis-cors-revolutionary-3d-printed-houses-could-help-revolutionize-construction-solving-key-social-issues-like-a-labor-and-housing-shortage-804641321) 
+[Original/Source Press Release](https://newsdirect.com/news/apis-cors-revolutionary-3d-printed-houses-could-help-revolutionize-construction-solving-key-social-issues-like-a-labor-and-housing-shortage-804641321)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1enyvew/apis_cors_revolutionary_3dprinted_houses_could/

@@ -40,6 +40,9 @@ The concept behind BEK’s news programming is to provide a media service platfo
 
 BEK TV broadcasts on television and across the world via the internet. For more information, log onto bek.tv and bek.news 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202404101145/bek-tv-brings-home-three-eric-sevareid-awards-for-outstanding-sports-play-by-play) 
+[Original/Source Press Release](https://newsworthy.ai/news/202404101145/bek-tv-brings-home-three-eric-sevareid-awards-for-outstanding-sports-play-by-play)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c0k46p/bek_tv_sportscasters_honored_at_eric_sevareid/

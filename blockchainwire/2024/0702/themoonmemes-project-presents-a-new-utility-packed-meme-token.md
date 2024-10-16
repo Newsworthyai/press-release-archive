@@ -46,6 +46,9 @@ Anyone wishing to learn more about what sets TheMoonMemes apart need only visit 
 
 X (Twitter) | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/themoonmemes-project-presents-a-new-utility-packed-meme-token) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/themoonmemes-project-presents-a-new-utility-packed-meme-token)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dteu2y/themoonmemes_introduces_tmm_token_with_robust/

@@ -12,6 +12,9 @@ A prize-winning poet, creative nonfiction writer, and teacher, Noriega has been 
 
 Dr. Luczaj concludes: “I only wish I could inhabit the unashamed, unpitying, beautiful, warm, defiant spirit of this book that rises off it like steam.” 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409031248/kim-noriegas-debut-full-length-book-of-poems-naming-the-roses-gathers-radiance-from-the-faintest-light) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409031248/kim-noriegas-debut-full-length-book-of-poems-naming-the-roses-gathers-radiance-from-the-faintest-light)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f7y4i0/aim_higher_inc_releases_kim_noriegas_poetry/

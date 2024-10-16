@@ -26,6 +26,9 @@ Become a part of HR.com’s HR Research Influencer panel today. Participate in s
 
 Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202407081206/the-illusion-of-effective-deib-initiatives-may-be-hiding-some-surprising-gaps-new-study-by-hr-coms-hr-research-institute) 
+[Original/Source Press Release](https://newsworthy.ai/news/202407081206/the-illusion-of-effective-deib-initiatives-may-be-hiding-some-surprising-gaps-new-study-by-hr-coms-hr-research-institute)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1dy8aeo/new_research_study_reveals_gaps_in_diversity/

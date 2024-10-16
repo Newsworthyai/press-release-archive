@@ -16,6 +16,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cloud-dx-reports-significant-revenue-and-profit-growth-in-2023-756884873 
 
-[Original/Source Press Release](https://newsdirect.com/news/cloud-dx-reports-significant-revenue-and-profit-growth-in-2023-756884873) 
+[Original/Source Press Release](https://newsdirect.com/news/cloud-dx-reports-significant-revenue-and-profit-growth-in-2023-756884873)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cgwsc7/cloud_dx_achieves_remarkable_revenue_and_profit/

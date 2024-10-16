@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/srivaru-holdings-completes-internal-testing-of-its-prana-2-0-electric-motorcycle-376488396 
 
-[Original/Source Press Release](https://newsdirect.com/news/srivaru-holdings-completes-internal-testing-of-its-prana-2-0-electric-motorcycle-376488396) 
+[Original/Source Press Release](https://newsdirect.com/news/srivaru-holdings-completes-internal-testing-of-its-prana-2-0-electric-motorcycle-376488396)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1crxrs0/srivaru_holdings_completes_internal_testing_of/

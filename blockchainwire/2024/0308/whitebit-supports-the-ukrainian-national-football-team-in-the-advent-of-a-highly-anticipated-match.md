@@ -6,6 +6,9 @@ The rewards for participants with the highest trading volume include branded tea
 
 WhiteBIT is one of the largest European centralized crypto exchanges founded in 2018. The exchange offers 350+ trading pairs, 270+ digital assets, and 10 state currencies. The company is an official partner of the Ukrainian national football team, FC Barcelona, FC Trabzonspor, FACEIT. The goal of WhiteBIT is the mass implementation of blockchain technology worldwide. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/whitebit-supports-the-ukrainian-national-football-team-in-the-advent-of-a-highly-anticipated-match-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/whitebit-supports-the-ukrainian-national-football-team-in-the-advent-of-a-highly-anticipated-match-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bb4x6l/whitebit_launches_support_campaign_for_ukrainian/

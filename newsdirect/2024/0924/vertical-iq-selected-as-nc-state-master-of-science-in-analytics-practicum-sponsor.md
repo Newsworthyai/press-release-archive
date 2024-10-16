@@ -28,6 +28,9 @@ Company Websitehttps://verticaliq.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/vertical-iq-selected-as-nc-state-master-of-science-in-analytics-practicum-sponsor-678977076 
 
-[Original/Source Press Release](https://newsdirect.com/news/vertical-iq-selected-as-nc-state-master-of-science-in-analytics-practicum-sponsor-678977076) 
+[Original/Source Press Release](https://newsdirect.com/news/vertical-iq-selected-as-nc-state-master-of-science-in-analytics-practicum-sponsor-678977076)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1foc49v/vertical_iq_collaborates_with_nc_state_university/

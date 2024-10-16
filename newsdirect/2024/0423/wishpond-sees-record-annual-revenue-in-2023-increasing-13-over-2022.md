@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/wishpond-sees-record-annual-revenue-in-2023-increasing-13-over-2022-146358487 
 
-[Original/Source Press Release](https://newsdirect.com/news/wishpond-sees-record-annual-revenue-in-2023-increasing-13-over-2022-146358487) 
+[Original/Source Press Release](https://newsdirect.com/news/wishpond-sees-record-annual-revenue-in-2023-increasing-13-over-2022-146358487)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1cb5duf/wishpond_technologies_reports_13_increase_in/

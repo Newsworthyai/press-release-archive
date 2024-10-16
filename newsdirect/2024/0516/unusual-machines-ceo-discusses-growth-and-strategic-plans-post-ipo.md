@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/unusual-machines-ceo-discusses-growth-and-strategic-plans-post-ipo-828057748 
 
-[Original/Source Press Release](https://newsdirect.com/news/unusual-machines-ceo-discusses-growth-and-strategic-plans-post-ipo-828057748) 
+[Original/Source Press Release](https://newsdirect.com/news/unusual-machines-ceo-discusses-growth-and-strategic-plans-post-ipo-828057748)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ctg890/unusual_machines_ceo_talks_growth_and_strategic/

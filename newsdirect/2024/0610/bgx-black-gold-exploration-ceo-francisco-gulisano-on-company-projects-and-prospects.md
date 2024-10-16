@@ -20,6 +20,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bgx-black-gold-exploration-ceo-francisco-gulisano-on-company-projects-and-prospects-961307298 
 
-[Original/Source Press Release](https://newsdirect.com/news/bgx-black-gold-exploration-ceo-francisco-gulisano-on-company-projects-and-prospects-961307298) 
+[Original/Source Press Release](https://newsdirect.com/news/bgx-black-gold-exploration-ceo-francisco-gulisano-on-company-projects-and-prospects-961307298)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dcl5ez/bgx_black_gold_exploration_ceo_discusses_company/

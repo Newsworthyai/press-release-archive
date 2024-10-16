@@ -28,6 +28,9 @@ Company Websitehttps://www.mariner.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/mariner-acquires-woodbridge-international-enhances-manda-advisory-capabilities-187763189 
 
-[Original/Source Press Release](https://newsdirect.com/news/mariner-acquires-woodbridge-international-enhances-manda-advisory-capabilities-187763189) 
+[Original/Source Press Release](https://newsdirect.com/news/mariner-acquires-woodbridge-international-enhances-manda-advisory-capabilities-187763189)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1f80k56/mariner_acquires_woodbridge_international/

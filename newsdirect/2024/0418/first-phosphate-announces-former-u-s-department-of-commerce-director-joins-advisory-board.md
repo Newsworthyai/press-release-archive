@@ -20,6 +20,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/first-phosphate-announces-former-u-s-department-of-commerce-director-joins-advisory-board-249243374 
 
-[Original/Source Press Release](https://newsdirect.com/news/first-phosphate-announces-former-u-s-department-of-commerce-director-joins-advisory-board-249243374) 
+[Original/Source Press Release](https://newsdirect.com/news/first-phosphate-announces-former-u-s-department-of-commerce-director-joins-advisory-board-249243374)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c73yke/former_us_department_of_commerce_director_joins/

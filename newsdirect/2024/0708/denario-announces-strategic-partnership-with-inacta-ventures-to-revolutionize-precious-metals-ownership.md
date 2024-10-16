@@ -36,6 +36,9 @@ lee@denario.swiss
 
 View source version on newsdirect.com: https://newsdirect.com/news/denario-announces-strategic-partnership-with-inacta-ventures-to-revolutionize-precious-metals-ownership-612494353 
 
-[Original/Source Press Release](https://newsdirect.com/news/denario-announces-strategic-partnership-with-inacta-ventures-to-revolutionize-precious-metals-ownership-612494353) 
+[Original/Source Press Release](https://newsdirect.com/news/denario-announces-strategic-partnership-with-inacta-ventures-to-revolutionize-precious-metals-ownership-612494353)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dycr8c/denario_announces_strategic_partnership_with/

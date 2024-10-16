@@ -20,6 +20,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nextenergy-solar-fund-announces-dividend-target-increase-and-strategic-achievements-382299899 
 
-[Original/Source Press Release](https://newsdirect.com/news/nextenergy-solar-fund-announces-dividend-target-increase-and-strategic-achievements-382299899) 
+[Original/Source Press Release](https://newsdirect.com/news/nextenergy-solar-fund-announces-dividend-target-increase-and-strategic-achievements-382299899)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1csjcsk/nextenergy_solar_fund_announces_dividend_increase/

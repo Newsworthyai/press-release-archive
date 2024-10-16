@@ -44,6 +44,9 @@ Telegram:https://t.me/blockDAGnetworkOfficial
 
 Discord: https://discord.gg/Q7BxghMVyu 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-networks-x1-miner-app-is-now-available-on-apple-app-store-whats-new-for-users) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/blockdag-networks-x1-miner-app-is-now-available-on-apple-app-store-whats-new-for-users)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1df41c5/blockdag_network_launches_x1_miner_app_for_smart/

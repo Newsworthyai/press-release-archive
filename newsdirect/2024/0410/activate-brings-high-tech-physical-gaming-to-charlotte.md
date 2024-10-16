@@ -49,6 +49,9 @@ Company Websitehttps://playactivate.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/activate-brings-high-tech-physical-gaming-to-charlotte-695861516 
 
-[Original/Source Press Release](https://newsdirect.com/news/activate-brings-high-tech-physical-gaming-to-charlotte-695861516) 
+[Original/Source Press Release](https://newsdirect.com/news/activate-brings-high-tech-physical-gaming-to-charlotte-695861516)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1c0livx/activate_brings_hightech_physical_gaming_to/

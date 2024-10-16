@@ -42,6 +42,9 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-introduces-fee-free-btc-trading-with-daily-200k-usdt-rewards-amid-btcs-surge-to-70k-276854814 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-introduces-fee-free-btc-trading-with-daily-200k-usdt-rewards-amid-btcs-surge-to-70k-276854814) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-introduces-fee-free-btc-trading-with-daily-200k-usdt-rewards-amid-btcs-surge-to-70k-276854814)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bppsiq/htx_introduces_feefree_btc_trading_with_daily/

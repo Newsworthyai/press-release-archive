@@ -12,6 +12,9 @@ Why This Integration MattersThe adoption of Notcoin by Telega.io represents a pi
 
 Telega.io is proud to set a global trend by integrating Notcoin into our payment solutions, reinforcing our commitment to embracing cutting-edge technology and enhancing the advertising experience for our clients worldwide. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/telegaio-takes-the-lead-first-telegram-marketing-platform-to-accept-notcoin) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/telegaio-takes-the-lead-first-telegram-marketing-platform-to-accept-notcoin)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ctagey/telegaio_integrates_notcoin_as_payment_method/

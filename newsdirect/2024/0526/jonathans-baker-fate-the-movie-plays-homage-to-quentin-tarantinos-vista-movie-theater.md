@@ -24,6 +24,9 @@ Company Websitehttps://www.jonathanbaker.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/jonathans-baker-fate-the-movie-plays-homage-to-quentin-tarantinos-vista-movie-theater-131048411 
 
-[Original/Source Press Release](https://newsdirect.com/news/jonathans-baker-fate-the-movie-plays-homage-to-quentin-tarantinos-vista-movie-theater-131048411) 
+[Original/Source Press Release](https://newsdirect.com/news/jonathans-baker-fate-the-movie-plays-homage-to-quentin-tarantinos-vista-movie-theater-131048411)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d14ynn/director_jonathan_bakers_fate_pays_tribute_to/

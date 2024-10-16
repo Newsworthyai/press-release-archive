@@ -32,6 +32,9 @@ Company Websitehttp://www.nlpc.org
 
 View source version on newsdirect.com: https://newsdirect.com/news/comcast-directors-refuse-to-disclose-political-donations-so-shareholder-does-it-for-them-833747923 
 
-[Original/Source Press Release](https://newsdirect.com/news/comcast-directors-refuse-to-disclose-political-donations-so-shareholder-does-it-for-them-833747923) 
+[Original/Source Press Release](https://newsdirect.com/news/comcast-directors-refuse-to-disclose-political-donations-so-shareholder-does-it-for-them-833747923)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d8ssgf/comcast_directors_political_donations_revealed/

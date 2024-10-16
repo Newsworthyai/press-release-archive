@@ -16,6 +16,9 @@ Community Token Burn: In a monumental move to enhance value and scarcity, Stacks
 
 For more information about the Stacks Pay community-led project please visit their website or Telegram channel. Other Stacks Pay links can be found here. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202403251126/stacks-unveils-exciting-rebrand-in-its-commitment-to-leading-innovation) 
+[Original/Source Press Release](https://newsworthy.ai/news/202403251126/stacks-unveils-exciting-rebrand-in-its-commitment-to-leading-innovation)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bne1bp/stacks_pay_unveils_gamechanging_updates_and/

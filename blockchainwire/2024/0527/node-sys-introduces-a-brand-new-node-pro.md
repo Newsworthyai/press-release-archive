@@ -32,6 +32,9 @@ The company aims to create a secure, transparent, and convenient system for inte
 
 Website | X | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/nodesys-introduces-a-brand-new-node-pro) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/nodesys-introduces-a-brand-new-node-pro)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvncfx/introducing_node_pro_the_revolutionary_blockchain/

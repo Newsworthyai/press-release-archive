@@ -8,6 +8,9 @@ Dr. Boris Kawliche, the esteemed psychiatrist at Brandon TMS and Psychiatry, emp
 
 Brandon TMS and Psychiatry has garnered positive testimonials from numerous patients who have found relief and support at the clinic. Harnessing the power of advanced treatments and a compassionate team, the clinic embodies a warm and empathetic environment designed to facilitate patients' long-term well-being. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231228948/brandon-tms-and-psychiatry-offers-innovative-tms-treatments-for-depression-and-other-mental-health-conditions) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231228948/brandon-tms-and-psychiatry-offers-innovative-tms-treatments-for-depression-and-other-mental-health-conditions)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcwap/brandon_tms_and_psychiatry_provides_innovative/

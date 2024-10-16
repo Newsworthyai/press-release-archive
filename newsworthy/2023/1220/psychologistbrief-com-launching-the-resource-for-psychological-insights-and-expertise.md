@@ -18,6 +18,9 @@ Crafted for both professionals and the general populace, PsychologistBrief.com i
 
 Embark on a journey of psychological exploration at www.PsychologistBrief.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231220867/psychologistbrief-com-launching-the-resource-for-psychological-insights-and-expertise) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231220867/psychologistbrief-com-launching-the-resource-for-psychological-insights-and-expertise)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcux6/psychologistbriefcom_your_premier_destination_for/

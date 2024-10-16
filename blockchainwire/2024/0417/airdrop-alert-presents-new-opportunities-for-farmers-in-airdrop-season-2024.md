@@ -36,6 +36,9 @@ For more information about crypto airdrops, it's possible to visit Airdrop Alert
 
 X (Twitter) | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/airdrop-alert-presents-new-opportunities-for-farmers-in-airdrop-season-2024) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/airdrop-alert-presents-new-opportunities-for-farmers-in-airdrop-season-2024)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c6fgss/airdrop_alert_unveils_timelimited_opportunities/

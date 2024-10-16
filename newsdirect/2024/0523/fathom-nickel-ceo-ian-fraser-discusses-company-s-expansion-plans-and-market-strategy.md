@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/fathom-nickel-ceo-ian-fraser-discusses-companys-expansion-plans-and-market-strategy-781508391 
 
-[Original/Source Press Release](https://newsdirect.com/news/fathom-nickel-ceo-ian-fraser-discusses-companys-expansion-plans-and-market-strategy-781508391) 
+[Original/Source Press Release](https://newsdirect.com/news/fathom-nickel-ceo-ian-fraser-discusses-companys-expansion-plans-and-market-strategy-781508391)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cyzygd/fathom_nickel_ceo_ian_fraser_discusses_companys/

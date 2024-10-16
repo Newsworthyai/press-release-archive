@@ -32,6 +32,9 @@ salman@invoicemate.tech
 
 View source version on newsdirect.com: https://newsdirect.com/news/220-million-worth-of-invoices-tokenized-as-rwas-on-icp-through-invoicemate-436877540 
 
-[Original/Source Press Release](https://newsdirect.com/news/220-million-worth-of-invoices-tokenized-as-rwas-on-icp-through-invoicemate-436877540) 
+[Original/Source Press Release](https://newsdirect.com/news/220-million-worth-of-invoices-tokenized-as-rwas-on-icp-through-invoicemate-436877540)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvgbwv/icp_successfully_tokenizes_220m_invoices_with/

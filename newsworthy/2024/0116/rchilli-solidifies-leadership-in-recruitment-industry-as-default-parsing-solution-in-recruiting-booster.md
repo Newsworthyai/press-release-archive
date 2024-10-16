@@ -20,6 +20,9 @@ About RChilli
 
 RChilli is the trusted partner for parsing, matching, and data enrichment, providing companies, in 50+ countries, with solutions built for the future of technology and recruiting. RChilli’s innovative products, backed by an industry-leading tech stack, power the processing of 4.1 billion+ docs a year for 1600+ top global recruiting platforms. Enabling companies to hire better talent faster since 2010, RChilli is ISO 27001:2013, SOC 2 Type II, HIPAA certified, and GDPR compliant. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20240116990/rchilli-solidifies-leadership-in-recruitment-industry-as-default-parsing-solution-in-recruiting-booster) 
+[Original/Source Press Release](https://newsworthy.ai/news/20240116990/rchilli-solidifies-leadership-in-recruitment-industry-as-default-parsing-solution-in-recruiting-booster)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1avdork/rchilli_becomes_default_parsing_solution_for/

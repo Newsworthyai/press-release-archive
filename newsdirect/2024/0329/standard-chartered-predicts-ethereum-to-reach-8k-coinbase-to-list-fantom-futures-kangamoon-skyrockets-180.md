@@ -44,6 +44,9 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/standard-chartered-predicts-ethereum-to-reach-8k-coinbase-to-list-fantom-futures-kangamoon-skyrockets-180-769230268 
 
-[Original/Source Press Release](https://newsdirect.com/news/standard-chartered-predicts-ethereum-to-reach-8k-coinbase-to-list-fantom-futures-kangamoon-skyrockets-180-769230268) 
+[Original/Source Press Release](https://newsdirect.com/news/standard-chartered-predicts-ethereum-to-reach-8k-coinbase-to-list-fantom-futures-kangamoon-skyrockets-180-769230268)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bqlc53/kangamoon_kang_price_surge_gives_early_investors/

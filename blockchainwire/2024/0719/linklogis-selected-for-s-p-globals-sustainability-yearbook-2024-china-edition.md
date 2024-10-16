@@ -10,6 +10,9 @@ Being selected for S&P Global’s Sustainability Yearbook also proves that Linkl
 
 Linklogis has always placed ESG and the concept of sustainable development in a prominent position. Looking ahead, Linklogis will continue to explore more efficient and effective sustainable supply chain finance technology models, integrating them into specific business strategies. This approach aims to support sustainable management and value creation, working hand in hand with industry partners to create comprehensive value in economic, social, and environmental terms. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/linklogis-selected-for-sp-globals-sustainability-yearbook-2024-china-edition) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/linklogis-selected-for-sp-globals-sustainability-yearbook-2024-china-edition)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1e73hg2/sampp_global_releases_sustainability_yearbook/

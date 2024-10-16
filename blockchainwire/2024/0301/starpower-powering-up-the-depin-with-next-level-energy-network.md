@@ -52,6 +52,9 @@ Starpower is transforming the way we manage energy, making it user-friendly and 
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/starpower-powering-up-the-depin-with-next-level-energy-network) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/starpower-powering-up-the-depin-with-next-level-energy-network)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1b6rnqy/starpower_the_uber_of_energy_network/

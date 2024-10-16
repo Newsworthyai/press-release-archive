@@ -54,6 +54,9 @@ Company Websitehttp://www.exalate.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bridge-the-gap-the-transformative-impact-of-cross-company-integration-cci-696861499 
 
-[Original/Source Press Release](https://newsdirect.com/news/bridge-the-gap-the-transformative-impact-of-cross-company-integration-cci-696861499) 
+[Original/Source Press Release](https://newsdirect.com/news/bridge-the-gap-the-transformative-impact-of-cross-company-integration-cci-696861499)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d45njy/unlocking_the_power_of_crosscompany_integration/

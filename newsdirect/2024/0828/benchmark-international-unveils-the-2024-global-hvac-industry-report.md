@@ -30,6 +30,9 @@ Company Websitehttps://www.benchmarkintl.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/benchmark-international-unveils-the-2024-global-hvac-industry-report-494532834 
 
-[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-unveils-the-2024-global-hvac-industry-report-494532834) 
+[Original/Source Press Release](https://newsdirect.com/news/benchmark-international-unveils-the-2024-global-hvac-industry-report-494532834)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f3h022/benchmark_international_releases_2024_global_hvac/

@@ -42,6 +42,9 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/ethereum-steams-ahead-market-volatility-gamestop-regains-attention-and-raboo-races-through-presale-119274958 
 
-[Original/Source Press Release](https://newsdirect.com/news/ethereum-steams-ahead-market-volatility-gamestop-regains-attention-and-raboo-races-through-presale-119274958) 
+[Original/Source Press Release](https://newsdirect.com/news/ethereum-steams-ahead-market-volatility-gamestop-regains-attention-and-raboo-races-through-presale-119274958)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1d2vflt/ethereum_gamestop_and_raboo_market_volatility_and/

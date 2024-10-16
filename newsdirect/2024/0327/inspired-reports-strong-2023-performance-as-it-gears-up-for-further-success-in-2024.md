@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/inspired-reports-strong-2023-performance-as-it-gears-up-for-further-success-in-2024-229913566 
 
-[Original/Source Press Release](https://newsdirect.com/news/inspired-reports-strong-2023-performance-as-it-gears-up-for-further-success-in-2024-229913566) 
+[Original/Source Press Release](https://newsdirect.com/news/inspired-reports-strong-2023-performance-as-it-gears-up-for-further-success-in-2024-229913566)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bp19ws/inspired_plc_ceo_discusses_strong_2023/

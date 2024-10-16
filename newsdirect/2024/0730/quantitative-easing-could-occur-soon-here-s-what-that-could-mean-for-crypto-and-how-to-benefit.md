@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/quantitative-easing-could-occur-soon-heres-what-that-could-mean-for-crypto-and-how-to-benefit-790279191 
 
-[Original/Source Press Release](https://newsdirect.com/news/quantitative-easing-could-occur-soon-heres-what-that-could-mean-for-crypto-and-how-to-benefit-790279191) 
+[Original/Source Press Release](https://newsdirect.com/news/quantitative-easing-could-occur-soon-heres-what-that-could-mean-for-crypto-and-how-to-benefit-790279191)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1eg4mrd/global_central_banks_cut_interest_rates_how_it/

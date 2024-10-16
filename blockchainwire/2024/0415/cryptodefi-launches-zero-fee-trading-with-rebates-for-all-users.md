@@ -26,6 +26,9 @@ The project's app will soon be available for download. In the meantime, more inf
 
 Website | X (Twitter) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/cryptodefi-launches-zero-fee-trading-with-rebates-for-all-users) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/cryptodefi-launches-zero-fee-trading-with-rebates-for-all-users)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c4naw9/cryptodefi_exchange_cdfi_introduces_zero_fees_and/

@@ -40,6 +40,9 @@ Company Websitehttps://bmrcorp.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/battery-mineral-resources-announces-first-shipments-of-copper-concentrates-to-anglo-american-plc-for-smelting-614044974 
 
-[Original/Source Press Release](https://newsdirect.com/news/battery-mineral-resources-announces-first-shipments-of-copper-concentrates-to-anglo-american-plc-for-smelting-614044974) 
+[Original/Source Press Release](https://newsdirect.com/news/battery-mineral-resources-announces-first-shipments-of-copper-concentrates-to-anglo-american-plc-for-smelting-614044974)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e3tsph/battery_mineral_resources_corp_announces_first/

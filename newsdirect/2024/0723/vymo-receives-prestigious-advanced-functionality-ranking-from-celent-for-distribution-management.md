@@ -62,6 +62,9 @@ Company Websitehttps://getvymo.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/vymo-receives-prestigious-advanced-functionality-ranking-from-celent-for-distribution-management-526378771 
 
-[Original/Source Press Release](https://newsdirect.com/news/vymo-receives-prestigious-advanced-functionality-ranking-from-celent-for-distribution-management-526378771) 
+[Original/Source Press Release](https://newsdirect.com/news/vymo-receives-prestigious-advanced-functionality-ranking-from-celent-for-distribution-management-526378771)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1eaa7zq/vymo_receives_advanced_functionality_ranking_from/

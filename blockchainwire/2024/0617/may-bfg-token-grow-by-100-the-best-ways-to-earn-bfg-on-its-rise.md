@@ -39,6 +39,9 @@ ConclusionBFG is a valuable asset for investors and crypto enthusiasts of any le
 
 Media ContactPerson: Alisia PrestonWebsite: [https://betfury.com/](https://betfury.com/)Company Email: [support@betfury.com](mailto:support@betfury.com) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/may-bfg-token-grow-by-100--the-best-ways-to-earn-bfg-on-its-rise) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/may-bfg-token-grow-by-100--the-best-ways-to-earn-bfg-on-its-rise)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1di0np5/bfg_token_sees_surge_in_investors_and_value_with/

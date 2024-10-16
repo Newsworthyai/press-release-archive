@@ -22,6 +22,9 @@ UKEditorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/helix-explorations-david-minchin-eyes-helium-riches-in-montana-after-oversubscribed-ipo-760057472 
 
-[Original/Source Press Release](https://newsdirect.com/news/helix-explorations-david-minchin-eyes-helium-riches-in-montana-after-oversubscribed-ipo-760057472) 
+[Original/Source Press Release](https://newsdirect.com/news/helix-explorations-david-minchin-eyes-helium-riches-in-montana-after-oversubscribed-ipo-760057472)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c1ch1a/helix_exploration_plc_eyes_helium_riches_in/

@@ -12,6 +12,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/prescient-therapeutics-ptx-100-shows-promising-results-in-phase-1b-study-106846685 
 
-[Original/Source Press Release](https://newsdirect.com/news/prescient-therapeutics-ptx-100-shows-promising-results-in-phase-1b-study-106846685) 
+[Original/Source Press Release](https://newsdirect.com/news/prescient-therapeutics-ptx-100-shows-promising-results-in-phase-1b-study-106846685)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cxks3m/prescient_therapeutics_ptx100_shows_promising/

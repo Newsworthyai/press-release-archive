@@ -104,6 +104,9 @@ Company Websitehttps://www.direxion.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/direxion-reminds-of-exposure-and-risk-increase-on-single-stock-daily-leveraged-etfs-208783309 
 
-[Original/Source Press Release](https://newsdirect.com/news/direxion-reminds-of-exposure-and-risk-increase-on-single-stock-daily-leveraged-etfs-208783309) 
+[Original/Source Press Release](https://newsdirect.com/news/direxion-reminds-of-exposure-and-risk-increase-on-single-stock-daily-leveraged-etfs-208783309)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1boiyhb/direxion_increases_leverage_and_risk_level_of/

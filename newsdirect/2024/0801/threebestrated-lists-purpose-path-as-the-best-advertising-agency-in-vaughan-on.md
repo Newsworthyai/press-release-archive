@@ -24,6 +24,9 @@ Company Websitehttps://purposepath.ca/
 
 View source version on newsdirect.com: https://newsdirect.com/news/threebestrated-lists-purpose-path-as-the-best-advertising-agency-in-vaughan-on-863395536 
 
-[Original/Source Press Release](https://newsdirect.com/news/threebestrated-lists-purpose-path-as-the-best-advertising-agency-in-vaughan-on-863395536) 
+[Original/Source Press Release](https://newsdirect.com/news/threebestrated-lists-purpose-path-as-the-best-advertising-agency-in-vaughan-on-863395536)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1ehd0fq/purpose_path_named_best_advertising_agency_in/

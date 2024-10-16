@@ -52,6 +52,9 @@ iMD Companies, Inc.
 
 info@imdcompaniesinc.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/imd-companies-and-its-subsidiary-riize-health-announce-new-product-lines-riize-hair-riize-weight-maintenance-7076226) 
+[Original/Source Press Release](https://www.newmediawire.com/news/imd-companies-and-its-subsidiary-riize-health-announce-new-product-lines-riize-hair-riize-weight-maintenance-7076226)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1g497ee/imd_companies_inc_subsidiary_riize_health/

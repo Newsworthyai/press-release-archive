@@ -36,6 +36,9 @@ Company Websitehttps://ledn.io/
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-five-best-crypto-lending-platforms-871370771 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-five-best-crypto-lending-platforms-871370771) 
+[Original/Source Press Release](https://newsdirect.com/news/the-five-best-crypto-lending-platforms-871370771)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c0kpga/the_five_best_crypto_lending_platforms_ledn/

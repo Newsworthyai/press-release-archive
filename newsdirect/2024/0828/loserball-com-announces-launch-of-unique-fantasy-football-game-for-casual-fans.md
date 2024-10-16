@@ -36,6 +36,9 @@ Company Websitehttp://Loserball.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/loserball-com-announces-launch-of-unique-fantasy-football-game-for-casual-fans-199427756 
 
-[Original/Source Press Release](https://newsdirect.com/news/loserball-com-announces-launch-of-unique-fantasy-football-game-for-casual-fans-199427756) 
+[Original/Source Press Release](https://newsdirect.com/news/loserball-com-announces-launch-of-unique-fantasy-football-game-for-casual-fans-199427756)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1f3gzir/loserballcom_launches_unique_fantasy_football_game/

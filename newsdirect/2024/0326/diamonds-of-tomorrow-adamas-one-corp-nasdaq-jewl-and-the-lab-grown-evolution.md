@@ -50,6 +50,9 @@ Company Websitehttp://CapitalGainsReport.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/diamonds-of-tomorrow-adamas-one-corp-nasdaq-jewl-and-the-lab-grown-evolution-824177745 
 
-[Original/Source Press Release](https://newsdirect.com/news/diamonds-of-tomorrow-adamas-one-corp-nasdaq-jewl-and-the-lab-grown-evolution-824177745) 
+[Original/Source Press Release](https://newsdirect.com/news/diamonds-of-tomorrow-adamas-one-corp-nasdaq-jewl-and-the-lab-grown-evolution-824177745)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bo7ycw/adamas_one_corp_nasdaq_jewl_leading_the_labgrown/

@@ -41,6 +41,9 @@ Company Websitehttps://california.comcast.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/comcast-unveils-xfinity-rewards-hot-air-balloon-in-clovis-692416875 
 
-[Original/Source Press Release](https://newsdirect.com/news/comcast-unveils-xfinity-rewards-hot-air-balloon-in-clovis-692416875) 
+[Original/Source Press Release](https://newsdirect.com/news/comcast-unveils-xfinity-rewards-hot-air-balloon-in-clovis-692416875)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fq1dmb/comcast_unveils_xfinity_rewards_hot_air_balloon/

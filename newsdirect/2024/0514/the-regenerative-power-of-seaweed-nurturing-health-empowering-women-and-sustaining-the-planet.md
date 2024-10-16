@@ -36,6 +36,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-regenerative-power-of-seaweed-nurturing-health-empowering-women-and-sustaining-the-planet-911733687 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-regenerative-power-of-seaweed-nurturing-health-empowering-women-and-sustaining-the-planet-911733687) 
+[Original/Source Press Release](https://newsdirect.com/news/the-regenerative-power-of-seaweed-nurturing-health-empowering-women-and-sustaining-the-planet-911733687)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1crr8wm/rootless_revolutionizing_global_food_system_with/

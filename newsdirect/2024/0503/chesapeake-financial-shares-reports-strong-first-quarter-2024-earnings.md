@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/chesapeake-financial-shares-reports-strong-first-quarter-2024-earnings-960696248 
 
-[Original/Source Press Release](https://newsdirect.com/news/chesapeake-financial-shares-reports-strong-first-quarter-2024-earnings-960696248) 
+[Original/Source Press Release](https://newsdirect.com/news/chesapeake-financial-shares-reports-strong-first-quarter-2024-earnings-960696248)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1cjevmi/chesapeake_financial_shares_reports_impressive_q1/

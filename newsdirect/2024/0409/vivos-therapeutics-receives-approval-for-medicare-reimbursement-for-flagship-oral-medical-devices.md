@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/vivos-therapeutics-receives-approval-for-medicare-reimbursement-for-flagship-oral-medical-devices-322474564 
 
-[Original/Source Press Release](https://newsdirect.com/news/vivos-therapeutics-receives-approval-for-medicare-reimbursement-for-flagship-oral-medical-devices-322474564) 
+[Original/Source Press Release](https://newsdirect.com/news/vivos-therapeutics-receives-approval-for-medicare-reimbursement-for-flagship-oral-medical-devices-322474564)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1c00a81/vivos_therapeutics_ceo_announces_medicare/

@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ageagle-aerial-systems-inc-expands-in-military-and-security-sectors-201658045 
 
-[Original/Source Press Release](https://newsdirect.com/news/ageagle-aerial-systems-inc-expands-in-military-and-security-sectors-201658045) 
+[Original/Source Press Release](https://newsdirect.com/news/ageagle-aerial-systems-inc-expands-in-military-and-security-sectors-201658045)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1dkhz2h/ageagle_aerial_systems_announces_major_contract/

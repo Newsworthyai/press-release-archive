@@ -34,6 +34,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/west-hollywoods-40th-anniversary-vacation-in-the-high-energy-playground-to-the-stars-full-of-sunshine-style-and-culture-880700234 
 
-[Original/Source Press Release](https://newsdirect.com/news/west-hollywoods-40th-anniversary-vacation-in-the-high-energy-playground-to-the-stars-full-of-sunshine-style-and-culture-880700234) 
+[Original/Source Press Release](https://newsdirect.com/news/west-hollywoods-40th-anniversary-vacation-in-the-high-energy-playground-to-the-stars-full-of-sunshine-style-and-culture-880700234)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1d8xdfk/west_hollywood_celebrates_40th_anniversary_with/

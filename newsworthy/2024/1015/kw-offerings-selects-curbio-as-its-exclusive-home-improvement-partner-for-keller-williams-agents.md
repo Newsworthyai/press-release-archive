@@ -26,6 +26,9 @@ Amanda Pflieger
 
 press@curbio.com 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202410151316/kw-offerings-selects-curbio-as-its-exclusive-home-improvement-partner-for-keller-williams-agents) 
+[Original/Source Press Release](https://newsworthy.ai/news/202410151316/kw-offerings-selects-curbio-as-its-exclusive-home-improvement-partner-for-keller-williams-agents)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1g4a1bj/curbio_partners_with_kw_offerings_to_power/

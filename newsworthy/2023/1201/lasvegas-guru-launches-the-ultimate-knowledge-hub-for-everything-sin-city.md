@@ -18,6 +18,9 @@ LasVegas.guru is a holistic guide to the city that never sleeps, offering a weal
 
 Visit www.LasVegas.guru so that you can experience Las Vegas like never before. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231201835/lasvegas-guru-launches-the-ultimate-knowledge-hub-for-everything-sin-city) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231201835/lasvegas-guru-launches-the-ultimate-knowledge-hub-for-everything-sin-city)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1avx1cv/lasvegasguru_redefining_the_vegas_experience_with/

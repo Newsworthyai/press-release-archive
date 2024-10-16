@@ -47,6 +47,9 @@ Company Websitehttps://seaweedbathco.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/seaweed-bath-co-announces-acquisition-of-andalou-naturals-and-mineral-fusion-256020538 
 
-[Original/Source Press Release](https://newsdirect.com/news/seaweed-bath-co-announces-acquisition-of-andalou-naturals-and-mineral-fusion-256020538) 
+[Original/Source Press Release](https://newsdirect.com/news/seaweed-bath-co-announces-acquisition-of-andalou-naturals-and-mineral-fusion-256020538)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dtlh1f/seaweed_bath_co_acquires_andalou_naturals_and/

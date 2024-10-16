@@ -26,6 +26,9 @@ https://hobbescat.com/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/meme-coin-madness-hobbes-surpasses-100-million-in-just-24-hours-hoping-to-become-first-cat-token-to-reach-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/meme-coin-madness-hobbes-surpasses-100-million-in-just-24-hours-hoping-to-become-first-cat-token-to-reach-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bv8z7g/hobbes_meme_coin_shatters_records_with_100/

@@ -30,6 +30,9 @@ yourupdatetv@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-mtv-of-independent-film-437577639 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-mtv-of-independent-film-437577639) 
+[Original/Source Press Release](https://newsdirect.com/news/the-mtv-of-independent-film-437577639)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1ctkku4/transparent_film_festival_to_launch_abfabcom_a/

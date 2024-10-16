@@ -42,6 +42,9 @@ BOTS INC.
 
 Telephone: 939-212-9068 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/bots-inc-reports-financial-growth-of-its-bitcoin-atm-subsidiary-7076119) 
+[Original/Source Press Release](https://www.newmediawire.com/news/bots-inc-reports-financial-growth-of-its-bitcoin-atm-subsidiary-7076119)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fsq38q/bots_inc_reports_strong_financial_performance_for/

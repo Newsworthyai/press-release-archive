@@ -48,6 +48,9 @@ Company Websitehttps://www.edgecortix.com/en/
 
 View source version on newsdirect.com: https://newsdirect.com/news/edgecortix-launches-sakura-ii-platform-to-power-the-next-wave-of-generative-ai-at-the-edge-518472106 
 
-[Original/Source Press Release](https://newsdirect.com/news/edgecortix-launches-sakura-ii-platform-to-power-the-next-wave-of-generative-ai-at-the-edge-518472106) 
+[Original/Source Press Release](https://newsdirect.com/news/edgecortix-launches-sakura-ii-platform-to-power-the-next-wave-of-generative-ai-at-the-edge-518472106)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cxa7gy/edgecortix_launches_sakuraii_platform_to_power/

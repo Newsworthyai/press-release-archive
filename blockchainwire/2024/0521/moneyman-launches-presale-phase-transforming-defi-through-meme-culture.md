@@ -22,6 +22,9 @@ X (Twitter): https://x.com/MoneyManToken
 
 Disclaimer: This is a press release and does not contain any financial advice. Readers should do their own research before taking any actions related to the company mentioned. You are solely responsible, directly or indirectly, for any damage or loss caused or alleged to be caused by or in connection with the use of or reliance on any content, goods, or services mentioned in the press release. Cryptocurrency is volatile. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/moneyman-launches-presale-phase-transforming-defi-through-meme-culture) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/moneyman-launches-presale-phase-transforming-defi-through-meme-culture)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cx4s8q/introducing_moneyman_the_bullmarket_beast/

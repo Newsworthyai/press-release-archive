@@ -14,6 +14,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/endurance-gold-begins-10-000-meter-drilling-campaign-at-reliance-gold-property-160926934 
 
-[Original/Source Press Release](https://newsdirect.com/news/endurance-gold-begins-10-000-meter-drilling-campaign-at-reliance-gold-property-160926934) 
+[Original/Source Press Release](https://newsdirect.com/news/endurance-gold-begins-10-000-meter-drilling-campaign-at-reliance-gold-property-160926934)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1e6izib/endurance_gold_commences_10000_meter_drilling/

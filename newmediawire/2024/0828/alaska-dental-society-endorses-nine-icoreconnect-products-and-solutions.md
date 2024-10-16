@@ -46,6 +46,9 @@ IR@icoreconnect.com
 
 888.810.7706, ext 5 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/alaska-dental-society-endorses-nine-icoreconnect-products-and-solutions-7075973) 
+[Original/Source Press Release](https://www.newmediawire.com/news/alaska-dental-society-endorses-nine-icoreconnect-products-and-solutions-7075973)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1f7lp21/icoreconnect_announces_partnership_with_alaska/

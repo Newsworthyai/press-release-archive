@@ -48,6 +48,9 @@ Nadine Arendse ; Nadine@cassiopeia-ltd.com
 
 info@cassiopeia-ltd.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/q-blockchain-and-hyperlane-pioneer-cross-chain-governance-solutions) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/q-blockchain-and-hyperlane-pioneer-cross-chain-governance-solutions)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ccp8fq/q_development_ag_deploys_hyperlane_on_q_enabling/

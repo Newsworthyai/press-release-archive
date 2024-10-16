@@ -28,6 +28,9 @@ Visit the links below for more information about Pandoshi (PAMBO):
 
 Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/pandoshi-pambo-value-soars-500-since-initial-phase-currently-priced-at-001) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/pandoshi-pambo-value-soars-500-since-initial-phase-currently-priced-at-001)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avcb5c/pandoshi_pambo_surges_by_500_in_value_redefining/

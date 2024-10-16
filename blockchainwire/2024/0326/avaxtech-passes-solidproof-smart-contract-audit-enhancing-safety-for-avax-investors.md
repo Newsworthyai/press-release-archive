@@ -40,6 +40,9 @@ Anyone interested in the AvaxTech ecosystem can learn more about it on the offic
 
 X (Twitter) | Telegram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/avaxtech-passes-solidproof-smart-contract-audit-enhancing-safety-for-avax-investors) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/avaxtech-passes-solidproof-smart-contract-audit-enhancing-safety-for-avax-investors)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bo2hvb/avaxtech_project_passes_smart_contract_audit_by/

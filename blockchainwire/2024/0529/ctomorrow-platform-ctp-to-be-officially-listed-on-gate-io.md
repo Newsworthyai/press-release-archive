@@ -28,6 +28,9 @@ About CTOMORROW PLATFORMCTOMORROW PLATFORM (CTP) is a cutting-edge blockchain-ba
 
 About Gate.ioGate.io, established in 2013, is a leading global cryptocurrency exchange providing a secure and transparent trading environment. It pioneered 100% Proof of Reserves, allowing users to independently verify their assets. With over 1,700 cryptocurrencies available for trading, Gate.io serves millions of users worldwide, boasting a daily trading volume of $8.65 billion and hosting a robust Web3 ecosystem encompassing wallets, cross-chain functionality, NFTs, and DApps. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/ctomorrow-platform-ctp-to-be-officially-listed-on-gateio) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/ctomorrow-platform-ctp-to-be-officially-listed-on-gateio)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fqrn7g/ctomorrow_platform_ctp_listing_on_gateio_propels/

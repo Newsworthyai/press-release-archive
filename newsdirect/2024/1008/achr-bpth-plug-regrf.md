@@ -58,6 +58,9 @@ Wall Street Reporter
 
 View source version on newsdirect.com: https://newsdirect.com/news/achr-bpth-plug-regrf-846387686 
 
-[Original/Source Press Release](https://newsdirect.com/news/achr-bpth-plug-regrf-846387686) 
+[Original/Source Press Release](https://newsdirect.com/news/achr-bpth-plug-regrf-846387686)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fz11c2/key_insights_from_ceos_of_biopath_holdings_bpth/

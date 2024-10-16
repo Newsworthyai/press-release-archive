@@ -16,6 +16,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/global-energy-metals-planning-extensive-field-work-in-2024-with-at-monument-peak-project-in-idaho-564399012 
 
-[Original/Source Press Release](https://newsdirect.com/news/global-energy-metals-planning-extensive-field-work-in-2024-with-at-monument-peak-project-in-idaho-564399012) 
+[Original/Source Press Release](https://newsdirect.com/news/global-energy-metals-planning-extensive-field-work-in-2024-with-at-monument-peak-project-in-idaho-564399012)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c1or9n/global_energy_metals_unveils_ambitious/

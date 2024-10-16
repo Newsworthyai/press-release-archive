@@ -26,6 +26,9 @@ Keep an eye out for BioMatrix's upcoming innovative brand and technological solu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/biomatrix-revealed-as-the-surprising-contender-at-token2049-launches-beta-app-to-redefine-inclusive-finance-via-universal-basic-income) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/biomatrix-revealed-as-the-surprising-contender-at-token2049-launches-beta-app-to-redefine-inclusive-finance-via-universal-basic-income)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1cgtx62/biomatrix_launches_revolutionary_mobile_app_beta/

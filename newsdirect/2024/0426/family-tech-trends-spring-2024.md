@@ -14,6 +14,9 @@ Company Websitehttps://newsmg.com/
 
 View original content to download multimedia: https://newsdirect.com/news/family-tech-trends-spring-2024-105051227 
 
-[Original/Source Press Release](https://newsdirect.com/news/family-tech-trends-spring-2024-105051227) 
+[Original/Source Press Release](https://newsdirect.com/news/family-tech-trends-spring-2024-105051227)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1cdimq7/latest_family_tech_trends_for_spring_2024_unveiled/

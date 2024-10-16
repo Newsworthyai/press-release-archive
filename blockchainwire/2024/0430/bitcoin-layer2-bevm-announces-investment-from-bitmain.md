@@ -14,6 +14,9 @@ For further information about BEVM, please visit www.bevm.io or contact business
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-layer2-bevm-announces-investment-from-bitmain) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/bitcoin-layer2-bevm-announces-investment-from-bitmain)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cgs5nc/bitmain_invests_in_btc_layer2_project_bevm/

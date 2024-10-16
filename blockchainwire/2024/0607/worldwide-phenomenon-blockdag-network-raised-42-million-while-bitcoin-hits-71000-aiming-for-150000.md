@@ -56,6 +56,9 @@ Discord: https://discord.gg/Q7BxghMVyu
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/worldwide-phenomenon-blockdag-network-raised-42-million-while-bitcoin-hits-71000-aiming-for-150000-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/worldwide-phenomenon-blockdag-network-raised-42-million-while-bitcoin-hits-71000-aiming-for-150000-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dacvog/blockdag_network_revolutionizes_cryptocurrency/

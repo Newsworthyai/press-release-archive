@@ -80,6 +80,9 @@ SPRIG Consulting
 
 jodi@sprigconsulting.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/aclarion-provides-corporate-update-on-nociscan-ai-technology-milestones-7076042) 
+[Original/Source Press Release](https://www.newmediawire.com/news/aclarion-provides-corporate-update-on-nociscan-ai-technology-milestones-7076042)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1ff06j8/aclarion_inc_announces_significant_milestones_in/

@@ -26,6 +26,9 @@ For more than 20 years, the Stephen Lewis Foundation has challenged traditional 
 
 Shauna Schuda Primary: 630-468-7075 Public Relations Dept. Manager   [Shauna.Schuda@LionsClubs.org](mailto:Shauna.Schuda@LionsClubs.org)View source version on newsdirect.com: https://newsdirect.com/news/lions-international-honors-stephen-lewis-foundation-with-humanitarian-award-672980744 
 
-[Original/Source Press Release](https://newsdirect.com/news/lions-international-honors-stephen-lewis-foundation-with-humanitarian-award-672980744) 
+[Original/Source Press Release](https://newsdirect.com/news/lions-international-honors-stephen-lewis-foundation-with-humanitarian-award-672980744)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1chos6m/stephen_lewis_foundation_to_receive_2024_lions/

@@ -49,6 +49,9 @@ Company Websitehttps://playactivate.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-worlds-first-immersive-gaming-experience-to-launch-second-houston-location-this-august-207787694 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-worlds-first-immersive-gaming-experience-to-launch-second-houston-location-this-august-207787694) 
+[Original/Source Press Release](https://newsdirect.com/news/the-worlds-first-immersive-gaming-experience-to-launch-second-houston-location-this-august-207787694)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1en5l1w/activate_launches_second_houston_location_in/

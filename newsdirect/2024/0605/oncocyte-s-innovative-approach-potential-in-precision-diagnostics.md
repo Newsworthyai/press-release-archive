@@ -46,6 +46,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/oncocytes-innovative-approach-potential-in-precision-diagnostics-135744794 
 
-[Original/Source Press Release](https://newsdirect.com/news/oncocytes-innovative-approach-potential-in-precision-diagnostics-135744794) 
+[Original/Source Press Release](https://newsdirect.com/news/oncocytes-innovative-approach-potential-in-precision-diagnostics-135744794)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d8nb0h/oncocytes_innovative_precision_diagnostics_and/

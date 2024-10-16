@@ -18,6 +18,9 @@ MarketerFocus.com is poised to set new standards in the realm of marketing knowl
 
 Join the future of marketing knowledge at www.MarketerFocus.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231128843/marketerfocus-com-unveiled-the-next-level-resource-for-modern-marketing-minds) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231128843/marketerfocus-com-unveiled-the-next-level-resource-for-modern-marketing-minds)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1avcsrx/marketerfocuscom_unveiled_as_the_ultimate/

@@ -10,6 +10,9 @@ Moscow, Idaho (Newsworthy.ai) Wednesday Oct 2, 2024 @ 7:00 AM Central — RedBal
 
 About RedBalloon.workFounded In 2021, RedBalloon has quickly become America's largest connector of employers and employees who prioritize a positive workplace culture free from the divisiveness of cancel-culture mandates. RedBalloon CEO Andrew Crapuchettes is a longtime business leader, entrepreneur, and innovator who has founded several successful tech companies and is widely considered a global pioneer in the development and use of labor market data analytics – an industry he helped found over 20 years ago. Learn more at RedBalloon.work. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202410021297/small-businesses-are-elevating-their-hiring-with-redballoons-culture-first-applicant-tracking-system-ats) 
+[Original/Source Press Release](https://newsworthy.ai/news/202410021297/small-businesses-are-elevating-their-hiring-with-redballoons-culture-first-applicant-tracking-system-ats)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1fuopkd/redballoonwork_launches_redballoon_ats_for/

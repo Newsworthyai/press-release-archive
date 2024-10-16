@@ -30,6 +30,9 @@ ChainlinkConrad ColesSupport@chain.link
 
 Disclaimer:The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/looted-announces-partnership-with-chainlink-crediting-them-to-making-the-platform-possible) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/looted-announces-partnership-with-chainlink-crediting-them-to-making-the-platform-possible)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1b7kt4q/looted_network_announces_partnership_with/

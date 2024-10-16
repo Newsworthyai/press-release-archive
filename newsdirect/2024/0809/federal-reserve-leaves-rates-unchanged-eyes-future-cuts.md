@@ -44,6 +44,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/federal-reserve-leaves-rates-unchanged-eyes-future-cuts-698032562 
 
-[Original/Source Press Release](https://newsdirect.com/news/federal-reserve-leaves-rates-unchanged-eyes-future-cuts-698032562) 
+[Original/Source Press Release](https://newsdirect.com/news/federal-reserve-leaves-rates-unchanged-eyes-future-cuts-698032562)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1enyvhb/federal_reserve_maintains_rates_amidst_economic/

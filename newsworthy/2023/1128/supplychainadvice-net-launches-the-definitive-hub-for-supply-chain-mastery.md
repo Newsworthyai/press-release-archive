@@ -18,6 +18,9 @@ Aimed at both seasoned professionals and those new to the field, SupplyChainAdvi
 
 Discover transformative insights and join the future of supply chain management at www.SupplyChainAdvice.net. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231128880/supplychainadvice-net-launches-the-definitive-hub-for-supply-chain-mastery) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231128880/supplychainadvice-net-launches-the-definitive-hub-for-supply-chain-mastery)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx0kp/new_supply_chain_resource_launches/

@@ -24,6 +24,9 @@ The launch of Phoenic Leveller is part of Miracle Cash & More’s broader strate
 
 Miracle Cash & More also supports the Phoenic Token, which plays a central role in its ecosystem. The company has implemented a strategic acquisition plan, allocating a portion of its monthly revenue to purchasing Phoenic Tokens. This buy-back initiative is designed to support the token’s market value, ensuring stability and growth for both the platform and its users. Through the Phoenic Leveller platform, users can also trade Phoenic Tokens for other supported cryptocurrencies, providing even greater flexibility and liquidity within the ecosystem. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/miracle-cash--more-launches-novel-liquidity-pool-on-the-popular-avalanche-blockchain) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/miracle-cash--more-launches-novel-liquidity-pool-on-the-popular-avalanche-blockchain)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fybi3r/miracle_cash_more_launches_phoenic_leveller/

@@ -18,6 +18,9 @@ Designed for both budding PR enthusiasts and seasoned professionals, PublicRelat
 
 Unearth the world of PR expertise at www.PublicRelationsAdvice.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231215868/introducing-publicrelationsadvice-com-the-ultimate-destination-for-pr-expertise-and-guidance) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231215868/introducing-publicrelationsadvice-com-the-ultimate-destination-for-pr-expertise-and-guidance)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1avcuhh/revolutionary_platform_publicrelationsadvicecom/

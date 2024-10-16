@@ -36,6 +36,9 @@ Company Websitehttps://www.goodwaygroup.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/goodway-group-secures-meta-media-certification-elevating-expertise-enhancing-efficiency-and-maximizing-media-investments-as-meta-drives-21-of-u-s-ad-spend-in-2024-979746194 
 
-[Original/Source Press Release](https://newsdirect.com/news/goodway-group-secures-meta-media-certification-elevating-expertise-enhancing-efficiency-and-maximizing-media-investments-as-meta-drives-21-of-u-s-ad-spend-in-2024-979746194) 
+[Original/Source Press Release](https://newsdirect.com/news/goodway-group-secures-meta-media-certification-elevating-expertise-enhancing-efficiency-and-maximizing-media-investments-as-meta-drives-21-of-u-s-ad-spend-in-2024-979746194)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1f9rhxs/goodway_group_achieves_meta_media_certification/

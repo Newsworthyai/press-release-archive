@@ -32,6 +32,9 @@ Disclaimer
 
 • Please note that Gate.io may not be able to provide full services in certain locations, and Gate.io may restrict or prohibit the use of all or a portion of the Services from Restricted Locations. For more information on Restricted Locations, please read “Section 2.3(d) Restricted Locations” in the User Agreement, link: https://www.gate.io/zh/user-agreement. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/gateio-unveils-hedgesmart-strategies-usdt-10-to-20-annualized-yield-with-principal-protection) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/gateio-unveils-hedgesmart-strategies-usdt-10-to-20-annualized-yield-with-principal-protection)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ef1gwn/gateio_launches_hedgesmart_strategiesusdt_with/

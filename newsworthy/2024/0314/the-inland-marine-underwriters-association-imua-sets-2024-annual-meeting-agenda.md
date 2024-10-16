@@ -35,6 +35,9 @@ IMUA is the national association for the commercial inland marine insurance indu
 
 For more information on the Annual Meeting, visit IMUA's website, www.imua.org. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202403141117/the-inland-marine-underwriters-association-imua-sets-2024-annual-meeting-agenda) 
+[Original/Source Press Release](https://newsworthy.ai/news/202403141117/the-inland-marine-underwriters-association-imua-sets-2024-annual-meeting-agenda)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1benk3l/imua_announces_93rd_annual_meeting_educational/

@@ -12,6 +12,9 @@ Company Websitehttps://newsmg.com/
 
 View original content to download multimedia: https://newsdirect.com/news/dads-and-grads-gift-ideas-219667652 
 
-[Original/Source Press Release](https://newsdirect.com/news/dads-and-grads-gift-ideas-219667652) 
+[Original/Source Press Release](https://newsdirect.com/news/dads-and-grads-gift-ideas-219667652)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d4c1su/dads_and_grads_gift_ideas_top_picks_for_fathers/

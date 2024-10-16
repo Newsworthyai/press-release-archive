@@ -32,6 +32,9 @@ Company Websitehttps://playactivate.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/activate-recognized-among-canadas-top-growing-companies-by-the-globe-and-mail-425548438 
 
-[Original/Source Press Release](https://newsdirect.com/news/activate-recognized-among-canadas-top-growing-companies-by-the-globe-and-mail-425548438) 
+[Original/Source Press Release](https://newsdirect.com/news/activate-recognized-among-canadas-top-growing-companies-by-the-globe-and-mail-425548438)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1fqmrnx/activate_named_one_of_canadas_top_growing/

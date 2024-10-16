@@ -44,6 +44,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/safety-shot-inc-nasdaq-shot-upside-confirmed-by-scientific-research-792653873 
 
-[Original/Source Press Release](https://newsdirect.com/news/safety-shot-inc-nasdaq-shot-upside-confirmed-by-scientific-research-792653873) 
+[Original/Source Press Release](https://newsdirect.com/news/safety-shot-inc-nasdaq-shot-upside-confirmed-by-scientific-research-792653873)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1er447o/safety_shot_inc_revolutionizes_responsible/

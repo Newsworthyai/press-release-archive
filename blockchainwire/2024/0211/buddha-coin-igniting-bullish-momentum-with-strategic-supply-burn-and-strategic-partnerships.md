@@ -28,6 +28,9 @@ Disclaimer:
 
 The information provided in this release is not investment advice, financial advice, or trading advice. It is recommended that you practice due diligence (including consultation with a professional financial advisor) before investing or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/buddha-coin-igniting-bullish-momentum-with-strategic-supply-burn-and-strategic-partnerships) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/buddha-coin-igniting-bullish-momentum-with-strategic-supply-burn-and-strategic-partnerships)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avcbi7/buddha_coin_cryptocurrency_project_surges_with/

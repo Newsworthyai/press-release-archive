@@ -38,6 +38,9 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/tron-network-officially-supported-by-layerzero-684887492 
 
-[Original/Source Press Release](https://newsdirect.com/news/tron-network-officially-supported-by-layerzero-684887492) 
+[Original/Source Press Release](https://newsdirect.com/news/tron-network-officially-supported-by-layerzero-684887492)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1d2j4g5/tron_dao_announces_layerzero_support_for_tron/

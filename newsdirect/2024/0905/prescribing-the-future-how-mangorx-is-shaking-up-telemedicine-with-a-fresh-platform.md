@@ -46,6 +46,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/prescribing-the-future-how-mangorx-is-shaking-up-telemedicine-with-a-fresh-platform-772119124 
 
-[Original/Source Press Release](https://newsdirect.com/news/prescribing-the-future-how-mangorx-is-shaking-up-telemedicine-with-a-fresh-platform-772119124) 
+[Original/Source Press Release](https://newsdirect.com/news/prescribing-the-future-how-mangorx-is-shaking-up-telemedicine-with-a-fresh-platform-772119124)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1f9rl2q/dea_opens_digital_door_to_telemedicine_mangorx/

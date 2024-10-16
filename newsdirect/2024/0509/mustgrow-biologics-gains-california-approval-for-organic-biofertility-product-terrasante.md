@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/mustgrow-biologics-gains-california-approval-for-organic-biofertility-product-terrasante-896924967 
 
-[Original/Source Press Release](https://newsdirect.com/news/mustgrow-biologics-gains-california-approval-for-organic-biofertility-product-terrasante-896924967) 
+[Original/Source Press Release](https://newsdirect.com/news/mustgrow-biologics-gains-california-approval-for-organic-biofertility-product-terrasante-896924967)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1co2yfc/mustgrow_biologics_receives_california_approval/

@@ -16,6 +16,9 @@ Follow Us on: X (Twitter): @asii_Inc
 
 Source: Accredited Solutions, Inc. https://www.diamondcreekwater.com 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/accredited-solutions-files-3-6m-reg-a-offering-to-support-acquisition-strategy-and-growth-initiatives-7076021) 
+[Original/Source Press Release](https://www.newmediawire.com/news/accredited-solutions-files-3-6m-reg-a-offering-to-support-acquisition-strategy-and-growth-initiatives-7076021)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fco9kl/accredited_solutions_inc_files_regulation_a/

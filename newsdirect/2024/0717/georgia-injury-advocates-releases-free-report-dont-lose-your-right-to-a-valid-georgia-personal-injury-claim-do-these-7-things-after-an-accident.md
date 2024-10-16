@@ -48,6 +48,9 @@ Company Websitehttps://gainjuryadvocates.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/georgia-injury-advocates-releases-free-report-dont-lose-your-right-to-a-valid-georgia-personal-injury-claim-do-these-7-things-after-an-accident-225483147 
 
-[Original/Source Press Release](https://newsdirect.com/news/georgia-injury-advocates-releases-free-report-dont-lose-your-right-to-a-valid-georgia-personal-injury-claim-do-these-7-things-after-an-accident-225483147) 
+[Original/Source Press Release](https://newsdirect.com/news/georgia-injury-advocates-releases-free-report-dont-lose-your-right-to-a-valid-georgia-personal-injury-claim-do-these-7-things-after-an-accident-225483147)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1e5klz4/georgia_injury_advocates_releases_essential_free/

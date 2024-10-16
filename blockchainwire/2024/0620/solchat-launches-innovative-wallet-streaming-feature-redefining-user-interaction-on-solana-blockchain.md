@@ -6,6 +6,9 @@ What is Wallet Streaming?Wallet Streaming on Solchat enables users to share thei
 
 Join Us in Shaping the Future:Explore Wallet Streaming and join the conversation on [https://Solchat.app](https://Solchat.app) today.Website: [https://solchat.io](https://solchat.io)Twitter X: [https://x.com/solchatcoin](https://x.com/solchatcoin)Telegram: [https://t.me/SolChatCoin](https://t.me/SolChatCoin)Coinmarketcap: [https://coinmarketcap.com/currencies/solchat/](https://coinmarketcap.com/currencies/solchat/)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/solchat-launches-innovative-wallet-streaming-feature-redefining-user-interaction-on-solana-blockchain) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/solchat-launches-innovative-wallet-streaming-feature-redefining-user-interaction-on-solana-blockchain)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvgvyv/solchat_launches_wallet_streaming_feature_on/

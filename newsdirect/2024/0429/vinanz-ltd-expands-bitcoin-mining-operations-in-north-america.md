@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/vinanz-ltd-expands-bitcoin-mining-operations-in-north-america-103950699 
 
-[Original/Source Press Release](https://newsdirect.com/news/vinanz-ltd-expands-bitcoin-mining-operations-in-north-america-103950699) 
+[Original/Source Press Release](https://newsdirect.com/news/vinanz-ltd-expands-bitcoin-mining-operations-in-north-america-103950699)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1cg1nba/vinanz_ltd_expands_bitcoin_mining_operations_in/

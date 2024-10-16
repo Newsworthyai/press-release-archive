@@ -29,6 +29,9 @@
 
  BioMedWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/paxmedica-nasdaq-pxmd-developing-treatments-for-underserved-neurological-disorders/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/paxmedica-nasdaq-pxmd-developing-treatments-for-underserved-neurological-disorders/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2fn2v/paxmedica_prepares_nda_submission_for_suramin_and/

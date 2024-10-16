@@ -20,6 +20,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/hydrogen-utopia-ceo-discusses-advances-in-cannabis-operation-and-future-hydrogen-projects-897437781 
 
-[Original/Source Press Release](https://newsdirect.com/news/hydrogen-utopia-ceo-discusses-advances-in-cannabis-operation-and-future-hydrogen-projects-897437781) 
+[Original/Source Press Release](https://newsdirect.com/news/hydrogen-utopia-ceo-discusses-advances-in-cannabis-operation-and-future-hydrogen-projects-897437781)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1c72muw/hydrogen_utopia_ceo_discusses_advances_in/

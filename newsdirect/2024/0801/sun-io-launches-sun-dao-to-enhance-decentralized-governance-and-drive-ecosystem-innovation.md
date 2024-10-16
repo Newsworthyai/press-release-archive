@@ -52,6 +52,9 @@ marketing@sun.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/sun-io-launches-sun-dao-to-enhance-decentralized-governance-and-drive-ecosystem-innovation-759577292 
 
-[Original/Source Press Release](https://newsdirect.com/news/sun-io-launches-sun-dao-to-enhance-decentralized-governance-and-drive-ecosystem-innovation-759577292) 
+[Original/Source Press Release](https://newsdirect.com/news/sun-io-launches-sun-dao-to-enhance-decentralized-governance-and-drive-ecosystem-innovation-759577292)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvehzg/sunio_launches_sun_dao_to_enhance_decentralized/

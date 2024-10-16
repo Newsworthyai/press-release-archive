@@ -27,6 +27,9 @@ Company Websitehttps://www.nafa.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/nafa-to-host-fleet-policy-workshop-focused-on-comprehensive-fundamentals-and-best-practices-in-fleet-management-141295529 
 
-[Original/Source Press Release](https://newsdirect.com/news/nafa-to-host-fleet-policy-workshop-focused-on-comprehensive-fundamentals-and-best-practices-in-fleet-management-141295529) 
+[Original/Source Press Release](https://newsdirect.com/news/nafa-to-host-fleet-policy-workshop-focused-on-comprehensive-fundamentals-and-best-practices-in-fleet-management-141295529)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dyfqlp/nafa_announces_fleet_policy_workshop_for_fleet/

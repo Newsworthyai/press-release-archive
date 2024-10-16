@@ -51,6 +51,9 @@ Visit Our Blog
  * 
 * 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/rapidfire/news_release/1413) 
+[Original/Source Press Release](https://newsroom.prkarma.com/rapidfire/news_release/1413)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bko8xq/rapidfire_safety_security_acquires_troy_alarm_in/

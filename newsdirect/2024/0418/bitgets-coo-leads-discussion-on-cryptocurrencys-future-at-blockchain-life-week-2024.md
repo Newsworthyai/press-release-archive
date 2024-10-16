@@ -26,6 +26,9 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitgets-coo-leads-discussion-on-cryptocurrencys-future-at-blockchain-life-week-2024-675478680 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitgets-coo-leads-discussion-on-cryptocurrencys-future-at-blockchain-life-week-2024-675478680) 
+[Original/Source Press Release](https://newsdirect.com/news/bitgets-coo-leads-discussion-on-cryptocurrencys-future-at-blockchain-life-week-2024-675478680)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c719b7/bitget_coo_leads_discussion_on_cryptocurrencys/

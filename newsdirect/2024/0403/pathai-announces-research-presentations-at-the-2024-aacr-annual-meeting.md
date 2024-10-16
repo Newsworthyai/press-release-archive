@@ -112,6 +112,9 @@ Company Websitehttps://www.pathai.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/pathai-announces-research-presentations-at-the-2024-aacr-annual-meeting-566770794 
 
-[Original/Source Press Release](https://newsdirect.com/news/pathai-announces-research-presentations-at-the-2024-aacr-annual-meeting-566770794) 
+[Original/Source Press Release](https://newsdirect.com/news/pathai-announces-research-presentations-at-the-2024-aacr-annual-meeting-566770794)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1butp10/pathai_to_present_aipowered_precision_pathology/

@@ -38,6 +38,9 @@ Ron Brewer, CEO
 
 ronb@rjdgreen.com 
 
-[Original/Source Press Release](http://www.newmediawire.com/news/rjd-green-inc-s-silex-holdings-division-acquires-the-assets-of-jsi-interiors-7076083) 
+[Original/Source Press Release](http://www.newmediawire.com/news/rjd-green-inc-s-silex-holdings-division-acquires-the-assets-of-jsi-interiors-7076083)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1frcaoa/silex_holdings_inc_acquires_assets_of_jsi/

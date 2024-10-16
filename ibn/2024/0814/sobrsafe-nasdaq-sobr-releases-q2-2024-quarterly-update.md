@@ -26,6 +26,9 @@ SOBRsafe (NASDAQ: SOBR), a provider of next-generation, transdermal alcohol-dete
 
  TechMediaWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/sobrsafe-nasdaq-sobr-releases-q2-2024-quarterly-update/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/sobrsafe-nasdaq-sobr-releases-q2-2024-quarterly-update/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1f2gg7y/sobrsafe_reports_nasdaq_listing_exception/

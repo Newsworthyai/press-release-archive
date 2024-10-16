@@ -18,6 +18,9 @@ Serving as a nexus for small business leaders, SmallBizLeader.com is dedicated t
 
 Discover the world of small business leadership at www.SmallBizLeader.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231222877/introducing-smallbizleader-com-a-destination-for-small-business-leaders-worldwide) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231222877/introducing-smallbizleader-com-a-destination-for-small-business-leaders-worldwide)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx57d/introducing_smallbizleadercom_empowering_small/

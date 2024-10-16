@@ -83,6 +83,9 @@ Company Websitehttps://www.sectorspdrs.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/aligning-investment-strategies-through-the-health-care-select-sector-spdr-fund-xlv-441727149 
 
-[Original/Source Press Release](https://newsdirect.com/news/aligning-investment-strategies-through-the-health-care-select-sector-spdr-fund-xlv-441727149) 
+[Original/Source Press Release](https://newsdirect.com/news/aligning-investment-strategies-through-the-health-care-select-sector-spdr-fund-xlv-441727149)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1f74hlj/diversify_your_portfolio_with_health_care_select/

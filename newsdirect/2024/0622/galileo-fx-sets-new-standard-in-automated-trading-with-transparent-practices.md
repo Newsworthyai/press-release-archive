@@ -30,6 +30,9 @@ Company Websitehttps://galileofx.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/galileo-fx-sets-new-standard-in-automated-trading-with-transparent-practices-731544275 
 
-[Original/Source Press Release](https://newsdirect.com/news/galileo-fx-sets-new-standard-in-automated-trading-with-transparent-practices-731544275) 
+[Original/Source Press Release](https://newsdirect.com/news/galileo-fx-sets-new-standard-in-automated-trading-with-transparent-practices-731544275)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1dmp9t1/galileo_fx_redefines_automated_trading_with/

@@ -50,6 +50,9 @@ Company Websitehttps://www.haruko.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/haruko-expands-into-southeast-asia-with-6m-funding-round-to-eliminate-inefficiencies-in-digital-asset-management-354556206 
 
-[Original/Source Press Release](https://newsdirect.com/news/haruko-expands-into-southeast-asia-with-6m-funding-round-to-eliminate-inefficiencies-in-digital-asset-management-354556206) 
+[Original/Source Press Release](https://newsdirect.com/news/haruko-expands-into-southeast-asia-with-6m-funding-round-to-eliminate-inefficiencies-in-digital-asset-management-354556206)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1e3t7fs/haruko_secures_6m_funding_to_expand_into/

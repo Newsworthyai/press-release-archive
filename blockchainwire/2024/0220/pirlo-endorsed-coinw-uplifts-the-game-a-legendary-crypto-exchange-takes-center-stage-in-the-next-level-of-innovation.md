@@ -38,6 +38,9 @@ About Company:CoinW stands as a pinnacle in the world of crypto trading platfo
 
 Dedicated to upholding the highest regulatory standards, we prioritize security, transparency, and compliance to contribute actively to the advancement of the crypto industry. At CoinW, we take pride in serving over 10 million users worldwide, earning our reputation as a beacon of security and reliability in the dynamic realm of cryptocurrency. Join us on this journey, where your assets are safeguarded, and your trading experience is elevated to new heights. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/pirlo-endorsed-coinw-uplifts-the-game-a-legendary-crypto-exchange-takes-center-stage-in-the-next-level-of-innovation) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/pirlo-endorsed-coinw-uplifts-the-game-a-legendary-crypto-exchange-takes-center-stage-in-the-next-level-of-innovation)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avwy1b/andrea_pirlo_partners_with_coinw_to_bring/

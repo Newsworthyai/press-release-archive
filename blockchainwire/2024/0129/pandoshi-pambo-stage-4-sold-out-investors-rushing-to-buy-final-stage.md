@@ -26,6 +26,9 @@ Visit the links below for more information about Pandoshi (PAMBO):
 
 Website: https://pandoshi.com/ Whitepaper: https://docs.pandoshi.com/ 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/pandoshi-pambo-stage-4-sold-out-investors-rushing-to-buy-final-stage) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/pandoshi-pambo-stage-4-sold-out-investors-rushing-to-buy-final-stage)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avju66/pandoshi_pambo_achieves_milestone_with_completion/

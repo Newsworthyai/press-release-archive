@@ -46,6 +46,9 @@ Company Websitehttps://wormfare.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/wormfare-ecosystem-launches-largest-ever-cleanup-challenge-730173790 
 
-[Original/Source Press Release](https://newsdirect.com/news/wormfare-ecosystem-launches-largest-ever-cleanup-challenge-730173790) 
+[Original/Source Press Release](https://newsdirect.com/news/wormfare-ecosystem-launches-largest-ever-cleanup-challenge-730173790)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1c32iwu/wormfare_launches_largestever_cleanup_challenge/

@@ -12,6 +12,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sarytogan-graphite-uspg-batteries-retain-97-3-capacity-after-100-cycles-954487141 
 
-[Original/Source Press Release](https://newsdirect.com/news/sarytogan-graphite-uspg-batteries-retain-97-3-capacity-after-100-cycles-954487141) 
+[Original/Source Press Release](https://newsdirect.com/news/sarytogan-graphite-uspg-batteries-retain-97-3-capacity-after-100-cycles-954487141)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1cwnmty/sarytogan_graphites_uspg_batteries_show/

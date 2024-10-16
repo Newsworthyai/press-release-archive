@@ -26,6 +26,9 @@ ConclusionFurrever Token's strategic positioning amid the resilience of Bitcoin 
 
 Media Contact:Robert Smithhttps://furrevertoken.com/support@furrevertoken.comDisclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/why-furrever-token-is-poised-to-benefit-from-bitcoin-btcs-endurance-and-ethereum-eths-growth) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/why-furrever-token-is-poised-to-benefit-from-bitcoin-btcs-endurance-and-ethereum-eths-growth)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1diusi7/furrever_token_positioned_for_growth_amid_bitcoin/

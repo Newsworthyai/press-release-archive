@@ -35,6 +35,9 @@ Canada
 
 +1 (825) 945 - 2667 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/drtalks/news_release/1403) 
+[Original/Source Press Release](https://newsroom.prkarma.com/drtalks/news_release/1403)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1bko8sn/drtalks_announces_the_super_fertility_summit_a/

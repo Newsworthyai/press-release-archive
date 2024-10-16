@@ -26,6 +26,9 @@ Company Websitehttps://getbevel.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/award-winning-grooming-brand-bevel-launches-trimmer-se-in-ulta-beauty-and-ulta-com-235414985 
 
-[Original/Source Press Release](https://newsdirect.com/news/award-winning-grooming-brand-bevel-launches-trimmer-se-in-ulta-beauty-and-ulta-com-235414985) 
+[Original/Source Press Release](https://newsdirect.com/news/award-winning-grooming-brand-bevel-launches-trimmer-se-in-ulta-beauty-and-ulta-com-235414985)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fnkp3x/awardwinning_grooming_brand_bevel_launches/

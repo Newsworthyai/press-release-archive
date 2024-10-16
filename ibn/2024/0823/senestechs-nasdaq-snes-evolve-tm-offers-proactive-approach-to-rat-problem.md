@@ -24,6 +24,9 @@ SenesTech’s (NASDAQ: SNES) flagship product, Evolve(TM), has repeatedly demons
 
  InvestorWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestechs-nasdaq-snes-evolvetm-offers-proactive-approach-to-rat-problem/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestechs-nasdaq-snes-evolvetm-offers-proactive-approach-to-rat-problem/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1f2ggdr/senestechs_evolvetm_provides_humane_rat_control/

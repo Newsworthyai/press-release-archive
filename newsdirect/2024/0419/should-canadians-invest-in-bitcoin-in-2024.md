@@ -78,6 +78,9 @@ media@bitget.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/should-canadians-invest-in-bitcoin-in-2024-877440404 
 
-[Original/Source Press Release](https://newsdirect.com/news/should-canadians-invest-in-bitcoin-in-2024-877440404) 
+[Original/Source Press Release](https://newsdirect.com/news/should-canadians-invest-in-bitcoin-in-2024-877440404)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1c873vg/canadian_investors_poised_for_lucrative_returns/

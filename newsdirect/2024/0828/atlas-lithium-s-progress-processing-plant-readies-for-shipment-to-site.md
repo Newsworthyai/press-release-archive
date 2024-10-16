@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/atlas-lithiums-progress-processing-plant-readies-for-shipment-to-site-948821344 
 
-[Original/Source Press Release](https://newsdirect.com/news/atlas-lithiums-progress-processing-plant-readies-for-shipment-to-site-948821344) 
+[Original/Source Press Release](https://newsdirect.com/news/atlas-lithiums-progress-processing-plant-readies-for-shipment-to-site-948821344)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f3gzvp/atlas_lithium_prepares_to_ship_sustainable/

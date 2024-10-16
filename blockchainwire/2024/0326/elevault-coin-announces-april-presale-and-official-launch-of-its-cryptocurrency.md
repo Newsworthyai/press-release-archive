@@ -24,6 +24,9 @@ About Elevault CoinElevault Coin intends to emerge as a force in the world of cr
 
 The April presale and official launch offer a chance to join Elevault Coin's vision of revolutionizing the crypto investment space. Anyone curious to learn more about Elevault Coin can visit its website and social media channels. By following the team, it will be possible to stay up to date on the news and participate in pre-launch events. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/elevault-coin-announces-april-presale-and-official-launch-of-its-cryptocurrency) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/elevault-coin-announces-april-presale-and-official-launch-of-its-cryptocurrency)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bo8uxk/elevault_coin_announces_highly_anticipated/

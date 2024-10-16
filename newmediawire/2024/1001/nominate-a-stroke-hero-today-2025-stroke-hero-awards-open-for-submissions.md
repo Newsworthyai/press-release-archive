@@ -36,6 +36,9 @@
 
 [2] S S Martin; et al Heart Disease and Stroke Statistics—2024 Update: A Report of US and Global Data From the American Heart Association Circulation. 2024; 149:e347–e913. DOI: 10.1161/CIR.0000000000001209 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/nominate-a-stroke-hero-today-2025-stroke-hero-awards-open-for-submissions-7076132) 
+[Original/Source Press Release](https://www.newmediawire.com/news/nominate-a-stroke-hero-today-2025-stroke-hero-awards-open-for-submissions-7076132)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1ftosxd/nominations_open_for_2025_stroke_hero_awards_by/

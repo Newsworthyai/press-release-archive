@@ -36,6 +36,9 @@ Tan Heng Juey
 
 FanSeePR@gmail.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/fansees-strategic-expansion-welcoming-new-cco-li-pu-huang-to-drive-global-growth-and-innovation) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/fansees-strategic-expansion-welcoming-new-cco-li-pu-huang-to-drive-global-growth-and-innovation)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ewdfjo/fansee_appoints_li_pu_huang_as_cco_attracts/

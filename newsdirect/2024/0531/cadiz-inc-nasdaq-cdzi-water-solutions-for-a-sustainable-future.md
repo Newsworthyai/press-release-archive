@@ -58,6 +58,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cadiz-inc-nasdaq-cdzi-water-solutions-for-a-sustainable-future-581454034 
 
-[Original/Source Press Release](https://newsdirect.com/news/cadiz-inc-nasdaq-cdzi-water-solutions-for-a-sustainable-future-581454034) 
+[Original/Source Press Release](https://newsdirect.com/news/cadiz-inc-nasdaq-cdzi-water-solutions-for-a-sustainable-future-581454034)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d4radw/cadiz_inc_nasdaq_cdzi_leading_the_charge_in_water/

@@ -36,6 +36,9 @@ Company Websitehttps://www.mascons.ca/
 
 View source version on newsdirect.com: https://newsdirect.com/news/m-a-s-construction-ltd-announces-innovative-color-consultation-services-for-newmarket-residents-891637934 
 
-[Original/Source Press Release](https://newsdirect.com/news/m-a-s-construction-ltd-announces-innovative-color-consultation-services-for-newmarket-residents-891637934) 
+[Original/Source Press Release](https://newsdirect.com/news/m-a-s-construction-ltd-announces-innovative-color-consultation-services-for-newmarket-residents-891637934)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c68hux/mas_construction_ltd_launches_new_color/

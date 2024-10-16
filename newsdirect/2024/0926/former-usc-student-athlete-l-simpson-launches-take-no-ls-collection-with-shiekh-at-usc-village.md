@@ -36,6 +36,9 @@ Company Websitehttps://takenolsstore.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/former-usc-student-athlete-l-simpson-launches-take-no-ls-collection-with-shiekh-at-usc-village-751352942 
 
-[Original/Source Press Release](https://newsdirect.com/news/former-usc-student-athlete-l-simpson-launches-take-no-ls-collection-with-shiekh-at-usc-village-751352942) 
+[Original/Source Press Release](https://newsdirect.com/news/former-usc-student-athlete-l-simpson-launches-take-no-ls-collection-with-shiekh-at-usc-village-751352942)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fpozt2/former_usc_studentathlete_l_simpson_launches_take/

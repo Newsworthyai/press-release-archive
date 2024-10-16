@@ -16,6 +16,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/first-phosphate-corp-reports-positive-drill-results-at-begin-lamarche-project-in-quebec-711329175 
 
-[Original/Source Press Release](https://newsdirect.com/news/first-phosphate-corp-reports-positive-drill-results-at-begin-lamarche-project-in-quebec-711329175) 
+[Original/Source Press Release](https://newsdirect.com/news/first-phosphate-corp-reports-positive-drill-results-at-begin-lamarche-project-in-quebec-711329175)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1crtoyu/first_phosphate_corp_ceo_announces_positive_drill/

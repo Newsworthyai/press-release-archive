@@ -29,6 +29,9 @@
 
  CBDWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-nasdaq-lexx-targeting-oral-glp-1-alternatives-for-diabetes-and-obesity-treatment/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-nasdaq-lexx-targeting-oral-glp-1-alternatives-for-diabetes-and-obesity-treatment/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AlternativeHealthNews/comments/1f2ff8t/lexaria_explores_oral_glp1_alternatives_for/

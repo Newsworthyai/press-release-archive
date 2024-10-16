@@ -38,6 +38,9 @@ Editor@bestgrowthstocks.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bgs-issues-comprehensive-analysis-of-tellurians-260-million-deal-with-aethon-826372109 
 
-[Original/Source Press Release](https://newsdirect.com/news/bgs-issues-comprehensive-analysis-of-tellurians-260-million-deal-with-aethon-826372109) 
+[Original/Source Press Release](https://newsdirect.com/news/bgs-issues-comprehensive-analysis-of-tellurians-260-million-deal-with-aethon-826372109)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1dnazmy/best_growth_stocks_releases_comprehensive/

@@ -22,6 +22,9 @@ X: twitter.com/RedotPay
 
 Disclaimer: This publication is for informational purpose only and is not intended to constitute legal, financial, investment or any other form of professional advice. RedotPay assumes no responsibility or liability for any errors or omissions in this publication. The information contained in this publication is provided on an “as is” basis and RedotPay makes no representation or warranty, whether expressed or implied, in relation to it and its use. The information is provided with no guarantees of completeness, accuracy, usefulness or timeliness. Readers should seek professional advice before taking any action in relation to the matters dealt with in this publication. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/redotpay-strengthens-kycaml-screening-with-lsegs-world-check-intelligence) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/redotpay-strengthens-kycaml-screening-with-lsegs-world-check-intelligence)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1eazv29/redotpay_enhances_kycaml_screening_with/

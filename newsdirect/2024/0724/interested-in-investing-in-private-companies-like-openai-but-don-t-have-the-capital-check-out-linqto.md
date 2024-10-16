@@ -44,6 +44,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/interested-in-investing-in-private-companies-like-openai-but-dont-have-the-capital-check-out-linqto-924047151 
 
-[Original/Source Press Release](https://newsdirect.com/news/interested-in-investing-in-private-companies-like-openai-but-dont-have-the-capital-check-out-linqto-924047151) 
+[Original/Source Press Release](https://newsdirect.com/news/interested-in-investing-in-private-companies-like-openai-but-dont-have-the-capital-check-out-linqto-924047151)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1eb0rwz/linqto_revolutionizes_private_market_investing/

@@ -32,6 +32,9 @@ Website | Twitter | Medium | Discord | Developer Portal | Github
 
 For any inquiries, please contact Anna Ivanova anna.ivanova@eakdigital.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/lavita-ai-powered-by-theta-edgecloud-celebrates-victory-at-samsung-next-2024-generative-ai-hackathon-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/lavita-ai-powered-by-theta-edgecloud-celebrates-victory-at-samsung-next-2024-generative-ai-hackathon-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cx9q9j/lavita_ai_wins_first_place_at_samsung_next_2024/

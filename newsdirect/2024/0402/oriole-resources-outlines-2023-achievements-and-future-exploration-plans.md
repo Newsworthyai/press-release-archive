@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/oriole-resources-outlines-2023-achievements-and-future-exploration-plans-510930054 
 
-[Original/Source Press Release](https://newsdirect.com/news/oriole-resources-outlines-2023-achievements-and-future-exploration-plans-510930054) 
+[Original/Source Press Release](https://newsdirect.com/news/oriole-resources-outlines-2023-achievements-and-future-exploration-plans-510930054)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bu14yh/oriole_resources_outlines_2023_achievements_and/

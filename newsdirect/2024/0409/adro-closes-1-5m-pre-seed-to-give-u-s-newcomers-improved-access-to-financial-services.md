@@ -48,6 +48,9 @@ kat@joinadro.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/adro-closes-1-5m-pre-seed-to-give-u-s-newcomers-improved-access-to-financial-services-878029824 
 
-[Original/Source Press Release](https://newsdirect.com/news/adro-closes-1-5m-pre-seed-to-give-u-s-newcomers-improved-access-to-financial-services-878029824) 
+[Original/Source Press Release](https://newsdirect.com/news/adro-closes-1-5m-pre-seed-to-give-u-s-newcomers-improved-access-to-financial-services-878029824)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1bzth6q/adro_secures_15m_preseed_funding_to_improve/

@@ -48,6 +48,9 @@ ronald@futuremarketsresearch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/could-nuvectis-pharma-be-the-next-summit-therapeutics-a-new-report-highlights-nxp900s-approach-to-nsclc-treatment-845770131 
 
-[Original/Source Press Release](https://newsdirect.com/news/could-nuvectis-pharma-be-the-next-summit-therapeutics-a-new-report-highlights-nxp900s-approach-to-nsclc-treatment-845770131) 
+[Original/Source Press Release](https://newsdirect.com/news/could-nuvectis-pharma-be-the-next-summit-therapeutics-a-new-report-highlights-nxp900s-approach-to-nsclc-treatment-845770131)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1fi3zy0/new_report_highlights_nuvectis_pharmas_nxp900/

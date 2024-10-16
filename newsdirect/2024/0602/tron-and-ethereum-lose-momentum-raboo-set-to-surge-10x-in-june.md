@@ -36,6 +36,9 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/tron-and-ethereum-lose-momentum-raboo-set-to-surge-10x-in-june-150964041 
 
-[Original/Source Press Release](https://newsdirect.com/news/tron-and-ethereum-lose-momentum-raboo-set-to-surge-10x-in-june-150964041) 
+[Original/Source Press Release](https://newsdirect.com/news/tron-and-ethereum-lose-momentum-raboo-set-to-surge-10x-in-june-150964041)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1d70n6y/tron_and_ethereum_face_legal_battles_raboo_set_to/

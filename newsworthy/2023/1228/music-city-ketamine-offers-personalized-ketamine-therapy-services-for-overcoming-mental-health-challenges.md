@@ -8,6 +8,9 @@ The therapy process at Music City Ketamine begins with a comprehensive assessmen
 
 "Ketamine therapy has proven efficacy in treating various mental health conditions, including depression, anxiety, and PTSD," said Dr. Robert Johnson, medical director at Music City Ketamine. "The therapy not only offers rapid relief, but it also facilitates the development of self-compassion and the management of reactive triggers and unhealthy thought patterns." 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231228958/music-city-ketamine-offers-personalized-ketamine-therapy-services-for-overcoming-mental-health-challenges) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231228958/music-city-ketamine-offers-personalized-ketamine-therapy-services-for-overcoming-mental-health-challenges)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcwo0/ketamine_therapy_a_promising_treatment_for_mental/

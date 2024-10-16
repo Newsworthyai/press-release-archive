@@ -12,6 +12,9 @@ The highly trained and compassionate team at Evexia Wellness Center Fresno is co
 
 Evexia Wellness Center Fresno offers hope and healing for individuals seeking quality depression treatment in Clovis, CA. Those in need of assistance are encouraged to reach out and learn more about the innovative services available. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401231021/evexia-wellness-center-fresno-introduces-innovative-new-treatment-for-depression-in-clovis-ca) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401231021/evexia-wellness-center-fresno-introduces-innovative-new-treatment-for-depression-in-clovis-ca)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avleta/innovative_depression_treatment_introduced_in/

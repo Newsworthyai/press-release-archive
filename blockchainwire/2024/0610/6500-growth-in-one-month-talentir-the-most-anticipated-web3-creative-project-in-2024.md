@@ -26,6 +26,9 @@ The two founders of Talentir are Lukas Steiner, CEO with over ten years of exper
 
 Talentir is actively building on its recent spectacular growth. So make sure to follow the project for the latest updates and opportunities at these links: Website |X (Twitter) |LinkedIn |Instagram 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/6500-growth-in-one-month---talentir-the-most-anticipated-web3-creative-project-in-2024) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/6500-growth-in-one-month---talentir-the-most-anticipated-web3-creative-project-in-2024)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvkex4/talentir_records_staggering_6500_growth_in/

@@ -16,6 +16,9 @@ About Toobit
 
 Toobit is a leading innovator in the cryptocurrency investment space, providing comprehensive tools and analyses to help investors harness the strengths of digital currencies. With a client-first philosophy, Toobit is reshaping the investment landscape for a decentralized future.For more information about Toobit and their inflation hedge strategies, please visit our website at https://www.toobit.com. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/is-the-perfect-time-to-invest-in-cryptocurrency-post-bitcoin-halving) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/is-the-perfect-time-to-invest-in-cryptocurrency-post-bitcoin-halving)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c2a9b1/is_it_too_late_to_buy_crypto_and_bitcoin_toobit/

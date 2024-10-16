@@ -59,6 +59,9 @@ Company Websitehttp://razorpitch.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/strong-management-and-partners-make-railtown-ai-technologies-inc-cse-rail-otcqb-rlaif-a-compelling-opportunity-100599114 
 
-[Original/Source Press Release](https://newsdirect.com/news/strong-management-and-partners-make-railtown-ai-technologies-inc-cse-rail-otcqb-rlaif-a-compelling-opportunity-100599114) 
+[Original/Source Press Release](https://newsdirect.com/news/strong-management-and-partners-make-railtown-ai-technologies-inc-cse-rail-otcqb-rlaif-a-compelling-opportunity-100599114)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1f7y47c/railtown_ai_technologies_inc_poised_for_success/

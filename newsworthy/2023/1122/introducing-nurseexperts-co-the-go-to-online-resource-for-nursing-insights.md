@@ -18,6 +18,9 @@ NurseExperts.co endeavors to be the zenith of nursing knowledge online, serving 
 
 Stay updated and informed at www.NurseExperts.co. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231122853/introducing-nurseexperts-co-the-go-to-online-resource-for-nursing-insights) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231122853/introducing-nurseexperts-co-the-go-to-online-resource-for-nursing-insights)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcbg1/nurseexpertsco_launches_as_the_definitive/

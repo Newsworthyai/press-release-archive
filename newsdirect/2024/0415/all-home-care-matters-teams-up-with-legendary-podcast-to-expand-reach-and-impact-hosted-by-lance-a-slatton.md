@@ -50,6 +50,9 @@ contact@allhomecarematters.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/all-home-care-matters-teams-up-with-legendary-podcast-to-expand-reach-and-impact-hosted-by-lance-a-slatton-676628525 
 
-[Original/Source Press Release](https://newsdirect.com/news/all-home-care-matters-teams-up-with-legendary-podcast-to-expand-reach-and-impact-hosted-by-lance-a-slatton-676628525) 
+[Original/Source Press Release](https://newsdirect.com/news/all-home-care-matters-teams-up-with-legendary-podcast-to-expand-reach-and-impact-hosted-by-lance-a-slatton-676628525)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1c4wav8/all_home_care_matters_teams_up_with_legendary/

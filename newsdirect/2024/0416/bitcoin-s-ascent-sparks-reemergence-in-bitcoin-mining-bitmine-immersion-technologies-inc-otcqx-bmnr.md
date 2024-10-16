@@ -50,6 +50,9 @@ markrmckelvie@gmail.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitcoins-ascent-sparks-reemergence-in-bitcoin-mining-bitmine-immersion-technologies-inc-otcqx-bmnr-134579419 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitcoins-ascent-sparks-reemergence-in-bitcoin-mining-bitmine-immersion-technologies-inc-otcqx-bmnr-134579419) 
+[Original/Source Press Release](https://newsdirect.com/news/bitcoins-ascent-sparks-reemergence-in-bitcoin-mining-bitmine-immersion-technologies-inc-otcqx-bmnr-134579419)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1c5ghgg/bitmine_immersion_technologies_inc_otcqx_bmnr_a/

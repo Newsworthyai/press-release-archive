@@ -32,6 +32,9 @@ Company Websitehttps://www.htx.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-participates-as-sponsor-in-blockchain-life-2024-dubai-driving-conversations-on-cryptocurrency-adoption-361070498 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-participates-as-sponsor-in-blockchain-life-2024-dubai-driving-conversations-on-cryptocurrency-adoption-361070498) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-participates-as-sponsor-in-blockchain-life-2024-dubai-driving-conversations-on-cryptocurrency-adoption-361070498)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c6zfpa/htx_takes_center_stage_as_sponsor_at_blockchain/

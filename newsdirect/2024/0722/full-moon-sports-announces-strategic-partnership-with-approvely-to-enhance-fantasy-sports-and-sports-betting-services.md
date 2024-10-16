@@ -32,6 +32,9 @@ Company Websitehttp://www.fullmoonsports.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/full-moon-sports-announces-strategic-partnership-with-approvely-to-enhance-fantasy-sports-and-sports-betting-services-128810423 
 
-[Original/Source Press Release](https://newsdirect.com/news/full-moon-sports-announces-strategic-partnership-with-approvely-to-enhance-fantasy-sports-and-sports-betting-services-128810423) 
+[Original/Source Press Release](https://newsdirect.com/news/full-moon-sports-announces-strategic-partnership-with-approvely-to-enhance-fantasy-sports-and-sports-betting-services-128810423)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1eac19c/full_moon_sports_announces_strategic_partnership/

@@ -48,6 +48,9 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-ventures-invests-in-lombard-to-develop-the-bitcoin-restaking-ecosystem-439894659 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-ventures-invests-in-lombard-to-develop-the-bitcoin-restaking-ecosystem-439894659) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-ventures-invests-in-lombard-to-develop-the-bitcoin-restaking-ecosystem-439894659)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dyd8yv/htx_ventures_invests_in_lombard_to_develop_the/

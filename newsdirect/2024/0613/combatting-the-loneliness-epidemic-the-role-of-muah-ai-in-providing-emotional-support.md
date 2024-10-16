@@ -28,6 +28,9 @@ Company Websitehttps://muah.ai
 
 View source version on newsdirect.com: https://newsdirect.com/news/combatting-the-loneliness-epidemic-the-role-of-muah-ai-in-providing-emotional-support-283402436 
 
-[Original/Source Press Release](https://newsdirect.com/news/combatting-the-loneliness-epidemic-the-role-of-muah-ai-in-providing-emotional-support-283402436) 
+[Original/Source Press Release](https://newsdirect.com/news/combatting-the-loneliness-epidemic-the-role-of-muah-ai-in-providing-emotional-support-283402436)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1dfbpsy/ai_chatbots_like_muah_ai_a_powerful_ally_in_the/

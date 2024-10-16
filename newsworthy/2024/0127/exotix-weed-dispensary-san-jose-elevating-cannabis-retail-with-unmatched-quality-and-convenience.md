@@ -26,6 +26,9 @@ Visit Exotix Weed Dispensary Today
 
 Exotix Weed Dispensary invites everyone to experience the best in cannabis retail. For more information, visit their website at https://exotixflower.com/san-jose, or call 408-385-9600. Discover why Exotix is the go-to destination for premium cannabis products in San Jose. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202401271044/exotix-weed-dispensary-san-jose-elevating-cannabis-retail-with-unmatched-quality-and-convenience) 
+[Original/Source Press Release](https://newsworthy.ai/news/202401271044/exotix-weed-dispensary-san-jose-elevating-cannabis-retail-with-unmatched-quality-and-convenience)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1avlgcf/exotix_weed_dispensary_redefines_cannabis_retail/

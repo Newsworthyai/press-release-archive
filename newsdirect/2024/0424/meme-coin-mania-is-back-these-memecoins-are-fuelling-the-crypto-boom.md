@@ -52,6 +52,9 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/meme-coin-mania-is-back-these-memecoins-are-fuelling-the-crypto-boom-867727212 
 
-[Original/Source Press Release](https://newsdirect.com/news/meme-coin-mania-is-back-these-memecoins-are-fuelling-the-crypto-boom-867727212) 
+[Original/Source Press Release](https://newsdirect.com/news/meme-coin-mania-is-back-these-memecoins-are-fuelling-the-crypto-boom-867727212)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cbzo5u/meme_coins_shiba_inu_floki_and_kangamoon_fueling/

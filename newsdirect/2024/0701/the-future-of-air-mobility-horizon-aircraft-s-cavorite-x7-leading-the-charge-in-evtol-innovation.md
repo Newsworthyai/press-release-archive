@@ -40,6 +40,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/the-future-of-air-mobility-horizon-aircrafts-cavorite-x7-leading-the-charge-in-evtol-innovation-864029968 
 
-[Original/Source Press Release](https://newsdirect.com/news/the-future-of-air-mobility-horizon-aircrafts-cavorite-x7-leading-the-charge-in-evtol-innovation-864029968) 
+[Original/Source Press Release](https://newsdirect.com/news/the-future-of-air-mobility-horizon-aircrafts-cavorite-x7-leading-the-charge-in-evtol-innovation-864029968)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dsrzc8/the_future_of_air_mobility_horizon_aircrafts/

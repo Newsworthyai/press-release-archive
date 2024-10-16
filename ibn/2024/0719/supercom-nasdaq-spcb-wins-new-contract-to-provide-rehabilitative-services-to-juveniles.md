@@ -24,6 +24,9 @@ SuperCom Ltd. (NASDAQ: SPCB), an identification and digital monitoring solutions
 
  TechMediaWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/supercom-nasdaq-spcb-wins-new-contract-to-provide-rehabilitative-services-to-juveniles-2/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/supercom-nasdaq-spcb-wins-new-contract-to-provide-rehabilitative-services-to-juveniles-2/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1f2fenn/supercom_ltd_secures_new_contract_for_juvenile/

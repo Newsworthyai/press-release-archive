@@ -20,6 +20,9 @@ Company Websitehttps://www.proactiveinvestors.co.uk
 
 View source version on newsdirect.com: https://newsdirect.com/news/atlantic-lithium-discusses-key-project-developments-and-ghana-stock-exchange-listing-312113339 
 
-[Original/Source Press Release](https://newsdirect.com/news/atlantic-lithium-discusses-key-project-developments-and-ghana-stock-exchange-listing-312113339) 
+[Original/Source Press Release](https://newsdirect.com/news/atlantic-lithium-discusses-key-project-developments-and-ghana-stock-exchange-listing-312113339)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cr1bfw/atlantic_lithium_discusses_key_project/

@@ -42,6 +42,9 @@ Mark McKelvie
 
 View source version on newsdirect.com: https://newsdirect.com/news/kindlymd-inc-nasdaq-kdly-advancing-the-11-6-billion-medical-cannabis-market-in-chronic-pain-treatment-403942765 
 
-[Original/Source Press Release](https://newsdirect.com/news/kindlymd-inc-nasdaq-kdly-advancing-the-11-6-billion-medical-cannabis-market-in-chronic-pain-treatment-403942765) 
+[Original/Source Press Release](https://newsdirect.com/news/kindlymd-inc-nasdaq-kdly-advancing-the-11-6-billion-medical-cannabis-market-in-chronic-pain-treatment-403942765)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eevu57/kindlymd_inc_nasdaq_kdly_advancing_the_116/

@@ -18,6 +18,9 @@ As Angela Human, Director of Technology & Founding Partner at Director's Corner,
 
 For more information, visit https://www.directorscorner.app or contact Autumn at autumn@directorscorner.app. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202410091309/introducing-director-s-corner-ai-powered-digital-marketing-for-funeral-homes-and-cemeteries-with-engaging-content-and-podcasts) 
+[Original/Source Press Release](https://newsworthy.ai/news/202410091309/introducing-director-s-corner-ai-powered-digital-marketing-for-funeral-homes-and-cemeteries-with-engaging-content-and-podcasts)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1fzugip/directors_corner_launches_digital_marketing/

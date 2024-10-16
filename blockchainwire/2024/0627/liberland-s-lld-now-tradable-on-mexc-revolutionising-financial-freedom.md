@@ -16,6 +16,9 @@ Press Contact:Samuela DavidovaPress SecretaryPhone: +995 571 063 463Email: press
 
 Press Contact for Liberland Blockchain:Derek E. SilvaHead of Blockchain MarketingEmail: derek@liberland.org 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/liberlands-lld-now-tradable-on-mexc-revolutionising-financial-freedom-1) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/liberlands-lld-now-tradable-on-mexc-revolutionising-financial-freedom-1)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dpzvd1/liberland_lists_native_token_lld_on_mexc_opening/

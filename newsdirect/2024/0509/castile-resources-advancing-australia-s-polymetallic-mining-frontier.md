@@ -22,6 +22,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/castile-resources-advancing-australias-polymetallic-mining-frontier-488406192 
 
-[Original/Source Press Release](https://newsdirect.com/news/castile-resources-advancing-australias-polymetallic-mining-frontier-488406192) 
+[Original/Source Press Release](https://newsdirect.com/news/castile-resources-advancing-australias-polymetallic-mining-frontier-488406192)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1co5lh2/castile_resources_advances_australias/

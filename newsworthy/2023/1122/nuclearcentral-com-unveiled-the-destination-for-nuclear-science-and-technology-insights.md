@@ -18,6 +18,9 @@ NuclearCentral.com is designed for those who seek in-depth understanding and the
 
 Stay informed and enlightened at www.NuclearCentral.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231122852/nuclearcentral-com-unveiled-the-destination-for-nuclear-science-and-technology-insights) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231122852/nuclearcentral-com-unveiled-the-destination-for-nuclear-science-and-technology-insights)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1avcs2i/nuclearcentralcom_the_trusted_knowledge_platform/

@@ -68,6 +68,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/cleancore-solutions-announces-string-of-wins-over-past-few-months-including-deals-with-fortune-50-companies-universities-and-more-344078249 
 
-[Original/Source Press Release](https://newsdirect.com/news/cleancore-solutions-announces-string-of-wins-over-past-few-months-including-deals-with-fortune-50-companies-universities-and-more-344078249) 
+[Original/Source Press Release](https://newsdirect.com/news/cleancore-solutions-announces-string-of-wins-over-past-few-months-including-deals-with-fortune-50-companies-universities-and-more-344078249)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1g3farb/cleancore_solutions_secures_major_deals_in/

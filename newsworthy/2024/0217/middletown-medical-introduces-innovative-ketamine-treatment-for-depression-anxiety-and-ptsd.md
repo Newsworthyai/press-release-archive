@@ -8,6 +8,9 @@ Patients who qualify for ketamine treatment at Middletown Medical will undergo a
 
 Middletown Medical is dedicated to improving the lives of individuals suffering from mental health disorders and chronic pain. With the introduction of ketamine treatment, they strive to provide a holistic approach to healthcare and offer hope to those who have exhausted traditional treatment methods. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402171069/middletown-medical-introduces-innovative-ketamine-treatment-for-depression-anxiety-and-ptsd) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402171069/middletown-medical-introduces-innovative-ketamine-treatment-for-depression-anxiety-and-ptsd)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1avc8a2/middletown_medical_introduces_fastacting_ketamine/

@@ -78,6 +78,9 @@ corporate@studebaker.group
 
 View source version on newsdirect.com: https://newsdirect.com/news/haitis-last-stand-international-cooperation-to-reclaim-a-nation-534688608 
 
-[Original/Source Press Release](https://newsdirect.com/news/haitis-last-stand-international-cooperation-to-reclaim-a-nation-534688608) 
+[Original/Source Press Release](https://newsdirect.com/news/haitis-last-stand-international-cooperation-to-reclaim-a-nation-534688608)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1fnvrgi/haitis_last_stand_international_cooperation_to/

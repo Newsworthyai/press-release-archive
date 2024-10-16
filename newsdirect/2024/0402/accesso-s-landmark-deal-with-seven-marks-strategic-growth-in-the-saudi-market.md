@@ -18,6 +18,9 @@ uk@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/accessos-landmark-deal-with-seven-marks-strategic-growth-in-the-saudi-market-133401637 
 
-[Original/Source Press Release](https://newsdirect.com/news/accessos-landmark-deal-with-seven-marks-strategic-growth-in-the-saudi-market-133401637) 
+[Original/Source Press Release](https://newsdirect.com/news/accessos-landmark-deal-with-seven-marks-strategic-growth-in-the-saudi-market-133401637)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1bu14vr/accessos_landmark_deal_with_seven_marks_strategic/

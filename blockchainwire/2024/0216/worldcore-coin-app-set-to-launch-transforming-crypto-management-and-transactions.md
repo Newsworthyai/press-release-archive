@@ -12,6 +12,9 @@ Telegram: https://t.me/WorldCoreChat
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/worldcore-coin-app-set-to-launch-transforming-crypto-management-and-transactions) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/worldcore-coin-app-set-to-launch-transforming-crypto-management-and-transactions)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avc9ve/worldcore_coin_wcc_to_launch_innovative_app_for/

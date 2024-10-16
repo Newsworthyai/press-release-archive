@@ -40,6 +40,9 @@ With continuous learning and R&D key priorities, together with social responsibi
 
 4 - SOURCE: Luís Pinto da Silva, Joaquin C.G. Esteves da Silva. “Evaluation of the carbon footprint of the life cycle of wine production: A review.” Cleaner and Circular Bioeconomy (CLCB), Volume 2, Aug. 2022. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202405141165/cork-supply-to-deliver-next-generation-cork-education-at-california-university-harvest-events) 
+[Original/Source Press Release](https://newsworthy.ai/news/202405141165/cork-supply-to-deliver-next-generation-cork-education-at-california-university-harvest-events)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1crrvt0/cork_supply_brings_cork_harvest_to_california/

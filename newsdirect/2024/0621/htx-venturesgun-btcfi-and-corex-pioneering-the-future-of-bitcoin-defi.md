@@ -82,6 +82,9 @@ Company Websitehttps://www.htx.com/en-us/ventures
 
 View source version on newsdirect.com: https://newsdirect.com/news/htx-venturesgun-btcfi-and-corex-pioneering-the-future-of-bitcoin-defi-439734281 
 
-[Original/Source Press Release](https://newsdirect.com/news/htx-venturesgun-btcfi-and-corex-pioneering-the-future-of-bitcoin-defi-439734281) 
+[Original/Source Press Release](https://newsdirect.com/news/htx-venturesgun-btcfi-and-corex-pioneering-the-future-of-bitcoin-defi-439734281)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dlax25/htx_ventures_pioneering_the_future_of_bitcoin/

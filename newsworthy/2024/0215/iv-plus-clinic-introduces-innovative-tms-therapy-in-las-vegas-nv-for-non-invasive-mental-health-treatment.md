@@ -12,6 +12,9 @@ IV Plus offers TMS Therapy as an innovative mental health treatment option, cate
 
 For more information about TMS Therapy and the services provided by IV Plus, please visit www.ivplusnv.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402151064/iv-plus-clinic-introduces-innovative-tms-therapy-in-las-vegas-nv-for-non-invasive-mental-health-treatment) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402151064/iv-plus-clinic-introduces-innovative-tms-therapy-in-las-vegas-nv-for-non-invasive-mental-health-treatment)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avcazz/iv_plus_introduces_revolutionary_tms_therapy_for/

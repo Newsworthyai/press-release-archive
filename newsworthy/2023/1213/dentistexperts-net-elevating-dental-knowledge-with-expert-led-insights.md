@@ -18,6 +18,9 @@ DentistExperts.net is dedicated to curating, delivering, and simplifying the vas
 
 Discover, learn, and lead in the dental realm with www.DentistExperts.net. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231213806/dentistexperts-net-elevating-dental-knowledge-with-expert-led-insights) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231213806/dentistexperts-net-elevating-dental-knowledge-with-expert-led-insights)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1avctv7/introducing_dentistexpertsnet_a_gamechanger_for/

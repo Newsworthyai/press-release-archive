@@ -10,6 +10,9 @@ At Hawaii Ketamine, personalized care takes precedence. The experienced team rec
 
 Discover the transformative power of Ketamine therapy at Hawaii Ketamine. To learn more about the available treatment options or to schedule a consultation, please visit https://hawaiiketamine.com/ 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202402241088/ketamine-therapy-hawaii-offers-rapid-relief-for-mental-health-conditions) 
+[Original/Source Press Release](https://newsworthy.ai/news/202402241088/ketamine-therapy-hawaii-offers-rapid-relief-for-mental-health-conditions)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1az5a7g/innovative_iv_ketamine_therapy_offers_rapid/

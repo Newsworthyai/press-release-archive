@@ -18,6 +18,9 @@ ContentGap.io is a repository of wisdom for content marketing professionals. It'
 
 Step into the future of content marketing. Explore more at www.ContentGap.io. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231215796/introducing-contentgap-io-the-premier-destination-for-content-marketing-wisdom-strategy) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231215796/introducing-contentgap-io-the-premier-destination-for-content-marketing-wisdom-strategy)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1avcufw/new_platform_content_gap_launches_to_bridge/

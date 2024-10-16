@@ -26,6 +26,9 @@ SenesTech (NASDAQ: SNES), the leader in fertility control to manage animal-pest 
 
  TechMediaWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestech-nasdaq-snes-ceo-featured-in-episode-of-the-gotstocks-podcast/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/senestech-nasdaq-snes-ceo-featured-in-episode-of-the-gotstocks-podcast/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1f2fql3/senestech_nasdaq_snes_spotlighted_on_the_gotstock/

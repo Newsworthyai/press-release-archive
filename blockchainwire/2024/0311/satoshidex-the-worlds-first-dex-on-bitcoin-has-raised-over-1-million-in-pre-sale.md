@@ -31,6 +31,9 @@ Users can directly trade tokens on Bitcoin through its platform on https://satos
 
 SatoshiDEX is leading a new era of decentralized finance, where innovation meets utility on the Bitcoin blockchain. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/satoshidex-the-worlds-first-dex-on-bitcoin-has-raised-over-1-million-in-pre-sale) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/satoshidex-the-worlds-first-dex-on-bitcoin-has-raised-over-1-million-in-pre-sale)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bc6ltc/satoshidex_raises_over_1000000_in_presale_for/

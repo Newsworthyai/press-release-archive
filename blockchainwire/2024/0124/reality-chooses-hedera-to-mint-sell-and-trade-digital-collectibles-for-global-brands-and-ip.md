@@ -44,6 +44,9 @@ hedera@wachsman.com
 
 ENDS 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/reality-chooses-hedera-to-mint-sell-and-trade-digital-collectibles-for-global-brands-and-ip) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/reality-chooses-hedera-to-mint-sell-and-trade-digital-collectibles-for-global-brands-and-ip)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1avjs1a/reality_and_hbar_foundation_partner_to_deliver/

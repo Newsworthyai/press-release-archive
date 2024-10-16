@@ -86,6 +86,9 @@ ConclusionCloud mining with MasHash offers a beginner-friendly way to explore th
 
 For more information about MasHash, please visit their website at: [MasHash Official Site](https://mashash.com)Facebook: http://www.facebook.com/MasHashMinerTwitter: https://x.com/Mas_Hash_Youtube: https://www.youtube.com/@MasHashMiner 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/mashash-introduces-accessible-cloud-mining-solutions-for-cryptocurrency-enthusiasts) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/mashash-introduces-accessible-cloud-mining-solutions-for-cryptocurrency-enthusiasts)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1f4oppt/mashash_offers_free_cloud_mining_for_beginners_to/

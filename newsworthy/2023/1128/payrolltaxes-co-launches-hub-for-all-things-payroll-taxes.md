@@ -18,6 +18,9 @@ PayrollTaxes.co is dedicated to elucidating the multifaceted domain of payroll t
 
 Stay updated and explore the expertise on offer by visiting www.PayrollTaxes.co. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231128859/payrolltaxes-co-launches-hub-for-all-things-payroll-taxes) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231128859/payrolltaxes-co-launches-hub-for-all-things-payroll-taxes)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx0bo/new_platform_payrolltaxesco_launches_to/

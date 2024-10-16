@@ -40,6 +40,9 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitgets-protection-fund-report-in-march-2024-470670569 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitgets-protection-fund-report-in-march-2024-470670569) 
+[Original/Source Press Release](https://newsdirect.com/news/bitgets-protection-fund-report-in-march-2024-470670569)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1buoop3/bitgets_protection_fund_valuation_hits_612/

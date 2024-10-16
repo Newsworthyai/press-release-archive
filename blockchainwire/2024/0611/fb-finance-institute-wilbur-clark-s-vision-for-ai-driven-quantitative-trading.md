@@ -22,6 +22,9 @@ Website: www.fortunebuild.com
 
 City：CroswellDisclaimer:This press release may contain forward-looking statements. Forward-looking statements describe future expectations, plans, results, or strategies (including product offerings, regulatory plans and business plans) and may change without notice. You are cautioned that such statements are subject to a multitude of risks and uncertainties that could cause future circumstances, events, or results to differ materially from those projected in the forward-looking statements, including the risks that actual results may differ materially from those projected in the forward-looking statements. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/fb-finance-institute-wilbur-clarks-vision-for-ai-driven-quantitative-trading) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/fb-finance-institute-wilbur-clarks-vision-for-ai-driven-quantitative-trading)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ddmc4f/fb_finance_institute_transitions_to_ai_trading/

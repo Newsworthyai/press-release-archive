@@ -36,6 +36,9 @@ About Lowkick Games
 
 Our team has gathered people with rich experience in creating high-grossing games. We bundled together to make a new game – a game that millions of players will love. We are result-oriented professionals, and we know how successful games are being made. We are not going to slow down, much less stop after the game's release. Our project WorldShards is what we are going to dedicate the next years of our work in the game industry to. We are confident that we have everything we need to do this: the right people, a clear plan, and a vision for the project that surpasses anything we've ever done before. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/worldshards-shares-first-sale-results) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/worldshards-shares-first-sale-results)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1avc9xh/worldshards_mmorpg_developer_sale_sells_out_in/

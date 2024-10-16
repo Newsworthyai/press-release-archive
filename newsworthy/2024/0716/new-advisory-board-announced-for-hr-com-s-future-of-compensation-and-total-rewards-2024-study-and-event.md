@@ -32,6 +32,9 @@ Become a part of HR.com’s HR research influencer panel today. Participate in s
 
 Contact: info@hr.com HR.com Newsroom 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202407161212/new-advisory-board-announced-for-hr-com-s-future-of-compensation-and-total-rewards-2024-study-and-event) 
+[Original/Source Press Release](https://newsworthy.ai/news/202407161212/new-advisory-board-announced-for-hr-com-s-future-of-compensation-and-total-rewards-2024-study-and-event)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/eventNews/comments/1e4n1jl/hrcom_announces_formation_of_future_of/

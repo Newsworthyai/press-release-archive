@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/stellar-resources-targets-leadership-in-tin-production-amid-global-supply-crunch-353096049 
 
-[Original/Source Press Release](https://newsdirect.com/news/stellar-resources-targets-leadership-in-tin-production-amid-global-supply-crunch-353096049) 
+[Original/Source Press Release](https://newsdirect.com/news/stellar-resources-targets-leadership-in-tin-production-amid-global-supply-crunch-353096049)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c2j34e/stellar_resources_targets_leadership_in_tin/

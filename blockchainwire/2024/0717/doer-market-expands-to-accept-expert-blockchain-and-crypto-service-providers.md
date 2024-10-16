@@ -32,6 +32,9 @@ For more information about the application process and to apply, please visit [w
 
 Contact Information: Name: Hiten Mehra Company: Doer MarketEmail: h@doer.marketWebsite: https://doer.market 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/doer-market-expands-to-accept-expert-blockchain-and-crypto-service-providers) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/doer-market-expands-to-accept-expert-blockchain-and-crypto-service-providers)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1efsya6/doer_market_opens_applications_for_blockchain_and/

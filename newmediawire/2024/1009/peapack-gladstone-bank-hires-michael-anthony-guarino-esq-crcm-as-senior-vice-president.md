@@ -14,6 +14,9 @@ Peapack-Gladstone Financial Corporation is a New Jersey bank holding company wit
 
 Contact:  Rosanne Schwab, Peapack-Gladstone Bank, Vice President, Public Relations and Corporate Communications Manager, 500 Hills Drive, Suite 300, Bedminster, NJ  07921 rschwab@pgbank.com, (908) 719-6543. 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/peapack-gladstone-bank-hires-michael-anthony-guarino-esq-crcm-as-senior-vice-president-7076171) 
+[Original/Source Press Release](https://www.newmediawire.com/news/peapack-gladstone-bank-hires-michael-anthony-guarino-esq-crcm-as-senior-vice-president-7076171)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fzz1w3/peapackgladstone_financial_corporation_welcomes/

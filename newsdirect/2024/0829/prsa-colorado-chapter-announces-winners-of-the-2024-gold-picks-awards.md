@@ -91,6 +91,9 @@ Company Websitehttps://prsacolorado.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/prsa-colorado-chapter-announces-winners-of-the-2024-gold-picks-awards-320332352 
 
-[Original/Source Press Release](https://newsdirect.com/news/prsa-colorado-chapter-announces-winners-of-the-2024-gold-picks-awards-320332352) 
+[Original/Source Press Release](https://newsdirect.com/news/prsa-colorado-chapter-announces-winners-of-the-2024-gold-picks-awards-320332352)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1f4ooo4/prsa_colorado_chapter_hosts_2024_gold_picks/

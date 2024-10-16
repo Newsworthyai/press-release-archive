@@ -38,6 +38,9 @@ Cannabis industry brands, products, and services can inquire about exhibitor/ven
 
 Follow “420 Expo” on Instagram, X/Twitter, and Facebook @the420expos. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409101257/420-expo-the-garden-states-premier-consumer-cannabis-convention-takes-place-september-13-15-2024-in-edison-new-jersey) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409101257/420-expo-the-garden-states-premier-consumer-cannabis-convention-takes-place-september-13-15-2024-in-edison-new-jersey)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CannabisNewsInfo/comments/1fdgb8m/wakit_grinders_presents_third_annual_420_expo_in/

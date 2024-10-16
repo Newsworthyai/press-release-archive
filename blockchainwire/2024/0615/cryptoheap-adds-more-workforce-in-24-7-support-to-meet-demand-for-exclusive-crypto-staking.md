@@ -45,6 +45,9 @@ Media Contact DetailsContact Name: Salvage Warwick Contact Email: salvage@crypto
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency & securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/cryptoheap-adds-more-workforce-in-247-support-to-meet-demand-for-exclusive-crypto-staking-) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/cryptoheap-adds-more-workforce-in-247-support-to-meet-demand-for-exclusive-crypto-staking-)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dggqgd/cryptoheap_expands_247_support_for_exclusive/

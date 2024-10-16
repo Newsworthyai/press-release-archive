@@ -40,6 +40,9 @@ Company Websitehttps://www.greenwoodleather.com.au/
 
 View source version on newsdirect.com: https://newsdirect.com/news/greenwood-leather-announces-launch-of-new-full-grain-leather-goods-collection-789506870 
 
-[Original/Source Press Release](https://newsdirect.com/news/greenwood-leather-announces-launch-of-new-full-grain-leather-goods-collection-789506870) 
+[Original/Source Press Release](https://newsdirect.com/news/greenwood-leather-announces-launch-of-new-full-grain-leather-goods-collection-789506870)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1di4e0l/greenwood_leather_launches_new_fullgrain_leather/

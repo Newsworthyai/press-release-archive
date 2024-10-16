@@ -32,6 +32,9 @@ info@galaxis.xyz
 
 View source version on newsdirect.com: https://newsdirect.com/news/galaxis-gears-up-for-token-launch-announces-1-000-000-creator-and-community-member-grants-and-bybit-ido-518473318 
 
-[Original/Source Press Release](https://newsdirect.com/news/galaxis-gears-up-for-token-launch-announces-1-000-000-creator-and-community-member-grants-and-bybit-ido-518473318) 
+[Original/Source Press Release](https://newsdirect.com/news/galaxis-gears-up-for-token-launch-announces-1-000-000-creator-and-community-member-grants-and-bybit-ido-518473318)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1cj6plj/galaxis_prepares_for_token_launch_announces_1m/

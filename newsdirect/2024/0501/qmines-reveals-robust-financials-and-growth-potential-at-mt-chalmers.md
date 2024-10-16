@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/qmines-reveals-robust-financials-and-growth-potential-at-mt-chalmers-790782691 
 
-[Original/Source Press Release](https://newsdirect.com/news/qmines-reveals-robust-financials-and-growth-potential-at-mt-chalmers-790782691) 
+[Original/Source Press Release](https://newsdirect.com/news/qmines-reveals-robust-financials-and-growth-potential-at-mt-chalmers-790782691)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1chw5c3/qmines_reveals_robust_financials_and_growth/

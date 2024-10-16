@@ -20,6 +20,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/trust-stamp-announces-key-milestone-as-company-introduces-ai-powered-age-estimation-technology-913930275 
 
-[Original/Source Press Release](https://newsdirect.com/news/trust-stamp-announces-key-milestone-as-company-introduces-ai-powered-age-estimation-technology-913930275) 
+[Original/Source Press Release](https://newsdirect.com/news/trust-stamp-announces-key-milestone-as-company-introduces-ai-powered-age-estimation-technology-913930275)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1bp6erw/trust_stamp_unveils_aipowered_ageestimation/

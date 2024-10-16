@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lithium-energy-sells-solaroz-stake-for-us-63-million-946377868 
 
-[Original/Source Press Release](https://newsdirect.com/news/lithium-energy-sells-solaroz-stake-for-us-63-million-946377868) 
+[Original/Source Press Release](https://newsdirect.com/news/lithium-energy-sells-solaroz-stake-for-us-63-million-946377868)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1ciopzl/lithium_energy_sells_solaroz_stake_for_us63/

@@ -22,6 +22,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/baselode-energy-begins-1500-metre-drill-program-at-bear-uranium-project-in-athabasca-basin-183675380 
 
-[Original/Source Press Release](https://newsdirect.com/news/baselode-energy-begins-1500-metre-drill-program-at-bear-uranium-project-in-athabasca-basin-183675380) 
+[Original/Source Press Release](https://newsdirect.com/news/baselode-energy-begins-1500-metre-drill-program-at-bear-uranium-project-in-athabasca-basin-183675380)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c79b6l/baselode_energy_initiates_1500_metre_drill/

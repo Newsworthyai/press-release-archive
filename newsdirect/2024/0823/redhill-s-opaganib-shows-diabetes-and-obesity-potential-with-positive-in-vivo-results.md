@@ -42,6 +42,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/redhills-opaganib-shows-diabetes-and-obesity-potential-with-positive-in-vivo-results-700790890 
 
-[Original/Source Press Release](https://newsdirect.com/news/redhills-opaganib-shows-diabetes-and-obesity-potential-with-positive-in-vivo-results-700790890) 
+[Original/Source Press Release](https://newsdirect.com/news/redhills-opaganib-shows-diabetes-and-obesity-potential-with-positive-in-vivo-results-700790890)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ezbpr4/redhills_opaganib_shows_potential_in_fighting/

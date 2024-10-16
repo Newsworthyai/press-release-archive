@@ -12,6 +12,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/sarytogan-graphite-targets-industrial-markets-with-high-purity-graphite-457802588 
 
-[Original/Source Press Release](https://newsdirect.com/news/sarytogan-graphite-targets-industrial-markets-with-high-purity-graphite-457802588) 
+[Original/Source Press Release](https://newsdirect.com/news/sarytogan-graphite-targets-industrial-markets-with-high-purity-graphite-457802588)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1czn16y/sarytogan_graphite_targets_new_industrial_markets/

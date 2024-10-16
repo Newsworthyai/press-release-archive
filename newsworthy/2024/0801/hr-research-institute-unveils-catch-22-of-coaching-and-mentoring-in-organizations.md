@@ -26,6 +26,9 @@ Become a part of HR.com’s HR Research Influencer panel today. Participate in s
 
 Contact: [info@hr.com](mailto:info@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202408011223/hr-research-institute-unveils-catch-22-of-coaching-and-mentoring-in-organizations) 
+[Original/Source Press Release](https://newsworthy.ai/news/202408011223/hr-research-institute-unveils-catch-22-of-coaching-and-mentoring-in-organizations)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1ehhnno/new_report_reveals_challenges_in_developing/

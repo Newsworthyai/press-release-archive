@@ -42,6 +42,9 @@ Litepaper: https://docs.xprotocol.org/x-protocol-litepaper
 
 For media inquiries, please contact: press@xprotocol.org 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/base-superchain-xprotocol-raises-a-strategic-round-unveils-xardian-nodes) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/base-superchain-xprotocol-raises-a-strategic-round-unveils-xardian-nodes)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dpmvea/xprotocol_announces_800k_strategic_round_raise/

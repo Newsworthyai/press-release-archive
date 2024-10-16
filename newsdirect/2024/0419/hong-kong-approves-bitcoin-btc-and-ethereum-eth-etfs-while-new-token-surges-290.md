@@ -52,6 +52,9 @@ Company Websitehttps://kangamoon.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/hong-kong-approves-bitcoin-btc-and-ethereum-eth-etfs-while-new-token-surges-290-208617481 
 
-[Original/Source Press Release](https://newsdirect.com/news/hong-kong-approves-bitcoin-btc-and-ethereum-eth-etfs-while-new-token-surges-290-208617481) 
+[Original/Source Press Release](https://newsdirect.com/news/hong-kong-approves-bitcoin-btc-and-ethereum-eth-etfs-while-new-token-surges-290-208617481)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c877mp/hong_kong_approves_btc_and_eth_etfs_kangamoon/

@@ -26,6 +26,9 @@ marketing@joinadro.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/adro-coo-sara-schmitt-selected-for-nasdaq-entrepreneurial-centers-milestone-makers-114238591 
 
-[Original/Source Press Release](https://newsdirect.com/news/adro-coo-sara-schmitt-selected-for-nasdaq-entrepreneurial-centers-milestone-makers-114238591) 
+[Original/Source Press Release](https://newsdirect.com/news/adro-coo-sara-schmitt-selected-for-nasdaq-entrepreneurial-centers-milestone-makers-114238591)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1fyzyrq/adro_coo_sara_schmitt_selected_for_nasdaq/

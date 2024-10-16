@@ -66,6 +66,9 @@ Jennifer Lu, Brand Ambassador | Jennifer.lu@coinstore.com
 
 Coinstore Social MediaTwitter | Discord | Facebook | Instagram | Youtube | Telegram Discussion | Telegram Announcement 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/breaking-news-mbid-is-officially-listing-on-coinstore) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/breaking-news-mbid-is-officially-listing-on-coinstore)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1b6rpid/official_listing_of_mbid_on_coinstore_set_for/

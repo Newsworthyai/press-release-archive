@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/lightpath-technologies-announces-commercialization-for-blackdiamond-nrl-based-new-infrared-glass-292164348 
 
-[Original/Source Press Release](https://newsdirect.com/news/lightpath-technologies-announces-commercialization-for-blackdiamond-nrl-based-new-infrared-glass-292164348) 
+[Original/Source Press Release](https://newsdirect.com/news/lightpath-technologies-announces-commercialization-for-blackdiamond-nrl-based-new-infrared-glass-292164348)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c0q6kj/lightpath_technologies_announces_commercial/

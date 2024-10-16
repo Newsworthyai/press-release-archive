@@ -28,6 +28,9 @@ Company Websitehttps://www.thinkingcrypto.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/thinking-crypto-podcasts-founder-announces-the-release-of-a-new-book-802133654 
 
-[Original/Source Press Release](https://newsdirect.com/news/thinking-crypto-podcasts-founder-announces-the-release-of-a-new-book-802133654) 
+[Original/Source Press Release](https://newsdirect.com/news/thinking-crypto-podcasts-founder-announces-the-release-of-a-new-book-802133654)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BookNews/comments/1c9naag/tony_edward_releases_new_book_on_cryptocurrency/

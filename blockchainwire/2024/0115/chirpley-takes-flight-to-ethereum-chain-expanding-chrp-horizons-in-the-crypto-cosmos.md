@@ -24,6 +24,9 @@ This strategic move to the Ethereum chain reflects Chirpley's commitment to inno
 
 Disclaimer:This press release may contain forward-looking statements. Forward-looking statements describe future expectations, plans, results, or strategies (including product offerings, regulatory plans and business plans) and may change without notice. You are cautioned that such statements are subject to a multitude of risks and uncertainties that could cause future circumstances, events, or results to differ materially from those projected in the forward-looking statements, including the risks that actual results may differ materially from those projected in the forward-looking statements. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/chirpley-takes-flight-to-ethereum-chain-expanding-chrp-horizons-in-the-crypto-cosmos) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/chirpley-takes-flight-to-ethereum-chain-expanding-chrp-horizons-in-the-crypto-cosmos)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1avdr6s/chirpley_expands_to_ethereum_chain_raises_100k_in/

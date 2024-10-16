@@ -12,6 +12,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/intra-energy-corporation-approved-for-lithium-and-gold-drilling-at-maggie-hays-hills-649026665 
 
-[Original/Source Press Release](https://newsdirect.com/news/intra-energy-corporation-approved-for-lithium-and-gold-drilling-at-maggie-hays-hills-649026665) 
+[Original/Source Press Release](https://newsdirect.com/news/intra-energy-corporation-approved-for-lithium-and-gold-drilling-at-maggie-hays-hills-649026665)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1d24mwa/intra_energy_corporation_approved_for_lithium_and/

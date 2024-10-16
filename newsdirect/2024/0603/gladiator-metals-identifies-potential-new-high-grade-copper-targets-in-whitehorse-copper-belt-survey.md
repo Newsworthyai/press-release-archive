@@ -58,6 +58,9 @@ Company Websitehttps://pressreach.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/gladiator-metals-identifies-potential-new-high-grade-copper-targets-in-whitehorse-copper-belt-survey-280463659 
 
-[Original/Source Press Release](https://newsdirect.com/news/gladiator-metals-identifies-potential-new-high-grade-copper-targets-in-whitehorse-copper-belt-survey-280463659) 
+[Original/Source Press Release](https://newsdirect.com/news/gladiator-metals-identifies-potential-new-high-grade-copper-targets-in-whitehorse-copper-belt-survey-280463659)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1d7lo27/gladiator_metals_expands_exploration_efforts_at/

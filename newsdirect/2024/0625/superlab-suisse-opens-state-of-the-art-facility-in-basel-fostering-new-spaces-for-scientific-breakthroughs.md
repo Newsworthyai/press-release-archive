@@ -48,6 +48,9 @@ Company Websitehttps://superlabsuisse.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/superlab-suisse-opens-state-of-the-art-facility-in-basel-fostering-new-spaces-for-scientific-breakthroughs-691008688 
 
-[Original/Source Press Release](https://newsdirect.com/news/superlab-suisse-opens-state-of-the-art-facility-in-basel-fostering-new-spaces-for-scientific-breakthroughs-691008688) 
+[Original/Source Press Release](https://newsdirect.com/news/superlab-suisse-opens-state-of-the-art-facility-in-basel-fostering-new-spaces-for-scientific-breakthroughs-691008688)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1do3htp/superlab_suisse_opens_stateoftheart_facility_in/

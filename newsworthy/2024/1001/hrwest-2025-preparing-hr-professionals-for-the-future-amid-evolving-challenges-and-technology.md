@@ -33,6 +33,9 @@ HR.com, the largest network of HR professionals, is committed to helping HR prof
 
 Contact: [hrwest@hr.com](mailto:hrwest@hr.com) [HR.com Newsroom](https://www.hr.com/en/about_us/hr_com_press_releases/) 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202410011293/hrwest-2025-preparing-hr-professionals-for-the-future-amid-evolving-challenges-and-technology) 
+[Original/Source Press Release](https://newsworthy.ai/news/202410011293/hrwest-2025-preparing-hr-professionals-for-the-future-amid-evolving-challenges-and-technology)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HRnews/comments/1fu1w8u/hrcom_unveils_hrwest_2025_conference_for_hr/

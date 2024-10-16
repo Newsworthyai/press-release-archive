@@ -32,6 +32,9 @@ https://osl.com/en/
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/-osl-group-becomes-msci-hong-kong-index-constituent----new-era-for-digital-assets-on-the-global-stage) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/-osl-group-becomes-msci-hong-kong-index-constituent----new-era-for-digital-assets-on-the-global-stage)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d7mm8p/osl_group_863hk_included_in_msci_hong_kong_index/

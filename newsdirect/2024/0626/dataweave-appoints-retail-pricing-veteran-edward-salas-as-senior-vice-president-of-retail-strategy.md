@@ -28,6 +28,9 @@ press@dataweave.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/dataweave-appoints-retail-pricing-veteran-edward-salas-as-senior-vice-president-of-retail-strategy-118695744 
 
-[Original/Source Press Release](https://newsdirect.com/news/dataweave-appoints-retail-pricing-veteran-edward-salas-as-senior-vice-president-of-retail-strategy-118695744) 
+[Original/Source Press Release](https://newsdirect.com/news/dataweave-appoints-retail-pricing-veteran-edward-salas-as-senior-vice-president-of-retail-strategy-118695744)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1dp2kef/dataweave_appoints_retail_pricing_veteran_edward/

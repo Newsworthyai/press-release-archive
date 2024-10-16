@@ -38,6 +38,9 @@ Company Websitehttps://www.agcbio.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/agc-biologics-completes-copenhagen-campus-expansion-doubling-single-use-mammalian-bioreactor-capacity-at-site-457711969 
 
-[Original/Source Press Release](https://newsdirect.com/news/agc-biologics-completes-copenhagen-campus-expansion-doubling-single-use-mammalian-bioreactor-capacity-at-site-457711969) 
+[Original/Source Press Release](https://newsdirect.com/news/agc-biologics-completes-copenhagen-campus-expansion-doubling-single-use-mammalian-bioreactor-capacity-at-site-457711969)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d7renw/agc_biologics_completes_copenhagen_campus/

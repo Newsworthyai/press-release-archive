@@ -28,6 +28,9 @@ Company Websitehttps://icna.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/islamic-circle-of-north-america-anticipates-over-30-000-attendees-at-its-49th-annual-convention-888741741 
 
-[Original/Source Press Release](https://newsdirect.com/news/islamic-circle-of-north-america-anticipates-over-30-000-attendees-at-its-49th-annual-convention-888741741) 
+[Original/Source Press Release](https://newsdirect.com/news/islamic-circle-of-north-america-anticipates-over-30-000-attendees-at-its-49th-annual-convention-888741741)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Lifestyle_Culture/comments/1cysev1/islamic_circle_of_north_america_anticipates_over/

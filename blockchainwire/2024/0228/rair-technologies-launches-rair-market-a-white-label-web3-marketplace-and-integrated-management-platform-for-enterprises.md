@@ -18,6 +18,9 @@ ABOUT RAIR TECHRAIR Technologies (https://rair.info/) product suite RAIR.market
 
 Media Contact: rair@transformgroup.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/rair-technologies-launches-rairmarket-a-white-label-web3-marketplace-and-integrated-management-platform-for-enterprises) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/rair-technologies-launches-rairmarket-a-white-label-web3-marketplace-and-integrated-management-platform-for-enterprises)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1b6rp70/rair_technologies_releases_rairmarket_suite_for/

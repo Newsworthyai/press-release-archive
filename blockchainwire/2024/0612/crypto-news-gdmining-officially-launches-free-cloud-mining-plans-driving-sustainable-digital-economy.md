@@ -38,6 +38,9 @@ About GDMining
 
 GDMining is a leading provider of cloud mining services, offering users worldwide the opportunity to participate in cryptocurrency mining without the need for expensive hardware or technical expertise. Committed to sustainable development and inclusive finance, GDMining enables users to fully leverage blockchain technology and earn passive income through its innovative solutions. For more information, please visit https://gdmining.com/. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/crypto-news-gdmining-officially-launches-free-cloud-mining-plans-driving-sustainable-digital-economy-2) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/crypto-news-gdmining-officially-launches-free-cloud-mining-plans-driving-sustainable-digital-economy-2)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1deag8j/gdmining_launches_new_bitcoin_cloud_mining_plans/

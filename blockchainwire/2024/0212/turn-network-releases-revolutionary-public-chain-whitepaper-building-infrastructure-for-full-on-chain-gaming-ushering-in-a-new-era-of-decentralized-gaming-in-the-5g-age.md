@@ -38,6 +38,9 @@ Telegram：https://t.me/turnnetworkDiscuss
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, or intended as investment advice, financial advice, or trading advice. It is strongly recommended that you practice due diligence (including consultation with a professional financial advisor) before investing in or trading securities and cryptocurrency. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/turn-network-releases-revolutionary-public-chain-whitepaper-building-infrastructure-for-full-on-chain-gaming-ushering-in-a-new-era-of-decentralized-gaming-in-the-5g-age) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/turn-network-releases-revolutionary-public-chain-whitepaper-building-infrastructure-for-full-on-chain-gaming-ushering-in-a-new-era-of-decentralized-gaming-in-the-5g-age)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1avcrey/turn_network_innovates_onchain_gaming_with/

@@ -28,6 +28,9 @@ media@Totalsolutionspr.io
 
 View source version on newsdirect.com: https://newsdirect.com/news/investors-rush-to-new-crypto-presale-raboo-rabt-as-pepe-pepe-and-shiba-inu-shib-see-modest-gains-190724697 
 
-[Original/Source Press Release](https://newsdirect.com/news/investors-rush-to-new-crypto-presale-raboo-rabt-as-pepe-pepe-and-shiba-inu-shib-see-modest-gains-190724697) 
+[Original/Source Press Release](https://newsdirect.com/news/investors-rush-to-new-crypto-presale-raboo-rabt-as-pepe-pepe-and-shiba-inu-shib-see-modest-gains-190724697)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bvxjxo/investors_rush_to_new_crypto_presale_raboo_rabt/

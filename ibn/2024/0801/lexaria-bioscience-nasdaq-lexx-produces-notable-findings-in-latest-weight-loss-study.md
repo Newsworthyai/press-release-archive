@@ -29,6 +29,9 @@
 
  CBDWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-bioscience-nasdaq-lexx-produces-notable-findings-in-latest-weight-loss-study/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/lexaria-bioscience-nasdaq-lexx-produces-notable-findings-in-latest-weight-loss-study/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1f2fu7u/lexaria_bioscience_releases_positive_interim/

@@ -37,6 +37,9 @@ Become a part of HR.com’s HR research influencer panel today. Participate in s
 
 Contact: info@hr.com HR.com Newsroom 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202405281176/hr-com-announces-the-future-of-talent-acquisition-2024-study-and-advisory-board) 
+[Original/Source Press Release](https://newsworthy.ai/news/202405281176/hr-com-announces-the-future-of-talent-acquisition-2024-study-and-advisory-board)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1d2hxjy/hrcom_announces_future_of_talent_acquisition_2024/

@@ -48,6 +48,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/game-changing-tumor-freezing-technology-has-the-potential-to-offer-women-first-ever-minimally-invasive-alternative-to-breast-lumpectomy-surgery-883457450 
 
-[Original/Source Press Release](https://newsdirect.com/news/game-changing-tumor-freezing-technology-has-the-potential-to-offer-women-first-ever-minimally-invasive-alternative-to-breast-lumpectomy-surgery-883457450) 
+[Original/Source Press Release](https://newsdirect.com/news/game-changing-tumor-freezing-technology-has-the-potential-to-offer-women-first-ever-minimally-invasive-alternative-to-breast-lumpectomy-surgery-883457450)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1c2ff4g/gamechanging_tumorfreezing_technology_offers/

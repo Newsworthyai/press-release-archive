@@ -28,6 +28,9 @@ United States
 
 Visit Our Website 
 
-[Original/Source Press Release](https://newsroom.prkarma.com/counterflowmarketing/news_release/1425) 
+[Original/Source Press Release](https://newsroom.prkarma.com/counterflowmarketing/news_release/1425)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bko97n/optek_films_unveils_revolutionary_paint/

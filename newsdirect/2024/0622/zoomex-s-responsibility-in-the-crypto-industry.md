@@ -54,6 +54,9 @@ Company Websitehttps://www.zoomex.com/en/
 
 View source version on newsdirect.com: https://newsdirect.com/news/zoomexs-responsibility-in-the-crypto-industry-319333512 
 
-[Original/Source Press Release](https://newsdirect.com/news/zoomexs-responsibility-in-the-crypto-industry-319333512) 
+[Original/Source Press Release](https://newsdirect.com/news/zoomexs-responsibility-in-the-crypto-industry-319333512)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1dmp9yo/zoomex_leading_the_way_in_crypto_industry/

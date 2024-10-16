@@ -26,6 +26,9 @@ Contact DetailsKnowledge R Katti
 
 View source version on newsdirect.com: https://newsdirect.com/news/pel-82-chevron-farm-in-134234377 
 
-[Original/Source Press Release](https://newsdirect.com/news/pel-82-chevron-farm-in-134234377) 
+[Original/Source Press Release](https://newsdirect.com/news/pel-82-chevron-farm-in-134234377)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cg2w1w/chevron_enters_petroleum_exploration_license_82/

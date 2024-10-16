@@ -16,6 +16,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/atha-energy-announces-company-has-entered-into-option-agreement-with-inspiration-energy-558984162 
 
-[Original/Source Press Release](https://newsdirect.com/news/atha-energy-announces-company-has-entered-into-option-agreement-with-inspiration-energy-558984162) 
+[Original/Source Press Release](https://newsdirect.com/news/atha-energy-announces-company-has-entered-into-option-agreement-with-inspiration-energy-558984162)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cdmw36/atha_energy_announces_exclusive_option_agreement/

@@ -18,6 +18,9 @@ NA-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/diversified-energy-company-achieves-strong-results-with-robust-production-and-financial-performance-823449060 
 
-[Original/Source Press Release](https://newsdirect.com/news/diversified-energy-company-achieves-strong-results-with-robust-production-and-financial-performance-823449060) 
+[Original/Source Press Release](https://newsdirect.com/news/diversified-energy-company-achieves-strong-results-with-robust-production-and-financial-performance-823449060)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1cr13bn/diversified_energy_achieves_strong_q1_results/

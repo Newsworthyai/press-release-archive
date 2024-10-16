@@ -24,6 +24,9 @@ joe@modernfortis.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bureau-of-prisons-authorized-large-bonuses-for-top-executives-while-slashing-retention-pay-programs-for-union-workers-541392109 
 
-[Original/Source Press Release](https://newsdirect.com/news/bureau-of-prisons-authorized-large-bonuses-for-top-executives-while-slashing-retention-pay-programs-for-union-workers-541392109) 
+[Original/Source Press Release](https://newsdirect.com/news/bureau-of-prisons-authorized-large-bonuses-for-top-executives-while-slashing-retention-pay-programs-for-union-workers-541392109)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1c5h6nj/bureau_of_prisons_authorizes_executive_bonuses/

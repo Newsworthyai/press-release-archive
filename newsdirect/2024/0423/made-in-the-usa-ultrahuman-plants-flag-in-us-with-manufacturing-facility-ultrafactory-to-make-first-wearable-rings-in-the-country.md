@@ -54,6 +54,9 @@ Company Websitehttps://www.ultrahuman.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/made-in-the-usa-ultrahuman-plants-flag-in-us-with-manufacturing-facility-ultrafactory-to-make-first-wearable-rings-in-the-country-489025400 
 
-[Original/Source Press Release](https://newsdirect.com/news/made-in-the-usa-ultrahuman-plants-flag-in-us-with-manufacturing-facility-ultrafactory-to-make-first-wearable-rings-in-the-country-489025400) 
+[Original/Source Press Release](https://newsdirect.com/news/made-in-the-usa-ultrahuman-plants-flag-in-us-with-manufacturing-facility-ultrafactory-to-make-first-wearable-rings-in-the-country-489025400)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/GamingNewsRamp/comments/1cb63kv/ultrahuman_to_open_ultrafactory_in_indiana_aiming/

@@ -12,6 +12,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/isc-reports-strong-first-quarter-growth-in-2024-launches-five-year-growth-strategy-294706929 
 
-[Original/Source Press Release](https://newsdirect.com/news/isc-reports-strong-first-quarter-growth-in-2024-launches-five-year-growth-strategy-294706929) 
+[Original/Source Press Release](https://newsdirect.com/news/isc-reports-strong-first-quarter-growth-in-2024-launches-five-year-growth-strategy-294706929)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1ctgy4m/isc_reports_strong_first_quarter_growth_in_2024/

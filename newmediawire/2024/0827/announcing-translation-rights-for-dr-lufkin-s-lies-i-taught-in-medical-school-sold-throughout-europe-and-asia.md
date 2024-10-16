@@ -52,6 +52,9 @@ Reported by Rachel Phares, Rights Manager, BenBella Books: “Translation Rights
 
  Beverly Hills, Ca. 90210 
 
-[Original/Source Press Release](https://www.newmediawire.com/news/announcing-translation-rights-for-dr-lufkin-s-lies-i-taught-in-medical-school-sold-throughout-europe-and-asia-7075968) 
+[Original/Source Press Release](https://www.newmediawire.com/news/announcing-translation-rights-for-dr-lufkin-s-lies-i-taught-in-medical-school-sold-throughout-europe-and-asia-7075968)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BookNews/comments/1f7lotq/dr_robert_lufkins_lies_i_taught_in_medical_school/

@@ -26,6 +26,9 @@ SuperCom (NASDAQ: SPCB), a global provider of secured solutions for the e-govern
 
  TechMediaWire is powered by IBN 
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/supercom-nasdaq-spcb-releases-q2-2024-financial-results-highlighted-by-record-profit/) 
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/ibn-prem/supercom-nasdaq-spcb-releases-q2-2024-financial-results-highlighted-by-record-profit/)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/FinancialNewsramp/comments/1f2g56z/supercom_nasdaq_spcb_reports_strong_q2_2024/

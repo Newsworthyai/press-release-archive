@@ -28,6 +28,9 @@ Company Websitehttps://www.bitget.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/bitget-lists-alephium-alph-elevating-the-landscape-of-blockchain-scalability-and-efficiency-555233551 
 
-[Original/Source Press Release](https://newsdirect.com/news/bitget-lists-alephium-alph-elevating-the-landscape-of-blockchain-scalability-and-efficiency-555233551) 
+[Original/Source Press Release](https://newsdirect.com/news/bitget-lists-alephium-alph-elevating-the-landscape-of-blockchain-scalability-and-efficiency-555233551)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1c877ag/bitget_lists_alephium_alph_to_revolutionize_defi/

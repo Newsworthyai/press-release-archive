@@ -47,6 +47,9 @@ Company Websitehttps://www.goodwaygroup.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/inc-magazine-names-goodway-group-one-of-the-best-places-to-work-for-third-year-in-a-row-642975810 
 
-[Original/Source Press Release](https://newsdirect.com/news/inc-magazine-names-goodway-group-one-of-the-best-places-to-work-for-third-year-in-a-row-642975810) 
+[Original/Source Press Release](https://newsdirect.com/news/inc-magazine-names-goodway-group-one-of-the-best-places-to-work-for-third-year-in-a-row-642975810)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/AwardsAndRecognition/comments/1dmpe9f/goodway_group_named_one_of_inc_magazines_best/

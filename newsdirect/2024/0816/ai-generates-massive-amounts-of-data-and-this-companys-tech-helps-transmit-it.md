@@ -28,6 +28,9 @@ Company Websitehttp://www.benzinga.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/ai-generates-massive-amounts-of-data-and-this-companys-tech-helps-transmit-it-813513475 
 
-[Original/Source Press Release](https://newsdirect.com/news/ai-generates-massive-amounts-of-data-and-this-companys-tech-helps-transmit-it-813513475) 
+[Original/Source Press Release](https://newsdirect.com/news/ai-generates-massive-amounts-of-data-and-this-companys-tech-helps-transmit-it-813513475)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1etnu2i/lightwave_logic_inc_ceo_discusses_nextgeneration/

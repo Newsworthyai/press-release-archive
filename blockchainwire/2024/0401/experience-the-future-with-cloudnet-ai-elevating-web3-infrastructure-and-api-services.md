@@ -24,6 +24,9 @@ Telegram: https://t.me/cloudnetai
 
 Medium: https://medium.com/@CloudnetAi 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/experience-the-future-with-cloudnet-ai-elevating-web3-infrastructure-and-api-services) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/experience-the-future-with-cloudnet-ai-elevating-web3-infrastructure-and-api-services)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1bt4twe/cloudnet_ai_revolutionizes_cloud_computing_in/

@@ -67,6 +67,9 @@ Disclaimer
 
 The information and data presented in this article are obtained from public sources, and Tide Capital makes no guarantees regarding their accuracy and completeness. Any predictions, speculations, or opinions contained in this article are statements about future events and may differ significantly from actual results due to limitations in data timeliness, assumption validity, uncertainty factors, and unforeseeable risks. Any advice and opinions in this article are for reference purposes only and do not constitute recommendations to buy or sell any digital assets. They do not constitute investment advice or solicitations. The strategies that Tide Capital may adopt may be the same, different, or unrelated to those inferred by readers based on this article. Investors should carefully consider any decisions and seek appropriate legal and financial advice when necessary. Any misunderstanding or misuse of the content in this article does not constitute the responsibility of the author or the publishing institution. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/tide-capital-is-the-market-bottoming-out-after-julysplunge) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/tide-capital-is-the-market-bottoming-out-after-julysplunge)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1e6jmm7/german_government_transfers_seized_bitcoins/

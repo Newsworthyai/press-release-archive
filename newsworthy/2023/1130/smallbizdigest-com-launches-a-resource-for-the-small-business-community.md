@@ -18,6 +18,9 @@ SmallBizDigest.com champions the cause of small businesses, shedding light on th
 
 Embark on a voyage of small business empowerment at www.SmallBizDigest.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20231130876/smallbizdigest-com-launches-a-resource-for-the-small-business-community) 
+[Original/Source Press Release](https://newsworthy.ai/news/20231130876/smallbizdigest-com-launches-a-resource-for-the-small-business-community)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1avx12n/new_platform_smallbizdigestcom_launched_to/

@@ -79,6 +79,9 @@ Company Websitehttps://www.bakerentertainmentgroup.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/jonathan-bakers-second-to-last-film-fate-taps-hollywood-legends-faye-dunaway-harvey-keitel-and-andrew-mccarthy-in-lead-roles-924481446 
 
-[Original/Source Press Release](https://newsdirect.com/news/jonathan-bakers-second-to-last-film-fate-taps-hollywood-legends-faye-dunaway-harvey-keitel-and-andrew-mccarthy-in-lead-roles-924481446) 
+[Original/Source Press Release](https://newsdirect.com/news/jonathan-bakers-second-to-last-film-fate-taps-hollywood-legends-faye-dunaway-harvey-keitel-and-andrew-mccarthy-in-lead-roles-924481446)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BookNews/comments/1co62h7/jonathan_bakers_fate_taps_hollywood_legends_faye/

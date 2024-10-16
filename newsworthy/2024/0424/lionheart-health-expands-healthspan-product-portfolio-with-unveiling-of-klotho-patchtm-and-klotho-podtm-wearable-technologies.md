@@ -34,6 +34,9 @@ Source: Lionheart Health, Inc., Mission Viejo, CA
 
 Copyright 2023 Lionheart Health, Inc. All Rights Reserved 
 
-[Original/Source Press Release](https://newsworthy.ai/news/20240424980/lionheart-health-expands-health-span-product-portfolio-with-unveiling-of-both-klotho-patch-tm-and-klotho-pod-tm-wearable-technologies) 
+[Original/Source Press Release](https://newsworthy.ai/news/20240424980/lionheart-health-expands-health-span-product-portfolio-with-unveiling-of-both-klotho-patch-tm-and-klotho-pod-tm-wearable-technologies)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1cc6qxm/lionheart_health_inc_unveils_klotho_patch_and/

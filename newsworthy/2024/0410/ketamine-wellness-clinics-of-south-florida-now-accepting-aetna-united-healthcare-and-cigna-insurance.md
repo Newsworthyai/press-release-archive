@@ -18,6 +18,9 @@ About Ketamine & Wellness Clinics of South Florida
 
 Ketamine & Wellness Clinics of South Florida is a leading provider of ketamine infusion therapies for depression, anxiety, pain, and other treatment-resistant conditions. With clinics in Pompano Beach and Hallandale Beach, Florida, they offer personalized care in a supportive and compassionate environment. Their mission is to improve patient's quality of life through innovative treatments and a holistic approach to care. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202404101143/ketamine-wellness-clinics-of-south-florida-now-accepting-aetna-united-healthcare-and-cigna-insurance) 
+[Original/Source Press Release](https://newsworthy.ai/news/202404101143/ketamine-wellness-clinics-of-south-florida-now-accepting-aetna-united-healthcare-and-cigna-insurance)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/PsychedelicsNews/comments/1c0k44f/ketamine_wellness_clinics_of_south_florida_now/

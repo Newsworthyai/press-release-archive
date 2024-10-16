@@ -20,6 +20,9 @@ action@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/standard-uranium-announces-promising-new-drilling-campaign-at-sun-dog-uranium-project-254486672 
 
-[Original/Source Press Release](https://newsdirect.com/news/standard-uranium-announces-promising-new-drilling-campaign-at-sun-dog-uranium-project-254486672) 
+[Original/Source Press Release](https://newsdirect.com/news/standard-uranium-announces-promising-new-drilling-campaign-at-sun-dog-uranium-project-254486672)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1e6j0gf/standard_uranium_unveils_new_prospecting_results/

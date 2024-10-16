@@ -22,6 +22,9 @@ Email: info@coresky.com
 
 Website: www.coresky.com 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/coresky-initiates-seed-round-of-financing-following-strategic-brand-upgrade) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/coresky-initiates-seed-round-of-financing-following-strategic-brand-upgrade)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1d9mnyg/coresky_enters_seed_round_of_financing_with/

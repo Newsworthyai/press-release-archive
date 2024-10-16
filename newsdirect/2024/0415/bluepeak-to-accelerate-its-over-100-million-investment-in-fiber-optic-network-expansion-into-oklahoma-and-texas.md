@@ -35,6 +35,9 @@ Company Websitehttps://www.mybluepeak.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/bluepeak-to-accelerate-its-over-100-million-investment-in-fiber-optic-network-expansion-into-oklahoma-and-texas-230192440 
 
-[Original/Source Press Release](https://newsdirect.com/news/bluepeak-to-accelerate-its-over-100-million-investment-in-fiber-optic-network-expansion-into-oklahoma-and-texas-230192440) 
+[Original/Source Press Release](https://newsdirect.com/news/bluepeak-to-accelerate-its-over-100-million-investment-in-fiber-optic-network-expansion-into-oklahoma-and-texas-230192440)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Energy_Climate_News/comments/1c4v9ei/bluepeak_expanding_fiber_network_to_over_ten_new/

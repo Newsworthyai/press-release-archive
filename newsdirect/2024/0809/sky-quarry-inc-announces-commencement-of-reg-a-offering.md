@@ -42,6 +42,9 @@ Company Websitehttps://investor.skyquarry.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/sky-quarry-inc-announces-commencement-of-reg-a-offering-659813583 
 
-[Original/Source Press Release](https://newsdirect.com/news/sky-quarry-inc-announces-commencement-of-reg-a-offering-659813583) 
+[Original/Source Press Release](https://newsdirect.com/news/sky-quarry-inc-announces-commencement-of-reg-a-offering-659813583)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/Business_NewsRamp/comments/1eo3qvg/sky_quarry_inc_launches_reg_a_offering_for/

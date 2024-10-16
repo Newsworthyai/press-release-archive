@@ -20,6 +20,9 @@ About Hunters Run
 
 A luxury country club community with 1,649 residences in 23 communities, Hunters Run is located on 990 beautifully landscaped acres in east Boynton Beach, bordering Delray Beach. Minutes from Atlantic Ocean beaches, this private club community offers a variety of home styles, from condominiums and villas to estate homes. It also provides 17 lodge rooms to accommodate members’ guests. Hunters Run is well-known for its three unique 18-hole championship golf courses, two driving ranges, and a short game area. Their athletic facilities also provide members with 18 Har-Tru tennis courts, 12 U.S.A.P.A. pickleball courts, and a fitness center with wellness programs, personal training, physical therapy, and group classes. The Club's full-service spa and salon offer a complete portfolio of services. The heart of Hunters Run is its resort-style Clubhouse featuring a beach entry pool, expansive outdoor lounge spaces, a poolside bar, and snack windows. Unique to Hunters Run are its six restaurants that offer everything from fine to casual to al fresco dining. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202403271133/golf-legend-annika-sorenstam-drives-official-opening-of-hunters-run-country-clubs-newly-renovated-south-driving-range) 
+[Original/Source Press Release](https://newsworthy.ai/news/202403271133/golf-legend-annika-sorenstam-drives-official-opening-of-hunters-run-country-clubs-newly-renovated-south-driving-range)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1bp65xz/annika_sörenstam_unveils_revamped_hunters_run/

@@ -92,6 +92,9 @@ Company Websitehttps://trondao.org/
 
 View source version on newsdirect.com: https://newsdirect.com/news/hackatron-season-7-launches-with-google-cloud-as-diamond-sponsor-celebrates-successful-kickoff-at-bitcoin-nashville-335028768 
 
-[Original/Source Press Release](https://newsdirect.com/news/hackatron-season-7-launches-with-google-cloud-as-diamond-sponsor-celebrates-successful-kickoff-at-bitcoin-nashville-335028768) 
+[Original/Source Press Release](https://newsdirect.com/news/hackatron-season-7-launches-with-google-cloud-as-diamond-sponsor-celebrates-successful-kickoff-at-bitcoin-nashville-335028768)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1eg4mdm/hackatron_season_7_launches_with_google_cloud_as/

@@ -12,6 +12,9 @@ Company Websitehttp://www.newsdirect.com
 
 View original content to download multimedia: https://newsdirect.com/news/news-direct-emphasizes-the-data-security-advantages-of-its-digital-news-distribution-platform-980712249 
 
-[Original/Source Press Release](https://newsdirect.com/news/news-direct-emphasizes-the-data-security-advantages-of-its-digital-news-distribution-platform-980712249) 
+[Original/Source Press Release](https://newsdirect.com/news/news-direct-emphasizes-the-data-security-advantages-of-its-digital-news-distribution-platform-980712249)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1esuwgg/news_direct_corp_highlights_data_security/

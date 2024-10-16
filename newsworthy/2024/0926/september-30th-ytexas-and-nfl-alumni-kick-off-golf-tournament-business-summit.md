@@ -31,6 +31,9 @@ VISUALS: Media interviews for NFL Alumni, sponsors, and YTexas staff will be ava
 
 NOTE: For media access to this event, please contact Aquila Mendez-Valdez at 210.606.5251 or aquila@hitpr.com. 
 
-[Original/Source Press Release](https://newsworthy.ai/news/202409261287/september-30th-ytexas-and-nfl-alumni-kick-off-gol-tournament-business-summit) 
+[Original/Source Press Release](https://newsworthy.ai/news/202409261287/september-30th-ytexas-and-nfl-alumni-kick-off-gol-tournament-business-summit)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1fpunil/ytexas_summit_and_nfl_alumni_association_host/

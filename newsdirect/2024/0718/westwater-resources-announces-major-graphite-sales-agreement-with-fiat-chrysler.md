@@ -18,6 +18,9 @@ na-editorial@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/westwater-resources-announces-major-graphite-sales-agreement-with-fiat-chrysler-226437041 
 
-[Original/Source Press Release](https://newsdirect.com/news/westwater-resources-announces-major-graphite-sales-agreement-with-fiat-chrysler-226437041) 
+[Original/Source Press Release](https://newsdirect.com/news/westwater-resources-announces-major-graphite-sales-agreement-with-fiat-chrysler-226437041)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/technology_press/comments/1e6j0p0/westwater_resources_secures_major_sales_agreement/

@@ -44,6 +44,9 @@ Company Websitehttps://modernmarket.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/modern-market-eatery-debuts-sustainable-shrimp-in-its-new-summer-menu-rollout-524952275 
 
-[Original/Source Press Release](https://newsdirect.com/news/modern-market-eatery-debuts-sustainable-shrimp-in-its-new-summer-menu-rollout-524952275) 
+[Original/Source Press Release](https://newsdirect.com/news/modern-market-eatery-debuts-sustainable-shrimp-in-its-new-summer-menu-rollout-524952275)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/newsramp/comments/1cn90oq/modern_market_eatery_adds_sustainable_shrimp_to/

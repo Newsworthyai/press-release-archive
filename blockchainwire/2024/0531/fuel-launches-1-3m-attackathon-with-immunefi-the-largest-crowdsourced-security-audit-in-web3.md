@@ -30,6 +30,9 @@ Fuel combines the purpose-built FuelVM, a highly optimised Rust-based blockchain
 
 For more information, please visit:[Website](http://fuel.network/) |[X/Twitter](https://twitter.com/fuel_network) |[Discord](https://discord.com/invite/fuelnetwork) |[](https://t.me/mantlenetwork)[Blog](https://fuel.mirror.xyz/) | [GitHub](https://github.com/FuelLabs) | [Documentation](https://docs.fuel.network/) | [Forum](https://forum.fuel.network/)![](https://blockchainwire.s3.amazonaws.com/MAFamily/editor_image/192ac926-1ba5-4837-b416-d32ae908fbda.png) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/fuel-launches-13m-attackathon-with-immunefi-the-largest-crowdsourced-security-audit-in-web3) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/fuel-launches-13m-attackathon-with-immunefi-the-largest-crowdsourced-security-audit-in-web3)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/BlockchainWeb3New/comments/1fvp9oq/fuel_and_immunefi_announce_strategic_partnership/

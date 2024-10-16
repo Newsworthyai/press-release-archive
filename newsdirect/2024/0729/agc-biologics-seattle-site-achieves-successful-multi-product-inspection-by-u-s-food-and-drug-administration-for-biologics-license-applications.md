@@ -26,6 +26,9 @@ Company Websitehttps://www.agcbio.com/
 
 View source version on newsdirect.com: https://newsdirect.com/news/agc-biologics-seattle-site-achieves-successful-multi-product-inspection-by-u-s-food-and-drug-administration-for-biologics-license-applications-255280798 
 
-[Original/Source Press Release](https://newsdirect.com/news/agc-biologics-seattle-site-achieves-successful-multi-product-inspection-by-u-s-food-and-drug-administration-for-biologics-license-applications-255280798) 
+[Original/Source Press Release](https://newsdirect.com/news/agc-biologics-seattle-site-achieves-successful-multi-product-inspection-by-u-s-food-and-drug-administration-for-biologics-license-applications-255280798)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/HealthCareNewsInfo/comments/1eeyhzr/agc_biologics_seattle_achieves_major_milestone/

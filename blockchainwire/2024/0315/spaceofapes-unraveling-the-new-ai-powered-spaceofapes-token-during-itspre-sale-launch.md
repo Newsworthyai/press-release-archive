@@ -60,6 +60,9 @@ the SpaceofApes Token is a testament to the invention, community involvement, an
 
 [https://www.spaceofapes.io/](https://www.spaceofapes.io/) 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/spaceofapes-unraveling-the-new-ai-powered-spaceofapes-token-during-itspre-sale-launch) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/spaceofapes-unraveling-the-new-ai-powered-spaceofapes-token-during-itspre-sale-launch)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1bfm5vh/spaceofapes_token_presale_launch_uniting_ai_and/

@@ -54,6 +54,9 @@ Company Websitehttp://www.newsdirect.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/now-four-years-in-heres-how-news-direct-leapfrogged-the-legacy-newswire-industry-676742291 
 
-[Original/Source Press Release](https://newsdirect.com/news/now-four-years-in-heres-how-news-direct-leapfrogged-the-legacy-newswire-industry-676742291) 
+[Original/Source Press Release](https://newsdirect.com/news/now-four-years-in-heres-how-news-direct-leapfrogged-the-legacy-newswire-industry-676742291)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/MarketingNewsramp/comments/1fea27m/news_direct_revolutionizes_newswire_industry_with/

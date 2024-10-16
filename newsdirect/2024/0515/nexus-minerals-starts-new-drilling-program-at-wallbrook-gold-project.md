@@ -14,6 +14,9 @@ jonathan@proactiveinvestors.com
 
 View source version on newsdirect.com: https://newsdirect.com/news/nexus-minerals-starts-new-drilling-program-at-wallbrook-gold-project-285185508 
 
-[Original/Source Press Release](https://newsdirect.com/news/nexus-minerals-starts-new-drilling-program-at-wallbrook-gold-project-285185508) 
+[Original/Source Press Release](https://newsdirect.com/news/nexus-minerals-starts-new-drilling-program-at-wallbrook-gold-project-285185508)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/RealEstate_NewsRamp/comments/1cste2n/nexus_minerals_launches_diamond_drilling_program/

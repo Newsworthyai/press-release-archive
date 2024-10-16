@@ -18,6 +18,9 @@ Ishant Singh emphasized that with the rise of the web3 era, the combination of b
 
 Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
 
-[Original/Source Press Release](https://blockchainwire.io/press-release/blockchain--ai--former-openai-member-ishant-singh-was-appointed-as-bityuan-blockchain-ceo) 
+[Original/Source Press Release](https://blockchainwire.io/press-release/blockchain--ai--former-openai-member-ishant-singh-was-appointed-as-bityuan-blockchain-ceo)
+                    
 
-[Newsramp.com TLDR](https://newsramp.com/None) 
+[Newsramp.com TLDR](None) 
+
+https://www.reddit.com/r/CryptoNewsInfo/comments/1ccwu9k/former_openai_member_ishant_singh_joins_bityuan/
