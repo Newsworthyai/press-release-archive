@@ -1,0 +1,20 @@
+# Overcome Quality Control Hurdles with Business Central's Quality Inspector
+
+EDMONTON, AB, October 17, 2024 /24-7PressRelease/ -- Insight Works, a leader in developing apps for Microsoft Dynamics 365 Business Central and specializing in manufacturing and distribution, continues to enhance its comprehensive digital quality control solution, highlighting its commitment to innovation.  The Quality Inspector app simplifies quality control, reducing rework and ensuring customer satisfaction. The app integrates with Microsoft Dynamics 365 Business Central to automate inspections and helps companies easily transition from paper-based QC processes to digital, ensuring products meet standards before shipping or production, with fewer manual steps.  For manufacturing and distribution businesses, the Quality Inspector app efficiently converts paper-based quality control documents into electronic data, supporting a smooth transition to the benefits of digital QC.  The integration with Microsoft Teams significantly strengthens collaboration by allowing team members to share detailed quality inspection data with team members. This ensures that all relevant parties are informed and aligned with quality standards and updates, fostering a unified approach to quality management.  Why Use Quality Inspector  - Seamless Transition from Paper to Digital: Quality Inspector AI capabilities facilitate the conversion of paper-based historical records into digital format, minimizing manual data entry and ensuring accuracy.  - Real-Time Collaboration: The Teams integration enables instant communication regarding partial test results, passed or failed, triggering faster response times.  - Mobile-Friendly Solution: The app's mobile optimization allows quality control teams to perform duties on the go, using tablets and phones to access, record, and monitor quality tests in real time.  - Increased Compliance: Features such as retesting, mandatory tests before specific actions, and blocking transactions if they don't meet quality grades ensure products meet quality standards and comply with regulations.  "With Quality Inspector, businesses can streamline their quality control by automating inspections, ensuring compliance, and improving real-time data visibility," said Brian Neufeld, Director of Marketing at Insight Works. "Our goal is to simplify the transition from paper to digital, helping businesses maintain high standards with minimal disruption."  Reflecting Insight Works' approach to improving quality management, the Quality Inspector app helps companies transition from paper-based systems to digital solutions, enhancing accuracy, simplifying workflows, and providing better control over product quality and adherence to industry standards.  For more information, visit https://QCforDynamics.com or contact your Microsoft Partner.  About Insight Works  Since 2008, Insight Works has been a prominent Independent Software Vendor (ISV), initially specializing in Microsoft NAV before transitioning to Microsoft Dynamics 365 Business Central in 2018. Headquartered in Canada with substantial operations in North America and the Netherlands, Insight Works actively supports European markets. Their extensive network of over 500 Microsoft Partners globally ensures top-tier support and service, facilitating seamless system integration and continuous application enhancement. To learn more, visit www.dmsiworks.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515097/overcome-quality-control-hurdles-with-business-centrals-quality-inspector)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/insight-works-enhances-digital-quality-control-with-quality-inspector-app/1ff30d12e117e87fcdb4a062584bcc78) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1g5l6vm/insight_works_enhances_digital_quality_control/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/17/openG1Pb.webp)
