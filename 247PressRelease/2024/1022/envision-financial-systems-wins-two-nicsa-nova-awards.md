@@ -1,0 +1,20 @@
+# Envision Financial Systems wins two Nicsa NOVA awards
+
+COSTA MESA, CA, October 22, 2024 /24-7PressRelease/ -- Envision Financial Systems, a leader in investor recordkeeping technology and services, today announced that its Co-founder and CEO, Satnam Gambhir, was named the recipient of the 2024 Nicsa NOVA Lifetime Achievement Award. Additionally, Envision won the NOVA Award for Innovation in Technology, recognizing the company's advancements in automating alternative-investment processing. Both awards will be presented at the inaugural Nicsa Asset & Wealth Management Summit in Boston on Tuesday, Oct. 29.  The Lifetime Achievement Award is bestowed upon industry leaders who have demonstrated extraordinary personal commitment and made significant, measurable contributions to the asset and wealth management industry throughout their careers. Gambhir was unanimously selected by Nicsa's panel of judges for his pioneering work in investor recordkeeping, providing innovative technology solutions that enable asset and wealth management firms to rapidly adapt to industry changes through automation.  "Early in my career in asset management, I recognized the potential to improve the systems that the industry had relied on for years," said Gambhir. "When my colleague Tim Kan and I founded Envision, our aim was to develop a flexible recordkeeping solution that could evolve with the industry's changing needs. As a longtime supporter of Nicsa for more than 20 years, I'm deeply honored to receive this award, and I share it with my colleagues at Envision who have made this vision a reality."  The Industry Innovation in Technology Award is given to firms that develop cutting-edge technology solutions to enhance performance, reduce risk, improve efficiency, and elevate client service capabilities. Envision was selected for its work in automating the processing, tracking and reporting of tender offers and capital calls—tasks that have traditionally posed challenges for firms.  By integrating tender offer and capital call workflows into its core investor recordkeeping system, Envision has empowered its clients to reduce errors, accelerate processing times, and increase investor satisfaction. The solution includes a real-time dashboard that enables operations teams to monitor and manage complex processes more efficiently.  "We are proud to recognize Satnam and Envision for their innovative spirit and commitment to addressing challenges impacting our community," said Jim Fitzpatrick, president and CEO of Nicsa. "These awards are a testament to their dedication to advancing technology in the asset and wealth management space."  The full list of 2024 Nicsa NOVA Award winners can be found here.  About Envision Financial Systems Envision Financial Systems is a leading provider of real-time investor accounting platforms, delivering innovative and flexible solutions to help clients solve complex challenges. For 30 years, asset managers, administrators, 529 program managers, and brokers have relied on Envision's technology to automate processes and optimize efficiency. Today, Envision supports more than $6 trillion in investor assets.  Founded in 1994, Envision is headquartered in Costa Mesa, CA, with additional offices in Denver, CO, Owings Mills, MD, and Bangalore, India. For more information, visit www.enfs.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515483/envision-financial-systems-wins-two-nicsa-nova-awards)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/envision-financial-systems-receives-2024-nicsa-nova-awards/1dac2455f823a8cf952737a1a93217eb) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1g9o05q/envision_financial_systems_receives_2024_nicsa/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/22/arch1_9I.webp)

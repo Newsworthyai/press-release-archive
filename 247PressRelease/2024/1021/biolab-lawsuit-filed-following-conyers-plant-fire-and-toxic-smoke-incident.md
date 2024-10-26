@@ -1,0 +1,20 @@
+# Biolab Lawsuit Filed Following Conyers Plant Fire and Toxic Smoke Incident
+
+CONYERS, GA, October 21, 2024 /24-7PressRelease/ -- Hagen Rosskopf, a premier personal injury law firm specializing in representing individuals and businesses affected by corporate negligence, is encouraging victims to join a class-action lawsuit in response to the recent fire at the BioLab facility in Conyers, Georgia. With a long history of securing justice for clients, Hagen Rosskopf is committed to providing top-tier legal support to those impacted by toxic exposure and other environmental hazards. This lawsuit seeks to hold BioLab and Kik Consumer Products accountable for the chemical exposure and widespread disruption caused by the incident.  On September 29, 2024, a malfunction in the plant's sprinkler system triggered a fire, releasing toxic gases into the atmosphere. The impact of the smoke was felt immediately, with residents ordered to shelter in place, many forced to evacuate, and numerous individuals seeking medical attention for respiratory and other medical issues. The lawsuit aims to secure compensation for medical expenses, lost income, relocation costs, disruption to businesses, child care costs and other damages incurred by victims.  "This fire is yet another example of BioLab's history of negligence," said a lead attorney at Hagen Rosskopf. "The health and well-being of thousands of Georgians have been jeopardized due to this preventable incident, and we are committed to holding BioLab accountable for their reckless actions."  This recent fire is not an isolated event. BioLab has been linked to several similar incidents in the past, including fires in 2004, 2016, and 2020. In 2004, BioLab reached a $7 million settlement with residents and businesses affected by a fire at the same facility. Despite these costly penalties, the company has continued to face issues with the safe storage and handling of reactive chemicals like trichloroisocyanuric acid (TCCA), which played a significant role in this latest fire.  "Just about everyone I've spoken to locally or not agrees that factories can be dangerous, but three times in living memory is just too many for anyone" Conyers resident Peter Stolmeier told The Guardian.  The lawsuit seeks to provide relief to all those affected by the BioLab fire, including: -Rockdale County and neighboring residents who suffered health issues or economic loss -Businesses forced to close or relocate -Property owners and first responders impacted by the hazardous conditions Class action lawsuits have already been filed, but residents and businesses are encouraged to contact Hagen Rosskopf to determine eligibility. Free consultations are available for those impacted by the fire.  The full extent of the health risks posed by this fire remains unknown. According to the Environmental Protection Agency (EPA), chlorine levels in Rockdale County were recorded as 22 times higher than the threshold considered dangerous for vulnerable populations in the days following the fire. While immediate shelter-in-place orders have been lifted, many residents continue to experience respiratory distress.  This lawsuit represents the first step in securing justice for the thousands of individuals and businesses impacted by BioLab's negligence. Attorneys at Hagen Rosskopf are leading the charge, encouraging victims to come forward and join the class action.  For more information about the BioLab lawsuit and to schedule a free consultation, visit Hagen Rosskopf's website. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515397/biolab-lawsuit-filed-following-conyers-plant-fire-and-toxic-smoke-incident)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/premier-law-firm-encourages-victims-to-join-class-action-lawsuit-against-biolab-for-recent-fire/41a6004472189bd3f635b51b9af09373) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1g91dgd/premier_law_firm_encourages_victims_to_join/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/21/wamcVI41.webp)

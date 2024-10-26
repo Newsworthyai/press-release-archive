@@ -1,0 +1,20 @@
+# FIX Innovation Awards Media Day Wraps Up: 8 K-Startups Drew Attention of Global Media through IR Pitchings
+
+DAEGU, KOREA, October 25, 2024 /24-7PressRelease/ -- On October 22, Daegu Metropolitan City and EXCO hosted the "FIX Innovation Awards Media Day," featuring IR presentations and Q&A sessions from eight winners of the FIX Innovation Awards. The event precedes the 2024 Future Innovation-tech eXpo (FIX 2024), showcasing groundbreaking technology and products.  FIX Innovation Awards, now in its inaugural year, saw participation from 210 companies. A top-tier evaluation panel, including government officials, global investors, and CES Innovation Awards judges, carefully selected nine companies for the Best Innovative Technology Award and 27 for the Innovation Award.  Eight award-winning companies from sectors like Future Mobility, ABB, and Robotics had the chance to pitch their flagship products to nine international media outlets. Following the presentations, there was a Q&A session.  Award-winning companies featured at Media Day included: - HEI (Future Mobility, Best Innovative Technology Award) - Korea Metal Silicon (Future Mobility, Best Innovative Technology Award) - Korea LFP (Future Mobility, Innovation Award) - Sapere Aude Inc. (ABB, Innovation Award) - WARP Solution (ABB, Innovation Award) - MindsAI (ABB, Innovation Award) - Phantomics (ABB, Best Innovative Technology Award) - Twinny (Robotics, Best Innovative Technology Award)  A scene from the FIX Innovation Awards Media Day | Photo by AVING News  Eleven media representatives from nine countries attended the event and covered the companies presented throughout FIX 2024. On October 24, each media outlet will select and award three companies, supporting their global reach with in-depth articles and reports.  Prominent international media participants included: - Ayano Tominaga and Hiromi Yuzuki from Gadgetouch (Japan) - Zhang Meng from SINA (China) - Chen Dongfang from CHINABYTE (China) - Hoàng Phuong Trang from Vietnam Plus (Vietnam) - Alexis Kouros from Helsinki Times (Finland) - Deepanshu Taumar from ET Auto (India) - Leo Thevenet from Le Café Du Geek (France) - Juan Diaz Castromil from Clipset (Spain) - Harry McNabb and Miriam McNabb from Dronelife (USA) - Selva Rajan from Malaysia Editor (Malaysia) - Davis DK Kim from Aving USA (USA)  Korean media such as CNET Korea, IT Donga, Byline Network, Market Economy News, and AVING News also attended, adding extensive national coverage to the event.  FIX 2024 features specialized exhibitions, conferences, and business programs focusing on mobility, robotics, AI, and startups. The Daegu International Future Auto & Mobility Expo 2024 at EXCO's East Wing will showcase trends in UAM, autonomous driving, batteries, components, and services. Meanwhile, the 2024 ICT Convergence Expo Korea, held in the West Wing, will exhibit AI, big data, blockchain, ICT, and metaverse technologies. The 2024 Daegu Robot Expo will display industrial robots, humanoid robots, and digital transformation solutions for the robotics industry. The "Start-up Arena" will also be newly launched, facilitating meetings between startups and experts from startup accelerators like Samsung C-Lab and Plug and Play. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515615/fix-innovation-awards-media-day-wraps-up-8-k-startups-drew-attention-of-global-media-through-ir-pitchings)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/inaugural-fix-innovation-awards-media-day-showcases-groundbreaking-technology/164093d2e88808518266a78d1185a0cc) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1gc3fte/inaugural_fix_innovation_awards_media_day/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/25/quipUXFb.webp)

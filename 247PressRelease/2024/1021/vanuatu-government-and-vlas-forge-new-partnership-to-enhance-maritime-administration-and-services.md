@@ -1,0 +1,20 @@
+# Vanuatu Government and VLAS Forge New Partnership to Enhance Maritime Administration and Services
+
+NEW YORK, NY, October 21, 2024 /24-7PressRelease/ -- Vanuatu Government and VLAS Announce New Partnership for Maritime Administration   The Government of the Republic of Vanuatu and Vanuatu Logistics and Administrative Services Limited (VLAS) are pleased to announce a new partnership that will enhance the management of the Vanuatu International Shipping Registry (VISR). This collaboration designates VLAS as the sole Maritime Administrator of the VISR, marking a significant advancement for ship owners around the globe.  Mr. Saade MAKHLOUF, General Manager of VLAS, expressed his enthusiasm for this partnership, stating, "This agreement marks a significant milestone for the VISR and positions us to elevate our services for ship owners worldwide. We are excited about the opportunities this brings."  Under this new arrangement, VLAS is set to implement a comprehensive development plan that utilizes state-of-the-art software solutions. This innovative upgrade will empower ship owners to submit applications online, significantly reducing both processing times and costs. Additionally, an advanced online document verification system, coupled with rigorous compliance measures and thorough background checks, will uphold the highest standards of maritime safety and security.  Moreover, the VISR, under VLAS's management, is committed to delivering unparalleled services and support to vessel owners 24/7. This includes an online reporting system and dedicated customer service representatives who will be available around the clock to address inquiries and provide assistance, ensuring a seamless experience for all ship owners.  Registering a vessel under the flag of Vanuatu provides numerous advantages, such as reduced registration fees, favorable tax benefits, and flexible regulations. Vessel owners can also count on compliance with international standards, enhancing the credibility and competitiveness of their operations in the global market.  The Vanuatu International Shipping Registry, headquartered in Broadway, New York, remains dedicated to offering exceptional services to ship owners worldwide. This partnership underscores VLAS's commitment to excellence in maritime administration while delivering substantial benefits to vessel owners.  About Vanuatu Logistics and Administrative Services Limited (VLAS)  Vanuatu Logistics and Administrative Services Limited (VLASn) is a leading provider of maritime administration services dedicated to enhancing the efficiency and effectiveness of the Vanuatu International Shipping Registry (VISR). With a commitment to excellence and innovation, VLAS leverages state-of-the-art technology and industry expertise to deliver comprehensive solutions for ship owners worldwide. Our mission is to provide exceptional services, ensuring compliance with international standards while promoting the growth and sustainability of the maritime sector. Headquartered in Broadway, New York, VLAS is dedicated to fostering strong partnerships and delivering unmatched support to our clients, reinforcing Vanuatu's reputation as a premier destination for vessel registration.  Website: https://register-vu.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515417/vanuatu-government-and-vlas-forge-new-partnership-to-enhance-maritime-administration-and-services)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vanuatu-government-and-vlas-announce-new-partnership-for-maritime-administration/d2dd16bf50dc5eb7e6d0db9011d71f12) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1g91dlw/vanuatu_government_and_vlas_announce_new/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/21/boss6dBm.webp)

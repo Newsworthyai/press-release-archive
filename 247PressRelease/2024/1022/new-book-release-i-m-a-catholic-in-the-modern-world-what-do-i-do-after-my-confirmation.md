@@ -1,0 +1,20 @@
+# New Book Release: I'm a Catholic in the Modern World, What Do I Do After My Confirmation?
+
+PARAMUS, NJ, October 22, 2024 /24-7PressRelease/ -- What happens after Confirmation? This is a common question for many Catholics as they navigate their faith post-Confirmation. In his latest book, I'm a Catholic in the Modern World, What Do I Do After My Confirmation? Practical Spiritual Tools to Bring You Closer to Jesus of Nazareth, The Christ Consciousness, and The Holy Trinity for a Fulfilling, Meaningful, and Joyous Life!, Rev. Oreste J. D'Aversa provides a comprehensive roadmap for spiritual growth, encouraging Catholics to reconnect with their faith and live with greater purpose.  A Guide for Post-Confirmation Catholic Life  Rev. D'Aversa's new release offers a structured approach to deepening one's spiritual life post-Confirmation, providing practical tools and insights for Catholics of all ages. Key highlights include:  •	Six-Part Structure: The book is divided into six distinct sections, each focusing on a specific aspect of Catholic life: •	Part I: Basic Spiritual Tools •	Part II: Jesus the Boy, the Man, the Messiah •	Part III: Advanced Teachings of Jesus •	Part IV: Foundations of the Catholic Faith •	Part V: Being Catholic is More than Going to Church •	Part VI: Suggestions for Growth in The Catholic Faith  Spiritual Practices: Readers are guided through accessible spiritual practices that help them reconnect with their faith and deepen their relationship with Jesus Christ and The Holy Trinity.  Living Out Catholic Values: The book emphasizes that being Catholic is more than just attending Mass. It explores how Catholics can live their faith daily, from participating in church ministries to engaging in spiritual direction.  The Church's Role in Modern Society  Rev. D'Aversa explores the Catholic Church's ongoing role in the world, urging Catholics to consider how they can contribute to its mission of being a beacon of hope and transformation. The book encourages reflection on:  The Future of Catholicism: How Catholics can help the Church remain relevant and impactful in modern society.  Personal and Community Impact: How living out one's faith can create positive change, both individually and within the broader community.  Free Chapter Available Online  To give readers a preview of these valuable insights, a free chapter is available for download at CatholicInTheModernWorld.com. This chapter offers a glimpse into Rev. D'Aversa's spiritual tools for building a fulfilling, Christ-centered life.  About the Author  Rev. Oreste J. D'Aversa is a seasoned author, speaker, and spiritual guide. His latest book blends traditional Catholic teachings with practical tools for spiritual growth, empowering Catholics to live their faith in meaningful and impactful ways.  Contact Information  For more information, to download a free chapter, or to purchase the book, visit CatholicInTheModernWorld.com. For media inquiries, interviews, or speaking engagements, contact: Rev. Oreste J. D'Aversa Email: RevOresteJDAversa@gmail.com Phone: 201-483-8660  Reverend Oreste J. DAversa (O-rest-ee DA-versa), is an Inter-Faith (All-Faiths) Minister (www.GodLovesYouAndMe.org) ordained by The New Seminary in New York City.  He appears on podcasts, radio, and television discussing his expertise in personal growth and business-related subjects. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515280/new-book-release-im-a-catholic-in-the-modern-world-what-do-i-do-after-my-confirmation)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-offers-practical-spiritual-tools-for-post-confirmation-catholic-life/1ed7a7096f04af119352a4131d22fade) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1g9cbut/new_book_offers_practical_spiritual_tools_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/22/ellaGT5p.webp)

@@ -1,0 +1,20 @@
+# Hong Joon-Pyo, Mayor of Daegu: "FIX 2024 will Establish Itself as a Global Platform for New Technology, Rivaling CES."
+
+DAEGU, KOREA, October 25, 2024 /24-7PressRelease/ -- The 2024 Future Innovation Tech Expo (FIX 2024) kicked off on October 23 at Daegu EXCO, bringing together 463 companies and over 2,071 booths in Korea's largest event of its kind to showcase cutting-edge technologies across fields such as future mobility, robotics, and ABB (AI, Big Data, Blockchain). The expo will run for four days, ending October 26.  Under the theme "Innovative Technology for a Better Future," FIX 2024 features the latest technologies from global companies, including Tesla, Hyundai Mobis, ABB Korea, SK, and KT. The event also includes an international conference featuring leading experts like Nvidia and RoMeLa, providing a comprehensive look at global innovation trends.  In the EXCO's East Wing mobility exhibition, attendees can explore electric, hydrogen, and autonomous vehicles, along with key components and infrastructure, from companies like Tesla, Hyundai, Kia, Samsung SDI, GM, and the autonomous vehicle firm Autonomous a2z. In collaboration with SKT, the Korea Airports Corporation, and Hanwha Systems, Daegu has also organized a dedicated UAM (Urban Air Mobility) pavilion, where visitors can experience a life-size UAM simulator provided by SKT.  The West Wing hosts exhibitions on robotics, ABB, and the new Startup Arena. The robotics section includes HD Hyundai Robotics, ABB Korea, Fraunhofer IML, and Bear Robotics participation. It also marks the Korean debut of RoMeLa's bipedal robot, ARTEMIS. The ABB section features leading tech companies such as SK, KT, AWS, LVIS, and ESTsoft, alongside an immersive experience with The Sandbox's Apple Vision Pro and XR gaming content from Skonec Entertainment.  At the opening ceremony, Mayor Hong noted, "Today, industry boundaries are fading, with rapid shifts toward technological convergence. FIX 2024 is a specialized exhibition where visitors can witness the forefront of advanced industries driven by innovation." He emphasized the scale of the event, with more than 400 exhibitors in this first year, highlighting the comprehensive conference and business programs involving over 80 experts from around the world, adding, "FIX 2024 will set a new standard for Korea's technology expos."  Mayor Hong expressed his aspirations for FIX: "I hope this event, beginning this year, will evolve into a world-renowned platform for applied technology, comparable to CES in the United States."  FIX 2024 features specialized exhibitions, conferences, and business programs focusing on mobility, robotics, AI, and startups. The Daegu International Future Auto & Mobility Expo 2024 at EXCO's East Wing will showcase trends in UAM, autonomous driving, batteries, components, and services. Meanwhile, the 2024 ICT Convergence Expo Korea, held in the West Wing, will exhibit AI, big data, blockchain, ICT, and metaverse technologies. The 2024 Daegu Robot Expo will display industrial robots, humanoid robots, and digital transformation solutions for the robotics industry. The "Start-up Arena" will also be newly launched, facilitating meetings between startups and experts from startup accelerators like Samsung C-Lab and Plug and Play. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515609/hong-joon-pyo-mayor-of-daegu-fix-2024-will-establish-itself-as-a-global-platform-for-new-technology-rivaling-ces)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fix-2024-korea-s-largest-tech-expo-showcases-cutting-edge-innovations/5c7188d3802a1d404d3d617ebd37e90c) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1gc12hw/fix_2024_koreas_largest_tech_expo_showcases/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/25/roammLSj.webp)

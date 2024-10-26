@@ -1,0 +1,20 @@
+# Dr. Jeff Rodgers, DMD, Credentialed to Provide Veterans with Effective Sleep Apnea Treatment
+
+HOLLYWOOD, FL, October 24, 2024 /24-7PressRelease/ -- apZme, a leader in dental sleep medicine, is proud to announce that Dr. Jeff Rodgers, DMD, in Dunwoody, GA, is officially credentialed to provide oral appliance therapy to veterans suffering from sleep apnea. This significant milestone enables veterans to receive high-quality, non-invasive sleep solutions in the greater Atlanta region.  Dr. Rodgers provides these services at his practice, Sleep Better Georgia in the greater Atlanta area, through Sleep Impressions and Millennium Sleep Lab, both apZme companies that serve as National Community Care Providers for the VA.  Sleep Impressions and Millennium Sleep Lab bring over 20 years of experience in dental sleep medicine, dedicated to improving patient health and well-being through innovative treatment options. Dr. Rodgers, whose practice, Sleep Better Georgia, specializes in dental sleep medicine, will now extend their reach as a trusted provider to veterans in the greater Atlanta area.  "I am honored to serve our nation's veterans by providing effective treatment options that enhance their quality of life," said Dr. Rodgers. "As a Community Care provider, I help veterans manage sleep apnea with a comfortable and effective alternative to CPAP therapy."  With Dr. Rodgers' addition to the Community Care Network, veterans can access oral appliance therapy as a covered benefit in Dunwoody and the greater Atlanta area, offering a vital alternative for those who cannot tolerate CPAP devices. The partnership among apZme, Sleep Impressions, Millennium Sleep Lab, and the VA addresses the growing demand for alternative sleep apnea treatments, helping veterans achieve better sleep health.  "apZme is proud to expand our reach to veterans through this partnership," said Rani Ben-David, CEO and Founder of apZme. "As a leader in sleep medicine, our mission is to provide cutting-edge, effective treatments for sleep apnea, and by working with exceptional providers like Dr. Rodgers, we are ensuring that veterans receive the highest quality care to improve their sleep health."  About apZme apZme partners with dental practices nationwide to integrate comprehensive sleep medicine programs, enhancing patient care and expanding treatment options for sleep-disordered breathing. With Sleep Impressions and Millennium Sleep Lab under its umbrella, apZme supports practices in delivering proven therapies like oral appliances, improving health outcomes and quality of life.  About Sleep Impressions, an apZme company Sleep Impressions, contracted with VACCN Optum, is a network of dentists trained in dental sleep medicine with proven processes and technology to effectively treat sleep apnea.   About Millennium Sleep Lab, an apZme company Millennium Sleep Lab, contracted with VACCN Tri-West, is a leading provider of home sleep testing and oral appliance therapy. Accredited by the Joint Commission, Millennium is 100% HIPAA compliant and accepts most private insurance, ensuring timely and reliable treatment pathways.  Learn more about how dental sleep medicine can transform patient care at www.apzme.com, www.sleepimpressions.com, www.millenniumsleeplab.com and www.sleepdunwoody.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515546/dr-jeff-rodgers-dmd-credentialed-to-provide-veterans-with-effective-sleep-apnea-treatment)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/apzme-announces-credentialing-of-dr-jeff-rodgers-to-provide-oral-appliance-therapy-for-veterans-in-atlanta/6b9a3ebde084bbd807817dfb6330de4b) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1gba6zb/apzme_announces_credentialing_of_dr_jeff_rodgers/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/24/bendEyfa.webp)

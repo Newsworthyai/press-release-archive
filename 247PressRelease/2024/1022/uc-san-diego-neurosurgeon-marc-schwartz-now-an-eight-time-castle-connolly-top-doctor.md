@@ -1,0 +1,20 @@
+# UC San Diego neurosurgeon Marc Schwartz now an eight-time Castle Connolly Top Doctor
+
+LA JOLLA, CA, October 22, 2024 /24-7PressRelease/ -- Marc S. Schwartz, MD, has been recognized as a 2024 Castle Connolly Top Doctor, the eighth year he has received the prestigious Top Doctor honor. Only about 7 percent of the nation's licensed physicians are selected annually as Castle Connolly Top Doctors in their regions for their specialties.  A neurological surgeon at UC San Diego Health, Dr. Schwartz treats people with complex cranial (head and brain) conditions.  Dr. Schwartz's practice includes the treatment of patients with tumors — cancerous, benign, primary, and metastatic — of the brain, skull base, and intradural spine. These tumors include acoustic neuromas (also called vestibular schwannomas), meningiomas, and tumors associated with neurofibromatosis type 2 (NF2). His practice is also focused on the treatment of patients with disorders of the cranial nerves.  Certified by the American Board of Neurological Surgery, Dr. Schwartz serves as co-director of the Acoustic Neuroma Program at UC San Diego Health.  He also partners with UC San Diego neurotologist Rick Friedman, MD, PhD, to place auditory brainstem implants (ABIs) in patients with deafness caused by NF2, a neurological disease that often causes tumors to develop on the auditory nerves, or other conditions in which hearing aids or cochlear implants are not of benefit. The tiny implanted devices allow people with auditory nerves damaged by disease or surgery to preserve some of their hearing.  On the UC San Diego School of Medicine faculty since 2017, Dr. Schwartz also serves as a professor of neurological surgery.  In the care of his patients, Dr. Schwartz considers not only the condition but also the person with the condition. Patients can expect personalized care, with discussion of all surgical and non-surgical options.  Dr. Schwartz has the largest experience of any neurosurgeon currently practicing in the United States in the treatment of patients with acoustic neuroma. He has performed over 3,000 operations for patients with this tumor. His experience of over 100 auditory brainstem implants is also the largest of any neurosurgeon practicing in the country.  Dr. Schwartz earned his medical degree at Harvard Medical School. He completed a five-year residency in neurological surgery at Brigham and Women's Hospital, as well as a fellowship in skull-base surgery at Oregon Health & Science University.  He is affiliated with UC San Diego Medical Center and Jacobs Medical Center at UC San Diego Health.  Top Doctors are nominated by peer physicians and selected by the physician-led Castle Connolly research team.  Dr. Schwartz is honored to be recognized by his peers for his expertise and his commitment to quality care.  About Castle Connolly Castle Connolly publishes its Top Doctors list at castleconnolly.com and in a variety of print and online partner publications. Nominations are open to all board-certified MDs, DOs, and DPMs. The Castle Connolly team chooses honorees based on nominee criteria that includes their medical education, training, hospital appointments, and disciplinary histories.  Doctors do not and cannot pay to be selected as a Castle Connolly Top Doctor. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515276/uc-san-diego-neurosurgeon-marc-schwartz-now-an-eight-time-castle-connolly-top-doctor)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/neurosurgeon-dr-marc-s-schwartz-named-2024-castle-connolly-top-doctor/fb1aad4aa6410016ba572c64d5224f7a) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1g9cboc/neurosurgeon_dr_marc_s_schwartz_named_2024_castle/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/22/odor0nGF.webp)

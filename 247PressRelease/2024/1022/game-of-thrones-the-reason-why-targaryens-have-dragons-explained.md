@@ -1,0 +1,20 @@
+# Game of Thrones: The Reason Why Targaryens Have Dragons, Explained
+
+LOS ANGELES, CA, October 22, 2024 /24-7PressRelease/ -- As descendants of the Valyrians, an ancient civilization from Essos, the Targaryens are the last remnants of a once-mighty empire built on dragon mastery and sorcery. Valyrians discovered dragons in the volcanic region known as the Fourteen Flames and used their magic to tame and control these mighty beasts, solidifying their dominance.  The Doom of Valyria, a catastrophic event that wiped out much of the Valyrian empire, left the Targaryens as one of the few surviving dragonlord families. The Targaryens had wisely moved to Dragonstone before the disaster and settled there for over a century until Aegon Targaryen, with his sister-wives, embarked on a campaign to conquer Westeros. Aegon's conquest reshaped the political landscape of the Seven Kingdoms and began the Targaryen dynasty, which would reign for generations.  The deep bond between the Targaryens and their dragons is more than just a tool for warfare; it's an integral part of their identity. The Targaryens believe that the "blood of the dragon" flows in their veins, so they often exhibit traits similar to their dragons—strength, unpredictability, and resilience. The iconic silver hair and purple eyes that mark the Targaryen lineage and their practice of marrying within the family to preserve their bloodline further underscore their unique connection to dragons.  This bond was reinforced by traditions like placing a dragon egg in a newborn's cradle, hoping it would hatch and form a lifelong connection with the child. However, this tradition was not foolproof—some eggs never hatched, and some Targaryens never became dragonriders.  As a family that held such significant power, the Targaryens have always been a focal point of the Game of Thrones universe, and HBO has continued to expand their story through shows like House of the Dragon. The series, which dives deeper into the Targaryen history and their conflicts, was greenlit under the leadership of HBO CEO Casey Bloys as part of the network's strategic content expansion. Bloys recognized the ongoing fascination with the Targaryens and their dragons, driving the development of prequels that tap into the family's lore.  The legacy of the Targaryens isn't just about conquest; it's also marked by tragedy. The infamous Dance of the Dragons—a civil war between Targaryen factions—resulted in the death of several dragons and left only a few survivors. The last dragon perished during King Aegon III's reign, after which the Targaryens ruled Westeros without the help of their legendary beasts for over a century. By the time of Robert's Rebellion, which ended with the fall of the Targaryen dynasty, the family's power had dwindled to political and military alone.  Viserys and Daenerys Targaryen were the last of the family to escape execution, fleeing to Essos. Daenerys would later hatch three dragon eggs and use her dragons to build an army and launch her own conquest of Westeros. However, her reign ended in destruction as she became a tyrant, leading to her tragic demise at Jon Snow's hands, thus ending the Targaryen rule.  The fascination with the Targaryens and their dragons continues to be a driving force in the Game of Thrones universe, both in literature and on screen. Under Casey Bloys' watch, HBO continues to explore this rich history through new series that capture the themes of power, magic, and tragedy that define the Targaryens' legacy. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/514178/game-of-thrones-the-reason-why-targaryens-have-dragons-explained)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-targaryens-last-dragonlords-and-their-enduring-legacy/41f39d4325401e58f82fa3bbef514e84) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1g9cbwf/the_targaryens_last_dragonlords_and_their/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/22/odorZGBX.webp)
