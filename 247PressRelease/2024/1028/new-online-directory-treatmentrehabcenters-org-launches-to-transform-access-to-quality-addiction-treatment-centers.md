@@ -1,0 +1,20 @@
+# New Online Directory TreatmentRehabCenters.org Launches to Transform Access to Quality Addiction Treatment Centers
+
+BOSTON, MA, October 28, 2024 /24-7PressRelease/ -- Today marks the launch of TreatmentRehabCenters.org, a comprehensive online directory designed to revolutionize how individuals and families connect with quality addiction treatment and behavioral health services.   The platform features detailed information on over 1,000 thoroughly vetted behavioral health facilities across the United States, addressing a critical need for reliable treatment information and guidance.  Founded by industry veterans Jeff Slemmer, Timothy Labrecque, and John Daza, TreatmentRehabCenters.org employs a rigorous evaluation process to assess and validate treatment centers, ensuring only top-performing facilities make it into their directory.   The platform provides state-by-state listings of top facilities, as well as offering specialized resources for dual-diagnosis treatment centers that address co-occurring disorders.  "Our mission is to eliminate the uncertainty and confusion often associated with finding quality addiction treatment," says Jeff Slemmer, co-founder. "By creating a carefully curated directory of verified facilities, we're helping individuals and families make informed decisions during critical moments in their recovery journey."  The platform offers several distinctive features:  Comprehensive facility profiles with detailed service information Interactive maps showing precise treatment center locations Specialized listings for dual diagnosis treatment facilities Complimentary consultation services for treatment placement Expert-written resources on addiction recovery  A team of experienced medical reviewers and healthcare writers ensures all information remains current and accurate, reflecting the latest developments in addiction treatment and recovery services.   The organization is pursuing 501(c)(3) non-profit status and actively seeks partnerships with established non-profits in the behavioral health sector.  "We understand that seeking treatment can be overwhelming," adds Timothy Labrecque. "Our platform provides access to information about quality facilities and personalized support through our consultation services, all at no cost to those in need."  TreatmentRehabCenters.org invites individuals, families, and healthcare professionals to explore their directory and utilize their complimentary consultation services. Those seeking support for themselves or loved ones can access immediate assistance through their website.  For more information about TreatmentRehabCenters.org or to schedule a consultation, please visit www.treatmentrehabcenters.org.  TreatmentRehabCenters specializes in connecting individuals with the right treatment programs for addiction and mental health recovery.  We provide personalized placement services, helping clients navigate a wide range of rehab facilities, detox centers, and outpatient programs.  Our goal is to match you with the best resources based on your unique needs and preferences, ensuring a smooth path to recovery. Let us guide you toward the right support today! 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515623/new-online-directory-treatmentrehabcentersorg-launches-to-transform-access-to-quality-addiction-treatment-centers)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-online-directory-launches-to-connect-individuals-with-quality-addiction-treatment/59079d9f33964457fb826ce9f7d6f461) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1gdw6j7/new_online_directory_launches_to_connect/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/28/vibeIsYX.webp)
