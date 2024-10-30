@@ -1,0 +1,20 @@
+# Dr. Isabelle Brianso enjoys in Valencia 'The Way of the Holy Grail' as a pillar of European cultural heritage
+
+VALENCIA, SPAIN, October 29, 2024 /24-7PressRelease/ -- Dr. Isabelle Brianso, Vice-Rector of the University of Culture of the University of Avignon, Associate Professor at the Norbert Centre and examiner for the Council of Europe, recently completed an enriching visit to Valencia to learn about 'The Way of the Holy Grail', a project promoted by the International Association Cultural Itinerary 'The Way of the Holy Grail' in Europe. This initiative, known as The Way of the Holy Grail, Route of Knowledge, Way of Peace, has awakened in Dr. Brianso a great admiration for its potential as a backbone of culture and history in Europe and the world.  During her visit, Dr. Brianso expressed herself to be deeply impressed by the quality and dedication of the work carried out in recent years by the team of the 'International Association Cultural Itinerary of the Holy Grail' in Europe and the International Scientific Commission for Holy Grail Studies too. She was able to witness in situ the outstanding achievements in research and promotion of this historical-cultural route, which connects multiple regions and key historical sites, such as the Cathedral of Valencia, which houses the famous Holy Chalice, with the Castello Nuovo (Maschio Angioino) in Naples.  The programme, coordinated by Dr. Ana Mafé García and accompanied by Nathalie Kohl, manager of the dossier, included visits to important points of cultural and historical interest, such as the Museo San Pío V and the Casa Museo de la Roca, accompanied by María Hernández, official guide and art historian, as well as meetings with representatives of prominent Valencian institutions and key figures from France and Italy too. Dr. Brianso's visit highlighted the shared European heritage embodied in 'The Way of the Holy Grail', both in painting and literature, opening up new possibilities for cultural collaboration and academic exchange across the continent.  Over two days, Dr Brianso also met with members of the local scientific community at the Polytechnic University of Valencia, as well as with María Ruíz, head of the Cultural Tourism Unit at Turismo Comunidad Valenciana.  She had the opportunity to attend the annual feast of the Holy Chalice held at Valencia Cathedral, experiencing first-hand Valencia's deep historical ties to the Holy Grail, following an agenda that included visits, receptions and conversations with municipal and regional authorities. She also saw first-hand the cultural traditions linked to the Holy Chalice, including the participation of the Fallas community in the promotion of this historic route.  Dr. Brianso's visit confirms the value of 'The Way of the Holy Grail' as an initiative of significant cultural heritage, enriching knowledge and connections within Europe and inspiring future collaborations to highlight the visibility and legacy of this monumental path of peace and shared history.  This is a legacy that is being passed on to new generations… through cultural and educational exchanges with young Europeans, contemporary cultural practices and the development of sustainable, regenerative and circular tourism.  Report by '24/7 Valencia' team 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515643/dr-isabelle-brianso-enjoys-in-valencia-the-way-of-the-holy-grail-as-a-pillar-of-european-cultural-heritage)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-isabelle-brianso-explores-the-way-of-the-holy-grail-in-valencia/5b83c87a205b41658a3b48cf1160ace2) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1geotfk/dr_isabelle_brianso_explores_the_way_of_the_holy/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/29/glowHjOG.webp)

@@ -1,0 +1,20 @@
+# Pol Theis - P&T Interiors is featured in Nicole England's latest coffee table book Resident Dog Volume Two
+
+NEW YORK, NY, October 28, 2024 /24-7PressRelease/ -- Pol Theis - P&T Interiors, the notable eclectic high-end boutique interior design firm lead by Pol Theis, is featured in Nicole England's latest book Resident Dog Volume Two, a great new coffee table book that showcases amazing architecture and the lucky pups that get to be the "Resident Dog".  As an architecture photographer, Nicole England found that the shoots she enjoyed the most were the ones where dogs were present - nothing lightens the mood like a nonchalant pup. However imposing the architecture, some doggy hijinks can immediately bring an element of sociability and fun. With this in mind, Nicole set about setting up her Instagram, Resident Dog, and now this book, Resident Dog Around the World, which showcases over 25 of the world's most amazing houses, and the dogs that live there.   The photographs showcase incredible, amazing architecture and capture the personality of the idiosyncratic personality of each canine. Take a wander around the world's most stunning homes, from Mexico to Sydney, London, New York and LA, with the home pooch as your tour guide.   P&T Interiors features a beautiful award winning house located in Sag Harbor - the Hamptons NY including Pol Theis' (P&T interiors founder and head designer) two English bulldogs, Louis and Margot. Nested in a forest in front of a fairy tale pond the property seamlessly integrates its surroundings while marrying a number of eclectic materials. Floor to ceiling windows enshrine the public box which in all concrete and is attached to the private box which is all teak through a windowed hallway. The two boxes enlace a black lap pool. The design and materials ensure that the house loses itself in its natural surroundings.   P&T Interiors is a boutique interior design firm providing highly personalized residential design services to an international client base. With the mission to translate a client's taste and lifestyle into their space while developing and maintaining a conceptual thread, P&T Interiors' small staff of dedicated designers and architects focuses all their attention on each and every project to ensure that the highest of expectations are exceeded. Newest ventures for the firm include residences in the Hamptons and Connecticut, as well as a townhouse in Manhattan.  Pol Theis notes: "I am extremely honored to be being featured in such a beautiful coffee table. Nicole has a unique eye and the talent to feature designs in an extremely personalized manner. I look forward to additional future collaborations between P&T Interiors and Nicole."  P&T Interiors is a boutique interior design firm providing highly personalized residential design services to an international client base. With the mission to translate a client's taste and lifestyle into their space while developing and maintaining a conceptual thread, P&T Interiors' small staff of dedicated designers and architects focuses all their attention on each and every project to ensure that the highest of expectations are exceeded.  Website: https://www.pandtinteriors.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515663/pol-theis-pt-interiors-is-featured-in-nicole-englands-latest-coffee-table-book-resident-dog-volume-two)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/p-t-interiors-featured-in-resident-dog-volume-two-by-nicole-england/a5da716a4dcf42c9d3e95c7cace69c27) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1gedmmt/pt_interiors_featured_in_resident_dog_volume_two/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/28/limex9Gu.webp)
