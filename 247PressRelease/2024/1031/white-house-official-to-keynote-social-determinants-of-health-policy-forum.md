@@ -1,0 +1,20 @@
+# White House official to keynote Social Determinants of Health Policy Forum
+
+WASHINGTON, DC, October 31, 2024 /24-7PressRelease/ -- For the third year in a row, RISE and Aligning for Health, a member association that advocates to Congress for solutions to address social determinants of health (SDoH), will convene leading policymakers with cross-sector practitioners to identify opportunities and advance policies that support stronger communities, better health, and solutions to address health and social needs.  Jessica Schubel, special assistant to the President for Health Care at the Domestic Policy Council, Executive Office of the President, White House Domestic Policy Counsel, will deliver the opening keynote address on Tuesday, December 3, at 9:10 a.m. While discussing the future SDoH policy in federal programs, she will cover the latest initiatives, challenges, and opportunities for creating more equitable health outcomes for all; the current federal efforts to integrate SDoH into health care policy; recent policy developments and future directions in federal health programs; and collaborative efforts between federal agencies, state and local governments, and community organizations.  The three-day event will also feature presentations from the Centers for Medicare & Medicaid Services, the Centers for Disease Control and Prevention, members of Congress, practitioners, health plans, community-based organizations, and other policymakers. Speakers will present fresh perspectives and tactical insights to continue to implement policies needed to improve the health and wellbeing of communities.  This year's conference will feature a new preconference workshop on Monday, December 2, on policy principles and the current landscape, including the terminology; the interaction between federal, state and local levels; funding streams, and legislative efforts in the SDoH and health equity space.  RISE, in partnership with Aligning for Health, will present the Social Determinants of Health Policy Forum on December 2-4, at the Omni Shoreham in Washington, D.C. There will be a volunteer food packing event in partnership with U.S. Hunger and an opening reception on Monday, Dec. 2, followed by the main conference. Click here to download a brochure, see the agenda, and view a complete list of speakers. For press inquiries, click here.  About RISE RISE is an organization created on the foundation of connecting health care professionals with guidance, continuing education opportunities, and each other. Our customers are established and emerging leaders that work for health plans, provider organizations, government agencies, health care technology brands, consulting and service vendors, and community-based organizations.  Our mission is to make meaningful impact on the health care industry by bringing together like-minded professionals for learning, networking, and innovating.  About Aligning for Health Aligning for Health is a membership association which, with the support of our members and Advisory Board, advocates for solutions that address the common challenge of our members–the need for more integrated and coordinated programs to better improve health outcomes for Americans. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515741/white-house-official-to-keynote-social-determinants-of-health-policy-forum)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rise-and-aligning-for-health-to-host-social-determinants-of-health-policy-forum/ebc747d0914c90ca67b54689ac66daef) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1gg8r3z/rise_and_aligning_for_health_to_host_social/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2410/31/markpY2M.webp)

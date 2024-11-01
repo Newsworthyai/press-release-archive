@@ -1,0 +1,20 @@
+# Morfeu AI to Launch GenAI Video Engine 'Laila' AI-Powered Storytelling App at Web Summit 2024
+
+NEW YORK, NY, November 01, 2024 /24-7PressRelease/ -- Morfeu AI Inc., a leading innovator in AI-driven content creation, is set to unveil its AI-powered storytelling app, Laila, at Web Summit 2024 in Lisbon.  Laila leverages Morfeu AI's cutting-edge GenAI video engine, designed to address the growing need for faster, more cost-effective video creation. As the demand for video content explodes across marketing, education, and entertainment, Laila provides an intuitive, scalable solution for creators of all levels. The app's ease of use allows anyone, from children to professional content creators, to bring their stories to life with personalized, animated videos.  Sali Ferad, Founder and CEO of Morfeu AI Inc. said, "The future of video content is AI-driven, and Morfeu is at the forefront of this transformation. We're thrilled to showcase Laila at the Web Summit, demonstrating how our AI can streamline video production for creators, businesses, and educational platforms worldwide."   Key Features of Laila: Easy Video Generation: Turn any text prompt into a fully animated storytelling video in seconds. Customizable Content: Personalize characters, backgrounds, and narrative elements for a unique storytelling experience. Streamlined Workflow: Fast, efficient video production for creators, educators, and businesses alike, reducing production costs significantly. AI-Powered Audio and Voiceover: Create synchronized voiceovers, offering fully immersive storytelling experiences.  Morfeu AI Secures Nearly $650,000 in Pre-Seed Funding Morfeu AI has successfully raised $650,000 in its pre-seed funding round, marking a significant milestone in the company's journey. This round includes investments and credits from industry leaders such as Nvidia, Microsoft Founders Hub, OpenAI and private investors further validating Morfeu AI's vision and innovative approach in the generative AI space. These resources will drive further product development, marketing, and team expansion. Morfeu is also planning to raise an additional $1.250,000 to support rapid scaling as it aims to disrupt the global video production market, which is increasingly adopting AI-driven solutions.  The Creator Economy is Booming  The global creator economy is expected to reach $250 billion by the end of 2024, growing to $480 billion by 2028. Morfeu AI's video engine positions itself at the forefront of this market opportunity, addressing the critical need for faster, scalable, and more affordable video production. The global AI video generator market, valued at $472.9 million in 2022, is projected to grow at a CAGR of 19.7% by 2030​.  Guests wishing to learn more about Morfeu AI and see a demo of Laila, can visit Morfeu at the Lisbon Web Summit Tuesday, November 12 Stand number: A232.  About Morfeu AI Inc. Founded by Sali Ferad, Morfeu AI is a visionary in the generative AI space, dedicated to transforming video creation through AI-powered solutions that offer speed, cost-efficiency, and personalization. Morfeu's diverse founding team includes Sifem Macar, and Zafer Bilda, all experts in tech and creative industries. Morfeu is set to become a key player in the $480 billion creator economy expected by 2028, as businesses and individuals alike seek innovative ways to scale their video content production. www.morfeu.ai 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515769/morfeu-ai-to-launch-genai-video-engine-laila-ai-powered-storytelling-app-at-web-summit-2024)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/morfeu-ai-unveils-ai-powered-storytelling-app-laila-at-web-summit-2024/5f017b03ae2a01b0852816c5b7359051) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ggztrw/morfeu_ai_unveils_aipowered_storytelling_app/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2411/1/irisQJkN.webp)

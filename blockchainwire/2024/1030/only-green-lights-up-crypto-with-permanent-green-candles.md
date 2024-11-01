@@ -1,0 +1,20 @@
+# Only Green Lights Up Crypto with Permanent Green Candles
+
+Only Green Unveils Game-Changing Meme Crypto Project Promising Uninterrupted Green Candles for AllForget the volatility. Forget the chase. With Only Green, every day is a bull run.In a space known for unpredictability, Only Green is turning the crypto game on its head with a fresh, humor-driven approach that promises an unbroken stream of green candles. Only Green’s unique combination of humor, sarcasm, and long-term vision brings stability and excitement to a community primed for “wife-changing” gains without the usual market rollercoaster. Only Green (OG) invites crypto enthusiasts to join the ultimate meme-backed movement and experience consistent gains like never before.  “We’ve all been there, chasing green candles across the market, getting ‘rekt’ in the process,” says the team at Only Green. “But we thought, why not create a project where the only candle worth chasing is already green? That’s the ethos behind Only Green—long-term growth, an edgy and entertaining community, and real rewards.”  Roadmap: A Step-by-Step Journey to 1 Billion Market CapOnly Green has outlined a robust roadmap to make its green-candle mission a reality, packed with milestones that will continue to drive momentum and attract a growing fan base.2024November – Get Together- Launch the iconic “Green Dildo” product.- Massive burn event to boost token scarcity.- Push for a $5 million market cap, with activations on DEXTools and DEXScreener.- Launch collaborations to expand OG’s reach.December – Get Stronger- Market cap goal of $20 million.- "Send 1% to Hell" by burning $200,000 worth of tokens.- Step up partnerships with influencers and boost advertising on top crypto platforms.2025January – Next Level- Reach $50 million market cap, broiling 2% of the supply, worth $1 million.- Pursue listings on CoinMarketCap and CoinGecko.- Continue engagement with Key Opinion Leaders (KOLs) and community-driven events, including AMAs, Spaces, and giveaways.February – Go Further- Set sights on a $500 million market cap, frying 1% worth $5 million.- Prepare for listing on a Tier 1 centralized exchange (CEX).- Implement increased transparency measures such as audits and reports to build community trust.March – Touch Mars- Drive towards a $1 billion market cap, pulverizing 2% of tokens worth $20 million.- List on a top-tier CEX and launch exclusive merchandise for OG supporters.- Achieve the “wife-changing gains” that have become synonymous with Only Green’s journey.A Transcendent Meme Character, Here to StayOnly Green is more than just a meme project; it’s a friend to every meme, with a personality that resonates throughout the crypto landscape. As a project with doxxed developers, experienced marketers, and a long-term vision, OG is dedicated to building a stable, Ethereum-based platform that isn’t dependent on temporary market narratives. This is a project built to endure, aiming to cement itself as a permanent fixture in the crypto world.  Join the Movement – The Only Candle You Need is Always GreenWith an experienced, ambitious team leading the charge, OG has set ambitious goals to create life-changing gains for its holders. Join Only Green today and discover the meme everyone loves—a green candle that never goes out.  Website: www.onlygreen.ioTelegram: t.me/OnlyGreenonETHX: x.com/OnlyGreenonETH 
+
+---
+
+[Original/Source Press Release](https://blockchainwire.io/press-release/only-green-lights-up-crypto-with-permanent-green-candles)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/only-green-unveils-game-changing-meme-crypto-project/481fbef13d11cebd23fdc6776d36985c) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1ggc131/only_green_unveils_gamechanging_meme_crypto/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2410/31/moonL0RS.webp)
