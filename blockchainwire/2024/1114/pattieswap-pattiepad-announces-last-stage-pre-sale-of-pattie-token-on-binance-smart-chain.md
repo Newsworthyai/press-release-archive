@@ -1,0 +1,22 @@
+# Pattieswap/PattiePad Announces Last Stage Pre-sale of $PATTIE Token on Binance Smart Chain
+
+PattieSwap Dex and PattiePad Launchpad aiming to be pioneer in Binance-based cryptocurrency launches, is excited to announce the upcoming presale of $PATTIE, its very own utility token.![](https://blockchainwire.s3.amazonaws.com/ff8d21fb-883f-668c-ad2e-2252b09fac2a/editor_image/8bd30b70-a8ac-4889-8d39-10c9f950573b.jpeg)
+
+As Binance continues to dominate the DeFi space with its fast transaction speeds and low fees, PattieSwap DEX brings everything users to love about Binance to the Pattie network."We're thrilled to be soon launching our utility token on Binance Smart Chain," said a spokesperson for PattieSwap DEX. "We're creating an all-in-one ecosystem for PattiePad token launches, and we believe our platform will enable users to unlock the potential of low-cap tokens. Our launchpad is perfect for degens looking to explore new opportunities in the DeFi space."PattieSwap DEX's all-in-one ecosystem for Pattie token launches will enable users to mint Pattie tokens, create a launchpad, lock liquidity, list on DEXes, send airdrops, undergo KYC and audits. PattiePad's launchpad will be perfect for degens looking to explore the possibilities of low-cap tokens with high potential for returns.With PattiePad, creating  tokens takes only a few minutes, allowing users to get started quickly. The launchpad enables users to raise initial liquidity and start trading.The platform's price tool, Bscscan, tracks tokens and offers traders real-time price action, recent trades, trading volume, charts, technical analysis, and swap tokens.PattieSwap's $PATTIE token is the utility token of the ecosystem. As the presale commences, users can purchase $PATTIE tokens at an exclusive discount rate.Developers at PattieSwap have put in measures to protect traders from rug pulls by locking liquidity on the PattiePad launchpad.Tokens that are sold during the presale will be automatically listed on Binance Smart Chain. Users can also easily send token airdrops to thousands of addresses within minutes using the airdrop dAPP (Coming Soon)To participate in the presale, users will need to connect their Metamask wallet to the platform and purchase tokens at https://pattiepresale.comToken Address:0x55fc934960da407328cf8ad664d3a42a3cf260d6Vesting:10% TGE, 1 months cliff, 4 months linearThe upcoming launch of PattieSwap's $PATTIE presale demonstrates the company's commitment to providing an innovative, all-in-one ecosystem for Binance-based cryptocurrency launches aimed at providing users with a seamless experience and unlocking the potential of low-cap tokens.As the presale commences, users can stay updated with the latest developments by following the project on Twitter(@Pattieswap) and Telegram: [https://t.me/pattieswapChat](https://t.me/pattieswapChat) accounts.About the Company:PattiePad/PattieSwap is a Binance-based cryptocurrency platform that provides an all-in-one ecosystem for PattieSwap token launches. With PattieSwap DEX, users can mint PATTIE-PL tokens, create launchpads, lock liquidity, list on DEXes, send airdrops, and undergo KYC and audits. PattieSwap's $PATTIE token is the utility token of the ecosystem and can be used to pay service fees. For more information, please visit [https://pattiepresale.com](https://pattiepresale.com)Disclaimer: The information provided in this press release is not a solicitation for investment, nor is it intended as investment advice, financial advice, or trading advice. It is strongly recommended you practice due diligence, including consultation with a professional financial advisor, before investing in or trading cryptocurrency and securities. 
+
+---
+
+[Original/Source Press Release](https://blockchainwire.io/press-release/pattieswappattiepad-announces-last-stage-pre-sale-of-pattie-token-on-binance-smart-chain)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pattieswap-launches-pattie-presale-for-binance-based-token-launchpad/62daaee96b5dcc03ee45906884e34a31) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1gre10y/pattieswap_launches_pattie_presale_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/blockchainwire/qrcode/2411/14/yoga8nGN.webp)

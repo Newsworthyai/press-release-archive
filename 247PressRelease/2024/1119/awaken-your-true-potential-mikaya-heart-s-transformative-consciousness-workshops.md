@@ -1,0 +1,20 @@
+# Awaken Your True Potential: Mikaya Heart's Transformative Consciousness Workshops
+
+PAHOA, HI, November 19, 2024 /24-7PressRelease/ -- Life on Planet Earth offers more than meets the eye. It's an extraordinary opportunity for growth, joy, and awakening. Mikaya Heart, award-winning author, teacher, and spiritual guide, invites you to embrace your power as a luminous being through her transformative workshop series. These sessions are designed to dissolve the illusion of physical limitations and unlock a life filled with purpose and inner peace.  "We are far more than just these bodies," says Mikaya Heart. "At our core, we are untouchable and infinite beings who have chosen to incarnate in human form. Once we understand this, we can let go of fear and start living from a place of trust. Our entire experience transforms—we worry less, love more deeply, and find joy in the present moment."  The workshop series spans four immersive classes, each lasting three hours. Through guided visualizations and experiential exercises, participants will engage beyond the rational mind, tapping into the depths of their being.   Mikaya explains: "These classes are not about understanding concepts with your head. They are about experiencing profound transformation, expanding your consciousness, and making meaningful changes in your life."  Class Schedule and Themes  Class 1: Unveiling Our Purpose and Creative Potential  "Who or what put us on this planet, and why?" In this opening session, participants will connect with their personal inner wisdom and guides, accessing the universe's boundless resources. "We are energetic beings interacting with a sea of energy," Mikaya says. "Once we understand that, the possibilities for what we can create become limitless."  Class 2: Embodying Wisdom "Wisdom is a physical sensation that is always available to us," Mikaya shares. "Our bodies and emotions constantly guide us, if only we learn to listen." This class helps participants relate to their existence in physical form with love and acceptance, free from fear.  Class 3: Cultivating Love Without Judgment  Mikaya emphasizes the immense power of love: "By choosing love, no matter the circumstances, we can shape a more beautiful future. It's about being willing to embrace every aspect of life, letting go of blame, and surrendering the need to fight."  Class 4: Accessing Higher Dimensions of Consciousness  Participants will explore the first 27 dimensions of consciousness, learning how to bring the resulting peace and ease into our daily lives. "These dimensions are like doorways to new ways of being," Mikaya reveals. "When used deliberately, they enable us to dissolve old patterns and experience joy on a daily basis."  Workshops are offered online. They are spaced a month apart to allow for integration, and participants are encouraged to repeat the series for deeper transformation. Everyone who pays for the series also gets one free personal session with Mikaya.  The cost is $80 per class or $250 for the entire series when paid in advance.   To register or inquire, reach out to Mikaya Heart by email, or visit her official website. Prepare to awaken your deepest potential, bringing more light to this planet and creating a brighter future for all beings.  For more information on Mikaya Heart, please contact:  Email mikayaheart@protonmail.com Website www.MikayaHeart.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516371/awaken-your-true-potential-mikaya-hearts-transformative-consciousness-workshops)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/embrace-your-power-transformative-workshop-series-with-mikaya-heart/978a37e50c634b300293a2d98c4f7b03) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1gv693p/embrace_your_power_transformative_workshop_series/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2411/19/waitlUIb.webp)

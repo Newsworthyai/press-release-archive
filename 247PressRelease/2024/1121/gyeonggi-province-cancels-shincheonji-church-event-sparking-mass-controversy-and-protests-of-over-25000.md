@@ -1,0 +1,20 @@
+# Gyeonggi Province Cancels Shincheonji Church Event, Sparking Mass Controversy and Protests of over 25,000
+
+MELBOURNE, AUSTRALIA, November 21, 2024 /24-7PressRelease/ -- The "Religious Leaders Forum and Completion Ceremony," scheduled to take place at Paju Imjingak Peace Nuri, was called off by provincial authorities on the morning of the event. Gyeonggi Province cited security concerns as the reason for the last-minute cancellation, but Shincheonji Church officials have disputed the decision, calling it unconstitutional and discriminatory. The church will continue protests until an official apology has been sent and all accountabilities are addressed.  The cancellation notice came on October 29, just one day before the event was set to take place. Gyeonggi Province and the Gyeonggi Tourism Organization expressed regret over the short notice but maintained that the decision was made due to safety concerns. The authorities explained that the cancellation was necessary to prevent potential security risks, though they did not provide further details on the nature of those concerns.  Shincheonji Church has contested this explanation, arguing that the cancellation was politically motivated and influenced by external pressure from other religious groups, particularly the Metropolitan Christian Council of Korea (MCCK), which has historically been critical of Shincheonji. The church has stated that it was assured by venue management up until the day before the event that there were no plans to cancel.  In response to the cancellation, Shincheonji Church organized a peaceful protest rally on November 15 outside the Gyeonggi Provincial Office. The rally included a formal letter of protest and a meeting between church representatives and officials from Gyeonggi Province and the Gyeonggi Tourism Organization.   During the meeting, Chief Public Relations Officer Song Jae-Woong expressed dissatisfaction with the lack of a public response from government bodies regarding the cancellation. While Gyeonggi Province officials explained that the decision was made to ensure public safety, Song emphasized that the short notice was problematic and called for an official statement of responsibility from the governor. The church also indicated that they are seeking compensation for financial damages incurred due to the event's cancellation.  The controversy has raised concerns about religious freedom and potential discrimination. Shincheonji Church officials have argued that the cancellation violates the constitutional right to freedom of religion, as guaranteed under Article 20 of South Korea's Constitution.  Protesters during the rally echoed these concerns, arguing that the government's actions infringed upon their rights as citizens and violated the constitutional separation of religion and politics. "The decision to cancel the event, especially under the influence of external religious groups, raises serious questions about the protection of religious freedoms in South Korea," one protestor remarked.  Shincheonji Church has announced plans for continued protests outside the Gyeonggi Provincial Office and Gyeonggi Tourism Organization until their demands are addressed. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516399/gyeonggi-province-cancels-shincheonji-church-event-sparking-mass-controversy-and-protests-of-over-25000)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-church-controversy-religious-event-cancelled-over-security-concerns/6a91bfd4c78f85f02352c14927763733) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1gwbhal/shincheonji_church_controversy_religious_event/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2411/21/lendVXWv.webp)

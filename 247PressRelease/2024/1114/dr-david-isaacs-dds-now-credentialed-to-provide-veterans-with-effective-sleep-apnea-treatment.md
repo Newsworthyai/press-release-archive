@@ -1,0 +1,20 @@
+# Dr. David Isaacs, DDS, Now Credentialed to Provide Veterans with Effective Sleep Apnea Treatment
+
+HOLLYWOOD, FL, November 14, 2024 /24-7PressRelease/ -- apZme, a leader in dental sleep medicine, is proud to announce that Dr. David Isaacs, DDS, in Indianapolis, Indiana, has officially been credentialed to provide oral appliance therapy to Veterans suffering from sleep apnea. This significant milestone enables Veterans to receive high-quality, non-invasive sleep solutions in the greater Indianapolis region.  Dr. Isaacs will be providing these services at his practice, Sleep Better Indy, located in Indianapolis, through Sleep Impressions and Millennium Sleep Lab, both apZme companies that serve as National Community Care Providers for the VA.  Sleep Impressions and Millennium Sleep Lab bring over 20 years of experience in dental sleep medicine, dedicated to improving patient health and well-being through innovative treatment options. Dr. Isaacs, who has expanded his dental services to include the treatment of sleep apnea, will now extend his reach as a trusted provider to Veterans in the greater Indianapolis region.  "I welcome the opportunity to help those who have chosen to serve our country." said Dr. David Isaacs, DDS. "Oral appliances are a medically recognized treatment option for those who have Obstructive Sleep Apnea."  With Dr. Isaacs's addition to the Community Care Network, Veterans can now access oral appliance therapy as a covered benefit in the greater Indianapolis area, offering a vital alternative for those who cannot tolerate CPAP devices. The partnership among apZme, Sleep Impressions, Millennium Sleep Lab, and the VA addresses the growing demand for alternative sleep apnea treatments, helping Veterans achieve better sleep health.  "At apZme, our commitment to Veterans' health is reflected in our partnerships with skilled providers like Dr. Isaacs, who brings both his clinical expertise and his desire to give back to those who served this country," said Rani Ben-David, CEO and Founder of apZme. "With Dr. Isaacs as part of our VA provider network, we are expanding access to advanced sleep solutions that truly support Veterans' well-being and health."  About apZme apZme partners with dental practices nationwide to integrate comprehensive sleep medicine programs, enhancing patient care and expanding treatment options for sleep-disordered breathing. With Sleep Impressions and Millennium Sleep Lab under its umbrella, apZme supports practices in delivering proven therapies like oral appliances, improving health outcomes and quality of life.  About Sleep Impressions, an apZme company Sleep Impressions, contracted with VACCN Optum, is a network of dentists trained in dental sleep medicine with proven processes and technology to effectively treat sleep apnea.   About Millennium Sleep Lab, an apZme company Millennium Sleep Lab, contracted with VACCN Tri-West, is a leading provider of home sleep testing and oral appliance therapy. Accredited by the Joint Commission, Millennium is 100% HIPAA compliant and accepts most private insurance, ensuring timely and reliable treatment pathways.  Learn more about how dental sleep medicine can transform patient care at www.apzme.com, www.sleepimpressions.com, www.millenniumsleeplab.com and www.sleepbetterindy.com   Media Contact:  Eileen Day Chief Marketing Officer apZme Phone: 773-701-0844 Email: eileend@apzme.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516172/dr-david-isaacs-dds-now-credentialed-to-provide-veterans-with-effective-sleep-apnea-treatment)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/apzme-announces-credentialing-of-dr-david-isaacs-dds-to-provide-oral-appliance-therapy-for-veterans/7c7cb4390204ae7ebfde88142cf27c32) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1gr07fq/apzme_announces_credentialing_of_dr_david_isaacs/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2411/14/ellaig_j.webp)

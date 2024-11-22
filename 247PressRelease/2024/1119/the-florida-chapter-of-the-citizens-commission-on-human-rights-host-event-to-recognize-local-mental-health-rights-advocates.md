@@ -1,0 +1,20 @@
+# The Florida Chapter of the Citizens Commission on Human Rights Host Event to Recognize Local Mental Health Rights Advocates
+
+CLEARWATER, FL, November 19, 2024 /24-7PressRelease/ -- Attended by hundreds of guests, the annual Humanitarian Awards Banquet once again honored the many dedicated volunteers and supporters of the Citizens Commission on Human Rights (CCHR) for their work help restore rights and dignity to the field of mental health.   Since 1989, the Florida chapter of CCHR has worked to reform the mental health laws, especially those involving coercive psychiatric practices such as involuntary examination and commitment.   Commonly referred to as the Baker Act, the Florida mental health law allows for citizens of all ages to be taken into custody against their will for a psychiatric examination.  Originally intended to protect patient rights, the Baker Act had become a source of human rights abuse with involuntary psychiatric examinations peaking at over 210,000 in 2018-2019 according to information on the Department of Children and Families Baker Act Dashboard.   Launching a campaign to put an end to this violation of rights in 2016, CCHR has educated hundreds of thousands on their rights under the law in addition to calling upon Florida lawmakers to eliminate fraudulent use of coercive psychiatry in the form of involuntary examination.   "We must restore and secure basic freedoms and rights, especially and most importantly, for our next generation… our leaders of tomorrow… mankind's future," said Diane Stein, President CCHR Florida.   Over the past 9 years, CCHR has helped to pass 50 bills that helped to improve the protection of rights and the overall condition of the mental health industry in Florida. These changes to the law not only help hold psychiatric facilities and mental health professionals accountable for abuse but also to reduce the number of Baker Acts (involuntary psychiatric examinations).  "Over the past several years we have seen a significant decrease in the use of the Baker Act and it is our hope that this traumatic failure of a solution to a man, woman or child in crisis becomes a thing of the past," stated Ms. Stein.  The 2024 CCHR Volunteer of the Year Award, was presented to Ms. Kathy Sweigart who traveled to events and conferences across the state during 2024 educating the general public, law enforcement, educators and other professionals on mental health human rights.   Also recognized were numerous volunteers as well as attorneys and the heads of other organizations who fight alongside CCHR in the battle to create positive change in the field of mental health.  For more information on CCHR's campaign to eliminate coercive psychiatric practices or to report abuse, please visit www.cchrflorida.org or call 727-442-8820.  About CCHR: Initially established by the Church of Scientology and renowned psychiatrist Dr. Thomas Szasz in 1969, CCHR's mission is to eradicate abuses committed under the guise of mental health and enact patient and consumer protections. L. Ron Hubbard, founder of Scientology, first brought psychiatric imprisonment to wide public notice: "Thousands and thousands are seized without process of law, every week, over the 'free world' tortured, castrated, killed. All in the name of 'mental health,'" he wrote in March 1969. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516385/the-florida-chapter-of-the-citizens-commission-on-human-rights-host-event-to-recognize-local-mental-health-rights-advocates)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/annual-humanitarian-awards-banquet-honors-volunteers-restoring-mental-health-rights/f40b80de262137707b568d5db5d29e40) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1gv9tgc/annual_humanitarian_awards_banquet_honors/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2411/19/rendlG83.webp)

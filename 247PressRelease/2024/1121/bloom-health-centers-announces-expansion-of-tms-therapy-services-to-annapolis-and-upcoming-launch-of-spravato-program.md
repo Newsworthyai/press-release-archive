@@ -1,0 +1,20 @@
+# Bloom Health Centers Announces Expansion of TMS Therapy Services to Annapolis and Upcoming Launch of Spravato Program
+
+ANNAPOLIS, MD, November 21, 2024 /24-7PressRelease/ -- Bloom Health Centers, a leader in innovative mental health treatments, is thrilled to announce the expansion of its Transcranial Magnetic Stimulation (TMS) therapy services to Annapolis. This significant expansion marks the fifth location offering TMS, reinforcing Bloom's commitment to providing accessible, cutting-edge mental health care.   In the upcoming months, Bloom Health Centers will also introduce the Spravato program, offering a new treatment option for individuals battling treatment-resistant depression. Spravato, known generically as esketamine, is a nasal spray approved for patients with treatment-resistant depression and is used under medical supervision. It represents another significant advancement in the options available to patients who have not found relief with conventional treatments.  Transcranial Magnetic Stimulation (TMS) is a non-invasive therapy that utilizes magnetic fields to stimulate nerve cells in the brain, particularly targeting regions responsible for mood regulation and depression. This FDA-approved treatment is safe and is commonly used when other depression therapies have proven ineffective. TMS stands out as a significant advancement in non-pharmacological approaches to depression, offering relief for those who have not responded to traditional methods.  NeuroStar TMS therapy directly targets the source of depression in the brain. It uses focused magnetic pulses—comparable in strength to those used in MRI scans—to revitalize underactive synapses in mood-regulating areas, thereby enhancing brain function to its optimal state. This treatment is delivered through a patented coil that ensures precise application and consistent dosage, making it a reliable option for sustained depression management.  Patients who have undergone TMS therapy at Bloom Health Centers have consistently reported positive experiences and substantial improvements in their mental health:  "This office was extremely helpful and accommodating of any time changes or cancellations. I couldn't have asked for a better experience. TMS has definitely helped improve my symptoms," stated Katrina Macglotn.  "It was hard to discern environmental factors from behavioral changes, but overall, TMS has contributed to more core behavioral shifts in a healthy way." shared Jessica Hicks.  "At first, I was unsure about TMS, but after the first few treatments, I noticed no discomfort and eventually felt a true difference in my mental health, different from any feeling I've had from taking antidepressants." expressed Sandra Pete A. Calderon.  For more information about TMS therapy or the upcoming Spravato program, interested parties are encouraged to contact Bloom Health Centers at https://www.bloomhealthcenters.com/.  About Bloom Health Centers  Bloom Health Centers is committed to delivering comprehensive, personalized mental health care through a range of services including psychiatry, therapy, and cutting-edge treatments like TMS therapy. Bloom prioritize a holistic approach, recognizing the critical connection between mental and physical health. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516497/bloom-health-centers-announces-expansion-of-tms-therapy-services-to-annapolis-and-upcoming-launch-of-spravato-program)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bloom-health-centers-expands-tms-therapy-to-annapolis-and-introduces-new-treatment-option-for-depression/3f05fe7578caf76a8b13fc4cf5a295b5) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1gwv2cu/bloom_health_centers_expands_tms_therapy_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2411/22/fasthDy9.webp)

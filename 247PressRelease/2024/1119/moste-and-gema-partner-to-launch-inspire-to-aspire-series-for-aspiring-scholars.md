@@ -1,0 +1,18 @@
+# MOSTe and GEMA Partner to Launch "Inspire to Aspire" Series for Aspiring Scholars
+
+LOS ANGELES, CA, November 19, 2024 /24-7PressRelease/ -- MOSTe (Motivating Our Students Through Experience) has partnered with the Global Entertainment Marketing Academy (GEMA) to launch Inspire to Aspire, a multi-session program designed to introduce MOSTe Scholars to career opportunities in entertainment marketing. Planned to run from Fall 2024 through early 2025, this program will include workshops, mentorship, and hands-on learning opportunities to help young women explore the marketing field.  MOSTe has a proven track record of empowering its scholars to achieve academic success, with 100% of graduating scholars accepted to college. The Inspire to Aspire program builds on this foundation by providing exposure to career opportunities in the entertainment marketing industry.  This collaboration connects scholars with marketing and creative professionals from film, television, music, and video games. Scholars will participate in workshops and gain insights into the skills and processes required for success in the entertainment marketing industry.  Program Highlights Include: •	Fall 2024: Intro Q&A Session – Scholars meet G.E.M.A. professionals to discuss program goals and gain an overview of the entertainment marketing industry. •	Late 2024: Behind the Scenes – How Marketing Campaigns Are Made – A session exploring the process of creating and executing impactful marketing campaigns. •	Late 2024: The Power of Storytelling – A workshop focusing on the importance of storytelling in marketing and how scholars can develop this skill. •	Early 2025: Empowered Women in Entertainment Marketing – A session highlighting the achievements of women leaders in entertainment marketing and their career journeys. •	More to come.  Nicole Fisher, Executive Director of MOSTe, said: "This partnership with G.E.M.A. offers our scholars valuable exposure to an exciting industry. They will gain practical knowledge and the confidence to pursue meaningful career paths. More than that, the program is a great networking opportunity for our Scholars; we hope they will make connections that will last for years to come."  For more information on MOSTe and how to get involved, visit www.moste.org or contact info@moste.org.  About MOSTe: MOSTe (Motivating Our Students Through Experience) is a non-profit organization that mentors and empowers young women from underserved areas of Los Angeles County to become college-educated women. Since 1986, MOSTe has supported students with mentorship, college guidance, and leadership development. Through partnerships with mentors and businesses, MOSTe helps young women achieve academic success and career readiness.  About The Global Entertainment Marketing Academy (G.E.M.A.): Established in 1956 as a non-profit association and quickly becoming a fixture of Hollywood, G.E.M.A. unites visionary marketers and creatives worldwide across film, TV & streaming, video games, sports, music, and more. Driving the entertainment industry forward, we celebrate and cultivate marketing brilliance, foster a vibrant community, and share groundbreaking practices with innovation and collaboration at the heart of our mission. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516220/moste-and-gema-partner-to-launch-inspire-to-aspire-series-for-aspiring-scholars)
+                    
+
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2411/19/jokevbjd.webp)

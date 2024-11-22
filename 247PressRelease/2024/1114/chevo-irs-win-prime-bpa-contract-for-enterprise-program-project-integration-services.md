@@ -1,0 +1,20 @@
+# Chevo IRS Win: Prime BPA Contract for Enterprise Program Project Integration Services
+
+ROCKVILLE, MD, November 14, 2024 /24-7PressRelease/ -- Chevo is proud to be one of the eleven awardees of the Internal Revenue Service (IRS) Enterprise Program Project Integration Services (EPPIS) Multiple Award Blanket Purchase Agreement (BPA) to provide Management Consulting and Integration Services. This is Chevo's 30th prime contract at the IRS and continues our history of supporting the IRS since our inception in 2002.  This 7-year $1.9B BPA, awarded through the GSA Multiple Award Schedule (MAS), is to provide a wide range of program, project, and integration tasks to support the IRS Information Technology (IT) Enterprise Program Management Office (EPMO) and strategic objectives and programs.  The EPPIS contract vehicle will be used to provide professional expertise and end-to-end Program Management support to deliver enterprise-level information technologies capabilities. Services to be performed on this contract include Program/Project Management, Release and Organizational Change Management, Program and Technical Integration, Cybersecurity, Cloud Services, and Legislative implementation support. The EPPIS BPA is a follow-on to the IRS Information Technology Enterprise Program Management Support Services (IT-EPMSS) BPA where Chevo was awarded and delivered services on five prime Task Orders.   Jeffrey I. Cooper, Vice President of Chevo and a former senior executive at the IRS, emphasized that "modernizing the IRS is a crucial and long-term necessity." He pointed out that the EPPIS contract vehicle plays a vital role in supporting the IRS's transformational efforts aimed at achieving world-class tax administration. This initiative is in direct alignment with the strategic objectives set forth in the IRS Inflation Reduction Act (IRA) Strategic Operating Plan, underscoring the agency's commitment to improving efficiency and service delivery.  Phil Sahady, president of Chevo, expressed gratitude for the company's selection as one of the awardees on the recent BPA. He stated, "Chevo is flattered to be one of the awardees on this BPA. This adds to Chevo's prime contract vehicles, including the recently awarded IRS Taxpayers Services Non-IT Consulting BPA and OASIS+. We look forward to continuing our 22-year partnership with the IRS, supporting their most important programs and advising on legislative impacts." This statement highlights Chevo's commitment to providing valuable services to the IRS and underscores the importance of their long-standing collaboration.  Chevo Consulting, LLC (Chevo), a women-owned small business (WOSB), is focused on providing Management Consulting services to the Federal Government. Chevo serves as a Trusted Advisor, supporting our clients' long-term visions, from conception to implementation, by applying strategy, effective management, and communications. Chevo helps organizations change and evolve their business by providing a highly specialized range of Management Consulting services centered on Strategic, Program, Portfolio, Project, Acquisition, and Financial Management. Chevo, headquartered in Rockville, MD, holds multiple Best in Class contract vehicles; is a nine-time awardee of the Workplace Excellence Seal of Approval by the Alliance for Workplace Excellence (AWE); made Consulting Magazine's "Best Firms to Work For" list in 2023 & 2024, and is a OrangeSlices AI Elev8 GovCon honoree.   For more information, visit http://www.ChevoConsulting.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516179/chevo-irs-win-prime-bpa-contract-for-enterprise-program-project-integration-services)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/chevo-awarded-prime-contract-at-irs-for-enterprise-program-project-integration-services/8260363297a20958f8e80e5aa5b57002) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1gr07hn/chevo_awarded_prime_contract_at_irs_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2411/14/goldckxi.webp)

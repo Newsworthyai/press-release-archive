@@ -1,0 +1,20 @@
+# Mid Cities Psychiatry Awarded Behavioral Health Care and Human Services Accreditation by The Joint Commission
+
+DALLAS, TX, November 14, 2024 /24-7PressRelease/ -- The Gold Seal sparkles as a symbol of quality that showcases a health care organization's drive to dish out safe and quality patient care.  Mid Cities Psychiatry tackled this onsite review on September 5th and 6th. During the visit, a crew of Joint Commission reviewers inspected the facility to check out how well they stuck to Behavioral Health Care and Human Services standards.   They poked into several areas including emergency management, environment of care, infection prevention and control, leadership, medication management, and rights and responsibilities of Mid Cities Psychiatry's patients.  The Joint Commission cooks up its standards by huddling with health care experts, providers, measurement experts, and patients. They mine scientific literature and expert know-how to help health care organizations size up, weigh, and boost their standards of care. The surveyors also prowled around making observations and chatting with staff.  "As a healthcare accreditor, The Joint Commission works with healthcare organizations across care settings to inspire safer and higher quality of care that is more equitable and compassionate," says Ken Grubbs, DNP, MBA, RN, executive vice president of Accreditation and Certification Operations and chief nursing officer, The Joint Commission. "Through collaborating on innovative solutions and evidence-based resources and tools, The Joint Commission helps drive improvement while maintaining accountability through our leading survey methods and standards. We commend Mid Cities Psychiatry for its commitment to advance safety, quality, equity and compassion for all patients."  "Achieving JCAHO accreditation was a challenging journey, but the insights gained along the way were invaluable. We're thrilled to have completed this rigorous process, knowing it has strengthened our commitment to excellence in patient care. It wasn't easy, but it was absolutely worth it," beamed Omar Pirzada, Chief Growth Officer of Mid Cities Psychiatry.  At Mid Cities Psychiatry, our preparation for JCAHO accreditation was comprehensive and transformative. We conducted thorough safety tests to ensure quality for both patients and our team.   We hammered out new policies, test-drove them, and kept our eyes peeled to see how they worked. We dug into our data to improve our efficiency and patient results. This journey made us zoom out to see the big picture while also zeroing in on the little details, helping us spot where we could level up and match the highest standards.   We've always strived for the best patient care possible, and this accreditation process has pumped up our drive to ensure process improvement in every way.  For more information, please visit the Joint Commission website.  Mid Cities Psychiatry is the premier mental health provider in Texas, dishing out caring help to folks dealing with psychiatric and psychological health challenges. Through evaluations, therapy sessions, and medication management, our services help clients find their path to better mental health  The Joint Commission stands tall as the country's oldest and biggest healthcare rule-maker and quality-checker since 1951. They're all about pushing healthcare to new heights by sizing up healthcare facilities and ensuring that they are providing on-point care.  Related Link: https://www.midcitiespsychiatry.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516198/mid-cities-psychiatry-awarded-behavioral-health-care-and-human-services-accreditation-by-the-joint-commission)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mid-cities-psychiatry-receives-jcaho-accreditation-after-rigorous-onsite-review/241fad7738925bf89ca305b013aeb00a) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1gr064f/mid_cities_psychiatry_receives_jcaho/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2411/14/dualVixp.webp)

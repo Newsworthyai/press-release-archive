@@ -1,0 +1,20 @@
+# 50 Wanda Drive, An Action-Packed Novella With Dark Comedy Elements Will Be Available In Ebook Form At No Charge November 6 Through November 8, 2024 At Amazon
+
+WILMINGTON, NC, November 04, 2024 /24-7PressRelease/ -- Bijou Entertainment has announced that their action thriller novella, "50 Wanda Drive," will be available at no charge in ebook form November 6 through November 8, 2024 at Amazon.  In the darkly comedic chaos of this book, a yuppie housewife, touted as a hero for saving a cat, wages all-out war against two crazed dysfunctional robber-murderers who crash her celebration party and wreak havoc on friends and family.  Paige Martin's world spirals into danger amidst absurdity when her family's celebration is crashed by dysfunctional but cruel criminals Reed and Otis, two brothers whose philosophy is best summed up as "God Hates You. That's Why." What should have been a fun day escalates into a whirlwind ﬁght for survival, complete with a war-obsessed grandpa, a signiﬁcant cat, and homemade bombs.  As these intruders hatch a half-baked plan to exploit the family's connections, they're met with comical but deadly defense tactics courtesy of Paige with the help of her teenage son. The secluded woods become a backdrop for a circus of errors, with villains inadvertently sabotaging themselves amidst botched escapes, and an all-out confrontation that sees Paige evolving from an accidental hero to a master of improvised warfare.  "50 Wanda Drive" is a dark comedy with a spunky female protagonist who doles out suspenseful vigilante justice in true thriller fashion. The book upends the home invasion narrative, proving that in a battle against clowns, it pays to have a few tricks up your sleeve.  The ebook will be available at no charge November 6 through November 8, 2024 at https://www.amazon.com/50-Wanda-Drive-Ginger-Marin-ebook/dp/B0D4BFT91B/ref=sr_1_1?crid=MIL4QM88ED8O&dib=eyJ2IjoiMSJ9.BOkVrHfT7fa0YMY852ZUsA.1lbqlNPKLlU9B47WQtRafYWPV9es8tOuT6-l29hJVqQ&dib_tag=se&keywords=50+Wanda+Drive&qid=1730151366&s=digital-text&sprefix=50+wanda+drive%2Cdigital-text%2C99&sr=1-1.  Bijou Entertainment specializes in "Stories That Create Movies In Your Mind." Their stories captivate both readers and movie lovers, as authors Ginger Marin and J Bartell are also screenplay artists who also shine as actors and directors. They offer an enthralling selection of drama, espionage, action/thriller, dark comedy, and family-friendly books for kids, immersing readers in cinematic worlds with every flip of the page.  Both Bartell and Marin are available for media interviews and can be reached by email at contact@bijouentertainment.com. All of their books are available at Amazon and other book retailers. More information is available at the Bijou Entertainment website at https://bijouentertainment.com/.  About Bijou Entertainment:  Ginger Marin is an actor, author, environmentalist, and animal rights advocate who previously served as producer and writer for NBC News' top new shows and various special reports.  J Bartell did black ops assignments as a subcontractor for the CIA during a ten-year period. In addition to his work with the CIA, J Bartell is a behavior specialist and former California licensed Marriage, Family and Child Counselor. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/515858/50-wanda-drive-an-action-packed-novella-with-dark-comedy-elements-will-be-available-in-ebook-form-at-no-charge-november-6-through-november-8-2024-at-amazon)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/darkly-comedic-action-thriller-novella-50-wanda-drive-available-for-free-on-amazon/03b9dc56e95b74b13f5be9c9ba68af6d) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1gj9f8h/darkly_comedic_action_thriller_novella_50_wanda/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2411/4/zealZhYO.webp)

@@ -1,0 +1,34 @@
+# SOAR.com and Frequency to Transform AI's Use of Personal Data and Digital Privacy with Decentralized AI Technology
+
+West Valley City, Ut (Newsworthy.ai) Tuesday Nov 19, 2024 @ 7:00 AM Central — Today, SOAR.com announced plans to integrate with the Frequency blockchain, a groundbreaking move that will allow people to protect their private data while accessing cutting edge AI solutions. The plan leverages revolutionary internet infrastructure developed by the Frequency Network Foundation and Project Liberty.
+
+In an era when data has become currency, people are tired of having their information stolen or co-opted by big platforms. SOAR.com's Family Portal and Citizen Portal will serve as cornerstones of a secure, decentralized AI ecosystem where people can keep control over their data. SOAR.com will be a key element of a new digital landscape that finally puts people over platforms.
+
+About Family Portal: A New Digital Space for FamiliesFamily Portal offers a secure, decentralized platform where loved ones can strengthen connections and preserve memories through advanced AI technology. Users can conduct video interviews with relatives, record and transcribe family stories, and foster meaningful engagement across generations. With over 70 million families in the U.S. actively sharing personal data online, privacy has become a pressing issue. Family Portal provides a solution where users can manage their personal information without relying on centralized systems.
+
+"The Family Portal is designed to offer families a private, secure space to interact – with the platform serving as a digital repository for family history, making it easier to celebrate heritage and maintain close ties across generations," said Paul Allen, founder and CEO of SOAR.com and the visionary founder behind Ancestry.com. "With Ancestry.com, we connected millions of people to their past and now, with SOAR.com and Frequency, we're empowering them to take control of their data and their future."About Citizen Portal: Secure Access to Civic Participation and ServicesCitizen Portal is a transformative platform that brings transparency, accountability, and clarity to all levels of government. By providing users with access to a wealth of easily summarized and searchable information from city, county, and state meetings, the portal empowers individuals to stay informed about governmental decisions, discussions, and community issues. With data breaches on the rise and over 200 million U.S. citizens interacting with public systems digitally, the need for secure, private access is more urgent than ever. This portal provides a trusted platform for citizens to engage with government while retaining control of their own data.
+
+"People are frustrated with institutions designed in the 19th century using technology from the 20th century to try and solve the problems of today. Our collaboration with SOAR.com is a powerful step toward a future where individuals regain a voice, choice, and stake in the processes that impact their lives," said Tomicah Tillemann, President of Project Liberty. "Paul Allen has long been one of the most inspiring leaders in tech, and we look forward to working together to build an internet where we can enjoy the benefits of AI while maintaining control of the data that makes us who we are."The New Web, Interoperable with FrequencyFrequency is the backbone of a people's internet where individuals control their own data. Recently, 1.3 million MeWe users—including 600,000 with their full social graphs—moved to the Frequency Blockchain, taking a big step toward giving users more control. With Family and Citizen Portals that are fully DSNP-compliant, Frequency sets a new standard: data that is secure, scalable, and controlled by the user. This interoperability enables smooth, privacy-focused connections across decentralized applications, putting users in control instead of platforms. Family Portal and Citizen Portal are just the start of a new era in secure, decentralized access to essential AI services, with more innovative portals soon to come.
+
+"The Citizen Portal and Family Portal are laying the groundwork for a future where secure, user-controlled interactions become standard," said Braxton Woodham, co-creator of DSNP and co-founder of Frequency. "DSNP's interoperability will allow these platforms to grow, seamlessly connecting users across various applications and services without ceding power to intermediaries or sacrificing security. We're eager to see how decentralized technology can redefine the way people engage with the things that matter most."Project Liberty will host its inaugural Summit on the Future of the Internet, in Washington, DC, on November 21-22. Press interested in attending can experience a demo of the new Family Portal and Citizen Portal. To apply for credentials and witness this cutting-edge technology in action, please email press@projectliberty.io .
+
+About FrequencyFrequency is a blockchain that powers the people's internet through the Decentralized Social Networking Protocol (DSNP). It provides the infrastructure for creating self-sovereign digital identities, public social graphs, and decentralized content sharing, advancing data privacy and user control. Brands, developers, and platforms can use Frequency to integrate scalable, interoperable social features without the need for deep expertise in blockchain. This implementation of DSNP is aligned with Project Liberty's mission to give people control over their digital lives while fostering innovation in decentralized technology.
+
+About SOAR.comSOAR.com is dedicated to uplifting humanity by maximizing the positive impacts of AI across essential areas of life, including family, workplace, education, and more. By developing PURE AI—personalized, uplifting, responsible, and ethical solutions—SOAR empowers individuals and organizations to harness technology while ensuring that data is handled responsibly and ethically. Through a unique multi-subsidiary "AI Studio" model, SOAR rapidly deploys tailored AI solutions, enabling a transformative shift in how technology serves society. 
+
+---
+
+[Original/Source Press Release](https://newsworthy.ai/news/202411191357/soar-com-and-frequency-to-transform-ai-s-use-of-personal-data-and-digital-privacy-with-decentralized-ai-technology)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/soar-com-to-integrate-with-frequency-blockchain-for-secure-decentralized-ai-ecosystem/686a374ca3e384ac8f9e78be67b3c5dc) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1guwt38/soarcom_to_integrate_with_frequency_blockchain/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newsworthy/qrcode/2411/19/hushHG0d.webp)

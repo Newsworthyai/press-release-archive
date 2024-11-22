@@ -1,0 +1,20 @@
+# A staggering 25,000 Attend Protest Near Gyeonggi Provincial Government; No Physical Clashes Reported
+
+GYEONGGI, KOREA, November 16, 2024 /24-7PressRelease/ -- The protest was in response to the Gyeonggi Tourism Organization's cancellation of a well anticipated event booking at Paju Imjingak Peace Park on the 30th of the previous month.  The event that the Paju Imjingak Peace Park was reserved for was anticipating an international participation of 6400 religious leaders and also overseas members of Shincheonji. Many of which were also shocked and disappointed at the sudden cancellation. 11 000 staff of Shincheonji had also been working towards the event for 1 year, with preparations already underway at the site days prior to the cancellation, this included stage, chair, equipment, rehearsal items and other set-up. To the dismay of many, all had to be quickly removed due to the cancellation from Gyeonggi Provincial Government and Gyeonggi Tourism Organization.   Shincheonji claimed that "Gyeonggi Provincial Government and Gyeonggi Tourism Organization suddenly canceled the venue booking on the 29th of last month, citing concerns about North Korean tensions," and argued that "the cancellation was one-sided and constitutes as religious oppression, as other events scheduled for the Peace Park were allowed to proceed while only Shincheonji's event was canceled."  Lee Gi-won, the General Secretary of Shincheonji, stated, "Even when Paju was designated as a 'danger zone' due to heightened tensions with North Korea, we repeatedly inquired with the relevant authorities and received assurances that there were no plans to cancel our event." He further criticized the authorities for ignoring laws and principles by sending the cancellation notice just one day before the event.  The police deployed a force of 400 officers from six mobile units around the Gwanggyo Central Park and roads near the provincial government building to ensure safety in case of any incidents. They also blocked several lanes on roads from the second gate of the provincial government building to the north gate, but no significant clashes occurred during the protest.  Earlier, on the 29th of last month, the Gyeonggi Tourism Organization canceled the venue reservation for the Shincheonji-related event, "Religious Leaders Forum and Graduation Ceremony," which had been approved on July 22. A representative of the organization explained, "Given that Imjingak Peace Park is located near the North Korean border, and considering the recent heightened tensions between the two Koreas, we had no choice but to cancel the event. Additionally, the event included elements that could provoke North Korea, such as aerial balloons, drones, and fireworks."  On the 15th of last month, Gyeonggi Province designated Paju, Gimpo, and Yeoncheon as "danger zones" and has been blocking the distribution of North Korean leaflets in these areas in advance.  After the protest, Shincheonji plans to send an official letter to the Gyeonggi Provincial Government, demanding a formal apology and compensation for the damages caused by the event cancellation.  Shincheonji Church of Jesus, the Temple of the Tabernacle of the Testimony testifies to the revelation and things that have been seen and heard according to God's will and is working to heal all nations. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516253/a-staggering-25000-attend-protest-near-gyeonggi-provincial-government-no-physical-clashes-reported)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-protests-event-cancellation-at-paju-imjingak-peace-park/724725f90115bdf7b5ebfad18bc0543d) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1gu3lxi/shincheonji_protests_event_cancellation_at_paju/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2411/18/markVlQe.webp)
