@@ -1,0 +1,20 @@
+# Kiddleton officially acquired National Entertainment Network as of 11/1/24
+
+ADDISON, TX, November 23, 2024 /24-7PressRelease/ -- As announced by GENDA Inc. on October 23, 2024, all equity interests of National Entertainment Network, LLC (NEN) were transferred to Kiddleton, Inc. (Kiddleton), effective November 1, 2024. (https://ssl4.eir-parts.net/doc/9166/ir_material_for_fiscal_ym5/165489/00.pdf)  This acquisition has expanded GENDA's U.S. location count by approximately 8,000 locations, which will operate alongside the 640 locations already managed by Kiddleton in the U.S. as of the end of October 2024.	  NEN, operating in many of the nation's largest retailers across the U.S., was the biggest breakthrough to accelerate Kiddleton's strategic focus of deploying across the U.S. Kiddleton's new style game machines featuring GENDA's Japanese "Kawaii" prizes have shown an average 3X increase in same-store sales. The new combined company will continue to leverage and expand NEN's digital loyalty program with over 1M players already enrolled.  About Kiddleton, Inc. (https://kiddleton.info) Since its establishment in 2019, Kiddleton has been dealing with Japanese-style small prize game machines and prizes with Japanese-style "Kawaii" designs, which previously did not exist in the US market. Today, we continue to develop our business with a focus on uniqueness,　offering "products that can only be found here, experiences that can only be had here." In recent years, the popularity of Japanese anime, manga, and other Japanese content in the U.S. has been on the rise, and Kiddleton has responded to this need by providing a highly satisfying service to its many customers.  About NEN (https://www.nen-inc.com/)  National Entertainment Network ("NEN") is one of the largest front-end retail and amusement vending companies spearheading the effort to bring new digital technologies to the category. NEN defines amusement vending entertainment with a diverse first-tier entertainment portfolio of products operating approximately 30,000 crane and bulk vending machines, located in over 8,000 of the most popular retail, restaurant, and, game room locations throughout the United States. For over 30 years, NEN has continued to focus on clients by providing quality entertainment for their customers and patrons.  About GENDA Inc. (https://genda.jp/en/) [More fun for your days]  To realize this Aspiration, GENDA is an entertainment company that aims to build a global entertainment network and increase the 'total amount of fun' distributed worldwide. GENDA operates a wide range of businesses in entertainment, including Amusement, Karaoke, Character Merchandising, Food & Beverage, and Content & Promotion (movies, interactive contents, etc.). It operates approximately 800 amusement arcades such as "GiGO" and the karaoke chain "Karaoke BanBan" in Japan and abroad, as well as approximately 8,000 mini-locations (non-staffed gaming corners). It operates in Japan, the United States, mainland China, Taiwan, the UK, the Middle East, and Vietnam.  For more information: Kiddleton has expanded the claw machine business with supermarkets, shopping malls, restaurants, game shops, playground and more:  Would you like to place a FREE Claw Machine in your store? Website: https://kiosk.kiddleton.info/ Instagram: https://www.instagram.com/kiddleton_kiosk/?hl=en 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516526/kiddleton-officially-acquired-national-entertainment-network-as-of-11124)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/genda-inc-expands-u-s-location-count-through-acquisition-of-nen/e604fe05c23a082ef51315cf00e047cf) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1gxuu56/genda_inc_expands_us_location_count_through/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2411/23/tintieYx.webp)
