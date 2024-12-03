@@ -1,0 +1,20 @@
+# Boston, MA, Family Law Attorney With More Than 30 Years of Experience
+
+BOSTON, MA, November 26, 2024 /24-7PressRelease/ -- Peridot Family Law, LLC is a Boston-based firm that provides clients with a range of thorough, high-quality legal services coupled with a holistic, empathic approach to solving their specific family law needs. The firm serves clients both in Massachusetts and New York.  Divorce is a life-changing event that forces you to examine who you are and what you want from life. Whether you are going through a divorce or another serious family law matter, you need experienced, skilled, and compassionate representation to help you navigate the process.   "I have practiced law for over 30 years and am the founder and owner of Peridot Family Law, LLC, in Boston, Massachusetts. In addition to divorce and family law, collaborative law, and mediation, my background includes experience in real estate and intellectual property matters with a focus on artists, museums, and non-profits. In 2001, I was formally trained as a mediator. Since then, I have continued my training by taking and presenting advanced courses in divorce law, mediation, marital mediation, and collaborative law. I am both humbled and grateful to be able to help my clients with their important family law matters. At Peridot Family Law, LLC, we provide our clients with a range of high-quality legal services to help them transition through the divorce process, depending on the client's individual goals, needs, and circumstances. We serve our clients through a team approach, with the goal of continually exceeding their expectations. We are committed to meeting our clients' family law needs with compassionate professionalism", said the founder of the Peridot Family Law, LLC, Cynthia Runge.  Peridot Family Law, LLC's practice areas include divorce litigation, collaborative law, mediation, limited assistance representation, prenups/postnups, adoptions, guardianships, care & protections, and fair hearings.  Cynthia Runge, the founder of this law firm, received a Bachelor of Science degree from Boston University. She obtained her Juris Doctor from Whittier College School of Law. She also received a Certificate in Museum Studies from Tufts University.  Before founding Peridot Family Law, LLC, Ms. Runge was the Coordinator of Court and Divorce Mediation Services at a community mediation program in Cambridge (2007-2010) and served as vice president of the Massachusetts Council on Family Mediation.  Among her other professional affiliations, Ms. Runge is an active member of the Massachusetts Bar Association, where she serves on the Family Law Section Council and previously served on the Dispute Resolution Section.   Recognized for her exceptional professionalism and service, Ms. Runge has earned "Superb" ratings on AVVO and was selected to Super Lawyers 2019-2024. She is also one of the 2024 Top Lawyers, an exclusive list compiled by the Boston Magazine honoring the 1,122 best attorneys in the Massachusetts region as chosen by their peers.  Peridot Family Law, LLC, is located at 171 Milk Street, Suite 400, Boston, MA 02109. You can contact the firm via phone at (617) 399-8751 to schedule a consultation. Online inquiries can be submitted by completing a brief form on their website. Visit the firm's website for additional information regarding their services. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516554/boston-ma-family-law-attorney-with-more-than-30-years-of-experience)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peridot-family-law-llc-providing-compassionate-legal-services-in-boston/ec7cd6755057fdc7ea478f4ba3a02b61) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1h070is/peridot_family_law_llc_providing_compassionate/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2411/26/veilOYjX.webp)

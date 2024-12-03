@@ -1,0 +1,20 @@
+# Slam Club Set to Revolutionize Fitness and Wrestling in Deep Ellum Dallas
+
+DALLAS, TX, December 03, 2024 /24-7PressRelease/ -- Slam Club, a fitness and wrestling studio like no other, is preparing to open its doors in the heart of Deep Ellum this February. With a mission to merge innovative fitness programs and the timeless discipline of wrestling, Slam Club is more than a gym—it's a movement. Designed to inspire individuals at all fitness levels, the studio offers a modern, inclusive space where fitness enthusiasts, competitive athletes, and families can achieve their goals, grow stronger, and connect.  Slam Club is rewriting the rules of fitness and wellness. Co-founded by 16x All-American wrestler, 4x Texas State Champion, USA and Army athlete Alexandria Liles, and award-winning marketing visionary Taylor Darnell-Sibal, the studio delivers a blend of high-energy fitness training and wrestling-inspired programs in a premium environment. Slam Club's dual focus creates opportunities for both everyday fitness seekers and aspiring wrestling champions, offering thoughtfully designed workouts and state-of-the-art facilities that welcome all ages and backgrounds.  The fitness studio at Slam Club provides dynamic group fitness classes inspired by modern techniques and wrestling movements, designed to challenge beginners and advanced athletes alike. With high-end amenities, including saunas, meditation spaces, and social club, the studio offers a holistic wellness experience. Additionally, the wrestling club supports kids, teens, and high school athletes with elite coaching led by Alexandria Liles, helping young wrestlers hone their skills for competition on local, national, and international stages.  "We're creating a space where people can discover their strength—both inside and out," says Taylor Darnell-Sibal. "Slam Club is for everyone, from families looking for a welcoming environment to individuals seeking transformation and connection."  "Wrestling has always been about discipline, resilience, and community," says Alexandria Liles. "At Slam Club, we're bringing those values to life in a way that's modern, inclusive, and empowering for all."  Slam Club is more than a gym; it's a lifestyle. Whether you're stepping into a fitness class for the first time or preparing for your next wrestling championship, Slam Club is a space where all can thrive. The grand opening is scheduled for February 2025, with early membership opportunities available soon.  Slam Club is a premium fitness and wrestling studio located in the vibrant neighborhood of Deep Ellum, Dallas. Co-founded by 16x All-American wrestler and Team USA athlete Alexandria Liles and award-winning marketer Taylor Darnell-Sibal, Slam Club merges innovative fitness programs with the timeless discipline of wrestling. Designed for individuals of all fitness levels, as well as young athletes aspiring to compete at the highest levels, Slam Club offers dynamic fitness classes, elite wrestling coaching, and thoughtfully designed amenities, including saunas, meditation spaces, and a dual-purpose gym. With a mission to foster community, inclusivity, and empowerment, Slam Club is redefining what it means to work out. Learn more at slam-club.com or follow us on Instagram and TikTok @slamclub 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516721/slam-club-set-to-revolutionize-fitness-and-wrestling-in-deep-ellum-dallas)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/slam-club-a-new-fitness-and-wrestling-studio-set-to-open-in-deep-ellum-dallas/553a50c9dc2daf79f97c3b257e1adc05) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1h5iozw/slam_club_a_new_fitness_and_wrestling_studio_set/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2412/3/urgewbHp.webp)

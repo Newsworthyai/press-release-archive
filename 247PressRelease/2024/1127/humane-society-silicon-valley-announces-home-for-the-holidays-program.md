@@ -1,0 +1,20 @@
+# Humane Society Silicon Valley Announces "Home for the Holidays" Program
+
+MILPITAS, CA, November 27, 2024 /24-7PressRelease/ -- Humane Society Silicon Valley (HSSV), one of the nation's top animal shelters, is thrilled to announce the return of its very popular "Home for the Holidays" program.  HSSV, which has helped over half a million animals find loving homes over its 95 years of operation in the Silicon Valley, has several holiday-themed pet promotions and events as part of its ongoing mission to save more animals, keep families together, and create a better future for pets and their people:  •	Home for the Holidays Adoption Promotion (starting 11/29): HSSV will be offering a discounted $50 adoption fee on select dogs and cats to be featured on HSSV's Shelter Spotlight page.  •	Giving Tree (11/29 through 1/5): Come into HSSV's Detkin/Oates Center (901 Ames Ave, Milpitas, Calif.) to select a tag from one of their Giving Trees (located in the Adoption Lobby and Community Services) and donate to help out adoptable animals.  •	"Paws & Claus" at Enchant at PayPal Park (12/1 from 4:30 to 9 pm PT): "Paws & Claus" is a dog-friendly evening for you to bring your favorite furry friend to explore the Maze, snap photos, enjoy all the holiday cheer, and support HSSV. HSSV's Toyota "Scout" vehicle will be at PayPal Park (1123 Coleman Ave, San Jose, Calif.) to collect donations for HSSV's Pet Pantry. HSSV will also have Pet Pantry Grab Bags available for donation onsite. HSSV is on track to serve more than 2 million pet meals this year!  •	"Santa Paws" at Santana Row (12/8 from 10am to 1pm PT): At Santana Row (377 Santana Row, San Jose, Calif.) get your pet's photo taken with Santa (with a minimum $10 donation), spin the wheel to win prizes, and learn more about HSSV programs and how you can help.  •	"Holiday Manners" Intensive Class (starting 12/2 at 6:30 pm PT): HSSV's three-week online class will prepare your dog for the upcoming holiday season, emphasizing the essential holiday behaviors of "Leave it," "Drop it," "Come when called," and not jumping on visitors. Visit the HSSV website for more information and to sign up. Your pup must be at least 8 weeks old by the start date of class.  About HSSV:  Since 1929, Humane Society Silicon Valley (HSSV) has been a steadfast presence in the community, serving people and pets as we've secured permanent, loving homes for more than 500,000 animals. HSSV is an independent, privately funded, 501(c)(3) non-profit organization and is not funded by the Humane Society of the United States, ASPCA, or state and federal government entities. Our mission is to save lives, keep families together, and create a better future for pets and their people. We offer a wide range of services, including adoption, access to affordable veterinary care (including community wellness clinics), a targeted spay/neuter program, and a pet pantry to support pet owners in need. In 2017, HSSV became the first organization to earn model shelter status according to the guidelines set forth by the Association of Shelter Veterinarians. We envision a better world for animals and the people who love them, and we are dedicated to making that vision a reality. For more information, visit HSSV.org.  For more information or interviews with Humane Society of Silicon Valley, contact Executive Publicist Michelle Tennant Nicholson at Michelle@WasabiPublicity.com or 828-749-3200. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516626/humane-society-silicon-valley-announces-home-for-the-holidays-program)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/humane-society-silicon-valley-announces-return-of-home-for-the-holidays-program/6755da08547139db49cbbbcd20338dd5) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1h0zkpz/humane_society_silicon_valley_announces_return_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2411/27/takefC4n.webp)
