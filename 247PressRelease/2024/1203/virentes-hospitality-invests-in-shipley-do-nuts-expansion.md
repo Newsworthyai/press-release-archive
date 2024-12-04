@@ -1,0 +1,20 @@
+# Virentes Hospitality invests in Shipley Do-Nuts expansion
+
+BLUFFTON, SC, December 03, 2024 /24-7PressRelease/ -- Virentes Partners Group, a private investment platform that provides flexible capital and operational expertise to leading brands, today announced that its hospitality subsidiary has invested in 22 new franchise locations of fast-growing, Houston-based, Shipley Do-Nuts.   "Our sweet spot is getting behind iconic, fast-growing brands and doing our part—with our capital and our operating expertise--to accelerate that growth while maintaining standards of quality and excellence" said Jim D'Aquila, Virentes managing member and chief investment officer. "This investment is the perfect example of that. Shipley's products are second to none in its marketplace. Shipley's represents crave-worthy food and for 88 years has lived up to its "Make Life Delicious" reputation."  The 22 locations will be in greater Nashville, Tennessee, and the Jacksonville and Tampa, Florida areas. "It was clear from early on that Jim and the team at Virentes understood the food and beverage market and more importantly, our mission to expand into new markets," said Shipley CEO Flynn Dekker. "This partnership demonstrates the strong confidence our franchise partners have in our brand and our growth strategy. As we continue to modernize our operations and enhance our customer experience, investments like these are crucial in bringing the Shipley magic to more communities."  ABOUT VIRENTES PARTNERS GROUP  Virentes Partners Group is a private investment, operations and management platform that seeks to partner with the world's leading consumer and business brands. Founded in 2022, the group deploys flexible capital in sectors where it has deep institutional knowledge and operating capability to support the operational and growth needs of founder-led and high-growth partner companies. www.Virentes.com.  ABOUT VIRENTES HOSPITALITY Virentes Hospitality is an owner and operator of differentiated restaurant concepts that span multiple geographies across the southeast. Virentes is passionate about enriching the lives of its team members and the communities it serves. With highly craveable culinary offerings and a focus on exceptional guest experiences, Virentes strives to set the platinum standard for hospitality, creating warm and inviting atmospheres that celebrate connection, community, and the joy of sharing a meal.  Virentes geographic footprint currently focuses on Central and Northern Florida including Tampa Bay, Southeast Coast, Orlando and Jacksonville as well as the Greater Nashville, Tennessee markets and the Raleigh Durham Research Triangle in North Carolina. Virentes Hospitality is a portfolio asset of Virentes Partners Group.   ABOUT SHIPLEY DO-NUTS  Founded in 1936, Houston-based Shipley Do-Nuts is one of the nation's oldest and largest donut brands, with more than 360 company-owned and franchised restaurants across 12 states, serving up its famous donuts, coffee and kolaches to generations of guests. Shipley is ranked No. 110 on Entrepreneur magazine's Franchise 500® 2024 list and No. 1 in its category and is No. 147 on the Technomic 2024 Top 500. For franchising information, visit ownashipleydonuts.com. Follow Shipley on Instagram and Facebook @ShipleyDonuts, and sign up for Do-Happy Rewards at ShipleyDonuts.com/rewards to unlock free donuts, discounted coffee, exclusive merchandise and more. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516751/virentes-hospitality-invests-in-shipley-do-nuts-expansion)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/virentes-partners-group-invests-in-22-new-shipley-do-nuts-franchise-locations/0ab27af13a41b32b2e3acd5afe5e120c) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1h5qw99/virentes_partners_group_invests_in_22_new_shipley/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2412/3/barn2iv1.webp)

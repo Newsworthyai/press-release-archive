@@ -1,0 +1,20 @@
+# Handel's Sweetens Up the Holidays with New Gingerbread Cookie Ice Cream
+
+YOUNGSTOWN, OH, December 03, 2024 /24-7PressRelease/ -- This season, Santa is swapping cookies for ice cream! Handel's Homemade Ice Cream, serving handmade ice cream since 1945, is bringing festive cheer with a flavor that captures the essence of the yuletide season—Gingerbread Cookie Ice Cream! Starting today, guests can scoop up this limited-time flavor at all Handel's locations while supplies last. This beloved treat is handcrafted in each and every ice cream parlor across the country. Served up in generous scoops, the new flavor features creamy, spiced gingerbread flavored ice cream swirled with crunchy gingersnap cookie pieces.   As classic holiday dessert flavors continue to trend, 46% of consumers report that they love enjoying the same nostalgic treats from childhood. With gingerbread leading the charge, Handel's invites guests to savor this reimagined take on a beloved classic that's sure to warm up your holidays.   "Gingerbread is the ultimate holiday classic, from cookies and drinks to gingerbread houses. It brings back fond memories of making and sharing gingerbread with family and enjoying cookies at Grandma's house. The holiday season is a time to reflect and slow down with loved ones, and that's something we're proud to embrace at Handel's through our exceptional ice cream and warm hospitality," said Jennifer Schuler, CEO of Handel's Homemade Ice Cream. "We're eager to introduce this long-time favorite dessert through our Gingerbread Cookie Ice Cream that's made with the best tasting ingredients and reflects the craftsmanship that we dedicate to all our flavors, every day."   From cones and dishes to pints, Handel's is here to satisfy your ice cream cravings. Gingerbread Cookie Ice Cream will be available through the end of December at all locations, while supplies last.   For more information, visit www.handelsicecream.com or follow them on Facebook or Instagram.  About Handel's Homemade Ice Cream   Handel's Homemade Ice Cream has been in the business of making and selling fresh ice cream, handmade in stores, since 1945. Founded in Youngstown, Ohio, the Handel's legacy was created by Alice Handel and later led by Lenny Fisher, who grew the brand from a single scoop shop into a flourishing chain. Each batch of Handel's ice cream is made on site by hand at our ice cream parlors, upholding Alice's commitment to quality and the best testing ice cream served in abundance to our guests. There are 48 flavors available daily and more than 140 flavors that rotate seasonally.       In 2023 and 2024, Handel's ranked in  Franchise Times' Top 400 list, recognizing the largest franchise systems in the United States, and its "Fast & Serious," a list of the smartest-growing franchises for the year. The brand is also recognized by TasteAtlas for one of the top 100 Most Iconic Ice Creams of the World.       Handel's has been named #1 Ice Cream on the Planet by  National Geographic, one of the Top 10 Best Ice Cream Businesses by  USA Today, one of the Top 500 Restaurants in America by  Nation's Restaurant News , and Top 500 Franchises by  Entrepreneur Magazine.       Handel's currently has over 140 locations across 15 states and is growing. To learn more about Handel's franchise opportunities, visit www.handelsicecream.com/franchise. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516743/handels-sweetens-up-the-holidays-with-new-gingerbread-cookie-ice-cream)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/handel-s-homemade-ice-cream-introduces-limited-time-gingerbread-cookie-ice-cream-flavor/fd82c5f39eb4bdfd03bb12aa475c503a) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1h5r0v1/handels_homemade_ice_cream_introduces_limitedtime/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2412/3/filoct5a.webp)

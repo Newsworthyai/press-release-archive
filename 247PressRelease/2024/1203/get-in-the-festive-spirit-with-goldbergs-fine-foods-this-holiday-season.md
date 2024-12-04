@@ -1,0 +1,20 @@
+# GET IN THE FESTIVE SPIRIT WITH GOLDBERGS FINE FOODS THIS HOLIDAY SEASON
+
+MARIETTA, GA, December 03, 2024 /24-7PressRelease/ -- The holiday magic is in the air, and Goldbergs Fine Foods, a staple in the Atlanta community for over 50 years, is gearing up to sprinkle joy into your celebrations. This season, Goldberg's is excited to unveil an expanded menu featuring holiday flavors, a limited time Naughty and Nice Hot Cocoa Bar, and its quintessential Hannukah catering lineup.   Get ready to jingle your taste buds with the Gingerbread Bagel, perfectly paired with the new Orange Cranberry Cream Cheese. This duo is sure to elevate breakfast and brunch experiences by adding a splash of holiday cheer to your table. Available for a limited time only at participating Goldbergs locations, these festive treats are not to be missed! Whether you're dining in, picking up, enjoying delivery, or planning an unforgettable catered event, Goldbergs has you covered for all your holiday cravings.   But the festivities don't stop there! Join us at the Battery Park location, where we will unveil a Limited-Time Naughty and Nice Hot Chocolate Bar—a whimsical experience for kids and adults alike. Guests can choose to have their hot chocolate naughty with a splash of rum or nice with the classic recipe—either way, it's a sweet treat you won't want to miss!   "We are thrilled to offer our guests a variety of ways to celebrate the holiday season," said Bradley Saxe, Co-Chief Executive Officer for Goldbergs Group. "This joyful time of year centers around food and being with loved ones, and we are delighted to be the go-to place for many in our community. Additionally, in the spirit of giving, we're collecting toys for Foster Care Support until December 15, and all donations will receive one complimentary bagel and cream cheese!"   While Hanukkah falls late this year, you can start planning early with the original Jewish deli in Atlanta. Goldbergs offers the convenience of ready-to-eat meals that maintain the traditional flavors you love. From Dec. 24 to Jan. 2, Goldbergs will provide a specially curated Hanukkah menu for pick-up, bringing the best of traditional Jewish cuisine right to your table. Whether you're hosting a family dinner or gathering with friends, our menu ensures you'll celebrate in style with authentic, mouth-watering dishes. The Hanukkah catering menu features matzo ball soup, brisket with gravy, sweet noodle kugel, and chopped chicken liver.   Order your Hanukkah catering from the Goldbergs locations in Battery Park, Buckhead, Dunwoody, East Cobb, Toco Hills, or West Paces. Available while supplies last. For catering orders and information, contact: Howard Aaron at (404) 256-3751 or catering@goldbergbagel.com.   For more information, visit www.goldbergsfinefoods.com or follow them on Facebook @GoldbergsBagels or Instagram @GoldbergsFineFoods. Download the Goldbergs Fine Foods app via Google Play or the App Store and receive 10% off your first mobile order.  About Goldbergs Group  Goldbergs Group is headquartered in Atlanta, GA. For more than 50 years, the company has specialized in restaurant operations, customer service, and premium food production. Their subsidiaries include Goldbergs Concessions, Goldbergs Fine Foods, Braves All Star Grill, Mainline Foods, Mainline Aviation, Goldway Construction, Goldline Catering Co., and Goldbergs Commissary. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516763/get-in-the-festive-spirit-with-goldbergs-fine-foods-this-holiday-season)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/goldbergs-fine-foods-unveils-expanded-holiday-menu-and-hot-cocoa-bar/f8da50abcc631e32abce8f972b2a8778) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1h5umha/goldbergs_fine_foods_unveils_expanded_holiday/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2412/3/loft7qOk.webp)
