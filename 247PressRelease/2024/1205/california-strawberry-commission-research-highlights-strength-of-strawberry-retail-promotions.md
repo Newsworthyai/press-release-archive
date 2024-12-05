@@ -1,0 +1,20 @@
+# California Strawberry Commission Research Highlights Strength of Strawberry Retail Promotions
+
+WATSONVILLE, CA, December 05, 2024 /24-7PressRelease/ -- The California Strawberry Commission released its 2024 State of the Strawberry Category Report, demonstrating the power of strawberries in driving berry category sales, growth, and promotional performance. The report shows that strawberries continue to dominate the fresh berry category, achieving remarkable growth in both volume and dollar sales over the past year.  Key Findings1 from the 2024 State of the Strawberry Category Report Include:  •	Double-Digit Volume Growth: Strawberry volume increased +11% year-over-year, outpacing all other berry varieties. Strawberries held a 60% share of the berry category volume with +153.6 million pounds in incremental sales. Over the same period, strawberries held a 43% share of total berry dollar sales, with a +5% increase in dollar sales. This growth equated to an additional+$235.9 million in category sales.  •	Conventional vs. Organic: Conventional strawberries dominated the market, accounting for 91% of total volume. However, organic strawberries showed impressive volume growth of +12%, outperforming conventional strawberries by +1 percentage point.  •	Packaging and Regional Trends: Across package sizes, 16 oz. and 32 oz. packages accounted for 98% of total strawberry sales, with the 32 oz. package experiencing a +15% increase in volume. Regionally, the Southeast led in category development, posting a +14% volume increase, while the Northeast held the largest market share.  •	Promotional Efforts: The report showed that more than half of strawberry volume was sold on promotion at an average price discount of -26%, which drove a promoted volume lift of nearly +43%.  •	Peak Season Performance: Over 652 million pounds of strawberries were sold at retail during peak season, which spans from April to July, generating $1.7 billion in category sales.  1Total U.S., Circana. 52 weeks ending 7-14-2024  "We're very excited to share the sales opportunities highlighted in our 2024 State of the Strawberry Category Report, which reflects the growing consumer demand for fresh strawberries and the strong performance of retail promotions," said Chris Christian, vice president, market insights at the California Strawberry Commission. "This report provides valuable data for retailers, berry shippers, and industry stakeholders to optimize their strategies and capitalize on the momentum of the strawberry category."  Industry professionals can access a summary of State of the Category findings and more information on retail sales and shopper trends at https://www.californiastrawberries.com/retail.  About the California Strawberry Commission The California Strawberry Commission represents more than 300 strawberry farmers, shippers, and processors, all working together to advance strawberry farming for the future of our land and people. Commission programs create opportunities for success through groundbreaking programs focused on workforce training, strawberry production research, and nutrition research. Through science-based information and education, it delivers good news about sustainable farming practices that benefit the health of people, farms, and communities. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516800/california-strawberry-commission-research-highlights-strength-of-strawberry-retail-promotions)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/california-strawberry-commission-reveals-2024-state-of-the-strawberry-category-report/4c35927bebfdae419e28e00faaa77a33) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1h74euw/california_strawberry_commission_reveals_2024/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2412/5/coolboMR.webp)

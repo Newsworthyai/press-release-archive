@@ -1,0 +1,18 @@
+# WebCE Launches New Course to Help CFP® Professionals Navigate Updated Ethics Standards
+
+DALLAS, TX, December 05, 2024 /24-7PressRelease/ -- WebCE®, a leading provider of online continuing education and training for financial professionals, is excited to announce the launch of its new course, "Ethics CE: A Practical Application of CFP Board's Code and Standards." This course is designed to help Certified Financial Planner® professionals meet the updated Ethics continuing education (CE) requirements set forth by the CFP Board, effective July 1, 2024.   The CFP Board has adopted an updated Ethics CE program based on the Code of Ethics and Standards of Conduct (Code and Standards) for CFP® professionals. This new program aims to make the Code and Standards "the foundation for ethical financial planning," reinforcing the commitment of CFP® professionals to uphold the highest standards of competency and ethics.   The Code and Standards imposes specific obligations on CFP® professionals, including a fiduciary duty when providing financial advice and when providing financial planning services.   Key Topics Covered in the New Ethics CE Course Include   1. Understanding Financial Advice and Planning: Recognize when you are providing financial advice as a CFP® professional, identify situations that require financial planning, and understand the additional responsibilities involved.   2. Applying Fiduciary Duty: Learn how to appropriately apply the fiduciary duty in your practice to uphold ethical standards.   3. Client Communication and Documentation: Determine the necessary information to provide to clients, understand when to document exchanges, and identify your duties when using or referring other service providers or technologies.   4. Compliance and Integrity: Describe the CFP Board's process for upholding the integrity of, and ensuring compliance with, the Code and Standards.   The CFP Board's Continuing Education team worked with a volunteer Advisory Group made up of CFP professionals and others across the CFP community to develop this program. The goal of the program is to build public trust and further elevate financial planning as a distinct and valuable profession.   "Ethics CE: A Practical Application of CFP Board's Code and Standards" is now available through WebCE's online platform. CFP® professionals can enroll in the course today to fulfill their new Ethics CE requirement.   To order the course, visit www.webce.com or call our award-winning Support Services team at (877) 488-9308.  About WebCE   WebCE® is a leading provider of online education and training solutions for professionals in a wide range of industries. With a mission to help individuals and organizations meet their professional development goals, WebCE offers a comprehensive catalog of high-quality courses designed to support lifelong learning and career advancement. For decades, WebCE has consistently delivered innovative, convenient, and user-friendly educational solutions to help professionals reach their career goals. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516795/webce-launches-new-course-to-help-cfp-professionals-navigate-updated-ethics-standards)
+                    
+
+[Newsramp.com TLDR](https://newsramp.comNone) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2412/5/mailPkcJ.webp)
