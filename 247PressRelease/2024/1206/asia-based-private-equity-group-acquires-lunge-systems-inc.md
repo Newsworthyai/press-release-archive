@@ -1,0 +1,20 @@
+# Asia-Based Private Equity Group Acquires Lunge Systems, Inc.
+
+SINGAPORE, December 06, 2024 /24-7PressRelease/ -- In a significant development in the Artificial Intelligence (AI) and enterprise solutions sector, Lunge Systems, a pioneer in Evidence-Driven AI, has been acquired by an Asia-based private equity group. The acquisition marks a new chapter for Lunge Systems, which will continue to deliver cutting-edge solutions to its clients while expanding its technological and strategic capabilities.  Known for its flagship product, the Enterprise Priority Management platform, Lunge Systems has helped global clients optimize decision-making in the AI age. The platform combines advanced analytics, the codification of strategic wisdom, and reliance on empirical models to drive measurable outcomes. Its innovative approach has positioned it as a trusted partner for enterprises navigating complex challenges.  Co-Founder Abhay Gupta commented on the evolution of the company's groundbreaking technology:  "The invention and commercialization of Evidence-Driven AI is a natural progression of data-driven decision-making and agent-based workflows. By integrating analytics, codification of wisdom, and empirical models, we empower enterprises to achieve unprecedented precision in strategy and operations."  As part of the acquisition, Lunge Systems' existing product lines will continue uninterrupted, ensuring that its clientele will benefit from sustained innovation and regular platform upgrades.  Additionally, the deal includes the formation of Climate360AI, a non-profit spinoff dedicated to evidence-based climate action. Norman Sam, who will lead the initiative, shared his vision for the new endeavour:  "Lunge Systems' focus on actions and outcomes has had immense, measurable impacts on enterprise efficiencies and individual productivity. Abhay's multidisciplinary approach—combining ideas from strategic consulting, economics, drug trials, operations research, and AI—has been instrumental in shaping this technology. I am excited to lead Climate360AI in leveraging these innovations for evidence-based climate action."  This acquisition reaffirms Lunge Systems' commitment to transforming enterprise operations and highlights the growing significance of AI-driven solutions in addressing global challenges.  For more information about Lunge Systems and its transformative technologies, visit  www.lunge.ai or www.lungesystems.com/enterprise.  Lunge Systems has developed and commercialized a path-breaking technology using "Quantification of Time" to optimally manage multiple priorities. Lunge Systems' Priority Management Platform enables organizations to define their preferences (importance and urgency) over multiple target areas, specify the goals and quantitative measures that track the progress.   We have built a database of "benchmark actionable wisdom" using billions of data points on cause-and effect extracted from wide-range of reputable information sources. This database is leveraged by "Lunge Pathways recommendation engine" guiding users "what-to-do-when-how-and-why". This wisdom is delivered directly to users' calendars.   The third component of Lunge Systems technology is "evidence-driven AI". Using the actual data on users' actions and outcomes, our algorithms are always learning and updating the enormous network of causal relationships (terabytes of data) in real-time. The updated evidence is fed back into our AI models to continuously improve the validity and the actual impact of our recommendation engine. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516816/asia-based-private-equity-group-acquires-lunge-systems-inc)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lunge-systems-acquired-by-asia-based-private-equity-group-forms-climate360ai/226c036cb8af6c2fd3984ac4c74bff23) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1h7wnoc/lunge_systems_acquired_by_asiabased_private/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2412/6/bendt_oL.webp)
