@@ -1,0 +1,20 @@
+# NetCom Learning Named a 2024 Geo and Global AWS Partner Award Finalist
+
+NEW YORK, NY, December 07, 2024 /24-7PressRelease/ -- NetCom Learning is excited to announce that we are a finalist for the 2024 Geography and Global AWS Partner Award, recognizing leaders around the globe who are playing key roles in helping their customers drive innovation and build solutions on Amazon Web Services (AWS). NetCom Learning is excited to announce it has been named a finalist of the Training Partner of the Year category, recognizing significant contributions related to the number of students trained, number of classes delivered, and YoY student growth.   The Geography and Global AWS Partner Awards recognize AWS Partners that have embraced specialization, innovation, and cooperation over the past year, along with partners whose business models continue to evolve and thrive on AWS as they support their customers. In one of the noteworthy instances, NetCom Learning helped a major US bank transform its cloud strategy by delivering targeted AWS training. The bank's IT engineers teams underwent a comprehensive AWS certification program, resulting in 95% of participants earning AWS Solutions Architect credentials.   "Being recognized as a finalist for the AWS Training Partner of the Year award validates our commitment to delivering excellence in cloud education," said Russell Sarder, CEO of NetCom Learning. "By combining AWS-certified expert instructors with customized training delivery, we've helped thousands of professionals master AWS technologies. This recognition reinforces our mission to empower organizations with the practical cloud skills they need to innovate and compete in today's digital landscape."   "The personalized training experience at NetCom Learning was invaluable. While I had previously explored AWS through self-paced platforms, NetCom's instructor-led approach provided a deeper, more comprehensive understanding of the material. The instructor's commitment to ensuring our complete grasp of each concept truly set this training apart. Their expertise and dedication made complex cloud computing concepts accessible and practical."   Manager, Cybersecurity & Tech Risk - KPMG    The Geography and Global AWS Partner Awards included a self-nomination process across several award categories, awarded at both the geographic and global level. All AWS Partners were invited to participate and submit a nomination. Award submissions were reviewed by a third-par ty, Canalys, and selected with special emphasis placed on customer success use cases.     The AWS Partner Network (APN) is a global program focused on helping partners innovate, accelerate their journey to the cloud, and take full advantage of the breadth and depth of AWS.    NetCom Learning is an AWS Advanced Tier Official Training Partner that helps build innovative learning organizations in the workplace by structuring a smarter workforce, supporting changes, and driving growth. With more than 26 years of experience, NetCom Learning has been empowering innovative learning organizations to adapt and drive growth in this fast-paced world by closing critical skill gaps and ensuring smooth deployment, implementation, and consumption through authorized training delivered by Certified Trainers on vendors such as Microsoft, AWS, Cisco, AI Certs, EC-Council, CompTIA, and more. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516874/netcom-learning-named-a-2024-geo-and-global-aws-partner-award-finalist)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/netcom-learning-named-finalist-for-geography-and-global-aws-partner-award/82c9a8587b245fd7d324f16960a4dc2a) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1h8nzao/netcom_learning_named_finalist_for_geography_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2412/7/lineHRu2.webp)
