@@ -1,0 +1,20 @@
+# Code Read Partners with West Coast Customs to Launch Custom Bookmobile for Underserved Youth in Los Angeles
+
+LOS ANGELES, CA, December 10, 2024 /24-7PressRelease/ -- Code Read, a nonprofit dedicated to promoting literacy by providing books to children in need, is thrilled to announce an exciting new collaboration with world-renowned custom automotive shop West Coast Customs. Together, they are launching a one-of-a-kind custom bookmobile to bring free books directly to low-income communities in Los Angeles.  Through this unique partnership, West Coast Customs transformed a standard vehicle into a mobile free bookstore for children of all ages. With an eye-catching design and state-of-the-art features, the Code Read Bookmobile will serve as a beacon of inspiration, drawing attention to the power of reading and the importance of access to books.  "The bookmobile is an amazing way for us to reach more kids and communities than ever before. We're so excited for the new opportunities it brings for our programs, I can't wait to see how many books we're able to give away when we launch in 2025," said Madelyn Krestul, age 16, Code Read Senior Ambassador.   "Code Read's mission has always been to break down barriers to literacy by making books accessible to children who need them most," added Mackenzie Robin Krestul, Founder and President of Code Read. "Partnering with West Coast Customs to create this incredible bookmobile will allow us to reach even more children and spark a love of reading in communities across Los Angeles. We are excited to hit the road and bring the joy of books to kids who might not otherwise have access."   The Code Read Bookmobile will travel to schools, community centers, and neighborhoods across Los Angeles, targeting areas where literacy resources are scarce. It will not only distribute free books but also host reading events, storytelling sessions, and activities designed to engage and empower young readers.  Ryan Friedlinghaus, West Coast Customs Founder and CEO, added, "We are happy to be in partnership with Code Read and creating this bookmobile is a great opportunity for West Coast Customs to be able to give back to our community and getting kids excited about reading, even better!"  For more information on the Code Read Bookmobile, upcoming events, or how to support Code Read's mission, please visit www.coderead.org.  About Code Read Founded by Mackenzie Robin Krestul, Code Read is a youth led nonprofit organization that works to provide new books to children in need, with a focus on empowering children through literacy. Since its inception, Code Read has distributed over 60,000 new books to schools, shelters, and underserved communities across Los Angeles.  About West Coast Customs Internationally recognized for its original designs and concepts, cutting-edge technology and unparalleled craftsmanship, the West Coast Customs flagship 60,000 square foot facility, headquartered in Burbank, CA and features 12 leading-edge departments offering a range of extraordinary custom services for projects of any size, scope or budget. Recognized as the game-changing car customization phenomenon, Friedlinghaus' West Coast Customs continues to create impeccably customized cars for a wide and varying clientele ranging from pro athletes, actors and musicians to Fortune 100 companies and even royalty. www.westcoastcustoms.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/516884/code-read-partners-with-west-coast-customs-to-launch-custom-bookmobile-for-underserved-youth-in-los-angeles)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/code-read-and-west-coast-customs-launch-custom-bookmobile-to-bring-free-books-to-underserved-communities/6be9d943aaa7030f9dc7ccda81ed3bee) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1hax5eq/code_read_and_west_coast_customs_launch_custom/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2412/10/paveoEEL.webp)
