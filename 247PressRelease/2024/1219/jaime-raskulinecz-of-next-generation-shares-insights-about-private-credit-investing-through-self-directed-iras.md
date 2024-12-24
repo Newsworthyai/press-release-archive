@@ -1,0 +1,20 @@
+# Jaime Raskulinecz of Next Generation Shares Insights About Private Credit Investing Through Self-Directed IRAs
+
+ROSELAND, NJ, December 19, 2024 /24-7PressRelease/ -- Jaime Raskulinecz, CEO of Next Generation Trust Company, recently shared information for self-directed investors about including private credit—also called private debt—in their SDIRAs. The alternative asset class is growing due to tighter lending policies among traditional financial institutions. The tighter credit market has created opportunities for investors to become lenders through their self-directed retirement accounts.   Next Generation specializes in the administration of and asset custody for self-directed retirement plans. These plans allow investors—who make all their own investment decisions—to diversify their retirement portfolios with a broad array of alternative assets such as real estate, precious metals, royalties, private equity funding, commodities, and many more.  "Private credit is a way for small or middle-market companies to borrow needed funds from non-bank entities and for investors to generate sustainable fixed income," said Raskulinecz.   In her article, she noted that the private credit market was around $1.5 trillion at the start of 2024, up from approximately $1 trillion in 2020. Projected growth estimates are that it will reach $2.8 trillion by 2028.   The benefits of private credit investing Raskulinecz explained that through private credit investing, businesses get the cash as a loan and investors get a fixed return on the investment. As with all self-directed investments of this nature, terms are agreed upon in advance by both parties.   "Including private credit in their retirement account enables investors to create portfolio diversity and a hedge against market volatility, while enjoying a reliable income stream regardless of the economic environment," said Raskulinecz, who added that there are a range of private credit opportunities available. These include but are not limited to:  •	direct lending to private, non-investment-grade companies •	investing in mezzanine or "junior capital" debt  •	real estate lending  •	asset-based lending •	private credit funds  The full article about private credit investing through a self-directed IRA is here. More information about the many options and benefits of SDIRAs is at https://www.NextGenerationTrust.com.  About Next Generation Founded on the philosophy that every person should have control over their retirement plans, Next Generation educates consumers and professionals about self-directed retirement plans and nontraditional investments, a strategy at one time reserved only for the very wealthy. Next Generation Services provides comprehensive account administration and transaction support, and its sister company, Next Generation Trust Company, acts as custodian for all accounts. The neutral third-party professionals at Next Generation expertly guide clients and their trusted advisors as part of their white glove, personalized service for a seamless transaction experience from start to finish. For more information, visit www.NextGenerationTrust.com, or contact Next Generation at 888.857.8058 or NewAccounts@NextGenerationTrust.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press_release/517218/jaime-raskulinecz-of-next-generation-shares-insights-about-private-credit-investing-through-self-directed-iras)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/next-generation-trust-company-ceo-shares-insight-on-private-credit-in-self-directed-iras/281e5abfc9f962db8280a4f88f0287b6) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1hhv06p/next_generation_trust_company_ceo_shares_insight/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2412/19/yawnRcyx.webp)

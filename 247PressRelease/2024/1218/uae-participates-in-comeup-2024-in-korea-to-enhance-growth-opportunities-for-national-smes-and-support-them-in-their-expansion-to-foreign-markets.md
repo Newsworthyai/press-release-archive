@@ -1,0 +1,20 @@
+# UAE participates in ComeUp 2024 in Korea to enhance growth opportunities for national SMEs and support them in their expansion to foreign markets
+
+DUBAI, UAE, December 18, 2024 /24-7PressRelease/ -- A United Arab Emirates (UAE) delegation, led by Her Excellency Alia bint Abdullah Al Mazrouei, UAE Minister of State for Entrepreneurship, participated in the ComeUp startup festival held in the Korean capital, Seoul, recently on December 2024. The UAE's participation in the forum was aimed at enhancing cooperation with Korea in the fields of entrepreneurship, SMEs, advanced technology and innovation, and exchanging experiences and policy frameworks in these fields.  The UAE pavilion at the exhibition, set up by the Ministry of Economy, showcased 28 small and medium-sized companies who highlighted their products and services that harness latest technological solutions and AI, enabling them to attract investments that aid business growth.   Her Excellency said: "The UAE delegation's participation in the exhibition this year represents an important milestone in our efforts to support the economic relations between the two countries in the field of entrepreneurship. It is also an ideal opportunity to open new global markets for the UAE's SMEs and support them in promoting their projects to a large base of investors in Korea and many countries around the world. These efforts are of great significance since SMEs constitute 94% of the total companies operating in the UAE markets, and contribute 63.5% to our non-oil GDP."  "The UAE Ministry of Economy is committed to providing all forms of support to Emirati entrepreneurs and creating a supportive environment for the growth of their businesses, enabling them to attract investments and promote their products and services in foreign markets. This is in line with the objectives of the National Agenda for Entrepreneurship and SMEs, which aims make the UAE a true entrepreneurial nation by 2031," she added.   Her Excellency Alia Al Mazrouei shed light on the initiatives under the UAE's new entrepreneurship system, which aims to sustain the UAE's leadership and competitiveness in this field and increase the rate of success for entrepreneurs from 30 percent to 50 percent by 2031. Her Excellency Alia Al Mazrouei urged Korean investors and entrepreneurs to capitalize on the UAE's dynamic entrepreneurial environment and explore business and partnership opportunities available across various vital sectors.  The forum featured a session focused on the UAE, titled "The UAE: Your First Gateway to Business and Investment." In addition, several UAE entrepreneurs delivered impressive presentations on their pioneering projects and products during various sessions and held meetings with investors and venture capitalists who participated in the exhibition.   Furthermore, Her Excellency Alia Al Mazrouei attended the MoU signing between the UAE's Digitalstores and Shukran Korea, aimed at enhancing the opportunities for the expansion of Korean companies to the UAE, particularly in the fields of storage and delivery. H.E. also attended the signing of an MoU between Remal IoT and Sungjin Techwin, which saw both parties agree to merge under the name Remal. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/517135/uae-participates-in-comeup-2024-in-korea-to-enhance-growth-opportunities-for-national-smes-and-support-them-in-their-expansion-to-foreign-markets)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uae-delegation-showcases-smes-at-comeup-startup-festival-in-seoul/b4e9ecb8ff2b53b94bbb45b0581b31e6) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1hgx440/uae_delegation_showcases_smes_at_comeup_startup/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2412/18/meanUtu8.webp)

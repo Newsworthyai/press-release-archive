@@ -1,0 +1,20 @@
+# Getting Data AI-Ready
+
+SYDNEY, AUSTRALIA, December 18, 2024 /24-7PressRelease/ -- As large organizations race to take advantage of the possibilities of artificial intelligence, many don't realize how crucial it is to accurately curate and prepare their data first. This is a top trend facing global organizations, says Dave Curtis, Chief Technology Officer at RobobAI, (pronounced robo buy) a global fintech company leveraging AI technology to help global organizations ethically transform global supply chains.  A key reason most AI projects fail to deliver, Curtis says, is unforeseen costs associated with collecting and rectifying data issues.  "Accurate and complete data is the foundation of all analytics on which business decisions are made. Additionally, downstream use of this analytical data — including AI predictive models — requires a lot of historical information to predict the future," Curtis says. "Many companies we work with regularly comment on how poor their data quality is, which is due to a combination of factors, including multiple sources of the truth, lack of automation or validated sources, or manual data entry errors. This creates a real barrier to utilizing the data for purposes of decision making."  The use of automation tools, if applied correctly, will reduce the workload of business users, reduce turnaround time, and enable underlying data to be used more readily for other business applications, including AI/ML use cases.  RobobAI is seeing an increase in trial uses of AI — not for predictive modeling, but to address data deficiencies in a way that substantially reduces the manual effort required to deliver it, Curtis says.  "It also means addressing how you keep the data right once corrected," he says. "Many organizations we encounter have whole teams working exclusively on data fixes. Companies are exploring where they can get demonstrable ROI by reducing/removing this effort."  For example, RobobAI platforms utilize AI techniques to assist with improvements such as NLP, clustering, and others to preprocess data to identify and reduce duplication and enhance data records with missing attributes from other sources.  "There is a big focus on analytics and AI, but clearly organizations need to look at their foundations first, and this is what is missing in many cases," Curtis says. "Companies need to consider the entire end-to-end model when building a case and understanding the potential returns."  About: Dave Curtis is Chief Technology Officer at RobobAI, a cutting-edge AI platform revolutionizing how organizations manage their supply chains ethically and commercially. A senior technology executive with experience in both large multinational corporations and technology start-ups, Dave is committed to supporting the C-Suite in using technology to identify and execute on strategic opportunities to drive business performance and value. With over two decades of experience in technical solutions, artificial intelligence and machine learning, he leads a talented team of engineers and researchers in developing innovative solutions that redefine the future of automation. Explore robobai.com.  Online press kit: robobai.onlinepresskit247.com  For more information or interview requests, contact Executive Publicist Michelle Tennant Nicholson at Michelle@WasabiPublicity.com or 828-749-3200. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/517181/getting-data-ai-ready)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/robobai-cto-highlights-importance-of-data-quality-in-ai-projects/31fd00a28e978be937b0243f2b77b48e) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1hgx42g/robobai_cto_highlights_importance_of_data_quality/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/2412/18/milkKzNJ.webp)
