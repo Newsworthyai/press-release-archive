@@ -20,15 +20,17 @@ https://www.google.com
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/effective-strategies-for-promoting-your-business-335601)
+[Original/Source Press Release](https://newsramp.com/news/press-services/en/effective-strategies-for-promoting-your-business-335601/89b037e152a87da28ea9ee4f2476e50c)
                     
 
 [Newsramp.com TLDR](https://newsramp.com/curated-news/top-7-ways-to-effectively-promote-your-business-and-boost-growth/89b037e152a87da28ea9ee4f2476e50c) 
 
  
 
- 
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1hsnxuc/top_7_ways_to_effectively_promote_your_business/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2412/30/cakex_Gz.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/251/3/fineeq6I.webp)

@@ -16,15 +16,17 @@
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/top-seo-tips-and-tricks-to-boost-your-websites-rankings-335602)
+[Original/Source Press Release](https://newsramp.com/news/press-services/en/top-seo-tips-and-tricks-to-boost-your-websites-rankings-335602/64f0fb28b3115085120fbb700c70d76c)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/7-powerful-seo-tips-to-boost-your-website-s-visibility/64f0fb28b3115085120fbb700c70d76c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/boost-your-website-visibility-with-7-seo-tips-from-goodwill-industries-intl/64f0fb28b3115085120fbb700c70d76c) 
 
  
 
- 
+
+
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1hso2hy/boost_your_website_visibility_with_7_seo_tips/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2412/30/apexRHym.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/251/3/loss0XUv.webp)

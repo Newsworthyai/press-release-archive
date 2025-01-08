@@ -52,7 +52,7 @@ https://www.google.com
 
 ---
 
-[Original/Source Press Release](https://mediawiretoday.com/empower-your-small-business-effective-marketing-approaches-for-maximum-impact-329194)
+[Original/Source Press Release](https://newsramp.com/news/press-services/en/empower-your-small-business-effective-marketing-approaches-for-maximum-impact-329194/4707fe6513d85bafe2b3b6d14529dbb8)
                     
 
 [Newsramp.com TLDR](https://newsramp.com/curated-news/top-marketing-strategies-for-small-businesses-driving-growth-with-limited-resources/4707fe6513d85bafe2b3b6d14529dbb8) 
@@ -61,8 +61,8 @@ https://www.google.com
 
 
 
-[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1hpp5ee/top_marketing_strategies_for_small_businesses/) 
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1hsnuan/top_marketing_strategies_for_small_businesses/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/2412/30/icyrVNb.webp)
+![Blockchain Registration](https://cdn.newsramp.app/press-services/qrcode/251/3/kiwiGHGL.webp)

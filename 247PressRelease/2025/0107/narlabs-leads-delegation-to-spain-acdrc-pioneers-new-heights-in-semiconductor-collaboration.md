@@ -1,0 +1,20 @@
+# NARLabs Leads Delegation to Spain: ACDRC Pioneers New Heights in Semiconductor Collaboration
+
+BARCELONA, SPAIN, January 07, 2025 /24-7PressRelease/ -- On December 9, 2024, the National Applied Research Laboratories (NARLabs) delegation, led by Dr. Mei-Yu Chang, Director of the Office of International Affairs, joined Taiwan's semiconductor industry leaders at the Semi Impact Forum 2024 - Catalonia Chapter in Barcelona, Spain. This event highlighted Taiwan's leading position in the global semiconductor landscape and fostered enhanced Taiwan-Europe collaboration.  Professor Konrad Young: Taiwan's Semiconductor Ecosystem Professor Konrad Young, a former R&D Director at TSMC and renowned as one of the "Six Knights of Innovation," delivered the keynote speech, illustrating Taiwan's journey from nurturing talent to building a comprehensive semiconductor ecosystem. He emphasized the significant role Taiwan plays in the global semiconductor industry, using TSMC as a case study.  In a dialogue with Dr. José A. Garrido, Deputy Director of the Catalan Institute of Nanoscience and Nanotechnology (ICN2), Professor Yang shared insights into Taiwan's approach to talent development and ecosystem creation, inspiring global stakeholders with its replicable model.  Strengthening Taiwan-Europe Technical Exchanges The forum brought together global experts, including Dr. Yu-Hsueh Hsu, COO of NARLabs, and Dr. Wei-Cheng Huang of the National Center for High-performance Computing (NCHC, NARLabs), alongside prominent European figures like Professor Rui Carlos Oliveira of INESC TEC, Portugal, and Dr. Osman Unsal of the Barcelona Supercomputing Center (BSC). Discussions centered on distributed systems, quantum computing, and IoT infrastructure, fostering a shared vision for future technological advancements between Taiwan and Europe.  ACDRC: A Taiwan-Czech Collaboration Success Story The Advanced Chip Design and Research Center (ACDRC), a partnership between Taiwan and the Czech Republic, emerged as a forum highlight. NARLabs and Brno University of Technology representatives discussed how Taiwan's longstanding efforts in semiconductor talent development are driving innovation in the Czech Republic.  ACDRC's contributions in chip design, AI, and automotive electronics drew widespread attention. Dr. Chang noted, "ACDRC has reinforced Taiwan-Czech cooperation and become a driving force for international technological exchange and market expansion. This model is set to be replicated across Europe."  LMT: Bridging Academia and Industry Dr. Kuan-Jung Chen, CTO of Light Momentum Technology (LMT), shared how the company integrates IC design and manufacturing with market-driven innovation through ACDRC's platform. LMT's efforts have facilitated academic-industry collaboration, advancing semiconductor capabilities in Taiwan and the Czech Republic while addressing market demands effectively.  ACDRC's Global Momentum and Future Outlook The forum provided a global stage for ACDRC to showcase its impact and scalability. NARLabs reaffirmed its commitment to expanding collaborations with Spain, the Czech Republic, and other European nations, while seeking new opportunities for international alliances.  As a catalyst for innovation and market growth, ACDRC is set to drive Taiwan's leadership in the semiconductor industry and strengthen its position on the global stage. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/517586/narlabs-leads-delegation-to-spain-acdrc-pioneers-new-heights-in-semiconductor-collaboration)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/taiwan-s-semiconductor-leadership-showcased-at-semi-impact-forum-2024-in-barcelona/b8e6d3059699c3916b755cf64f3a804d) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1hvmuz5/taiwans_semiconductor_leadership_showcased_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/251/7/filofpCY.webp)

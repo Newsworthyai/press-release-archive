@@ -1,0 +1,20 @@
+# PRSONAS™ and Humanate Digital Announce Strategic Partnership to Transform Healthcare Workforce Solutions with Agentic AI
+
+WAKE FOREST, NC, January 07, 2025 /24-7PressRelease/ -- PRSONAS™, a leader in agentic artificial intelligence, today announced a transformative technology partnership with Humanate Digital, a trailblazer in innovative healthcare workforce solutions. This collaboration leverages PRSONAS' cutting-edge Digital Experience Platform (DXP) to provide approachable and empathetic avatars, elevating patient engagement and operational efficiency across healthcare systems.   Humanate Digital uses proprietary technology to address critical endemic challenges in healthcare, such as resource allocation, cost reduction, and improving patient outcomes. By integrating PRSONAS' advanced agentic AI avatars into their solutions, Humanate Digital will empower healthcare providers with a seamless, interactive, and touchless experience to address repetitive inquiries 24/7 in any desired language.   "Our partnership with Humanate Digital combines our expertise in creating digital personalities with their focus on solving healthcare's most pressing challenges," said Chuck Rinker, CEO of PRSONAS™. "Together, we are redefining patient interaction by delivering scalable, always available solutions that enhance the overall healthcare experience."  The integration of PRSONAS' empathetic AI avatars within Humanate Digital's platforms ensures that healthcare organizations can offer round the clock patient engagement. The avatars provide a human-like touch while enabling multilingual communication, support diverse patient populations, and alleviating administrative burdens on healthcare teams.   "Humanate Digital's DNA is about empowering patients' access to their medical care, while reducing the costs and burdens to healthcare providers on labor-intensive administrative tasks. These solutions will allow clinicians to spend more time in front of their patients. By partnering with PRSONAS™, we're able to offer healthcare providers a powerful empathetic AI agent personality to improve both workforce satisfaction and patient outcomes." said Carlos A. Rodriguez MBA, CEO of Humanate Digital.  Some of the benefits of this new partnership include.   •	24/7 Patient Engagement: Always available agentic AI avatars handle repetitive questions and interactions, enhancing accessibility and patient satisfaction.  •	Multilingual Communication: Approachable and empathic avatars communicate in any desired language supporting diverse patient populations.  •	Improved Efficiency: Streamlined workflows reduce the administrative burden on healthcare staff, allowing them to focus on high-value tasks. •	Cost Reduction: Scalable AI solutions help healthcare providers optimize resources and lower operational costs.  •	Enhanced Patient Experience: Touchless, interactive agentic AI avatars create a more personalized and approachable healthcare environment.  PRSONAS™ is a pioneer in agentic artificial intelligence offering human-like AI solutions that enable businesses to deliver personalized, multilingual, and interactive experiences. Through it's Digital Experience Platform, PRSONAS™ provides scalable and engaging solutions for healthcare providers, hospitals and healthcare facilities. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/517602/prsonas-and-humanate-digital-announce-strategic-partnership-to-transform-healthcare-workforce-solutions-with-agentic-ai)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prsonastm-partners-with-humanate-digital-to-revolutionize-healthcare-interaction/ea01bd512b434844d1690824a727210d) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1hvmu76/prsonas_partners_with_humanate_digital_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/251/7/quitHDCK.webp)
