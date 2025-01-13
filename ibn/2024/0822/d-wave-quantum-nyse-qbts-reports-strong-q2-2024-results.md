@@ -26,21 +26,17 @@
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ult-prem/d-wave-quantum-nyse-qbts-reports-strong-q2-2024-results/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/d-wave-quantum-nyse-qbts-reports-strong-q2-2024-results/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-reports-strong-q2-2024-results-and-strategic-achievements/5b20ce58435631301e68d57d4bb7f46e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-reports-strong-q2-2024-results-and-strategic-achievements/3313526e1a00b3f1aed345087083f7cf) 
 
-
-Pickup - [citybuzz.co](https://citybuzz.co/2024/08/22/d-wave-quantum-reports-impressive-q2-2024-results-with-significant-growth-across-key-metrics)
-
-Pickup - [newsworthy.ai](https://newsworthy.ai/curated/d-wave-quantum-reports-significant-growth-in-q2-2024-financial-results/20246210)
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1f2s7o4/dwave_quantum_reports_strong_q2_2024_results_and/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1i0qrkf/dwave_quantum_reports_strong_q2_2024_results_and/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/248/27/rainfTgU.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/251/13/pinexTMc.webp)
