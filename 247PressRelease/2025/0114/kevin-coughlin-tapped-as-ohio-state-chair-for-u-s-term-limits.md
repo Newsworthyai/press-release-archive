@@ -1,0 +1,20 @@
+# Kevin Coughlin Tapped As Ohio State Chair For U.S. Term Limits
+
+WASHINGTON, DC, January 14, 2025 /24-7PressRelease/ -- Today, U.S. Term Limits announces that former State Representative and State Senator Kevin Coughlin has agreed to be the Ohio State Chair for U.S. Term Limits. He is succeeding Bernie Moreno who was elected to the United States Senate from Ohio. Coughlin brings a depth of both private and public service to this role. He has seen first-hand the need for term limits at the federal level and will work tirelessly in his role as Ohio State Chair to see that Ohio adopts a resolution for term limits.   "I'm pleased to be passing the mantle to Kevin Coughlin to get term limits passed in Ohio," said Bernie Moreno. "The American people want congressional term limits, and I'm confident Kevin is the man to get the job done in our state."  "I am very honored to be serving as the Ohio Chair for U.S. Term Limits and succeed our new Senator Bernie Moreno who has been a tireless advocate for congressional term limits," said Coughlin. "Now more than ever before, the need for term limits is crystal clear. Polls show that the one issue all Ohioans regardless of political affiliation are united about is the need for congressional term limits.   "Serving in Congress has become for many, a lucrative lifelong job rather than a public service," concluded Coughlin. "Term limits will help end career politicians and make Congress work better for all Americans."  "We are honored to have Kevin leading our efforts in Ohio," said Philip Blumel, President of U.S. Term Limits. "Under their guidance, I am confident we will get our term limits resolution passed in Ohio."  First elected to the Ohio House of Representatives in 1996 where he served until 2001, Kevin Coughlin became a member of the Ohio Senate in 2001 and served until his term was limited in 2011. He left politics and founded the marketing firm Lexington Companies, where he serves as President.  Kevin was elected Clerk of the Stow Municipal Court in 2013 and led it through a period of transition through 2015, computerizing records and upgrading technology in the courthouse. In 2024, he was the Republican nominee for the United States House of Representatives in Ohio's 13th Congressional District. He narrowly lost to an incumbent member in a district that has not had a Republican member of Congress in fifty years.  Kevin serves on the boards of the Capitol Square Foundation and the Western Reserve Hospital Community Business Leaders Council. He is a member of the Summit County Republican Party Executive Committee and has served on the boards of Blossom Music Center, the Ohio Arts Council, Stan Hywet Hall and Gardens, Flying Horse Farms, and as Board President of Ballet Excel Ohio. He is a 1999 Marshall Fellow at the German Marshall Fund of the United States, a member of the Ohio Farm Bureau, a lifetime member of the Darrow Street Grange, and is a commissioned member of the Honorable Order of Kentucky Colonels.  Kevin graduated from Woodridge High School and holds a BA and a Master of Public Administration from Bowling Green State University. He resides in Bath Township, Ohio with his wife Anne. They have two daughters, Kathryn and Elizabeth.  U.S. Term Limits is the largest grassroots term limits advocacy group in the country. We connect term limits supporters with their legislators and work to pass term limits at all levels of government, particularly on the U.S. Congress. Find out more at termlimits.org. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/517838/kevin-coughlin-tapped-as-ohio-state-chair-for-us-term-limits)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kevin-coughlin-appointed-ohio-state-chair-for-u-s-term-limits/15d243b5d4dc49ed14c706030b395474) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1i11ene/kevin_coughlin_appointed_ohio_state_chair_for_us/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/251/14/ferngjte.webp)
