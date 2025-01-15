@@ -1,6 +1,6 @@
 # Ocean Thermal Energy Corporation Collaborates with Johnson Controls on $3.5 Million Contract for U.S. Army Energy Independence Project
 
-PHILADELPHIA, PA / PR Karma / January 14, 2025 15:20
+PHILADELPHIA, PA / PR Karma / January 14, 2025 15:45
 
 Ocean Thermal Energy Corporation (OTE Corp), a pioneer in renewable energy technology, announced today that it has partnered with Johnson Controls under its Deep Energy Retrofit Assessment program for engineering planning and design at the U.S. Army Garrison - Kwajalein Atoll (USAG-KA), to advance energy independence for the remote military installation. Under a $3.5 million contract from Johnson Controls, OTE Corp will demonstrate the feasibility of deploying a 17.5MW Ocean Thermal Energy Conversion (OTEC) system, providing a sustainable energy solution that reduces reliance on imported fossil fuels.
 
@@ -28,17 +28,17 @@ Visit Our Website
 
 ---
 
-[Original/Source Press Release](https://newsroom.prkarma.com/otec/news_release/1613)
+[Original/Source Press Release](https://newsroom.prkarma.com/jpfvg/news_release/1613)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ote-corp-partners-with-johnson-controls-for-renewable-energy-project-at-u-s-army-garrison/3fb4e0ba5f8c655e7af84e3c5199ace2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ote-corp-partners-with-johnson-controls-for-otec-system-deployment-at-us-army-garrison/42bf9eb1911f64c1cc55a185b0864560) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1i1ftvv/ote_corp_partners_with_johnson_controls_for/) 
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1i1x358/ote_corp_partners_with_johnson_controls_for_otec/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/251/14/faceJ0p6.webp)
+![Blockchain Registration](https://cdn.newsramp.app/pr-karma/qrcode/251/15/nukecLLz.webp)
