@@ -1,0 +1,20 @@
+# Columbus-area psychiatrist Kristi Maroni named a 2025 Castle Connolly Top Doctor
+
+HILLARD, OH, January 15, 2025 /24-7PressRelease/ -- Kristi A. Maroni, MD, has been recognized as a 2025 Castle Connolly Top Doctor — the second time she has received the esteemed Top Doctor honor. Only about 7 percent of the nation's licensed physicians are chosen annually as Castle Connolly Top Doctors in their regions for their specialties.  A Columbus native, Dr. Maroni has been practicing since 2010 and is certified by the American Board of Psychiatry and Neurology. Dr. Maroni has been in private practice since 2017 at Columbus Psychiatry, in Hilliard, where she delivers outpatient care to children, adolescents, and adults.  She evaluates and treats conditions that include anxiety, depression, attention deficit/hyperactivity disorder (ADHD), obsessive-compulsive disorder (OCD), autism spectrum disorder (ASD), post-traumatic stress disorder (PTSD), and bipolar disorder. She also cares for women who are pregnant, postpartum, and/or nursing.  Dr. Maroni has a vast understanding of severely chronically mentally ill patients. She has worked in a state hospital setting with individuals with schizophrenia and schizoaffective disorder and worked in the same setting caring for those in the forensic population as well.   She is judicious in her use of medications, prescribing them to patients only when absolutely necessary.  "Most patients do not require medication management," Dr. Maroni says. "A combination of therapy and medication management have been known to have the best overall outcome in treatment. Incorporating therapy first is ideal before implementing the use of medication, though I understand for some patients implementing medication first may be necessary based on the degree of symptom presentation and interference in day-to-day life."   Patients can contact Dr. Maroni personally to schedule an appointment. Upon initial presentation, the patients have an hour-long appointment. When working with children, the children are seen first and then parents are brought in after. Patients and families have direct contact with Dr. Maroni as she responds to all patient communication personally and does all of her own scheduling.  Dr. Maroni completed a three-year general psychiatry residency at The Ohio State University Medical Center — serving as chief resident her final year — followed by two years of fellowship training in child and adolescent psychiatry at Nationwide Children's Hospital, also in Columbus, and served as Chief fellow in her final year of fellowship.  Top Doctors are nominated by peer physicians and selected by the physician-led Castle Connolly research team.  "I appreciate the recognition from my peers," Dr. Maroni says. "Having trained and worked with many individuals in the past, it shows they are familiar with my work ethic, compassion, and care brought to the practice of psychiatry."  About Castle Connolly Castle Connolly publishes its Top Doctors list at castleconnolly.com and in a variety of print and online partner publications. Nominations are open to all board-certified MDs, DOs, and DPMs. The Castle Connolly team chooses honorees based on nominee criteria that includes their medical education, training, hospital appointments, and disciplinary histories.  Doctors do not and cannot pay to be selected as a Castle Connolly Top Doctor. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/517233/columbus-area-psychiatrist-kristi-maroni-named-a-2025-castle-connolly-top-doctor)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-kristi-a-maroni-named-2025-castle-connolly-top-doctor-for-outstanding-psychiatric-care-in-hilliard-ohio/7005349fa040da694981ee97dc1077e9) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1i1svcn/dr_kristi_a_maroni_named_2025_castle_connolly_top/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/251/15/lendlWo6.webp)

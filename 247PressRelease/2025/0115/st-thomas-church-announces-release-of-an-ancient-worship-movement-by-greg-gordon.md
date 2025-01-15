@@ -1,0 +1,20 @@
+# St. Thomas Church Announces Release of "An Ancient Worship Movement" by Greg Gordon
+
+ABBOTSFORD, BC, January 15, 2025 /24-7PressRelease/ -- St. Thomas Church is thrilled to announce the release of "An Ancient Worship Movement," a groundbreaking book by Greg Gordon that invites readers to explore and implement the forgotten, yet powerful worship practices of the early Church. In a modern society often distracted by commercialism and denominational divides, this book serves as a call to return to the heart of authentic worship focused solely on God.   In "An Ancient Worship Movement," Greg Gordon emphasizes the spiritual depth and transformative power of church practices that predate today's often fragmented ideologies. The book provides a roadmap for believers looking to deepen their relationship with God, reconnect with the essence of worship, and cultivate a community centered around biblical traditions. As our world grows increasingly complex and fast-paced, Gordon's insights offer a refreshing reminder of God's simplicity and love, enabling individuals to renew their passion for discipleship and outreach.   "This book is not just a publication; it's an invitation to a vibrant movement of God's Spirit in our day," says Steve M., a reader and ministry leader. "It's a clarion call to the Western Church to keep Jesus at the center of our fellowship." Individuals and church leaders alike will find actionable steps to mobilize their congregations and communities towards a more profound worship experience, helping to create a Mission House Church dynamic that fosters discipleship and spiritual awakening. Download the book freely in kindle here: An Ancient Worship Movement Book  Highlights of "An Ancient Worship Movement":   - Rediscover ancient practices often overlooked by modern evangelicals  - Renew your intimate personal walk with God  - Ignited passion for reaching lost souls  - Experience personal spiritual revival  - Equip yourself to start a Mission House Church   Others reviews say:  "This phenomenal book opens that door to that something more in the way of worship and intimacy with the Lord, explaining worship as the apostles did before any denomination or modern-church style of worship that dominates mega churches" - CBM  "A practical guide for those seeking deeper faith, it encourages the revival of pre-denominational worship through house churches." - Eric Foster  "I didn't know much about the Apostolic Church before I read this book. I now have a renewed respect for the liturgical practices and the Biblical truths that inspired this book." - Barb Hegreberg  About St. Thomas Church  St. Thomas Church is a church planting movement dedicated to blending ancient Christian practices with contemporary expressions of worship. With a mission to spread the Good News of Jesus Christ, we seek to make disciples in community with others. Our theological stance affirms the basic biblical doctrines upheld by the historic Christian Church and invites others to be a part of God's work in their local areas. Join us in this transformative movement and discover the joy of worship and community in faith.   Learn more about St. Thomas Church at: https://thomasmovement.com/ 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/518022/st-thomas-church-announces-release-of-an-ancient-worship-movement-by-greg-gordon)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-an-ancient-worship-movement-calls-believers-to-rediscover-authentic-worship-practices/cb7e5ae57c097e40c9d7c581ff428e86) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1i1suy9/new_book_an_ancient_worship_movement_calls/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/251/15/abletcF7.webp)

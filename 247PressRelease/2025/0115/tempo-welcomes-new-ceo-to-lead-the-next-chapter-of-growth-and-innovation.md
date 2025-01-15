@@ -1,0 +1,20 @@
+# Tempo Welcomes New CEO to Lead the Next Chapter of Growth and Innovation
+
+BOSTON, MA, January 15, 2025 /24-7PressRelease/ -- Tempo, a leading software company known for its innovative solutions in strategic portfolio management, is pleased to announce the appointment of Vic Chynoweth as its new Chief Executive Officer. Following an exceptional year marked by record-breaking revenue growth, significant expansion in enterprise customer adoption, and a series of successful acquisitions and product launches, Chynoweth is poised to build on this impressive trajectory. With his wealth of experience running organizations delivering work management solutions and a proven history of driving growth and innovation in the technology industry, he brings a dynamic vision to guide Tempo through its next chapter of success.  "I am honored to join Tempo at such an exciting time in its journey," said Chynoweth. "Tempo has established itself as a trailblazer across strategic roadmaps, portfolio management and time management solutions, and I am eager to work alongside our talented team to build on this foundation. Together, we will continue to innovate and deliver value to our customers and expand on our relationships with strategic partners like Atlassian."  The appointment marks a pivotal moment for the company as it expands upon its success in providing a unified strategic portfolio management platform for large enterprises, continues its business growth and scales its operations for long-term success. Under Chynoweth's leadership, Tempo will strengthen its position across both Atlassian and Tempo ecosystems by expanding its AI adaptive planning solutions and platform offerings, deepening strategic relationships, and exploring new enterprise opportunities for growth.   "We are thrilled to welcome Vic Chynoweth to the Tempo family," said Ron Nayot, Managing Partner of Diversis. "He brings a visionary approach and an impressive background that aligns perfectly with Tempo's mission and goals. I would like to thank his predecessor, Mark Lorion, for his leadership and contributions at Tempo, and we are confident Vic will continue to drive the success of the company and its impressive growth."  About Tempo Software  Tempo Software empowers companies to focus on what matters most – building great products. Tempo's flexible and modular platform helps teams plan, execute and optimize products in alignment with the customer's strategic business priorities. Tempo's platform includes solutions for Strategic Portfolio Management (SPM), Project and Portfolio Management (PPM), and IT Service Management (ITSM) needs. Founded in 2009, Tempo has the support of more than 300 strategic integration partners, and serves 30,000+ customers across a wide range of industries, including one in three Fortune 500 companies.  About Diversis Capital, L.P. Founded in 2013, Diversis is a software and technology focused private equity fund that invests in lower middle-market companies, targeting situations where it can add unique value in helping a company reach the next level. With a collaborative approach to investing, its Operating Partners and Strategic Advisors work alongside management teams to help build successful organizations positioned for long-term growth. To learn more, visit www.diversis.com.  To learn more about Tempo Software, visit www.tempo.io.  Press Contact: PR@tempo.io 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/518020/tempo-welcomes-new-ceo-to-lead-the-next-chapter-of-growth-and-innovation)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tempo-appoints-vic-chynoweth-as-new-ceo-to-drive-innovation-and-growth/13e41c6afa4c32802ab674d3730e1d7f) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1i1svao/tempo_appoints_vic_chynoweth_as_new_ceo_to_drive/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/251/15/yawnAEwu.webp)
