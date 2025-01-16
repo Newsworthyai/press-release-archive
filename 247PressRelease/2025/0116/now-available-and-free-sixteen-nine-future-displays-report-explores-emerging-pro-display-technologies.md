@@ -1,0 +1,20 @@
+# Now Available And Free Sixteen:Nine Future Displays Report Explores Emerging Pro Display Technologies
+
+HALIFAX, NS, January 16, 2025 /24-7PressRelease/ -- The present and future of digital signage display technology is explored in detail in an exhaustive but entirely free report developed and published by the respected online publication Sixteen:Nine.  Called Future Displays, the nearly 250 page report has more than 70 stories - including numerous feature-length articles – exploring the many types of professional display technologies that will shape the future of digital signage – from retail media networks to workplace communications and public, place-based advertising.  The report is a free download as a PDF, and is also available to read online as a page-flip e-magazine. It was in development for several months and based around dozens of interviews and numerous research trips, including to the display hotbed of Taiwan.  Download short-link: t.ly/l6-N9  Future Displays is sorted by topics and interest areas, including microLED, conventional LED, OLED, LCD, visual illusions, media architecture and the fast-rising topic of sustainable display tech. It also explores under-appreciated areas such as display infrastructure and interactive technologies.  The great majority of the report was researched and written by Dave Haynes, the founder and longtime editor of Sixteen:Nine, which has been covering the digital signage sector for the past 19 years. Sixteen:Nine has developed a reputation for being the industry's BS filter, exploring and explaining new technologies and putting them in context.  "There is so much going on with display technology right now that I felt it was important and somewhat necessary to put the time in to really explore what's emerging," says Haynes. "I also wanted to help set the industry straight on what matters and what is real, and not just display marketing hype. Being a mostly polite Canadian, I'll just suggest some manufacturers have very liberal interpretations of terms like microLED and holography."  "I wanted to get this out ahead of the biggest pro AV show on the planet, next month's Integrated Systems Europe, so that the people going to Barcelona and those reading about it remotely are better equipped to understand what comes out of that event."  The report was sponsored by a diverse set of vendors, but is decidedly not advertorial. "I had a terrific set of sponsors who made it possible to invest the time and cover the costs of a lot of travel and other expenses, and a particularly great thing is they stayed out of the way and let me write it the way I wanted."  Those sponsors were: display manufacturers Media Resources, i5LED, AUO and LG, the interactive firm TSI Touch and the mounting infrastructure firm Peerless-AV.  The report can be downloaded off of Sixteen:Nine and the only requirement is a short simple form that helps track and analyze interest.  About Sixteen:Nine  Sixteen:Nine is an online publication and companion podcast that has been watching and covering the digital signage and digital out of home sectors since early 2006. The title was acquired in 2021 by the digital signage CMS software and solutions firm Spectrio, but remains editorially independent. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/518077/now-available-and-free-sixteennine-future-displays-report-explores-emerging-pro-display-technologies)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sixteen-nine-releases-free-report-on-future-of-digital-signage-display-technology/19dedbe1854acdd203197dfae06d6e5a) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1i2ka5r/sixteennine_releases_free_report_on_future_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/251/16/gainoKht.webp)
