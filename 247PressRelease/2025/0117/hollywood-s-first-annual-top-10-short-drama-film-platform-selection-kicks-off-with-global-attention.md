@@ -1,0 +1,20 @@
+# Hollywood's First Annual Top 10 Short Drama/Film Platform Selection Kicks Off with Global Attention
+
+LOS ANGELES, CA, January 17, 2025 /24-7PressRelease/ -- The 2024 Hollywood Top 10 Short Drama (Film) Platform Ranking officially launches! Hosted by the Hollywood Film & Short Drama Association and co-hosted by FFTV Live Streaming, this global premiere event will kick off on February 2, 2025, in Hollywood, promising an unprecedented celebration for the short drama and video industry.  President of the Hollywood Film & Short Drama Association, CEO of FFTV Live Streaming, and renowned director, Peter Sun, announced that the number of short drama platforms and their market influence are surging at an annual growth rate of 500%. To lead this burgeoning industry trend, the Hollywood Film & Short Drama Association has partnered with FFTV Live Streaming to launch the Global Top 10 Short Drama (Film) Platform Ranking.  2024 Hollywood Top 10 Short Drama (Film) Platform Selection Criteria This selection will be based on the following five key dimensions: Market Reach: User scale and platform influence. Technological Innovation: Innovations in user experience, AI integration, payment systems, and voting mechanisms. Platform Revenue: Annual income and growth performance. Content Volume: The overall inventory of high-quality short dramas (films). Popular Hits: The most-watched and high-traffic series on the platform. Global Judges and Prestigious Awards to Set Industry Benchmarks  A committee of international Hollywood stars and authoritative judges will evaluate participating platforms from North America, Latin America, Asia (including China), and other regions. Award categories include: "Online Hollywood" Lifetime Achievement Award: For outstanding contributors to film, short dramas, and short videos. Golden Producer Award Outstanding Short Drama Director Award Short Drama of the Year Award Pinnacle Creativity Award Traffic King Award  The awards ceremony will be a star-studded celebration, featuring iconic Hollywood celebrities presenting awards to the winners and extensive global media coverage. Leading international outlets will conduct in-depth interviews and profiles of the honorees, ensuring their achievements are recognized worldwide. Whether you're an operator of a short drama or film streaming platform or an aspiring screenwriter, director, or actor, this selection is open to all creators striving for excellence.  How to Participate Application Portal: Visit the official websites of the Hollywood Film & Short Drama Association and FFTV Live Streaming to access the "Hollywood Annual Short Drama Selection" application page and complete the required information. Application Date: February 2, 2025.  Join this global celebration of the short drama industry, showcase your talent to the world, and become a benchmark in the industry!  First Annual Hollywood 2024 Top 10 Short Drama (Film) Platform Selection Committee Contacts: Christine, George, Stan, Jacky Committee Email: contact@hfsda.org Consultation Numbers: Christine: 714-595-8841 George: 213-808-4187 Stan: 949-377-8581 Jacky: 909-929-9908  About the Hollywood Film & Short Drama Association The Hollywood Film & Short Drama Association is a leading global organization dedicated to promoting excellence in the film and short drama industries. By fostering innovation and recognizing outstanding achievements, the Association supports creators, platforms, and professionals in setting new benchmarks in storytelling and entertainment. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/518204/hollywoods-first-annual-top-10-short-dramafilm-platform-selection-kicks-off-with-global-attention)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-premiere-event-hollywood-top-10-short-drama-platform-ranking-launches/6d8a2d552b6fab833836073e3b414d12) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1i3bpox/global_premiere_event_hollywood_top_10_short/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/251/17/lilyDzJK.webp)
