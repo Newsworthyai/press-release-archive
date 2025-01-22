@@ -1,0 +1,20 @@
+# Bloomfield Cooling, Heating & Electric, Inc. Announces New Ownership Effective January 1, 2025
+
+LITTLE FALLS, NJ, January 22, 2025 /24-7PressRelease/ -- Jack Lamb, the general manager of Bloomfield Cooling, Heating & Electric, Inc. since 2000, has become the new owner of the HVAC contractor, effective January 1. He was tapped to succeed founder and president, Michael DeJoseph in 2023, and slated to assume his new role upon DeJoseph's retirement from the company he established in 1989.   Lamb began his career with Bloomfield Cooling and Heating, as it was called at that time, as a full-time electrician, enabling DeJoseph to expand the business with a separate electrical division and eventually create Bloomfield Cooling, Heating & Electric, Inc. Over time, Lamb learned HVAC service work and system installations, ran the service department, and became general manager in 2014. He said he owes his professional evolution and expanded knowledge of the HVAC industry to DeJoseph.   "Mike always looked out for me and gave me many growth opportunities," said Lamb. "His commitment to nurturing talent among our technicians and customer-first philosophy have been the foundation of our business and I look forward to carrying on that tradition for years to come."   Lamb has been instrumental in recent years in providing customers with access to valuable HVAC rebate programs through PSE&G and Carrier and introducing homeowners to the newest HVAC technologies and smart devices. Of the many activities he oversees daily, he said he really enjoys the problem-solving side of the business. He is currently implementing new software to augment the customer experience with features such as tracking capabilities to see when technicians will arrive, a convenient payment portal, and a customer portal on the website for troubleshooting and other service requests, Comfort Club renewals, and appointment setting.   As he reflects on the past 24-plus years at Bloomfield Cooling, Heating & Electric and the company's commitment to customer service, Lamb noted that, "I like the challenges of devising cost-effective solutions that other HVAC companies cannot come up with or overlook. Sometimes, it's the simplest resolution that's needed—not the most expensive. It is always worth it in the long run to be honest and transparent about an HVAC issue and the solution, and present honest workarounds that save our customers time and money."  Information about Bloomfield Cooling, Heating & Electric's services, Comfort Club maintenance plans and more is at https://bloomfieldcooling.com.  Bloomfield Cooling, Heating & Electric, now in its 35th year, offers full-service heating and air conditioning installations and repairs, home generator installations and service, and a range of electrical services to residential and commercial customers in Bergen, Essex, Hudson, Morris, Passaic and Union counties in North Jersey. It is a factory-authorized dealer and installer with Carrier and has been honored with the prestigious Carrier President's Award multiple times. The company has been voted "Best HVAC Contractor" and "Best Electrician" numerous times in Suburban Essex magazine's Best of Essex Readers' Choice Awards In addition, the company has an A+ rating from the Better Business Bureau and is a "certified pro" on Angi (formerly Angie's List). 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/518635/bloomfield-cooling-heating-electric-inc-announces-new-ownership-effective-january-1-2025)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/jack-lamb-takes-ownership-of-bloomfield-cooling-heating-electric-inc-as-new-owner-and-general-manager/19d8dd149773216493efeb0650f4722e) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1i76fdo/jack_lamb_takes_ownership_of_bloomfield_cooling/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/251/22/voltFtwo.webp)
