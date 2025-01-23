@@ -1,0 +1,20 @@
+# Amy Jordan's Acclaimed Documentary Film "Amy's Victory Dance" Now available on Delta Airline's In-Flight Entertainment
+
+NEW YORK, NY, January 23, 2025 /24-7PressRelease/ -- The film "Amy's Victory Dance" was added to the Delta Airlines in-flight entrainment line-up on December 27, 2024, and will run through April 1, 2025. "Thirty years in the entertainment industry has given me a breadth of insight I hope to share with youth," said Amy Jordan, Award-winning author, speaker, coach, and choreographer.  We continue to live in a state of global trauma, the recent destruction in Los Angeles, where I lived for 12 years, intensifying the situation It is my intention this film will bring much needed hope and humor and possibility to the suffering, I want to embody and spread the idea that we can live in Victory no matter how seemingly insurmountable the challenges. I am grateful to everyone at Delta Airlines for embracing this mission of "Making the Impossible Possible with the Power of Movement."   About Amy's Victory Dance & Director The film is directed by Brian Thomas, a two-time Emmy nominee and award-winning director. Brian's credits include choreography and directing for icons Michael Jackson, Beyonce, Whitney Houston, Liza Minnelli, Paula Abdul, Missy Elliot, PINK, Usher and Ricky Martin, among a longer list of entertainment royalties. His first film, Amy's Victory Dance, released in 2022, received 38 festival awards, 4 nominations, including best documentary, best film on disability issues, best editing, best directing, best choreography and best original score.  About Amy Jordan Renowned speaker, fitness expert, award-winning author, and choreographer. Amy's story is a testament to resilience, vision, and the indomitable human spirit, making her an undeniable icon. Amy dreamed of gracing stages around the world as a professional dancer. Despite being diagnosed with type 1 diabetes at the age of 4 and declared legally blind at 21, her determination never wavered.   At 39, her journey took a devastating turn when a New York City bus crushed her leg, leaving her pinned under its tire. After enduring 23 life-altering surgeries, doctors told her she might never walk again. Yet, even in the darkest moment, Amy found her light. As she lay beneath that bus, she made a promise to herself. "If I survive the night, there will be a victory dance."  Against all odds, Amy not only walked but also danced her way back into the spotlight. Her journey from tragedy to triumph served as the inspiration for the internationally acclaimed documentary feature film 'Amy's Victory Dance.' The movie touches hearts and instills hope across the globe. You can find it on Amazon Prime, most major platforms, and even on Delta Airlines.  Amy has appeared in Business Insider, ABC7, NY1, The New York Times, The Los Angeles Times, Fortune, CNNMoney, the National Endowment for the Arts, the American Diabetes Association, and on The Tamron Hall Show. The author of "Dance Because You Can: 5 Steps to Transform Trauma to Triumph" and "26 Tips for Easier Living with Diabetes". The host of the "Creating Victory in the Moment Podcast" and Founder and Artistic Director of The Victory Dance Project. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/518833/amy-jordans-acclaimed-documentary-film-amys-victory-dance-now-available-on-delta-airlines-in-flight-entertainment)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amy-s-victory-dance-film-added-to-delta-airlines-in-flight-entertainment-line-up/c7d45c8198d33adb7dfe63582af4585a) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1i7yqiv/amys_victory_dance_film_added_to_delta_airlines/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/251/23/apexcX09.webp)
