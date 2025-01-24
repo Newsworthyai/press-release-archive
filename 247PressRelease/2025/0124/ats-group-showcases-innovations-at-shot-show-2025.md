@@ -1,0 +1,20 @@
+# ATS Group Showcases Innovations at SHOT Show 2025
+
+LAS VEGAS, NV, January 24, 2025 /24-7PressRelease/ -- ATS Group proudly represented its nation, North Mcedonia, at SHOT Show 2025, the most prestigious trade event for defence and firearms professionals. SHOT Show is the leading closed-door event, providing a platform to discover cutting-edge innovations in military equipment and setting new industry standards. Organised by the National Shooting Sports Foundation (NSSF), it annually attracts over 2,400 exhibitors from more than 100 countries worldwide.  At this year's event, ATS Group unveiled an expanded portfolio, featuring manoeuvrable steel-core ammunition, advanced gunpowder blends with superior performance, and composite ballistic textiles, currently manufactured by only one facility in Europe. The company also highlighted a significant increase in primer production, a critical component facing severe global shortages. Additionally, ATS Group announced the commencement of serial production of artillery ammunition in 2025, with plans to introduce military drones in the near future.  The three ATS Group factories (technology, ammunition, and ballistics) recently welcomed a new addition—a ballistic textile manufacturing facility. Dedicated to continuous growth and innovation, ATS Group designs, manufactures, and customises its machinery to increase production capacity in shorter timeframes, effectively responding to growing demand. The company has recently invested an additional €60 million in a complete redesign and digitalisation of its facilities, introducing advanced smart sensors and predictive maintenance systems to optimise processes.  As part of its growth strategy, ATS Group is investing in a state-of-the-art ammunition facility in Texas, USA, while expanding its global presence with the opening of a London office and plans to establish additional locations across strategic sites in Europe. The group also announced plans to expand with new manufacturing facilities on other continents.  "The world is facing a shortage of military arsenal and rising defence budgets. A small country like ours has managed to compete with the biggest players in the industry by supplying highly sought-after products and investing in hybrid technologies," said Shefshet Demirovski, owner of ATS Group. "As one of the main pillars of the Macedonian economy, we are equipping new generations of innovators to shape the future. And we are not stopping here. Our address is wherever the customer is."  ATS Ammunition is part of ATS Group.  ATS Group is a corporation based in the Republic of North Macedonia, with 500+ employees, and we bring together technology, wide range of high-quality composite ballistic products, and production of small-calibre ammunition.  All of our products are in line with NATO, EU and US standards.  By supplying military and law enforcement professionals all around the world – we always strive for perfection. For what we build we guarantee, we follow up and we offer training for end-users. ATS Ammunition, ex. SOUVENIR – Samokov was established in 1981. With over 40 years of tradition & experience with 500+ employees  Fully licensed small arms ammunition producer and trader. Facility Area of 300.000 m2 + 40.000 m2 Production Premises. Located in the Western part of the country (85km from the capital)  Ammunition production lines: 9 mm | 5,56 mm | 7,62 mm | 12,7 mm  Production capacity of over 200 million rounds of small caliber ammunition and 15 thousand in large caliber ammunition per year.  Related Link: https://atsammo.mk 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/518859/ats-group-showcases-innovations-at-shot-show-2025)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ats-group-unveils-cutting-edge-military-innovations-at-shot-show-2025/cc6f6ff92e3603c5534bcd659a1830d2) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1i8qpjq/ats_group_unveils_cuttingedge_military/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/251/24/bakeqg4m.webp)
