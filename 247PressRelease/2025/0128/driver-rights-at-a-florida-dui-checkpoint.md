@@ -1,0 +1,24 @@
+# Driver Rights at a Florida DUI Checkpoint
+
+MERRITT ISLAND, FL, January 28, 2025 /24-7PressRelease/ -- The Florida Highway Patrol establishes DUI checkpoints in areas where people are likely to be driving under the influence. DUI checkpoints are a standard method of reducing DUIs. Whether one drinks or not, one must know how to act at these checkpoints.  Florida DUI Checkpoints If new to driving, one might not be familiar with DUI checkpoints in Florida. These are areas where police have set up a road barricade. Each driver is stopped and checked for signs of intoxication. They check for bloodshot eyes, the smell of alcohol, and visible empty containers.  If there is probable cause to believe that the driver is intoxicated, they will be asked to pull over for further examination. All other drivers will be waived through the checkpoint.  Have Documentation Ready Please don't turn around when approaching a DUI checkpoint, for it may look suspicious or even be illegal. Have a driver's license, insurance, and registration ready to avoid the need to fiddle in search of them if the officer asks for them. It would also be best to appropriately roll down the driver-side window to facilitate easy communication with law enforcement.  Don't Volunteer Information The officer only needs to be provided with basic information that he or she asks about, regardless of whether having had a few beers or not. They are supposed to ask questions like:  - Do you still live at the same address? - Are you sick, injured, or impaired? Is there anything that may keep you from properly operating the motor vehicle?  However, they often tend to ask: - Have you had anything to drink tonight? As soon as you say yes, you become a suspect. - Where are you going, and where are you coming from? This is to determine whether you're going in the right direction again and confirm whether you're impaired.  These questions are designed to gain evidence against the driver. In our opinion, the response should be: "With all due respect, where I'm going is none of your business. I've had nothing to drink tonight. May I please go now?"  Don't volunteer any other information that can be used against you later.  Exercise Patience If you encounter a DUI checkpoint, try to be patient and understanding. The checkpoint is intended to keep everyone safer on the roads. Passing through the checkpoint should take minutes if you are not guilty of excessive drinking. Be courteous and considerate to the officers during that time.  Refusing The Breath Test In Florida, you must be under arrest before you can be offered a breath test. Do not consent to one until then. If you have had too much to drink, a breath test can be used as evidence against the driver, and it is best to refuse.  If refusing to take a breath test, there is a chance one may be asked to take a blood test at the police station. In Florida, a blood test can only be taken with consent or if the driver caused an accident where there's serious bodily injury.  If driving sober, a DUI checkpoint isn't anything to worry about. In fact, DUI checkpoints can make the roads safer for everyone.  Make sure to keep these important dos and don'ts in mind. Understanding Flordia DUI Penalties may also be a good idea based on the number of offenses and type.  DUI Defense There are many good DUI defense lawyers in Florida. If charged with a DUI as the result of a Florida DUI checkpoint, seek a Florida DUI lawyer who will provide an aggressive DUI defense. Most lawyers will meet with potential clients in the evenings, on weekends, and holidays if necessary.  At Mario Gunde Peters & Kelley, your desires and needs are paramount. As your Lawyers in Brevard County Florida, we bring compassion as well as competence to your case. We believe a strong attorney-client partnership is essential in achieving the goals you have for your case.  Our Philosophy "We are not in the practice of law solely to make money. We share a commitment to helping others and believe that by doing our best for each client, we help elevate our profession." 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/519198/driver-rights-at-a-florida-dui-checkpoint)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/florida-highway-patrol-establishes-dui-checkpoints-to-improve-road-safety/7d734b4a5f08c6f6801f59f796e1174d) 
+
+
+Pickup - [advos.io](https://advos.io/en/navigating-florida-dui-checkpoints-know-your-rights-and-responsibilities/202510403)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/navigating-florida-dui-checkpoints-know-your-rights-and-responsibilities/202510403)
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ibwxio/florida_highway_patrol_establishes_dui/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/251/28/bendnHT8.webp)

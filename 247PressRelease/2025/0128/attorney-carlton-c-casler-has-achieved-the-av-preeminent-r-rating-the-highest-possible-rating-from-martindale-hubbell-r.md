@@ -1,0 +1,20 @@
+# Attorney Carlton C. Casler has Achieved the AV Preeminent® Rating - the Highest Possible Rating from Martindale-Hubbell®
+
+AVONDALE, AZ, January 28, 2025 /24-7PressRelease/ -- Martindale-Hubbell® has confirmed that attorney Carlton C. Casler still maintains the AV Preeminent Rating, Martindale-Hubbell's highest possible rating for both ethical standards and legal ability, even after first achieving this rating in.  For more than 130 years, lawyers have relied on the Martindale-Hubbell AV Preeminent® rating while searching for their own expert attorneys. Now anyone can make use of this trusted rating by looking up a lawyer's rating on Lawyers.com or martindale.com. The Martindale-Hubbell® AV Preeminent® rating is the highest possible rating for an attorney for both ethical standards and legal ability. This rating represents the pinnacle of professional excellence. It is achieved only after an attorney has been reviewed and recommended by their peers - members of the bar and the judiciary. Congratulations go to Carlton C. Casler who has achieved the AV Preeminent® Rating from Martindale-Hubbell®.  Carlton C. Casler commented on the recognition: "The Martindale-Hubbell AV Preeminent Rating is a credential highly valued and sought after in the legal world. It used to be a sort of secret among attorneys who used the rating as a first screen when they needed to hire a lawyer they did not personally know. Now, thanks to the Internet, the Rating is a great way for anyone - lawyers or lay people - to use to screen lawyers. I am thankful to my peers who nominated me for this distinction, and proud to have earned this, the highest possible Martindale-Hubbell rating."  About Carlton C. Casler: a short profile by and about the honoree:  I am the owner of the Casler Law Office, PLLC. I have been practicing Arizona landlord/tenant law since 1990 (35+ years). I will use my many years of experience to seek a favorable result for you. My practice focuses exclusively on Arizona landlord/tenant law (commercial and residential) and I only represent landlords.  I am a "solo practitioner" in the truest sense of the phrase. I will handle every aspect of your case. I prepare all of my pleadings, motions and notices. I am the only person who answers my phone. When you call, you will speak directly to me, not a secretary, paralegal or junior associate. If I am in court or otherwise unavailable when you call, I will promptly return your phone call. If you have a question about your case, your billing statement, etc., I – and I alone – will answer your questions. I offer a level of personal service unparalleled by other law firms.  The plaque shown here commemorates Carlton C. Casler's recognition.  To find out more or to contact Carlton C. Casler of Avondale, AZ, call 602-255-0101, or visit https://www.CaslerLawOffice.com.  As a result of this honor, American Registry LLC, has added Carlton C. Casler to The Registry™ of Business and Professional Excellence. For more information, search The Registry™ at http://www.americanregistry.com.  This press release was written by American Registry, LLC, with approval by Martindale-Hubbell as well as approval and/or contributions from Carlton C. Casler.  Contact Information: Carlton C. Casler Phone: 602-255-0101 Email Address: Carlton@CaslerLawOffice.com Website: https://www.CaslerLawOffice.com  Attorney Carlton C. Casler has Achieved the AV Preeminent® Rating - the Highest Possible Rating from Martindale-Hubbell®. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/519181/attorney-carlton-c-casler-has-achieved-the-av-preeminent-rating-the-highest-possible-rating-from-martindale-hubbell)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/carlton-c-casler-achieves-av-preeminent-rating-from-martindale-hubbell/6186883f482fa6a5ddeeec7310f3305c) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1ibwxv7/carlton_c_casler_achieves_av_preeminent_rating/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/251/28/gleeudbg.webp)
