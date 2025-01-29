@@ -1,0 +1,20 @@
+# Attorney R. Matthew Stewart Included in Marquis Who's Who
+
+DALLAS, TX, January 29, 2025 /24-7PressRelease/ -- Attorney R. Matthew Stewart has been recognized by Marquis Who's Who in their biographical volume. As partner and shareholder of Kraft & Associates, Attorneys at Law, P.C., he has been helping DFW residents resolve their personal injury and social security disability claims for over 25 years. He was selected based on his current reference value due to his position, accomplishments, and prominence in the legal field.  Since 1899, Marquis Who's Who has chronicled the lives of the world's most accomplished leaders and innovators across all fields, including legal, political, medical, artistic, and business endeavors. It is an important biographical source used by researchers, journalists, executive search firms, and libraries all over the globe.  Attorney Stewart is a vital addition, with an impressive career in the legal field and an unwavering devotion to his specialties. There are intense pressures involved with managing both a successful law firm and a large caseload, but he handles it with the dedication and commitment it deserves – something his clients recognize and appreciate.   He has been steadfastly serving Kraft & Associates, Attorneys at Law, P.C. for decades and was previously an attorney at Bailey & Galyen Attorneys at Law. Mr. Stewart's time there helped him hone his skills and knowledge in personal injury and social security disability law.   Mr. Stewart earned his Juris Doctor from Texas A&M University School of Law after receiving a Master of Arts in history and a Bachelor of Arts in history and philosophy from the University of North Texas. His thesis is part of the United States Holocaust Memorial Museum (USHMM) research collection in Washington, D.C. He credits his education with nurturing his ability to think and analyze critically, which are vital in his current position. He also is a member of the American Bar Association, the Dallas Bar Association, and the Dallas Trial Lawyers Association. These memberships all allow him to stay well informed and up-to-date with any developments in the field of law, as well as make crucial contributions to the legal community.  Attorney Stewart also values giving back to the community he lives in and serves. His civic pursuits include involvement in organizations such as the Bone Bash Event Committee for the Arthritis Foundation and the North Texas Food Bank. These efforts earned him the Outstanding Service Award from the North Dallas Bar Association in 2015.  On a more personal level, Mr. Stewart enjoys playing guitar, camping in the great outdoors, traveling with his wife, Amy, and visiting his family in Wisconsin. His future goals include developing a talent pipeline by recruiting rising talents within his law firm. Mr. Stewart hopes to nurture progress and innovation by enhancing the firm's future with proficient new professionals ready to tackle complex challenges.  About Kraft & Associates, Attorneys at Law, P.C.  Kraft & Associates, Attorneys at Law, P.C. is a personal injury and social security disability law firm serving Dallas, Texas, since 1971. Their experienced lawyers provide personalized and compassionate legal support to their clients when they need it the most. With a skilled legal team, they have the knowledge, resources, and skills necessary to take on the most complex cases in a wide range of legal areas. Contact them today for a free consultation to learn more. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/519231/attorney-r-matthew-stewart-included-in-marquis-whos-who)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/attorney-r-matthew-stewart-honored-by-marquis-who-s-who-for-legal-achievements/5fda0186234e42fca7d931ebed55db8f) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1icp3xd/attorney_r_matthew_stewart_honored_by_marquis/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/251/29/healhprn.webp)
