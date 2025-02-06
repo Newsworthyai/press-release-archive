@@ -1,0 +1,20 @@
+# Internationally-Acclaimed Executive Coach Releases Guide to Transformational Leadership
+
+ATLANTA, GA, February 04, 2025 /24-7PressRelease/ -- Dr. Sam Adeyemi, the internationally-acclaimed executive coach, keynote speaker, and bestselling author, is releasing his latest book, "SHIFTS: 6 Steps to Transform Your Mindset and Elevate Your Leadership" (Feb. 5, Wiley), available at Amazon.com, BarnesAndNoble.com, Bookshop.org, BooksAMillion.com, and Porchlight.com.   Providing a pathway for transformational leadership, "SHIFTS" unveils Dr. Adeyemi's six signature steps for providing transformational shifts: seeing consistently, hearing consistently, gaining insight, formulating beliefs, expressing inner identity and vision, and succeeding repeatedly.  "'SHIFTS' is your gameplan for successful leadership," says Dr. Adeyemi. "It's the perfect book for the entry-level employee who wants to take the next step in their career or the established C-Suite executive who is committed to taking their team or organization to the next level."  About The Book: Title: "SHIFTS: 6 Steps to Transform Your Mindset and Elevate Your Leadership" Author: Dr. Sam Adeyemi Published by Wiley | 256 pages | ISBN: 978-1-394-27772-8 | Release Date: Feb. 5, 2025  Your step-by-step guide to master the art of transformational leadership  In "SHIFTS," Dr. Sam Adeyemi provides a step-by-step blueprint for leaders to create lasting positive change. Drawing from over 30 years of leadership coaching experience, Dr. Adeyemi teaches readers the importance of personal development, cultural awareness, and leading effectively in a globalized world. This essential read introduces the SHIFTS framework, a unique methodology that guides leaders through six transformative steps:  1.	See: Cultivate vision to recognize opportunities and challenges.  2.	Hear: Listen deeply to understand spoken and unspoken messages.  3.	Insight: Synthesize information to gain clear perspectives for decision-making.  4.	Formulate: Develop innovative and practical strategies from insights.  5.	Transform: Implement strategies to drive change and achieve goals.  6.	Succeed: Sustain positive change and inspire continuous growth.  "SHIFTS" is a must-have for current and aspiring leaders seeking to develop essential leadership skills applicable to any role and industry. Transform your mindset and elevate your leadership with this powerful guide.  About Dr. Sam: Atlanta-based Dr. Sam Adeyemi (SAY: Ah Day yeh me) is CEO of Sam Adeyemi, GLC, Inc. and founder and executive director of Daystar Leadership Academy (DLA). More than 52,000 alumni have graduated from DLA programs, and more than 3 million CEOs and high performing individuals follow him on top social media sites. He is the author of "Dear Leader: Your Flagship Guide to Successful Leadership." His new book, "SHIFTS: 6 Steps to Transform Your Mindset and Elevate Your Leadership" (Wiley, Feb 2025) is now available. He holds a Doctorate in Strategic Leadership from Virginia's Regent University, and is a member of the International Leadership Association. He and his wife, Nike (say Nee keh) have three children. Learn more at SamAdeyemi.com.  For more information or interviews with Dr. Sam, contact Executive Publicist Michelle Tennant Nicholson at Michelle@WasabiPublicity.com or 828-749-3200. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/519395/internationally-acclaimed-executive-coach-releases-guide-to-transformational-leadership)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-sam-adeyemi-launches-shifts-6-steps-to-transform-your-mindset-and-elevate-your-leadership-book-providing-a-blueprint-for-transformational-leadership/9606c6d15798bcd0450029a90d52aacc) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1iih0al/dr_sam_adeyemi_launches_shifts_6_steps_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/5/cornnC6R.webp)
