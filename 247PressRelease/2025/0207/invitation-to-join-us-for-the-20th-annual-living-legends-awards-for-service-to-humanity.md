@@ -1,0 +1,20 @@
+# Invitation to Join Us for the 20th Annual Living Legends Awards for Service to Humanity
+
+SILVER SPRING, MD, February 07, 2025 /24-7PressRelease/ -- Come join us at the Sligo Seventh-day Adventist Church for the 20th Annual Living Legends Awards for Service to Humanity, a special event honoring individuals who have made a significant impact on the community through their service. This in-person celebration will take place on Saturday, February 22, from 6 PM to 9 PM EST at 7700 Carroll Ave, Takoma Park, MD 20912. The theme this year is Champions of Change.  The Living Legends Awards for Service to Humanity began at the Emmanuel-Brinklow Church in 2006. Since its inception, the awards have honored over 50 remarkable individuals, including prominent figures such as the late U.S. Congressman John Lewis, Congresswoman Maxine Waters, Nobel Laureate Leymah Gbowee, and the late Ella Jenkins, among many others.  Twenty years ago, Doreen Hines, the Living Legends Awards for Service to Humanity Foundation founder and executive director, started this initiative to "educate and inspire young people to serve their communities by introducing them to individuals who are living a life of service."  This February, the Washington, DC, Maryland, and Virginia communities have an opportunity to participate in an unforgettable night that will feature the selfless contributions of remarkable individuals.  We will honor four living legends:  • Joseph McCoy - Advocate Within Faith Community  • Jason Holt - Champion of Restorative Justice  • Angela Holder - Champion of Restorative Justice  • David R. Williams - Leader in Social Science & Health Equity  Join us for an inspiring evening filled with stories of courage, compassion, and commitment. Mingle with like-minded individuals who are passionate about service and philanthropy and enjoy memorable moments of celebration and reflection.  What to Expect: 1. Inspiring Honorees: Hear incredible stories of those making a difference worldwide.  2. Community Connection: Network with individuals dedicated to service and philanthropy.  3. Memorable Moments: Participate in an evening of celebration, reflection, and inspiration.   Don't miss this opportunity to show your support and appreciation for those who dedicate their lives to uplifting others. Together, let's celebrate the spirit of service and the power of community!  RSVP Today! Support the awards gala to make an impact in our community! Secure your spot for a night of inspiration and gratitude.  Access the featured image for media use here. Media Inquiries: Doreen Hines Founder and Executive Director Living Legends Awards for Service to Humanity Foundation doreen@livinglegendsawards.org  The Living Legends Awards for Service to Humanity™ Foundation is a registered 501(c)(3) organization that recognizes individuals and organizations dedicated to serving humanity. By utilizing the arts, we illuminate the stories of those who have significantly impacted their local and global communities. Our mission is to inform and inspire ordinary people to make a difference where they are. Follow on Instagram: https://instagram.com/LLASHfoundation/, Facebook.com: https://www.facebook.com/LLASHfoundation/, or X (f.k.a Twitter): https://twitter.com/LLASHfoundation.  For more information, please visit our website. https://www.LivingLegendsAwards.org. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/519501/invitation-to-join-us-for-the-20th-annual-living-legends-awards-for-service-to-humanity)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/join-us-at-the-20th-annual-living-legends-awards-for-service-to-humanity-event/0cfce4189118990a474de761dac7501a) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ijq66y/join_us_at_the_20th_annual_living_legends_awards/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/7/icyLo6W.webp)
