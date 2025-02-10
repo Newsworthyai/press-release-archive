@@ -1,0 +1,20 @@
+# Delta4 Secures European Patents for Two Compounds as Candidate Treatments for Focal Segmental Glomerulosclerosis (FSGS)
+
+VIENNA, AUSTRIA, February 10, 2025 /24-7PressRelease/ -- Delta4, a leader in AI-driven drug discovery and indication expansion, is proud to announce that it has been granted European patents for two innovative compounds positioned as candidate treatments for focal segmental glomerulosclerosis (FSGS), a rare and serious kidney disease. These patents mark a significant milestone in Delta4's mission to accelerate the delivery of groundbreaking therapies leveraging AI through advanced computational biology.  The newly patented compounds include: 1.) Clopidogrel: Already approved for cardiovascular conditions, clopidogrel has been identified by Delta4's proprietary AI platform, Hyper-C, as a promising candidate for FSGS. In animal models, clopidogrel demonstrated:  ** A 61% reduction in the urinary albumin to creatinine ratio (UACR), a critical marker of kidney function.  ** Significant improvements in histopathological damage, with a 67.9% reduction in kidney damage scores.  ** Anti-inflammatory, anti-fibrotic, and immune-modulating effects, addressing key mechanisms of FSGS progression.  2.) Combination of Saroglitazar and Myristic Acid (Saro+Myr): This novel combination leverages the dual PPAR agonist properties of saroglitazar and the calcineurin-inhibiting effects of myristic acid. The Saro+Myr combination exhibited:  ** Significant reductions in proteinuria and UACR in multiple FSGS animal models.  ** Improvements in kidney pathology, including reduced glomerular sclerosis and tubular ectasia.  ** Synergistic therapeutic effects targeting inflammation, fibrosis, and disease progression.  A Testament to AI-Driven Innovation These breakthroughs are the result of Delta4's cutting-edge Hyper-C platform, which analyzes vast biomedical datasets to identify subtle molecular relationships between diseases and drugs. Hyper-C's ability to predict mechanisms of action (MoA) and therapeutic efficacy was instrumental in repositioning clopidogrel and discovering the synergistic potential of the Saro+Myr combination.  "We are proud to have been granted these patents, which are a testament to the power of our AI-driven platform, Hyper-C. The success of these compounds in animal models underscores the accuracy and reliability of our AI-driven approach," said Kurt Herpel, CEO of Delta4. "We are excited to continue with clinical trials, taking these compounds to market, and ultimately providing new therapeutic options that improve the quality of life for those affected by FSGS."  From Breakthroughs to Better Outcomes Delta4 is collaborating with partners to advance these compounds into clinical trials. The company expects the trials to replicate the success observed in preclinical studies, further validating the predictions made by Hyper-C.  For more information about Delta4 and its groundbreaking work in AI-powered drug discovery, please visit https://delta4.ai/.  Delta4 is a digital drug discovery TechBio company founded in 2019 in Vienna, Austria. Specializing in AI-driven drug repurposing and indication expansion, Delta4 utilizes its proprietary Hyper-C platform to accelerate the identification of new therapeutic applications for existing compounds. Focused on tackling complex and rare diseases, Delta4 collaborates with pharmaceutical companies, universities, and clinics to bring innovative treatments to market efficiently. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/519536/delta4-secures-european-patents-for-two-compounds-as-candidate-treatments-for-focal-segmental-glomerulosclerosis-fsgs)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/delta4-granted-european-patents-for-innovative-compounds-targeting-kidney-disease/148071f390ae567949e6ee992f4ef164) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1im1aqk/delta4_granted_european_patents_for_innovative/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/10/iconimdl.webp)
