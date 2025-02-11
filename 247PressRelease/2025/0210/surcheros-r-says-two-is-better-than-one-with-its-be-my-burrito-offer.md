@@ -1,0 +1,20 @@
+# Surcheros® Says Two is Better Than One with its Be My Burrito Offer
+
+ALPHARETTA, GA, February 10, 2025 /24-7PressRelease/ -- Love grilled burritos? You're not alone! Surcheros®, a community favorite rooted in bold flavors with Southern hospitality, is turning up the charm with its irresistible Be My Burrito offer made for two. Whether you're wooing your Valentine, grabbing a bite with your Galentine, or dining in with your little one, this offer is your perfect match!   From February 12 to February 14, enjoy the Be My Burrito offer for only $35, which includes two grilled burritos (or any regular-sized entrée), two regular-sized drinks, a side of queso or guacamole, and a S'mores Quesadilla. *   "We believe that sharing a meal is one of the simplest yet most meaningful ways to connect, and at Surcheros, we're proud to provide an experience that brings people together," said Luke Christian, Founder & CEO of Surcheros. "This Valentine's season, we invite our guests to enjoy a meal with those who matter most, creating a special way to show just how much they're appreciated.   Surcheros has long been a favorite for burrito lovers, offering guests the chance to craft their perfect grilled burrito or entrée. Choose from a variety of proteins, including perfectly grilled chicken, ground beef, carnitas, or premium grilled sirloin steak (for an additional charge), and top it off with over 25 fresh toppings and an array of sauces and dressings.   The Be My Burrito offer is valid while supplies last at participating Surcheros locations. Grilled burritos may be substituted for any regular-sized entrée. The offer is available from 5 pm to close at participating locations, so contact your local restaurant for additional details.   Falling in love with Surcheros? Download the Surcheros app to sign up for the Rewards Program and earn points that may be redeemed at the restaurants, plus enjoy exclusive offers and benefits. The app also puts mobile ordering at your fingertips. Available for free through Google Play or the App Store.   For more information about Surcheros, visit www.surcheros.com or follow the brand on Instagram @Surcheros.   *The size of queso and guacamole may vary between regular and medium, depending on the location.  About Surcheros®  Surcheros is the brainchild of entrepreneur Luke Christian. His formula: Bringing together big taste and bold flavors with the Southern hospitality of his youth. The brand offers Tex Mex meals with exceptional service, where guests are warmly welcomed like dear friends every visit. This has been the core of the business since its start in 2007 and contributes to its success as being a community favorite.   Surcheros invites guests to customize meals to their tastes. Guests may build burritos, tacos, quesadillas, salads and more by choosing from perfectly grilled meats to a wide selection of toppings and signature sauces. Each meal is prepared fresh and to order. The family-friendly menu also offers meals for the Lil' Ones with their kids menu.   In 2017, Luke and his wife, Nicole, opened up their business for others to share in their vision for growth and love of community. Franchising launched across South Georgia and into Florida as the re-branded Surcheros and continues to expand its presence today.   Interested in joining the Surcheros family? Learn more at www.surcheros.com/franchising. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/519577/surcheros-says-two-is-better-than-one-with-its-be-my-burrito-offer)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/surcheros-r-offers-be-my-burrito-deal-for-valentine-s-day-celebrations/e00ee778d1f3e99db954c67b96a9d02e) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1in4xiu/surcheros_offers_be_my_burrito_deal_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/11/moon9nrp.webp)
