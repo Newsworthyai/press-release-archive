@@ -1,0 +1,20 @@
+# SuperReturn North America to Run March 17–19 in Miami
+
+MIAMI, FL, February 12, 2025 /24-7PressRelease/ -- SuperReturn, the world's leading private markets and venture capital conference series, will host its SuperReturn North America event on March 17 to 19 at the InterContinental Miami.  SuperReturn North America is bringing its celebrated conference to Miami for the first time, offering attendees the opportunity to experience the dynamic private markets and venture capital landscape in a new setting. The event will feature a wide range of sessions addressing critical issues in private capital. Topics include fundraising strategies, LP allocations, co-investments, private credit, healthcare, real estate, harnessing the power of AI, and emerging market opportunities. SuperReturn North America is expected to attract more than 700 senior decision-makers, including general partners and limited partners, who will engage in dynamic panel discussions, in-depth interviews, and networking opportunities.   The numerous distinguished speakers scheduled to present at SuperReturn North America include:  •	Mike McDaniel, Head Coach of the Miami Dolphins •	Keith Brittain, Co-Head of Secondary Investments, Hamilton Lane •	Jose Garcia, Chief Executive Officer, Carlisle Management Company •	Ruth Foxe Blader, Founder and Managing Partner, Foxe Capital  •	Thomas Martin, Partner, Head of Private Equity & Real Assets Research, Aksia •	Nicole Washington, Partner, Kirkland & Ellis •	Mark Hoeing, President and CEO, CF Private Equity •	Caroline Greer, Managing Director, Commonfund •	David Ott, MD – Head of Relationship Management, Liberty Mutual Insurance •	Marcel Schindler, Partner & CEO, StepStone Private Debt •	Sumana Setty, General Counsel and Managing Director, Wafra •	Tingting Zhang, Founder & Chief Executive Officer, TerraCotta Group  "We are thrilled to host SuperReturn North America in Miami," said Dr. Dorothy Kelso, Global Head of SuperReturn. "This move not only underscores our commitment to creating new opportunities for collaboration but also reflects the dynamic growth and importance of Miami as a hub for private markets and venture capital. We look forward to connecting the leading minds in private capital to explore the latest trends, challenges, and opportunities in today's dynamic marketplace."  Ares Management is Lead Sponsor of the event, with Churchill Asset Management, Fin Capital, G Squared and Kirkland & Ellis serving as Co-Sponsors. Supporting the conference as Associate Sponsors are Alter Domus, Audax Private Equity, Barings, Carlisle Management Company, Carta, Comvest Partners, Egan-Jones Ratings, IQ-EQ, Lateral Investment Management, PGIM Fixed Income, Schulte Roth & Zabel, SS&C Intralinks, Tetragon, Vontobel Asset Management and Warburg Pincus.   To view the full schedule of speakers and events, and to register for SuperReturn North America, please visit: https://informaconnect.com/superreturn-north-america.  About SuperReturn North America SuperReturn North America is North America's largest private equity and venture capital conference, and part of the SuperReturn series of leading private equity events that take place across the world. This two-day conference will bring together private equity and venture capital professionals from around the world, including limited partners (LPs) and general partners (GPs), to network and discuss current trends and opportunities within the North American private equity industry. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/519615/superreturn-north-america-to-run-march-1719-in-miami)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/superreturn-north-america-conference-comes-to-miami-featuring-top-industry-leaders/da4616fbb55519f54aff5e2098975186) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1inm84q/superreturn_north_america_conference_comes_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/12/daveI5sK.webp)
