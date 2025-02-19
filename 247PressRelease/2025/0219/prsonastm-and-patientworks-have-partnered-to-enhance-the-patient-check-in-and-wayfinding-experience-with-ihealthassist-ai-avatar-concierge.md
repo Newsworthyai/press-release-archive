@@ -1,0 +1,20 @@
+# PRSONAS™ and PatientWorks have Partnered to Enhance the Patient Check-In and Wayfinding Experience with iHealthAssist AI Avatar Concierge
+
+WAKE FOREST, NC, February 19, 2025 /24-7PressRelease/ -- PRSONAS™, a leader in AI avatar solutions is proud to announce its partnership with PatientWorks, a leader in providing patient self-service solutions for the healthcare industry. This partnership brings a new level of patient experience to healthcare facilities, enhancing both the efficiency and ease of use and navigation for patients.   "We are thrilled to partner with PatientWorks to bring our technology to their innovative kiosk solutions," said Chuck Rinker, CEO of PRSONAS. "This collaboration aligns with our mission to enhance patient experiences through engaging, human-like interactions while supporting healthcare providers in delivering exceptional service with greater efficiency."   PRSONAS™ is renowned for its digital personality engine, seamlessly integrating with existing digital solutions to offer engaging 24/7 human-like interactions. This technology allows users to communicate in their native language, including American Sign Language, without the need for additional staff or disrupting current workflows. Partnering with PatientWorks, PRSONAS™ enhances patient self-service solutions, enabling streamlined registration processes and easy navigation through healthcare journeys. This collaboration addresses critical issues such as staff shortages and long wait times, alleviating stress for patients and improving overall satisfaction. By combining their expertise, PRSONAS™ and PatientWorks deliver state-of-the-art, user-friendly systems that empower healthcare providers to maintain high service standards with fewer resources.   Some of the top benefits of the partnership between PRSONAS™ and PatientWorks are:   Enhanced Patient Experience: This integration provides patients with seamless check-in processes and easy navigation, reducing stress and improving satisfaction.   Increased Efficiency for Healthcare Providers: By automating key patient interactions, healthcare providers can maintain high service quality while addressing staff shortages and minimizing the workload on existing staff.   Multilingual and Accessible Communication: Patients can communicate in their native language, including American Sign Language, ensuring that facilities provide inclusive 24/7 support without needing additional staffing resources.   "We are impressed by the interactive assistance provided by the PRSONAS™ avatar. The iHealthAssist avatar enhances the capability of the check-in kiosk solution to understand the patient's wayfinding needs and to provide easy-to-understand wayfinding directions" said Norman Snidow, Vice President of Sales of PatientWorks. "We believe our customers will be excited about the addition of this innovative capability to our check-in kiosks."  PRSONAS™ is a provider of intelligent digital assistants that enhance customer service and user experiences through interactive, AI-driven avatars. Their solutions support industries including healthcare, hospitality, and corporate settings, making service interactions more efficient and engaging. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/519836/prsonas-and-patientworks-have-partnered-to-enhance-the-patient-check-in-and-wayfinding-experience-with-ihealthassist-ai-avatar-concierge)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/prsonastm-and-patientworks-partner-to-revolutionize-patient-self-service-solutions-in-healthcare/708481d773b98b3b6128d48e6327f2af) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1ite8nq/prsonas_and_patientworks_partner_to_revolutionize/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/19/bossMVRd.webp)

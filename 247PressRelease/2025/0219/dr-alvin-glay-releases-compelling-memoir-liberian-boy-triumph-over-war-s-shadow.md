@@ -1,0 +1,20 @@
+# Dr. Alvin Glay Releases Compelling Memoir: Liberian Boy: Triumph Over War's Shadow
+
+SNELLVILLE, GA, February 19, 2025 /24-7PressRelease/ -- Dr. Alvin Glay, a celebrated author, motivational speaker, and marketing strategist, announces the release of his poignant memoir, Liberian Boy: Triumph Over War's Shadow, now available on Amazon in both paperback and eBook formats.  The launch event, held on January 30, 2025, in Atlanta, GA, was a resounding success. Hosted by former NFL player Jonathan Massaquoi, the evening was filled with inspiration, meaningful conversations, and celebration. International artist NINA RICCHIE delivered a captivating musical performance, adding to the night's vibrancy. Attendees were deeply moved by Dr. Glay's inspiring journey.  In his memoir, Dr. Glay recounts his harrowing journey from the war-torn streets of Gbarnga, Liberia, to the promises and challenges of life in America. For seven years, Dr. Glay was deprived of formal education, navigating life as a refugee in the Ivory Coast before immigrating to the United States. Throughout his journey, he grapples with the complexities of identity, the pain of displacement, and the challenges of assimilation into a new culture.  Liberian Boy explores how overcoming extreme adversity builds resilience, adaptability, and leadership—essential traits that drive innovation in business, marketing, and DEI initiatives. Through deeply personal stories, Dr. Glay discusses how his experiences as a refugee shaped his approach to breaking barriers, creating opportunities, and redefining narratives.  Jonathan Massaquoi, who shares a similar journey as a former Liberian refugee, expressed his admiration for Dr. Glay's story: "Alvin's journey is one of extraordinary perseverance. His story resonates with me deeply, as I, too, have walked a similar path. This book is a must-read for anyone seeking inspiration and proof that determination and resilience can overcome even the greatest obstacles."  Dr. Glay reflects on his journey "This memoir is not just my story—it's a testament to the strength of the human spirit. I hope it inspires others to embrace their struggles, redefine their narratives, and use their experiences to uplift themselves and their communities."  Liberian Boy: Triumph Over War's Shadow Details:  Formats: Paperback, Hardcover and eBook Availability: Amazon  For media inquiries, interviews, or event bookings, please contact: Kathy Taylor Tellallinc@gmail.com  Dr. Alvin Glay is a former refugee, celebrated author, and influential thought leader in marketing and strategy. He currently serves as Chief Strategy Officer at Response Media and is a Research Associate at Georgia State University. Known for his expertise in real-time marketing and behavioral science, Dr. Glay has pioneered strategies that engage consumers with relevance and immediacy. His research, published in the Engaged Management Scholarship Proceeding, has been cited globally across more than 100 countries.  Dr. Glay holds a Doctorate in Business from Georgia State University, an MBA from Mercer University, and a BBA in Finance from Georgia State. He is also the founder of The Unity J. McGill Foundation, a nonprofit organization dedicated to supporting educational resources in Liberia, inspired by the legacy of his brother Unity, who heroically gave his life defending another. Through this foundation, Dr. Glay envisions bridging the education gap in Liberia, with the goal of establishing an innovation center to empower future generations. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/519789/dr-alvin-glay-releases-compelling-memoir-liberian-boy-triumph-over-wars-shadow)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-refugee-turned-author-releases-inspirational-memoir-liberian-boy-triumph-over-war-s-shadow/c34464aaf6a1e4115b72c2e79d2a3576) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ite8qx/former_refugee_turned_author_releases/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/19/dave0feD.webp)

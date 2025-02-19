@@ -1,0 +1,20 @@
+# Peter Ortiz Joins IFA's Hispanic Latino Franchise Leadership Council Executive Team
+
+ATLANTA, GA, February 19, 2025 /24-7PressRelease/ -- Ascent Hospitality Management®, the parent company of Huddle House® and Perkins American Food Co., is proud to announce Chief Development Officer Peter Ortiz has been invited to join the International Franchise Association's (IFA) Hispanic Latino Franchise Leadership Council (HLFLC). This newly formed network supports Hispanic franchise ownership across the United States, providing resources, connections, and advocacy to empower Latino entrepreneurs to enter the franchise industry.   Ortiz, a longtime restaurant executive, brings decades of experience in brand growth and development. His leadership has been instrumental in advancing well-known brands, including Perkins American Food Co., Huddle House, Focus Brands, QDOBA, and Potbelly Restaurants.   "Hispanic and Latino entrepreneurs are driving remarkable economic growth and making a profound impact on the communities they serve," said Peter Ortiz, Chief Development Officer at Ascent Hospitality Management. "Joining the IFA's Hispanic Latino Franchise Leadership Council is a true honor and an opportunity to make a meaningful impact. I am deeply committed to empowering the next generation of franchise leaders, fostering their growth, and driving their long-term success in an industry full of opportunity."   HLFLC is part of the IFA Foundation's Diversity Institute, which champions inclusion within the franchise industry. As part of HLFLC, Ortiz will help shape initiatives that empower Hispanic and Latino franchise leaders. It provides its members with networking opportunities, educational resources, and mentorship programs, fostering an environment for professional growth.   "Peter's dedication to supporting Hispanic and Latino entrepreneurs makes him an invaluable asset to our team. His leadership and passion for creating opportunities will play a key role in advancing our mission and fostering a stronger business community," said Matthew Haller, President & CEO of the International Franchise Association.   "With Peter's extensive experience and a deep commitment to empowering entrepreneurs, he is poised to drive meaningful progress for our community. We are excited to have him on board to help further the Council's goals and open doors for the next generation of leaders," said Javier N. Solis, Chair and Founder.   For more information on Ascent Hospitality Management and its franchise opportunities, visit www.ascenthm.com.  About Ascent Hospitality Management  Ascent Hospitality Management® is a premier multi-brand restaurant company, renowned for its leadership in nurturing and expanding legendary franchised brands. With a portfolio that includes 600 Huddle House and Perkins Restaurant & Bakery locations nationwide, Ascent Hospitality Management leverages decades of expertise from its experienced leadership team. Committed to creating an exceptional workplace, fostering lifelong customer relationships, and becoming the franchisor of choice, Ascent Hospitality Management® is dedicated to driving growth and innovation in the restaurant industry. To learn more, visit www.ascenthm.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/519762/peter-ortiz-joins-ifas-hispanic-latino-franchise-leadership-council-executive-team)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ascent-hospitality-management-r-chief-development-officer-peter-ortiz-joins-ifa-s-hispanic-latino-franchise-leadership-council/81c67eb09b26266ea73824705728c079) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/TravelAndLeisureNews/comments/1ite3n3/ascent_hospitality_management_chief_development/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/19/paveSpsg.webp)

@@ -1,0 +1,20 @@
+# Do you feel loved?
+
+PITTSBURGH, PA, February 19, 2025 /24-7PressRelease/ -- Relationships can be difficult. The closer the relationship, the bigger the challenges. There are many resources available to assist in our interpersonal relationships, but what about our most important relationship, the one with God?  In his book, ESSENTIAL AWARENESS - A JOURNEY TOWARDS A LOVING GOD, Ronald Faccenda outlines what he believes are the basics for having a relationship with God and how to grow closer to Him in this life in order to obtain His eternal reward. The format encourages prayer and allows for journaling of thoughts related to the reader's unique relationship with God. But mostly, it tries to keep us constantly aware of God being actively involved in our lives. If you have a desire to get closer to God, need some guidance on how to achieve this and a desire to get to Heaven, you need to read and reflect on this book.  Ronald was motivated to write this book because people are so busy and have not received adequate knowledge of God's love for them and His active involvement in their lives. He hurts for people who do not to know God's INTENSE love for them and the joy knowing Him can bring. This book was written to draw people closer to God and be with them in Heaven.  "I'm trying to use this book to grow the church (by) bringing people home to the church and a RELATIONSHIP and LOVE for God. I hope this simple format will encourage readers to use it daily as a prayer format and also encourage readers to "grow" their individual thoughts by thinking, researching, and having group discussions of how God is in their lives."  A longtime resident of Pittsburgh, Pennsylvania, Ronald has been teaching Faith foundations for over 25 years and has been sharing the good news to the public that God loves you intensely, He only has good in mind for you, and He wants you to be with Him for all eternity in His awesome presence.   The Appendix of ESSENTIAL AWARENESS contains some useful tools to help you in your relationship with God: The Ten Commandments, Corporal Works of Mercy, Spiritual Works of Mercy, The Beatitudes, The Parables of Jesus, as well as a handout created by Ronald to give to his middle school students. The handout is his effort to keep it simple and contains several timely messages such as God Loves You, Forgiveness, and Don't Judge Others.  "Ron Faccenda's "Essential Awareness" is not a book to be read…this (book) is a conversation with God." Deacon Joseph Compomizzi  Essential Awareness can be utilized in various settings and situations including as a format for prayer, an examination of conscience, an educational platform, a format for group discussion, to evangelize, to work on one thought a day, as well as a wide variety of other uses and applications.  Enjoy this book as a tool to not only improve your most important spiritual relationship, but it is also a guide to draw you closer to God and His intense love for you. In the process you may find it also enhances your personal relationships too.  ESSENTIAL AWARENESS - A JOURNEY TOWARDS A LOVING GOD is available from Amazon.com or anywhere you prefer to buy your books.  Total Publishing And Media offers the full range of book writing, editing, design, printing, distribution, publishing and marketing services to move your concept to a published, selling book. Total also performs author development services and workshops for authors and prospective authors and is committed to helping authors and speakers publish attractive quality books. For more information feel free to visit www.TotalPublishingandMedia.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/519824/do-you-feel-loved)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/discover-the-key-to-strengthening-your-relationship-with-god/74ebb3d8a680271009349020cf49ef4f) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ite3gy/discover_the_key_to_strengthening_your/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/19/lilyU9LK.webp)
