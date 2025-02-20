@@ -1,0 +1,20 @@
+# Alsco Uniforms Donates $50,000 to Support California Wildfire Recovery
+
+SALT LAKE CITY, UT, February 20, 2025 /24-7PressRelease/ -- Alsco Uniforms, which operates three laundry facilities in Southern California in Vista, Anaheim, and Los Angeles that provide uniform, linen, floor mat, first aid, and restroom supply services, is donating $50,000 to The Salvation Army to support wildfire recovery efforts across the region. Additionally, Alsco Uniforms has supplied over 8,000 face masks and partnered with the Dream Center, a Los Angeles-based nonprofit, to distribute laundry detergent to those directly impacted by the fires. These contributions will help provide both immediate relief and long-term rebuilding assistance to communities affected by the devastating wildfires.  Throughout January 2025, a series of 17 wildfires burned across the Los Angeles metropolitan area and San Diego County, destroying entire communities, including Pacific Palisades and Altadena. The fires displaced thousands, resulted in numerous injuries and tragic losses, and left widespread devastation in their wake. In response, organizations across the country have rallied to provide aid and support to those affected.  "At Alsco Uniforms, we are deeply connected to the communities we serve," said Bob Steiner, chief executive officer of Alsco Uniforms. "Southern California businesses have supported us for decades, and we are committed to standing with these communities in their time of need. Our goal is to help families recover and rebuild, and we are honored to contribute to these essential relief efforts."  Across Southern California, The Salvation Army is working around the clock to provide immediate relief with food, shelter, and support. They are also planning for the future, with long-term solutions for assisting these communities as they rebuild. This donation will help secure these essential supplies and fund recovery efforts.  The Dream Center, known for its deep ties to the local community, is actively assisting Angelenos displaced by the fires. The donated laundry detergent will be included in care packages distributed to families as they return home and begin the rebuilding process.  To support wildfire recovery efforts, consider donating to The Salvation Army here. Every contribution helps provide relief to those in need.  About Alsco Uniforms Alsco Uniforms is a fifth-generation, family-owned-and-operated uniform and linen laundry service company founded in 1889. They are recognized by the prestigious Hohenstein Institute for having invented the uniform and linen rental industry. Celebrating over 135 years of business, Alsco Uniforms provides laundry services and other products that keep businesses clean and safe for customers across all market segments, including healthcare, automotive, industrial, and hospitality. With more than 200 locations and 16,000 employees, Alsco Uniforms provides laundry services and other services and products to over 350,000 customers in 13 countries, which makes Alsco Uniforms the largest uniform company in the world. Visit alsco.com to learn more about why It Pays to Keep Clean® with Alsco Uniforms. Join Alsco Uniforms on Facebook at Facebook.com/AlscoUniforms, on X at @alscouniforms, on Instagram at @alscoinc, and on LinkedIn at Alsco Uniforms. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/519881/alsco-uniforms-donates-50000-to-support-california-wildfire-recovery)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/alsco-uniforms-donates-50k-to-the-salvation-army-for-wildfire-recovery-efforts-in-southern-california/213f21cd62476425b386dbb499f17408) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ittnix/alsco_uniforms_donates_50k_to_the_salvation_army/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/20/quiz8x6S.webp)
