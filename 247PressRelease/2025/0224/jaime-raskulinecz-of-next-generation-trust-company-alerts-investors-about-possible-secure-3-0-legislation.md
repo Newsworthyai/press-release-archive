@@ -1,0 +1,20 @@
+# Jaime Raskulinecz of Next Generation Trust Company Alerts Investors About Possible SECURE 3.0 Legislation
+
+ROSELAND, NJ, February 24, 2025 /24-7PressRelease/ -- Jaime Raskulinecz, CEO of Next Generation Trust Company, recently shared information about SECURE 3.0 legislation on her company's blog. SECURE 3.0 builds on the SECURE Act of 2019 and SECURE 2.0 of 2022; the focus is on improving retirement plan flexibility and portability, and retirement security for more American taxpayers with employer-sponsored retirement plans.   As outlined in the article, several bills are working their way through Congress, which may come to fruition in 2025. These include: •	a new tax bill to be advanced in the Senate, which will give tax cuts to some Americans but also reduce federal tax revenue. Congress is considering a bipartisan SECURE 3.0 package formulated to provide funds to cover the revenue shortfall resulting from those tax cuts. •	retirement-related bills to be introduced by Senators Tim Kaine (D-Va.) and Bill Cassidy (R-La.) in the U.S. Senate that could become part of this legislation which include the Helping Young Americans Save for Retirement Act to lower the age to participate in a workplace retirement plan from 21 to 18.  "It's still early in the process, but employers and workers should be on the lookout for changes to enrollment mandates, emphasis on state-sponsored IRAs for employees of small businesses, broader investment options, and tax credits for employers—provisions to enhance retirement security for workers and incentives for employers," said Raskulinecz.  Next Generation specializes in full account administration and asset custody for self-directed retirement plans, which allow investors to control their investment decisions and include a broad array of alternative assets within their portfolio. Investors can self-direct Traditional and Roth IRAs, SEP IRAs and SIMPLE IRAs, solo(k)s, and health savings accounts and education savings accounts.   Raskulinecz explained that anyone of any age can open and fund an IRA and get on a path to stronger retirement security, without participating in an employer-sponsored retirement plan.   "Depending on income and financial situation, an individual may have both a workplace plan and a Traditional or Roth IRA and contribute to both to the allowed limits to build tax-advantaged retirement savings."  To learn more about Next Generation and self-directed IRAs, visit www.NextGenerationTrust.com.  About Next Generation Founded on the philosophy that every person should have control over their own retirement plans, Next Generation Trust Company educates consumers and professionals about self-directed retirement plans and nontraditional investments, a strategy at one time reserved only for the very wealthy. A custodian of self-directed retirement plans, it is a trust company chartered in South Dakota, with its sister firm, Next Generation Services, providing comprehensive account administration and transaction support for all accounts. The neutral third-party professionals at Next Generation expertly guide clients and their trusted advisors as part of their white glove, personalized service for a seamless transaction experience from start to finish. For more information, visit www.NextGenerationTrust.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/519809/jaime-raskulinecz-of-next-generation-trust-company-alerts-investors-about-possible-secure-30-legislation)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/next-generation-trust-company-ceo-talks-secure-3-0-legislation-and-retirement-plan-enhancements/eb6bd350bef0e8ac58c7e1dc61b616a7) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1iwx5u8/next_generation_trust_company_ceo_talks_secure_30/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/24/envyPPNj.webp)
