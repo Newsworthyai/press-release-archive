@@ -1,0 +1,20 @@
+# March is Self-Harm Month: The Citizens Commission on Human Rights of Florida Offers a Look at the Risks and Possible Solutions
+
+CLEARWATER, FL, February 25, 2025 /24-7PressRelease/ -- March is annually observed as Self-Harm Awareness Month but unless you are involved in mental health circles, you may not realize that around 17% of all people will self-harm during their lifetime and that 45% of people use cutting as their method of self-injury.  From skin-cutting to head-banging to burning, these acts of self-harm often go unnoticed because they are on an area of the body which can be covered or excused as an accident. Overdressing, particularly in warm weather can be an attempt to hide evidence of self-abuse, or repeatedly making excuses for how an injury occurred.   Often children or teens have been brushed off as attention-seekers, but this dismissive attitude will not get at the core of the problem and can sometimes serve to justify no assistance.   The Citizens Commission on Human Rights (CCHR), warns that the natural progression laid out by the psychiatric community often leads to a prescription of psychotropic drugs with no resolution of the original problem. The Florida chapter of CCHR, an award-winning nonprofit dedicated to the protection of mental health human rights, notes that for children who have exhibited threat of self-harm at school, Baker Acting (the involuntary seizure and commitment to a psychiatric facility for up to 72 hours) is often the solution.  However, there are studies that show certain lifestyle changes have been effective in treating those that self-harm.   Information from almost 500 individuals who were being treated for self-harm or suicidal ideation was collected over 11 years from lifestyle and mental health measures. The information gathered revealed that "poor diet, and smoking were all associated with a higher average number of deliberate self-harm episodes" and that "balanced meals and smoking were the lifestyle behaviors that were found to have the strongest independent association with repeated self-harm".   "The prescribing of psychiatric drugs with side effects such as suicide to those that self-harm is criminal," states the president for CCHR Florida, Diane Stein. "When someone you know is deliberately hurting themselves it can be very confusing and upsetting which is why it is important that a person seek help from a competent non-psychiatric medical doctor as a first course of action."   In recognition of "Self-Harm Month", CCHR is inviting anyone interested in learning more about mental health human rights, parental rights or the mental health industry to visit the center in Florida located at 109 N. Fort Harrison Ave., in downtown Clearwater. For more information, please call 800-782-2878.  About CCHR: Initially established by the Church of Scientology and renowned psychiatrist Dr. Thomas Szasz in 1969, CCHR's mission is to eradicate abuses committed under the guise of mental health and enact patient and consumer protections. L. Ron Hubbard, founder of Scientology, first brought psychiatric imprisonment to wide public notice: "Thousands and thousands are seized without process of law, every week, over the 'free world' tortured, castrated, killed. All in the name of 'mental health,'" he wrote in March 1969. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520019/march-is-self-harm-month-the-citizens-commission-on-human-rights-of-florida-offers-a-look-at-the-risks-and-possible-solutions)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cchr-advocates-for-non-psychiatric-treatment-methods-during-self-harm-awareness-month/88a854a53b13ddd7579822709b76a9f0) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ixyvsb/cchr_advocates_for_nonpsychiatric_treatment/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/25/quitgWi8.webp)

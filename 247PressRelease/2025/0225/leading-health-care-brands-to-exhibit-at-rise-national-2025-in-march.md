@@ -1,0 +1,20 @@
+# Leading Health Care Brands to Exhibit at RISE National 2025 in March
+
+SAN ANTONIO, TX, February 25, 2025 /24-7PressRelease/ -- RISE is thrilled to announce that 141 sponsors will exhibit at RISE National 2025—the annual event that is the #1 trusted source for all things Medicare Advantage—when it heads to the Henry B. González Convention Center in San Antonio, March 11-14.  The annual conference, now in its 19th year, brings together 2,000 executives and senior-level management from commercial and Medicare Advantage health plans, provider groups, integrated health systems, and accountable care organizations to learn the latest information on risk adjustment, quality, member experience, and social determinants of health.  Attendees will also have the opportunity to engage with 141 sponsors in the exhibit hall to discuss innovative solutions and potential partnerships. This year, more than ever, it is important for attendees to meet these partners to address all the regulatory changes happening in the market. Sponsors will also have numerous opportunities to interact with attendees in the exhibit hall, during networking breaks, and cocktail receptions.   "RISE National 2025 is shaping up to be our most impactful event yet, with 141 conference sponsors joining us in San Antonio," said Kevin Weigel, director of sales at RISE. "We're thrilled to bring together leading health care brands and breakthrough innovators under one roof. We look forward to facilitating meaningful connections and fostering partnerships that will drive the industry forward."  Sponsors include:  Platinum sponsors: Advantmed, Arcardia, Datavant, DUOS, Edifecs, Epstein Becker Green, Evernorth Health Solutions, Fathom, GeBBS Healthcare Solutions, Healow, Icario, Inovalon, Porter, Optum, Inovalon, RAAPID, Reveleer, Secure Exchange Solutions Sharecare, SignifyHealth, SSI Group, Ushur, and Vatica Health.  Gold sponsors: Fusion Advantage, Get Well, Milliman IntelliScript, Milliman MedInsight, Moxe Health, SecondWave Delivery Systems, InterSystems, Pareto Intelligence, and RazorMetrics.  Silver sponsors: AAPC, AdhereHealth, Adobe Health Population, Amergis Healthcare Staffing, Inc., AnewHealth, Annova Solutions, Arbital Health, AthenaHealth, Authenticx, Avalere, Azara Healthcare, Beacon Healthcare Systems, Benelynk, Best Buy Health, Biomedix, Bloom Insurance Agency, Bold, Careington, Careforth, Carelon, Carekit, Cavo Health, Cecelia Health, Charter Health, ChartRequest, ComplexCare Solutions, Cook Unity, CoventBridge Group, Credo Health, Creyos, Curant Health, Cybexys, CVS Over The Counter Solutions, Datafied, D4 Solutions, ELLKAY, Everly Health, FTI Consulting, Generated Health, GA Foods, Greater Good Health, Hallmark Business Connections, HCC Coder by innoviHealth, Innovaccer, Inovaare Corporation, Intelligent Retinal Imaging Systems (IRIS), Iodine, iRhythym Technologies, Judge Healthcare, Keebler Health, Kiser Healthcare Solutions, Lightbeam Health Solutions, Linus Health, Matrix Medial Network, MeaeCare, MedCode Services, MedLine, MedTrainer, MOBE, MRO, National Medical Reviews, NationsBenefits, Navina, New Vision Healthcare Solutions, Neurotrack, O'Neil Digital Solutions, Parakeet Health, Paubox, Persivia, PointClickCare, Previon, Pyx Health, Quest Diagnostics, Referwell, Relay Network, Santech Solutions Inc., S2M, SNT Biotech, Stanson Health, Stellar Health StellusRx, Symbion Coding, The Helper Bees, TTEC, Total Med, Veravas, Verily, Versima, Vim, Wex, and Wider Circle. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520002/leading-health-care-brands-to-exhibit-at-rise-national-2025-in-march)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rise-national-2025-to-showcase-141-sponsors-at-san-antonio-event/36e7e297b162c50e79b6f659f10c2516) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1ixz37m/rise_national_2025_to_showcase_141_sponsors_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/25/goldldqO.webp)
