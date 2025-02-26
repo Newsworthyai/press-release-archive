@@ -1,0 +1,20 @@
+# American Art Collector and Western Art Collector Magazines take flight at Newstands in Private Jet Terminals across the U.S.
+
+SCOTTSDALE, AZ, February 26, 2025 /24-7PressRelease/ -- Two of the most influential American art magazines, American Art Collector and Western Art Collector, hit the open skies as they announce a new and exciting media partnership with Media Jet, the luxury publishing brand that caters to the ultra-affluent around the country. Starting in April 2025, the two magazines, both recognized as the leading and only monthly publications catering to art collectors, will be available at more than 70 newsstands inside private jet terminals.   The collaboration will put magazines in the hands of new art collectors nationwide. American Art Collector and Western Art Collector, both owned by Scottsdale-based International Artist Publishing, will now reach a discerning audience of more than 400,000 passengers in major private jet hubs such as Dallas, Scottsdale, Los Angeles, New York, Boca Raton, Santa Fe, San Francisco, San Antonio, Charleston, Charlotte, Chicago, Denver, Las Vegas, West Palm Beach and many other business and holiday destinations used by private fliers.   The team at International Artist Publishing, which publishes a total of five art publications, has been at the forefront of bringing collectors and decorators to top galleries and artists nationwide as they help forge new partnerships that will last for years within the world of fine art. Both American Art Collector and Western Art Collector are trusted sources for collectors who are interested in acquiring and collecting art. Since their inception in 2005, the magazines' focus has been on art show previews, which allows collectors of all types to get to the art before the show opens. The respective readers of these magazines are competitive collectors, comparable to big-game hunters who are looking for the best art on the market.   These collectors will now see both titles at private airport hubs across the country. The added distribution through Media Jet is in addition to the magazines' paid subscriptions program, reachable newsstands (Barnes & Nobles and Books a Million), and more than 80 major art events and shows across the country. "With this newest addition we will provide many collectors flying privately an opportunity to buy the best contemporary art in each market segment," said publishers Wendie Martin and Adolfo Castillo. "We are not merely connecting artists to collectors; we are connecting the best art to exceptional homes and collections."  About International Artist Publishing LLC International Artist Publishing LLC is the leading art magazine and media company worldwide and is dedicated to "Bringing Art to Every Part of Our Lives." Its five fine art publications—American Art Collector, Western Art Collector, American Fine Art Magazine, Native American Art and International Artist—have proven track records with their respective art markets by connecting galleries, artists, museums, auctions and events with the most active collectors. The company's mission is to bring together a team of top industry experts in every genre to grow the art community, provide a strong voice and create a bridge for the collector. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520039/american-art-collector-and-western-art-collector-magazines-take-flight-at-newstands-in-private-jet-terminals-across-the-us)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/art-magazines-partner-with-media-jet-to-reach-affluent-collectors/e0d5250cd1d8acb3b2d8c4d2d8d98d52) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/TravelAndLeisureNews/comments/1iyir7x/art_magazines_partner_with_media_jet_to_reach/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/26/waitiWZo.webp)
