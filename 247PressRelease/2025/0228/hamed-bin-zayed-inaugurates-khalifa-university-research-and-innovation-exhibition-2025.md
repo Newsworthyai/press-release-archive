@@ -1,0 +1,20 @@
+# Hamed bin Zayed inaugurates Khalifa University Research and Innovation Exhibition 2025
+
+ABU DHABI, UAE, February 28, 2025 /24-7PressRelease/ -- His Highness Sheikh Hamed bin Zayed Al Nahyan, Chairman of the Board of Trustees of Khalifa University, has inaugurated the Khalifa University Research and Innovation Exhibition 2025, which featured more than 100 projects, as part of UAE Innovates 2025.  His Highness was accompanied by His Excellency Major General Faris Khalaf Al Mazrouei, Chairman of Abu Dhabi Heritage Authority, Her Excellency Sarah Musallam, Chairperson of the Abu Dhabi Department of Education and Knowledge (ADEK), Hassan Ahmed Al Hosani, CEO, Bayanat, His Excellency Mohammed Al Kuwaiti, Head of Cyber Security for the UAE Government, Major General Thani Butti Al Shamsi, Director of Saif Bin Zayed Academy for Police and Security Sciences, His Excellency Homaid Al Shimmari, Vice-Chairman of the Board of Trustees of Khalifa University, and His Excellency Prof Ebrahim Al Hajri, President of Khalifa University.  His Highness was briefed on the innovative projects and technology solutions that were distributed across the event's three zones – Research, Industry applications, and Startups –under the Khalifa University Enterprises Company (KUEC), while attending a pitching session for a startup focusing on neuromorphic technology.  Stakeholders from the public and private sector, and academia, industry, as well as international partners interacted with Khalifa University researchers at the three themed demonstration zones, with projects including a Lunar Rover, Kumrah AI, the Emirati Reference Genome Project (ERGP), 6U CubeSat, Golde, Frugal 3D-Bioprinter, Biocatalysis on chip platform, Study of Polar Sea Ice, SAVE Software, and graphene-based hydrogen tank filament winding.  Industry applications project themes covered healthy longevity, energy transition, pervasive digitalisation, sustainable secure society and advanced materials and manufacturing/health. These included projects such as the Pregnancy Risk Assessment Monitoring System (PRAMS), Food Pricing Dynamics, AgriTech 4 for viable and sustainable farming in the UAE, a 3D-Printed Solar Absorber, Vision-Based Flare Analytics, and The Biomedical Science Discovery (BISDI) Program.  Also on display were the development of numerical tools for the origin and the magnitude of radioactive release identification (Rad-ID), a study entitled Towards Enhanced Nuclear Reactor Safety, LLMs for Utility Sector Customers and Anomaly Detection for Utility Meters, a Mangrove-mimicked Solar Desalination Device, fast chargers for electric vehicles, the Cancer Multi-Omics Atlas: A Platform for Precision Oncology, and IgenRare: AI Assistant Tool for Rare Genetic Diseases for early diagnoses and management.  About Khalifa University of Science and Technology  Khalifa University of Science and Technology, the UAE's top-ranked research-intensive institution, focuses on developing world leaders and critical thinkers in science, engineering and health science. The world-class university endeavors to be a catalyst to the growth of Abu Dhabi and the UAE's rapidly developing knowledge economy as an education destination of choice and a global leader among widely acknowledged international universities.  For more information, please visit: http://www.ku.ac.ae/ 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520113/hamed-bin-zayed-inaugurates-khalifa-university-research-and-innovation-exhibition-2025)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/khalifa-university-research-and-innovation-exhibition-2025-showcases-cutting-edge-projects-in-uae/25d7de8f83955302b0d0da27daded1a6) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1j033xn/khalifa_university_research_and_innovation/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/28/paveh3q4.webp)

@@ -1,0 +1,20 @@
+# Jonathan Rice Joins Ackerman & Co.'s Investments Team
+
+ATLANTA, GA, February 28, 2025 /24-7PressRelease/ -- Moving to expand its capital markets platform, Ackerman & Co. has hired Jonathan Rice as Executive Vice President of Capital Markets. Rice joins the firm from CBRE, where he spent more than 20 years as a key member of the firm's Atlanta finance team. In his new role, he will focus on arranging debt and equity financing for both third-party clients and Ackerman's in-house investments.  "I'm excited about the opportunity to help grow Ackerman's capital markets line of business," said Jonathan Rice. "By using my experience arranging structured finance solutions for third-party clients and integrating it with Ackerman's owner-developer investment platform, we can expand financing options and create new opportunities for the company's investments."  Jonathan will work closely with Ackerman's Investments team, including Evan Ziegler, President of Investments, and Leo Wiener, President of Ackerman Retail. He'll focus on providing permanent financing, construction financing, value-add financing and other capital solutions for a wide range of property types, including hospitality, retail, mixed-use, industrial and office.   "We're thrilled that Jonathan has joined Ackerman & Co. to become a key part of our Investments team and help broaden our capital markets platform. Jonathan comes to Ackerman with deep relationships and an impressive track record of transactions involving some of Atlanta's most iconic commercial real estate properties," said Leo Wiener.   Jonathan comes to Ackerman from CBRE, where he was Senior Vice President in the firm's Capital Markets Debt & Structured Finance Group. Before CBRE, he was Senior Managing Director of Insignia/ESG Capital Advisors prior to the firm's merger with CBRE in 2003. He also was Director at Holliday Fenoglio Fowler and Southeast Regional Director of FINOVA Realty.  Over the course of his career, Jonathan has arranged in excess of $10 billion in transactions. Some of his major transactions in both leading and support roles with CBRE include: the original construction financing and historic tax credit equity raise on behalf of Jamestown for Ponce City Market, one of the largest and most successful adaptive reuse projects in the Southeast U.S.; debt and equity financing on behalf of Novare Group for multiple SkyHouse multifamily tower projects, including the brand's first tower, the 23-story SkyHouse Midtown; construction financing on behalf of 725 Ponce, an innovative 370,931-square-foot office/retail project featuring cutting-edge modern architecture positioned along the Eastside Atlanta BeltLine; acquisition financing on behalf of KKR for the 24-story Sales Force Tower in Buckhead; debt financing for Westside Provisions District on Atlanta's Westside; and debt and equity financing for the 1,500-room Hilton & Waldorf Astoria at Bonnet Creek in Orlando.  About Ackerman & Co. Headquartered in Atlanta, Ackerman & Co. is a privately held, full-service commercial real estate firm focused on providing quality investment, brokerage, management and development services across the South. The company, founded in 1967, retains an expert team of 100 real estate professionals. To date, Ackerman & Co. has developed and acquired 44 million square feet of office, medical, industrial, retail and mixed-use space, has 4.5 million square feet under management, and maintains an investment portfolio valued at $1 billion. For more information, visit www.ackermanco.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520151/jonathan-rice-joins-ackerman-cos-investments-team)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ackerman-co-expands-capital-markets-platform-with-new-executive-vice-president/2d2eebe5416adfa0e7287a82c8cb936b) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1j033qp/ackerman_co_expands_capital_markets_platform_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/28/taroOcVk.webp)
