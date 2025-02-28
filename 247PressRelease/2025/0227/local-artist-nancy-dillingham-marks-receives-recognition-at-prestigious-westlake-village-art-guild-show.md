@@ -1,0 +1,20 @@
+# Local Artist Nancy Dillingham Marks Receives Recognition at Prestigious Westlake Village Art Guild Show
+
+WESTLAKE VILLAGE, CA, February 27, 2025 /24-7PressRelease/ -- Nancy Dillingham Marks, founder of the Glass Arts Collective, has been awarded Honorable Mention in the sculpture category at the Westlake Village Art Guild Members-Only Juried Show for her innovative fused glass piece, Fairy Garden. This recognition highlights the growing appreciation for non-traditional art forms in the local arts community.  The awarded piece demonstrates Nancy Dillingham Marks' masterful manipulation of fused glass techniques, creating a whimsical yet sophisticated interpretation of a fairy garden that captivated the jury's attention. This achievement marks another milestone in her artistic journey, which began after a successful 35-year career in technology.  "This recognition from the Westlake Village Art Guild is particularly meaningful as it represents acceptance of fused glass as a serious sculptural medium," says Nancy Dillingham Marks. "It affirms not only my personal artistic journey but also the growing importance of glass arts in our creative community."  Nancy Dillingham Marks' commitment to fostering artistic growth and community engagement has established her as a prominent artist in the Greater Los Angeles art scene through the Glass Arts Collective, a vibrant creative hub that combines a working studio, educational space, and retail gallery. The facility serves as both a teaching studio and a supportive environment for resident artists, whose works are featured in the studio's curated gift shop.   The gift shop offers a unique collection of handcrafted fused glass art, each piece a testament to the skill and creativity of local artisans. The carefully curated collection features handcrafted fused glass pieces that range from delicate jewelry and holiday ornaments to bold decorative platters and striking wall art.  Nancy Dillingham Marks has been recognized as an outstanding business owner, earning multiple recognitions, including Business of the Quarter from the City of Westlake Village and the Greater Conejo Valley Chamber of Commerce, as well as acknowledgment from the County of Los Angeles. The Glass Arts Collective studio actively supports various local charities, demonstrating her commitment to combining artistic excellence with community service.   About Nancy Dillingham Marks:  Nancy Dillingham Marks is a fused glass artist, entrepreneur, and creative community leader. Through the Glass Arts Collective, she has created a nurturing environment for artists while making art accessible to everyone. An active member of the Conejo Valley Chamber of Commerce and various art organizations, Nancy draws inspiration from her world travels and photography, bringing global perspectives to her local community. When not creating or podcasting, she enjoys time with her family, including her husband, three daughters, and two grandchildren.  For more information about Nancy Dillingham Marks, the Glass Arts Collective, or to schedule an interview with Nancy, please contact:  Nancy Dillingham Marks Glass Arts Collective (818) 318-1462 info@glassartscollective.com GlassArtsCollective.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520136/local-artist-nancy-dillingham-marks-receives-recognition-at-prestigious-westlake-village-art-guild-show)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/glass-arts-collective-founder-awarded-honorable-mention-for-fused-glass-sculpture/735ae9f8f55e19e250f58d95762ebd81) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1j02dvp/glass_arts_collective_founder_awarded_honorable/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/252/28/mossNJZY.webp)
