@@ -1,0 +1,20 @@
+# Ultrasound promotes phenolic synthesis in fresh-cut red cabbages via high energy levels.
+
+KNOXVILLE, TN, March 04, 2025 /24-7PressRelease/ -- Researchers innovatively applied ultrasonic technology to the cleaning of fresh-cut red cabbage to reduce surface microbial contamination and pesticide residues. The phenolic compound synthesis in fresh-cut red cabbage was found to increase after ultrasonic cleaning. The use of ATP and DNP treatments confirmed that the accumulation of phenolic compounds induced by ultrasonic cleaning is closely related to elevated energy levels.  Ultrasonic cleaning is a relatively novel non-thermal processing technology that has since been adopted widely for the storage and preservation of fresh-cut fruits and vegetables. The technology is also known for being safe, non-toxic and environmentally friendly.  In recent years, researchers have discovered that ultrasonic cleaning technology can also enhance the quality of fruits and vegetables, reduce microbial contamination on their surfaces and decrease pesticide residues. To explore the field further, a research team from China developed an ultrasonic technology for cleaning fresh-cut red cabbage, and demonstrated its high cleaning efficacy.  "Ultrasound can also serve as an abiotic stressor, inducing the synthesis and accumulation of bioactive compounds in fruits and vegetables," shares Haile Ma, senior and corresponding author of the study.  Although ultrasound has been shown to promote the accumulation of phenolic compounds in vegetables, most studies have only focused on directly measuring the terminal effects of ultrasound on phenolic compound accumulation, leaving the mechanisms underlying phenolic compound synthesis unclear.  "In our preliminary study, we used red cabbage as the research subject and found that ultrasonic cleaning promotes the accumulation of phenolic compounds in fresh-cut red cabbage," explains Ma. "However, the synthesis mechanism requires further analysis and may be related to its energy status. Hence, we investigated the effects of ATP and DNP treatments, and found that they promote and inhibit energy generation, respectively, on phenolic compound metabolism and antioxidant enzymes in fresh-cut red cabbage after ultrasonic cleaning."  What this mean is that ultrasonic treatment enhances the activity of energy metabolism-related enzymes (ATPase, SDH, and CCO), which in turn maintains the energy levels of fresh-cut red cabbage, providing energy for phenolic compound synthesis.  "Our study provides theoretical support for the application of ultrasonic cleaning technology in enhancing bioactive compounds in fruits and vegetables," says Ma.  The study(doi: https://doi.org/10.1016/j.foodp.2025.100049) was published in the KeAi journal Food Physics.  References DOI 10.1016/j.foodp.2025.100049  Original Source URL https://doi.org/10.1016/j.foodp.2025.100049  Funding information This research was part of the National Natural Science Foundation of China (No. 32072353).  About Food Physics Food Physics mainly publishes papers on the food physical processing technologies and physical characteristics of food.  Chuanlink Innovations, where revolutionary ideas meet their true potential. Our name, rooted in the essence of transmission and connection, reflects our commitment to fostering innovation and facilitating the journey of ideas from inception to realization.  Related Link: http://chuanlink-innovations.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520200/ultrasound-promotes-phenolic-synthesis-in-fresh-cut-red-cabbages-via-high-energy-levels)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ultrasonic-technology-enhances-phenolic-compound-synthesis-in-fresh-cut-red-cabbage/5117e22df1d10cf1d3575fb89006a379) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1j3acp2/ultrasonic_technology_enhances_phenolic_compound/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/4/pinkiPGS.webp)
