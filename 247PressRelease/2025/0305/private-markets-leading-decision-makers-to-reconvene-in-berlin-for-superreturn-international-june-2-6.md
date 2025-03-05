@@ -1,0 +1,20 @@
+# Private markets' leading decision makers to reconvene in Berlin for SuperReturn International, June 2-6
+
+BERLIN, GERMANY, March 05, 2025 /24-7PressRelease/ -- SuperReturn, the world's leading private equity and venture capital conference series, will host its annual SuperReturn International conference at the InterContinental Hotel in Berlin, June 2-6, 2025.   This year's SuperReturn International is set to be the biggest yet, with over 5,500 decision-makers from 70+ countries in attendance. This will include 2,700+ GPs and 1,800+ LPs, with over $50 trillion in assets under management. Attendees will have the opportunity to meet with and learn from the sharpest minds in the industry through insightful presentations, interactive debates and closed-door discussions. Topics on the agenda include technology and AI adoption, the geopolitical and macroeconomic landscape, private wealth, climate transition, private credit, secondaries, and much more.  Among the speakers this year will be:   •	Rob Lucas, Managing Partner at CVC Capital Partners •	Orlando Bravo, Founder and Managing Partner at Thoma Bravo •	David Rubenstein, Co-Founder and Co-Chairman at Carlyle •	Tara Moore, Managing Director, Head of European Originations, Golub Capital •	Dina Powell McCormick, Vice Chair, President and Head of Global Client Services at BDT & MSD Partners •	Ralph Guenther, Partner and Head of Continental Europe at Pantheon Ventures •	Laura Schroeder Managing Director at KKR •	Cornelia Gomez Global Head of Sustainability at General Atlantic  "SuperReturn International continues to set the benchmark as the must-attend event for the global private capital industry," said Dorothy Kelso, Managing Director of SuperReturn. "As the industry navigates a rapidly shifting landscape, from macroeconomic headwinds to the rise of AI and private wealth, our agenda is designed to tackle the most pressing issues and uncover the biggest opportunities. This year, we are bringing together an unparalleled roster of senior industry leaders. Whether you're looking to meet investors, discover emerging strategies or get real-time market intelligence, SuperReturn International is the place to be."  In addition to the main agenda, SuperReturn International will be hosting SuperReturn Climate and Energy Transition on Monday 2nd June to Wednesday 4th June, as well as two days of eight co-located specialist summits on 2-3 June for those looking to delve deeper and connect with GPs and LPs with the same interests. The summits will be dedicated to private debt, secondaries, sports investing, women in private markets, private wealth, ESG, German private equity, and technology value creation in private equity. To view the full schedule of speakers and events, and to register to attend, please visit: https://informaconnect.com/superreturn-international/.   Sponsors of this year's event include Investcorp, UBS, Deloitte, Goodwin, Bain & Company, Barings and ZCG.  About SuperReturn International SuperReturn International is the world's largest private equity and venture capital event, and part of the SuperReturn series of leading private equity events that take place across the world.  This five-day conference will bring together thousands of private equity and venture capital professionals, including 1,800+ Limited Partners (LPs), 2,700+ General Partners (GPs) and 500+ expert speakers from 70+ countries, to network and discuss current trends and opportunities within the private equity industry. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520259/private-markets-leading-decision-makers-to-reconvene-in-berlin-for-superreturn-international-june-2-6)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/superreturn-international-2025-largest-private-equity-conference-in-berlin/39dc2dc45b10d4323f0935c9dada0d61) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1j3yegk/superreturn_international_2025_largest_private/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/5/caken7iV.webp)
