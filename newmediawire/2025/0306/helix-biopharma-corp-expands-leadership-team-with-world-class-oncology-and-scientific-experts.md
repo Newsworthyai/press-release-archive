@@ -1,0 +1,48 @@
+# Helix Biopharma Corp. Expands Leadership Team With World-Class Oncology and Scientific Experts
+
+TORONTO, ONTARIO - March 6, 2025 (NEWMEDIAWIRE) - Helix BioPharma Corp. (TSX: “HBP”, OTC PINK: “HBPCD”, FRANKFURT: “HBP0”) (“Helix” or the “Company”), a clinical-stage oncology company shaping a near future where today’s hard-to-treat cancers are vincible, is pleased to announce the addition of three esteemed experts in oncology and drug development to its executive team. The appointments underscore Helix’s commitment to assembling a world-class team to push the limits of proven science and bring life-changing therapies to patients as soon as possible.
+
+ 1. Thomas Mehrling, MD, PhD – Chief Medical Officer (CMO)Dr. Thomas Mehrling (PhD in Pharmacology and MD, University of Frankfurt) brings 20 years of experience shaping the oncology landscape, with previous roles at Takeda, Mundipharma International and Roche. His track record includes the successful introduction of groundbreaking cancer drugs across Europe, with commercial successes nearing USD 1 billion in sales. As Chief Medical Officer, Dr. Mehrling will lead Helix’s clinical development strategy, beginning with Tumor Defence Breaker™ L-DOS47—a first-in-class, clinical-stage antibody-enzyme conjugate (AEC) to enhance the effectiveness of today’s immune-oncology therapies for the treatment of Non-Small Cell Lung Cancer (NSCLC).
+2. Jonathan Davis, PhD – Director of ADC DiscoveryA leading expert in therapeutic antibodies, Dr. Davis joins Helix as Director of Antibody-Drug Conjugate (ADC) Discovery. With over 15 years of experience spearheading discovery and innovation strategies across diverse therapeutic antibody formats—including monoclonal antibodies (mAbs), multispecifics, and bi-specific ADCs (EMD Serono, Bristol-Myers Squibb, Invenra)—Dr. Davis will play a pivotal role in advancing Helix’s ADC portfolio targeting Carcinoembryonic Antigen-related Cell Adhesion Molecule 6 (CECAM6). As of 2025, Helix is drawing on the latest advancements in design, conjugation, and payload technology to develop bi-specific ADCs and radionuclide drug conjugates (RDCs) for gastrointestinal, gynecological, and other solid tumors. Dr. Davis’s expertise will be instrumental in translating these innovations into next-generation, targeted therapies that enhance efficacy while minimizing toxicity. Dr. Davis received his PhD from University of California, San Francisco, and completed his post-doctoral research at Harvard Medical School.
+3. Davide Guggi, PhD – Chief Technology Officer (CTO)Bringing extensive Chemistry, Manufacturing, and Controls (CMC) expertise, Dr. Guggi joins Helix as Chief Technology Officer. With over a decade of experience guiding the end-to-end development of small molecules and biologics—including mAbs, ADCs, and radio-immuno conjugates—Dr. Guggi has collaborated with more than 20 global biotech firms to drive regulatory success from discovery through to new drug applications (NDA) and biologics license applications (BLA) across the US, EU, and Canada. Prior to his CMC consultancy, he led oncology business units and commercial departments at Mundipharma International and Gilead, and he received his PhD in Pharmaceutical Technology and Biotechnology from the University of Vienna. Dr. Guggi’s leadership will be instrumental in ensuring the seamless clinical development of Helix’s compounds while optimizing their scalability for later commercialization, positioning the Company for long-term success in bringing innovative cancer therapies to market.
+
+ “The appointments of Dr. Mehrling, Dr. Davis, and Dr. Guggi reflect Helix’s unwavering commitment to assembling a world-class team capable of transforming oncology treatment paradigms,” said Jacek Antas, Chief Operating Officer of Helix BioPharma. “Their collective expertise will accelerate our mission to develop next-generation cancer therapies that offer meaningful benefits to patients facing prevalent, hard-to-treat cancers.”
+
+ “Helix’s vision for the future of oncology is both bold and pragmatic – and it’s deeply needed,” said Thomas Mehrling, CMO. “The Company is determined to address cancer’s biggest challenges head on, with benefit-driven innovation and a strategic approach to accelerate development. This is a cause I wholeheartedly stand behind, and I’m committed to ensuring that innovation at Helix isn’t just ambitious, but translates into better outcomes, faster, for those who need it most.”
+
+ Dr. Jonathan Davis, Director of ADC Discovery said, “Antibody-drug conjugates are opening up new horizons in oncology, and Helix BioPharma’s deep expertise in CEACAM6–a highly promising yet underutilized target–provides an exciting foundation for advancing next-generation ADCs. I look forward to contributing to Helix’s development of ADCs and RDCs that could redefine clinical outcomes in treating solid tumors.”
+
+ Dr. Davide Guggi, CTO, added: “By optimizing how we develop and scale our therapies, we can accelerate timelines, reduce risk, and ultimately deliver solutions that meet the urgent needs of people living with cancer. The success of any cancer therapy depends not just on its mechanism of action but on its ability to be manufactured with consistency and delivered with precision. At Helix, I am committed to ensuring that our therapies are not only innovative but also scalable, manufacturable, and designed for long-term success.”
+
+ About Helix BioPharma
+
+ Helix BioPharma Corp. is an oncology company shaping a near future where today’s hard-to-treat cancers are made vincible by novel therapies that rise to the challenge. The Company innovates from strength to tackle cancer’s biggest, most urgent challenges with a diverse pipeline of drug candidates with great potential and a head start, honed into first- and best-in-class oncology medicines. Its pipeline is spearheaded by a clinical-stage proprietary technology platform of bio-conjugates that score with precision against prevalent CEACAM6-expressing solid tumours. Its lead candidate, Tumour Defence Breaker(TM) L-DOS47, is a clinical-stage antibody-enzyme conjugate (AEC) that neutralizes the microenvironment of common, hard-to-treat solid tumours, taking the brakes off anti-cancer immunity and delivering a game-changing assist to today’s front-running anti-cancer therapies. L-DOS47 has completed Phase Ib studies in non-small cell lung cancer (NSCLC), with novel strategically designed bi-specific ADCs targeting CEACAM6 in discovery. Helix is listed on the TSX under the symbol “HBP”, on OTC PINK under the symbol “HBPCD” and on FWB under the symbol “HBP0”.
+
+ For more information, please contact:
+
+ Helix BioPharma Corp.Bay Adelaide Centre - North Tower40 Temperance Street, Suite 2Toronto, ON M5H 0B4Tel: 604-428-7050Jacek Antas, Directorcorporate@helixbiopharma.com
+
+ Forward-Looking Statements and Risks and Uncertainties
+
+ This news release contains certain statements regarding Helix BioPharma Corp. that constitute forward-looking statements and information (collectively, “forward-looking statements”) as defined by Canadian securities laws. Forward-looking statements include and are not limited to financial projections and expectations regarding Helix’s future business and operations, particularly related to the Company’s CEACAM6 platform, DOS47 and new asset transactions that Helix intends to close. These statements use terms like “estimates,” “expects,” “will,” and similar language indicating future events, or the negative thereof or any other comparable terminology referring to future events or results.
+
+ However, forward-looking statements are subject to risks and uncertainties beyond Helix’s control, which may lead to actual results differing materially from those anticipated. These risks and uncertainties include, but are not limited to, risks relating to Helix’s financial condition, including (a) lack of significant revenues to date and reliance on equity and other financing; (b) business, including its stage of development, government regulation, development success of and market acceptance for its products, rapid technological change and dependence on key personnel; (c) intellectual property including the ability of Helix to protect its intellectual property and dependence on its strategic partners; and (d) capital structure, including its lack of dividends on its common shares, volatility of the market price of its common shares and public company costs. Forward-looking statements reflect the management’s current beliefs and are based on information available to the management on the date of this news release, and the Company does not assume the obligation to update any forward-looking statement should those beliefs change, except as required by law. Further information regarding these risks and uncertainties can be found in Helix’s periodic reports and information forms on the Company’s SEDAR+ profile at www.sedarplus.ca.
+
+View the original release on www.newmediawire.com 
+
+---
+
+[Original/Source Press Release](https://www.newmediawire.com/news/helix-biopharma-corp-expands-leadership-team-with-world-class-oncology-and-scientific-experts-7079740)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/helix-biopharma-corp-bolsters-leadership-team-with-experts-in-oncology-and-drug-development/a1eb662125e0f89cb0023de4d6ebe8b9) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1j511sl/helix_biopharma_corp_bolsters_leadership_team/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/newmediawire/qrcode/253/6/vast4FC1.webp)
