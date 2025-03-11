@@ -1,0 +1,20 @@
+# Julie Tomlinson's 365 Days of Becoming Is the Fictional Memoir We've Been Waiting For
+
+CHICAGOLAND, IL, March 11, 2025 /24-7PressRelease/ -- Franklin Publishers is proud to announce the release of 365 Days of Becoming, the debut novel by Julie Tomlinson, now available in hardcover, paperback, and ebook. Published on February 12, 2025, this deeply personal and evocative fictional memoir is already making waves.  The Story: One Year, No Dating, and the Messy Process of Becoming At 34 years old, Reilly has finally stopped pretending. She's out, single, and giving herself one year to figure it all out—no distractions, no dating, just her. But in a city that never stops moving, where past relationships haunt her like bad takeout choices, and a career that devours every spare second, self-reflection isn't as neat as she hoped.  Through divorce, entangled connections, career burnout, and the complexities of coparenting, 365 Days of Becoming is the story about stepping fully into your authentic self and embracing the evolution that shapes you into the person you're meant to be.  "Life doesn't come with a step-by-step guide for personal exploration—you just have to dive in, trust the process, and keep going. This book takes you on that ride with adventure, humor, and enough twists to keep you turning the pages." – Julie Tomlinson  With sharp wit, devastating honesty, and a voice that doesn't hold back, 365 Days of Becoming captures the highs, the lows, and the unfiltered moments that make up a life in transition.  Julie Tomlinson: The Storyteller for Seekers and Strivers A former advertising executive, Julie Tomlinson, understands the power of words—but this time, she's using them to connect rather than convince. Her novel isn't just a story; it's an experience—one that invites readers to be introspective and see themselves in its pages.  "I didn't see books like this when I needed them. So, I wrote the one I wish I had."  Tomlinson is quickly becoming a standout voice in LGBTQ+ fiction, sharing stories that reflect the raw, messy, and beautiful process of embracing who you truly are--on your own terms.  She's bringing 365 Days of Becoming to a wider audience in 2025 through a major media campaign with Franklin Publishers, ensuring that stories like Reilly's get the visibility they deserve.  Follow Julie Tomlinson on social media: Instagram: @writtenbyjt TikTok: @julietomlinson85  Where to Get the Book 365 Days of Becoming is available now: - Amazon - Google Books - Booktopia - Everand  Join the Conversation Could you go a year without dating--to find yourself? Share your story and join the conversation using #365DaysOfBecoming  on social media.  For interviews, media features, or promotional inquiries, contact info@franklinpublishers.com.  This isn't just another book--it's the one you wish you had to inspire your best life.  About Franklin Publishers Franklin Publishers is committed to amplifying bold, necessary, and deeply personal storytelling in modern literature. Specializing in narratives that challenge, inspire, and stick with you long after the last page, Franklin Publishers provides authors with industry-leading marketing, global distribution, and high-impact promotional opportunities.  For more information, visit Franklin Publishers  For direct inquiries, reach out to Julie Tomlinson on Instagram (@writtenbyjt) and TikTok (@julietomlinson85). 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520474/julie-tomlinsons-365-days-of-becoming-is-the-fictional-memoir-weve-been-waiting-for)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-release-365-days-of-becoming-by-julie-tomlinson-explores-self-discovery-and-authenticity/8d7b7574e67f03f1e25a0d11c6bc2b8e) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1j8l5xr/new_release_365_days_of_becoming_by_julie/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/11/lily0TRl.webp)

@@ -1,0 +1,20 @@
+# China's National Medical Products Administration (NMPA) Clears Blood Clot Removal Platform
+
+SALT LAKE CITY, UT, March 11, 2025 /24-7PressRelease/ -- The National Medical Products Administration (NMPA) in the People's Republic of China has cleared the Control Medical Technology 7 – 11F Mechanical Thrombectomy platform to remove blood clots from peripheral vessels. The Control Medical Thrombectomy platform is a foundation of a growing clot management medical device pipeline developed by VentiV Scientific   "This NMPA clearance in the People's Republic of China is a milestone in our ability to reach patients in one of the world's largest and most dynamic markets," said Dan Ryan, VentiV Scientific, Board of Directors, Salt Lake City, Utah USA. "Our partner Shanghai Easy-Flow MedTech did a great job attaining NMPA clearance and we look forward to working them to serve patients in the People's Republic of China."   "We are excited to introduce this innovative solution to the Chinese market," said Zhenghua Miao, Chairman and General Manager of Easy-Flow. "With the ongoing growth of the peripheral thrombectomy market in China, the differentiated design of the Control System will provide clinicians with a broader range of treatment options and greater flexibility in clinical applications, ultimately enhancing patient outcomes."  Blood clot removal (thrombectomy) is a common procedure. Coronary thrombectomy is associated with acute myocardial infarction (AMI), neurovascular thrombectomy is associated with acute ischemic stroke, and peripheral thrombectomy is associated with peripheral arterial disease (PAD), acute limb ischemia (ALI), critical limb ischemia (CLI), chronic total occlusion (CTO), deep vein thrombosis (DVT), pulmonary embolism (PE), and other peripheral vascular disease (PVD).   During most thrombectomy procedures, clinicians access the femoral artery or vein, track a catheter over a guidewire to the thrombus (blood clot), and then apply suction with a syringe, aspirator, and/or electromechanical pump. Blood clot age, size, and location plus catheter size, type, shape, and aspiration force are important variables during thrombectomy.   "Blood clots range from soft-fresh clots to hard-aged thrombus," commented Mr. Ryan. "Our Control 7 – 11F Mechanical Thrombectomy System includes large-lumen, flexible, and kink-resistant catheters w/dilators powered by our proprietary mechanical Aspirator, syringes, and/or electromechanical pumps to treat a wide range of blood clots."   The Control Medical Technology 7 – 11F Mechanical Thrombectomy System includes 7F (0.090") outer diameter (OD) to 11F (0.140") OD catheters with flexible dilators for improved tracking, crossing, and access in the peripheral vasculature. Catheters may be connected to the Aspirator, syringes, and/or electromechanical pumps for increased speed, force, volume, and control.  Control Medical Technology, Inc. dba VentiV Scientific is a private company that designs, develops, and commercializes novel medical devices www.VentiVScientific.com.   Shanghai Easy-Flow Medical Tech Co., Ltd is a medical device company dedicated to providing integrated, minimally invasive solutions for the treatment of vascular diseases.   Media contact: Alan Harris (954) 534-9345 aharris@ventivscientific.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520406/chinas-national-medical-products-administration-nmpa-clears-blood-clot-removal-platform)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ventiv-scientific-receives-nmpa-clearance-for-control-medical-thrombectomy-platform-in-china/6fedad72932d9d36150ceef5b97e4aa1) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1j8l8ln/ventiv_scientific_receives_nmpa_clearance_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/11/fond2Oeg.webp)
