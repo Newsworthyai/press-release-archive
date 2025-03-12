@@ -1,0 +1,20 @@
+# ADAP Advocacy Releases New Policy Paper on 340B Drug Pricing Program
+
+WASHINGTON, DC, March 12, 2025 /24-7PressRelease/ -- ADAP Advocacy today, as part of its 340B Project, published a new policy paper on the 340B Drug Pricing Program. The report – "Is the 340B Drug Pricing Program the Next 'Too Big to Fail'?" – sounds alarm on why common sense reforms are needed to ensure the integrity of the nation's second largest federally sponsored drug program, behind only Medicare Part D. The policy paper compares the 340B Program's lack of meaningful accountability or transparency standards, especially among the big hospital systems, despite explosive growth to the collapse of the financial markets in 2007-08 after years of minimal federal oversight of the big investment banks.  Brandon M. Macsata, CEO of ADAP Advocacy, summarized: "The federal government, namely the Health Resources Service Administration, has struggled to address the concerns expressed by many experts who have weighed in on the program's explosive growth. The agency's lack of oversight mirrors that of the U.S. Securities & Exchange Commission, which was asleep at the wheel leading up to the 2008 financial crisis. Concerning 340B, HRSA's actions have ranged from being excessively slow to reign in duplicative discounts under Medicaid or drug diversion by contract pharmacies to the agency itself serving as an impediment to reform, evidenced by fighting drug manufacturers' enhanced reporting requirements and efforts to protect the program's integrity regarding drug sales through contract pharmacy arrangements. Whereas the SEC was impotent, showing little interest in oversight of the large investment banks leading up to the 2008 meltdown, HRSA has repeatedly fought serious efforts to add accountability and transparency standards."  Guy Anthony, ADAP Advocacy Chair, 340B Patient Advisory Committee, said: "What was needed in 2008 was bold, decisive action to shore up the nation's financial institutions and thus the national economy…arguably the world economy. The 340B Program touches too many aspects of the healthcare system to be left on its current trajectory. A program lacking accountability and transparency standards is a program doomed to fail. This program is too big to fail."  Marcus J. Hopkins, ADAP Advocacy 340B Consultant, added: "Patients' lives depend on the success of the 340B Program, and it is questionable whether their health needs are being best served by the large hospital systems and mega service providers that are experiencing explosive revenue growth, along with substantial rewards for their executives. Consider the declining charity care hospitals offer patients and the medical debt crisis confronting many of these individuals. The 340B Program is too big to fail, and we are working to ensure that doesn't happen."  The paper can be downloaded here: https://tinyurl.com/4vh75up6.   To learn more about ADAP Advocacy, 340B Drug Pricing Program, or the new 340B policy paper, please email info@adapadvocacy.org.  About ADAP Advocacy: ADAP Advocacy's mission is to promote and enhance the AIDS Drug Assistance Programs (ADAPs) and improve access to care for persons living with HIV/AIDS. ADAP Advocacy works with advocates, community, health care, government, patients, pharmaceutical companies, and other stakeholders to raise awareness, offer patient educational programs, and foster greater community collaboration. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520500/adap-advocacy-releases-new-policy-paper-on-340b-drug-pricing-program)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-policy-paper-raises-concerns-about-340b-drug-pricing-program-integrity/d6abd6671a52a1240dce6489efae4ff4) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1j9ebjf/new_policy_paper_raises_concerns_about_340b_drug/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/12/riftBT_q.webp)

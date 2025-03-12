@@ -1,0 +1,20 @@
+# Rare 1966 Mercedes-Benz 600 Six Door Pullman Limousine Showcased at DFW Car & Toy Museum's New Location
+
+FORT WORTH, TX, March 12, 2025 /24-7PressRelease/ -- The DFW Car & Toy Museum, renowned for its impressive collection of 3,000 antique automotive toys and over 150 collector cars, is excited to highlight a truly rare automotive masterpiece—the 1966 Mercedes-Benz 600 6 Door Pullman Limousine.  Originally introduced at the 1963 Frankfurt Motor Show, the Mercedes-Benz 600 was a marvel of automotive engineering, featuring an advanced hydraulic system that powered nearly every function of the car, including a self-leveling air suspension. Built in both a four-door short-wheelbase and two larger long-wheelbase configurations, including four- and six-door variants, the 600 became the epitome of dignified luxury.  Thanks to its technological sophistication, comfort, and commanding presence, the Mercedes-Benz 600 quickly became the preferred vehicle of world leaders, entertainment icons, and dignitaries—including the Pope.  One of only 428 long-wheelbase 600 Pullman limousines ever built, this particular 1966 model is even rarer—being just one of 42 six-door configurations, and among only 11 to feature a factory sunroof and air conditioning. Unlike most 600s, which were delivered worldwide to elite clientele, this specific chassis was retained by Mercedes-Benz to transport visiting engineers and VIP guests.  The limousine was later sold by the factory to Klaus Kienle, a former head of major repairs and special vehicles at Mercedes-Benz, who played a key role in overseeing the production of the 600 series. Kienle eventually founded Kienle Automobiltechnik in Heimerdingen, Germany, a world-renowned specialist in classic Mercedes-Benz restoration and maintenance.  Now part of the DFW Car & Toy Museum's esteemed collection, this 600 6 Door Pullman Limousine has been meticulously maintained, with documented service from Mercedes-Benz Classic Center USA. Subtly upgraded with modern entertainment amenities while retaining its unmistakable mid-century presence, it remains a symbol of prestige and innovation.  Formerly known as The DFW Elite Toy Museum, the DFW Car & Toy Museum is currently preparing for an exciting transition to Fort Worth. The new location at 2550 McMillan Parkway is set to open in the first quarter of 2025 following a remodel. Admission will remain free, offering enthusiasts and visitors an opportunity to experience this and many other extraordinary vehicles.  About DFW Car & Toy Museum  The museum was founded by Ron Sturgeon in the 1980's collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum was the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) Sturgeon started his automotive business in Haltom City 50 years ago working on VW bugs, and the museum has more than 35 Volkswagens. The new facility has 150,000 square feet, 200+ cars and 3,000 + toys and, with free parking & admission, promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520501/rare-1966-mercedes-benz-600-six-door-pullman-limousine-showcased-at-dfw-car-toy-museums-new-location)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dfw-car-toy-museum-showcases-rare-1966-mercedes-benz-600-limousine/dcc5fb99ccd13027c7c7ab701edebe0b) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1j9ebgp/dfw_car_toy_museum_showcases_rare_1966/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/12/silk64xl.webp)

@@ -1,0 +1,20 @@
+# Nectari Announces Leadership Transition as Co-Founder Greg Brown Retires
+
+MONTREAL, QC, March 12, 2025 /24-7PressRelease/ -- Nectari, a global leader in business intelligence and data management solutions, announces a significant leadership transition as co-founder Greg Brown will retire in March 2025. Greg, who co-founded Nectari alongside Benoit Trottier, has been an instrumental figure in the company's growth, shaping its vision and presence in the Software ecosystem.  Over the past 33 years, Greg has not only played a key role in driving Company revenues but has also been a cornerstone of the company's strong client and partner relationships. Along with Trottier and Guy Girouard (COO), Greg helped expand Nectari's reach to businesses across more than 60 countries, integrating with several top ERP platforms such as Sage Software and Acumatica, and assembling a world-class team.  "With deep gratitude, we thank Greg for his unwavering dedication and leadership over the years. His impact on Nectari and the broader software community is immeasurable," said Trottier. Girouard continued "Greg has always been a champion for growth, both at a company level and in fostering individual talent, and we wish him all the best in his well-earned retirement."  As Nectari embarks on its next chapter, the company is pleased to announce that Gareth Marks, formerly Director of Business Development, has assumed the role of Chief Revenue Officer and Nicolas Trottier, CPA, has assumed the role of CFO as Benoit Trottier shifts into an advisor role. Both Gareth Marks and Nicolas Trottier are now full Partners alongside Benoit Trottier and Guy Girouard, creating an exciting new leadership team.   Nicolas Trottier brings with him a diverse background of experience and a strong entrepreneurial spirit, having founded his own company in university. After working in a larger accounting firm, he now brings his innovation skills to Nectari. "I'm eager to build on the incredible legacy of my father and Greg, and continue growing the vision of the company," stated Nicolas Trottier.  Marks, who has been with Nectari for over a decade, has played a pivotal role in the company's expansion and will represent a key asset in building the company's future. "I am honoured to step into this leadership role at such an exciting time for Nectari," said Gareth Marks. "Greg has built something truly special here, and I'm excited to build on that momentum. With our incredible team, continued innovations and strong partner network, we're all ready to take Nectari to new heights."  With a new leadership structure in place and ground-breaking product updates on the horizon, Nectari remains committed to delivering best-in-class business intelligence solutions for its clients and partners worldwide.  About Nectari Nectari is a global leader in business intelligence and data management solutions, providing powerful and intuitive tools that integrate seamlessly with leading ERP platforms. Their mission is to empower businesses with the insights they need using real-time data, to cut through the noise and make better-informed business decisions quickly. The entire team is committed to helping customers be as efficient and flexible as they can by getting the right data to the right people fast. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520472/nectari-announces-leadership-transition-as-co-founder-greg-brown-retires)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nectari-announces-major-leadership-transition-with-retirement-of-co-founder-greg-brown/bd5046ff93584f4006c50f72791af708) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1j9ef68/nectari_announces_major_leadership_transition/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/12/glowDKq2.webp)
