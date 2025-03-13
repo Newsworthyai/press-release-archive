@@ -1,0 +1,20 @@
+# Lexis Nexis Releases 3rd Edition of Addressing the Jury
+
+TORONTO, ON, March 13, 2025 /24-7PressRelease/ -- Jury lawyers across Canada will welcome the release of the highly anticipated third edition of Addressing the Jury: Achieving Fair Verdicts in Personal Injury Cases, the only comprehensive Canadian book on jury advocacy. Published by Lexis Nexis, this latest edition builds upon the success of its predecessors, both of which sold out.  Renowned civil jury lawyer Roger Oatley has once again teamed up with former partner Troy Lehman to expand, refine, and update this invaluable resource. Drawing on extensive research and practical courtroom experience, the authors delve into the psychology of jury decision-making, exploring how jurors' biases can be leveraged to craft persuasive arguments.  The book provides a thorough guide to developing compelling trial themes, structuring persuasive opening and closing statements, and effectively using demonstrative evidence to make cases more impactful and memorable. Readers will also learn strategies for countering opposing arguments before they are even presented.  New Features in the 3rd Edition  Enhanced Examination Techniques – Expanded guidance on examining and cross-examining witnesses to maximize persuasive impact. Exclusive Audio Chapters – A first for publisher Lexis Nexis, this edition includes audio recordings of Troy Lehman's actual opening and closing statements from a successful jury trial, accompanied by strategic analysis and commentary from Roger Oatley.  While this book is an indispensable guide for young lawyers preparing for their first jury trial, it remains an essential tool for seasoned advocates. Experienced jury lawyers continue to rely on Addressing the Jury before and during every trial to refine their advocacy skills and improve trial outcomes.  Order Information  Addressing the Jury is available for purchase through the Lexis Nexis e-store: https://store.lexisnexis.com/en-ca/products/addressing-the-jury-achieving-fair-verdicts-in-personal-injury-cases-3rd-edition.html   Roger Oatley  Although retired from Oatley Vigmond, Roger continues to provide consulting services in catastrophic personal injury cases on behalf of plaintiffs. He advises other trial lawyers who seek help in developing their claims and presenting their cases effectively at mediation and at trial. Roger also advises accident victims and their families who need help finding the right lawyer for their case. He no longer retains to represent clients as their advocate. To read more about Roger Oatley, click here.  Troy Lehman  Troy Lehman is one of Ontario's leading personal injury trial lawyers with over 20 years of trial experience. Troy graduated from the University of Western Ontario law school in 1999 and was called to the Bar in 2001. He received the highest mark on the Bar Admission Course by any UWO graduates and received several other academic awards. Troy has achieved excellent results in the Courtroom. He has helped shape the law relating to Statutory Accident Benefits with precedent setting cases. He has achieved several seven figure verdicts from judges and juries. These include the largest ever award to an injured child made by a Barrie jury.  To read more about Troy Lehman, click here. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520552/lexis-nexis-releases-3rd-edition-of-addressing-the-jury)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-edition-of-addressing-the-jury-released-expert-tips-for-achieving-fair-verdicts/fad3dd05fc452d9223e47eca394d73dc) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1ja6hkl/new_edition_of_addressing_the_jury_released/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/13/limeSzkU.webp)

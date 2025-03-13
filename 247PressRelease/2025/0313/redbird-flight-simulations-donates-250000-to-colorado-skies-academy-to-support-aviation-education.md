@@ -1,0 +1,20 @@
+# Redbird Flight Simulations Donates $250,000 to Colorado SKIES Academy to Support Aviation Education
+
+ENGLEWOOD, CO, March 13, 2025 /24-7PressRelease/ -- Colorado SKIES Academy, a public charter school dedicated to hands-on aviation and aerospace education, received a generous donation of $250,000 from Redbird Flight Simulations. This substantial contribution will directly support the school's programs and general expenses for the 2025-2026 academic year, excluding facility-related costs.  Redbird Flight Simulations, a leader in aviation training technology, has long been committed to fostering the next generation of aviators. Their investment in Colorado SKIES Academy underscores a shared mission of providing innovative, experiential learning opportunities for students passionate about aerospace and STEM education.  "We are incredibly grateful for Redbird Flight Simulations' generosity and commitment to aviation education," said Colorado SKIES Academy board member Mark A. Van Tine. "This donation will enable us to expand and enhance our programs, ensuring that our students receive top-tier educational experiences that prepare them for future careers in the aerospace industry."  Colorado SKIES Academy, located at Centennial Airport, offers students a unique, project-based learning environment to engage with real-world aviation challenges, industry professionals, and state-of-the-art technology. The school's curriculum is designed to inspire and prepare students for careers in aviation, engineering, and related fields.  "Supporting institutions like Colorado SKIES Academy aligns with our mission to make flight training more accessible and effective," said Jerry Gregoire of Redbird Flight Simulations. "By investing in aviation-focused education, we are helping to cultivate the future workforce of the aerospace industry."  The donation from Redbird Flight Simulations will contribute to curriculum development, classroom resources, and hands-on learning experiences, further solidifying Colorado SKIES Academy's reputation as a premier aviation-focused educational institution.  For more information about Colorado SKIES Academy and its programs, please visit https://coloradoSKIESacademy.org.  About Colorado SKIES Academy  Colorado SKIES Academy is a tuition-free, public charter school serving grades 6-8 in Englewood, Colorado. The school's mission is to ignite a passion for learning through an aerospace-focused curriculum, preparing learners for success in high school, college, and careers in STEM fields. CSA offers a supportive and engaging learning environment where learners are encouraged to think critically, collaborate effectively, and pursue their dreams.  For more information about Colorado SKIES Academy, please visit https://coloradoSKIESacademy.org or contact info@coloradoskiesacademy.org.  About Redbird Flight Simulations  Redbird Flight Simulations is a global leader in flight training technology, providing innovative, cost-effective, and high-quality aviation training solutions. Founded in 2006, Redbird has revolutionized how pilots learn and train by developing state-of-the-art flight simulators, training devices, and software. Its mission is to make aviation training more accessible and effective, helping to shape the future of flight training worldwide. For more information, visit https://www.redbirdflight.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520527/redbird-flight-simulations-donates-250000-to-colorado-skies-academy-to-support-aviation-education)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/redbird-flight-simulations-donates-250000-to-colorado-skies-academy-for-aviation-education/3c83ed583f93730a7dcece7f2b359588) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ja6ezx/redbird_flight_simulations_donates_250000_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/13/pint0EkG.webp)
