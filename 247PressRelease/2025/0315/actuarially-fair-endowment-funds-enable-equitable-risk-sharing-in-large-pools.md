@@ -1,0 +1,20 @@
+# Actuarially fair endowment funds enable equitable risk-sharing in large pools
+
+KNOXVILLE, TN, March 15, 2025 /24-7PressRelease/ -- This study demonstrates that endowment contingency funds with actuarially fair contributions can achieve equitable compensation through risk pooling. Large participant pools significantly reduce payout volatility, approaching conventional insurance efficiency while maintaining full funding transparency.  A study published in Risk Sciences introduces a framework for endowment contingency funds, emphasizing the implementation of actuarially fair contributions to ensure equitable compensation among participants.  By creating a mutual fund that consolidates contributions from individuals exposed to predefined adverse events—such as critical illness, mortality, or survival—the framework allows for a systematic allocation of resources.  The framework involves participants agreeing to contribute fixed amounts to the fund, which are then pooled together. Upon the occurrence of an adverse event, the total contributions are distributed equally among claimants, ensuring that compensation remains fair and consistent, without the financial burden typically associated with commercial insurance models.  The volatility of payouts is notably mitigated as the size of the participant pool increases; the influence of large numbers leads to a stabilization of benefits. Mathematical modeling reveals that as the pool approaches infinity, the distribution of payouts converges to that offered by traditional insurance mechanisms, meeting the criteria for actuarial fairness.  "The proposed endowment contingency funds supply a highly cost-effective alternative to conventional insurance, circumventing administrative expenses and profit margins while still fulfilling the participants' protection needs," shares corresponding author Michel Denuit. "Additionally, the model's alignment with mutuality enhances its appeal as a viable option for community-based risk-sharing."  Furthermore, researchers explored the implications of the model within the context of mutual aid and survivor funds, drawing comparisons with Takaful insurance schemes.  "By demonstrating the feasibility of this risk-sharing mechanism, we gain meaningful theoretical insights into the principles of fair risk pooling," says co-author Christian Robert. "The underlying constructs set forth not only encourage a collective approach to managing uncertainty but also reinforce the social responsibility inherent in communal financial strategies."  References DOI 10.1016/j.risk.2024.100005  Original Source URL https://doi.org/10.1016/j.risk.2024.100005  Funding information Belgian FWO and F.R.S.-FNRS under EOS Programme (ASTeRISK Project 40007517)  About Risk Sciences Risk Sciences is a general-interest journal that publishes academic research and industry practices on risks and disruptive technologies across all fields including agriculture, economics, engineering, environmental science, finance, health, law, management, natural sciences, and public administration.  Chuanlink Innovations, where revolutionary ideas meet their true potential. Our name, rooted in the essence of transmission and connection, reflects our commitment to fostering innovation and facilitating the journey of ideas from inception to realization. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520638/actuarially-fair-endowment-funds-enable-equitable-risk-sharing-in-large-pools)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-study-reveals-framework-for-equitable-endowment-contingency-funds/4bdf91f8767c74455dbb15bdb6c31512) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1jbpokq/innovative_study_reveals_framework_for_equitable/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/15/fileBLaO.webp)
