@@ -24,15 +24,17 @@ ATLANTA, GA — March 13, 2025 — (NOTICIAS NEWSWIRE) — The Georgia Latino Fi
 
 ---
 
-[Original/Source Press Release](georgia-latino-film-alliance-to-honor)
+[Original/Source Press Release](https://www.noticiasnewswire.com/georgia-latino-film-alliance-to-honor/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/french-stewart-to-receive-community-advocate-award-from-georgia-latino-film-alliance/d9ae8d67ca86528c80767188d678068f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/french-stewart-to-receive-community-advocate-award-from-georgia-latino-film-alliance/92500ff565e58bc7d07e716a7b12520e) 
 
  
 
- 
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1jdvw8u/french_stewart_to_receive_community_advocate/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/253/13/riceZPGd.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/253/18/best5gWO.webp)

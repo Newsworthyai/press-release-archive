@@ -1,6 +1,6 @@
 # Georgia Latino Film Alliance Announces Speaker Lineup for GALFA Reel Talk: Legislative Roundtable at the Capitol
 
-HATLANTA, GA — March 17, 2025 — (NOTICIAS NEWSWIRE) — The Georgia Latino Film Alliance (GALFA) is proud to announce the official speaker lineup for the GALFA Reel Talk: Legislative Roundtable, an essential discussion during Georgia Film Week focused on the business of film, the need for multicultural storytelling, and financial investments required to bring these narratives to the forefront.
+ATLANTA, GA — March 17, 2025 — (NOTICIAS NEWSWIRE) — The Georgia Latino Film Alliance (GALFA) is proud to announce the official speaker lineup for the GALFA Reel Talk: Legislative Roundtable, an essential discussion during Georgia Film Week focused on the business of film, the need for multicultural storytelling, and financial investments required to bring these narratives to the forefront.
 
  With more Latino and multicultural stories needing to be told, the key challenge remains securing financial backing and executive support. This roundtable will gather industry leaders, investors, and legislators to discuss policy changes and initiatives that will shape the future of filmmaking in Georgia.
 
@@ -36,17 +36,17 @@ HATLANTA, GA — March 17, 2025 — (NOTICIAS NEWSWIRE) — The Georgia Latino F
 
 ---
 
-[Original/Source Press Release](speaker-lineup-for-galfa-reel-talk)
+[Original/Source Press Release](https://www.noticiasnewswire.com/speaker-lineup-for-galfa-reel-talk/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/galfa-reel-talk-legislative-roundtable-spotlights-diversity-in-georgia-film-industry/60cfbfb21cff73147e72fb2bc19adb34) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/georgia-latino-film-alliance-hosts-galfa-reel-talk-legislative-roundtable-during-georgia-film-week/5ed89b24c2b346a28cb56b1d7f936d49) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/eventNews/comments/1jdett4/galfa_reel_talk_legislative_roundtable_spotlights/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1jdvt0v/georgia_latino_film_alliance_hosts_galfa_reel/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/253/17/veilz5n0.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/253/18/roamp38d.webp)

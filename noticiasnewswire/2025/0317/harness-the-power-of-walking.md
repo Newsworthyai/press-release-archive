@@ -40,17 +40,17 @@ MISSION, KS — March 17, 2025 — (NOTICIAS NEWSWIRE) — A walk isn’t just g
 
 ---
 
-[Original/Source Press Release](harness-the-power-of-walking)
+[Original/Source Press Release](https://www.noticiasnewswire.com/harness-the-power-of-walking/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/american-heart-association-emphasizes-importance-of-physical-activity-for-overall-health/fb3ed22fc06a80e9b1f91726269a2d37) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/national-walking-day-promotes-physical-activity-for-heart-health-and-mental-clarity/79ba944a408fc793fe2286e61c4a0bee) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1jdkiyw/american_heart_association_emphasizes_importance/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1jdvt3g/national_walking_day_promotes_physical_activity/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/253/17/silkm0Po.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/253/18/fileWAEF.webp)

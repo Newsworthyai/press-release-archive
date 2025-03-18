@@ -25,17 +25,17 @@ SANTA MONICA, CA — March 11, 2025 — (NOTICIAS NEWSWIRE) — World Voices Med
 
 ---
 
-[Original/Source Press Release](secure-your-childrens-with-a-guardian)
+[Original/Source Press Release](https://www.noticiasnewswire.com/secure-your-childrens-with-a-guardian/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/new-initiative-helps-immigrant-parents-protect-children-from-foster-care-system/dc3661a1456daa722887f8b0553daca7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-initiative-protects-immigrant-children-from-foster-care-system/11c21078975948d70109877eee709e71) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1j91sk8/new_initiative_helps_immigrant_parents_protect/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1jdvsyg/new_initiative_protects_immigrant_children_from/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/253/11/vibez1Sl.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/253/18/jazzpfaJ.webp)

@@ -20,17 +20,17 @@ ATLANTA, GA — March 14, 2025 — (NOTICIAS NEWSWIRE) — The Georgia Latino Fi
 
 ---
 
-[Original/Source Press Release](governor-kemp-to-honor-georgia-latino)
+[Original/Source Press Release](https://www.noticiasnewswire.com/governor-kemp-to-honor-georgia-latino/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/georgia-latino-film-alliance-to-receive-special-commendation-from-governor-kemp-during-georgia-film-week/dfc1578091f92c8c7922fdfb68a1e760) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/governor-kemp-to-honor-georgia-latino-film-alliance-during-georgia-film-week/e8b65195b40cbd4fc2fd89b177a91abc) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1jb9bn7/georgia_latino_film_alliance_to_receive_special/) 
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1jdw08a/governor_kemp_to_honor_georgia_latino_film/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/253/14/wait7Lmq.webp)
+![Blockchain Registration](https://cdn.newsramp.app/noticias-newswire/qrcode/253/18/waitfUTc.webp)
