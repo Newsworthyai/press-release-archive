@@ -1,0 +1,20 @@
+# SignaBlok to Present Preclinical Data on TREM-1-Targeting Drug for the Treatment of Cancer at the American Association for Cancer Research (AACR) Annual Meeting 2025
+
+SHREWSBURY, MA, March 19, 2025 /24-7PressRelease/ -- SignaBlok, Inc., a preclinical stage biotechnology company pioneering first-in-class, new mechanism-based peptide therapies for multiple diseases, today announced it will present positive preclinical oncology data on the company's leading macrophage-restricted TREM-1 inhibitor at the 2025 AACR Annual Meeting to be held in Chicago, Illinois from April 25-30, 2025.  Details on SignaBlok's upcoming 2025 AACR Annual Meeting poster presentation are as follows:  •	In experimental pancreatic cancer, SignaBlok's first-in-class macrophage-restricted TREM-1 inhibitor: −	prevents cancer recurrence, improves complete response and survival rate, when administered after, but not concurrently with, standard-of-care chemotherapy −	reverses immunosuppression and overcomes cancer resistance to anti-PD-L1 immunotherapy •	Rodent studies indicate that SignaBlok's TREM-1 inhibitor is safe and well-tolerable •	Data highlight potential of SignaBlok's SCHOOL technology platform to support clinical development of TREM-1 drug with minimal risk of failure due to a new mechanism of action •	Presented results have important clinical implications in the treatment of patients with not only pancreatic cancer, but also other inflammation-associated, hard-to-treat solid tumors  Poster Title: Timely resolution of TREM-1-mediated inflammation after chemotherapy improves complete response rate and survival in experimental pancreatic cancer Presenter: Alexander B. Sigalov, Ph.D. (SignaBlok, Inc.; President and Principal Investigator) Abstract Presentation Number: LB128 Poster Session 52: Monday April 28, 2025, 9:00 am – 12:00 pm  About pancreatic cancer (PC)  PC is the third leading cause of cancer-related death in the US. Despite recent advances, the 5-year survival rate for all stages combined is as low as 13%, necessitating the development of new approaches.  About TREM-1 Triggering receptor expressed on myeloid cells 1 (TREM-1) serves as an inflammation amplifier. As such, TREM-1 is critically involved in the pathogenesis of multiple cancer types, sepsis, rheumatoid arthritis, acute respiratory distress syndrome, scleroderma, atherosclerosis, and other inflammatory pathologies. Clinical targeting of TREM-1 is challenging due to multiple known and still unidentified TREM-1 ligands.  About SignaBlok SignaBlok, Inc. is a Massachusetts-based biotechnology company founded in 2009 to develop innovative, first-in-class therapeutics for targeted treatment of inflammation-associated diseases through the use of two key SignaBlok's proprietary technologies: 1) new mechanism-based approach to inhibition of cell receptors by using innovative, ligand-independent inhibitory peptides (the so-called SCHOOL peptides, the abbreviation coming from the "Signaling Chain HOmoOLigomerization" model of immune signaling); and 2) nature-inspired, multifunctional nanotechnology for targeted drug and/or imaging agent delivery to macrophages. Additional information about SignaBlok is available at www.signablok.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520770/signablok-to-present-preclinical-data-on-trem-1-targeting-drug-for-the-treatment-of-cancer-at-the-american-association-for-cancer-research-aacr-annual-meeting-2025)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/signablok-to-present-positive-preclinical-data-on-trem-1-inhibitor-at-2025-aacr-annual-meeting/b7e773f99b12fc6cd5e03ed6f5194b6c) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1jerhfi/signablok_to_present_positive_preclinical_data_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/19/zealZM8w.webp)
