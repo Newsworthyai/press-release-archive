@@ -1,0 +1,20 @@
+# SignaBlok to Present Preclinical Data on TREM-1-Targeting Drug for the Treatment of Sepsis, Pulmonary Inflammation and Fibrosis at the Respiratory Innovation Summit and ATS Conference 2025
+
+SHREWSBURY, MA, March 20, 2025 /24-7PressRelease/ -- SignaBlok, Inc., a preclinical stage biotechnology company pioneering first-in-class, new mechanism-based peptide therapies for multiple diseases, today announced it will present positive preclinical data detailing therapeutic activity of its leading macrophage-restricted TREM-1 inhibitor in experimental sepsis, acute respiratory distress syndrome (ARDS), and pulmonary fibrosis (PF) at the RIS and ATS Conference in San Francisco, California from May 16-21, 2025.  Details on SignaBlok's upcoming 2025 RIS and ATS poster presentations are as follows:  •	In septic animals, TREM-1 blockade by SignaBlok's first-in-class macrophage-restricted TREM-1 inhibitor protects from death with the level of protection not declining at delayed treatment times  •	In rats, macrophage-restricted TREM-1 blockade significantly reduces lipopolysaccharide (LPS)-induced neutrophil accumulation in the lungs when injected after, but not before, LPS challenge •	In mice with bleomycin-induced pulmonary fibrosis,TREM-1 blockade reduces the rate of progression and reverses fibrosis in the prevention and treatment models •	Data highlight potential of SignaBlok's SCHOOL technology platform to support clinical development of TREM-1 drug with minimal risk of failure due to a new mechanism of action  Respiratory Innovation Summit: Poster Title: Sepsis: Understanding Nature. Solving the Inflammation Puzzle. Saving Lives. Presenter: Alexander B. Sigalov, Ph.D. (SignaBlok President and Principal Investigator) Date / Time: Friday May 16, 2025 2 PM - Saturday May 17, 2025, 6 pm  ATS International Conference: Poster Title: Ligand-Independent TREM-1 Blockade Ameliorates Pulmonary Inflammation and Fibrosis Presenter: Alexander B. Sigalov, Ph.D. (SignaBlok President and Principal Investigator) Abstract Presentation Number: 9150 Session: A22 – Break on through: Airway epithelial barrier in inflammation and injury  Date / Time: Sunday May 18, 2025, 9:15 am – 11:15 am  About TREM-1 Triggering receptor expressed on myeloid cells 1 (TREM-1) serves as an inflammation amplifier. As such, TREM-1 is involved in the pathogenesis of sepsis, ARDS, PF, and other inflammatory pathologies. Clinical targeting of TREM-1 is challenging due to multiple known and still unidentified TREM-1 ligands.  About SignaBlok SignaBlok, Inc. is a Massachusetts-based biotechnology company founded in 2009 to develop innovative, first-in-class therapeutics for targeted treatment of inflammation-associated diseases through the use of two key SignaBlok's proprietary technologies: 1) new mechanism-based approach to inhibition of cell receptors by using innovative, ligand-independent inhibitory peptides (the so-called SCHOOL peptides, the abbreviation coming from the "Signaling Chain HOmoOLigomerization" model of immune signaling); and 2) nature-inspired, multifunctional nanotechnology for targeted drug and/or imaging agent delivery to macrophages. Additional information about SignaBlok is available at www.signablok.com.  SignaBlok's Contact:  Alexander Sigalov, Ph.D., President and Founder: (203) 505-3807; sigalov@signablok.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520772/signablok-to-present-preclinical-data-on-trem-1-targeting-drug-for-the-treatment-of-sepsis-pulmonary-inflammation-and-fibrosis-at-the-respiratory-innovation-summit-and-ats-conference-2025)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/signablok-to-present-positive-preclinical-data-on-trem-1-inhibitor-for-multiple-diseases-at-ris-and-ats-conference/f607ea018e6a24c63264fecf72fc13d1) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1jfjbaj/signablok_to_present_positive_preclinical_data_on/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/20/pondvvjO.webp)
