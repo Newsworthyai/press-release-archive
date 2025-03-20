@@ -1,0 +1,20 @@
+# Former ENERKON Chairman Files $50M Defamation Lawsuit Against Radio Free Europe and Journalist Todd Prince
+
+NEW YORK, NY, March 20, 2025 /24-7PressRelease/ -- Former ENERKON Solar International (ENKS) Chairman Benjamin Ballout has filed an individual lawsuit against Radio Free Europe (RFE) and its journalist Todd Prince, adding them as a counter claim defendant in sec case number Civil action No. 9:24-cv-81170 alleging defamation, financial damages, and violations of federal statutes. The lawsuit, filed pro se in the United States District Court for the Southern District of Florida, seeks $50 million USD in damages and calls for criminal referrals to the U.S. Department of Justice.  The legal action stems from a series of articles published by RFE and Todd Prince between May and December 2021, which Ballout claims contained false and misleading statements about him and his company. The lawsuit alleges that the defamatory publications led to significant financial and reputational harm, including an SEC trading halt on ENKS stock, negatively impacting thousands of shareholders and investors and a Investor in ENKS.  Key Allegations in the Lawsuit: • RFE and Todd Prince intentionally published false and misleading articles about Ballout and ENKS, leading to financial loss and reputational damage. • The publications allegedly violated congressional appropriations laws by using U.S. federal funds to target an American citizen and company, actions that are legally restricted. • The SEC initiated regulatory actions against ENKS following the articles, causing a temporary stock trading halt, which Ballout claims resulted in millions of dollars in investor losses. • Ballout asserts that RFE and Prince acted with malice, falsely alleging fraudulent press releases and business dealings by ENKS. • The lawsuit also suggests potential violations of national security laws, citing foreign collusion with Russian intelligence and opposition figures in Ukraine.  Call for Media Engagement & Public Support Ballout welcomes interviews with U.S. and international media outlets to further clarify this landmark case, which could reshape the landscape of corporate protection against government-funded misinformation campaigns we allege are illegal.   This marks a significant moment in financial justice and media responsibility.  About Benjamin Ballout Benjamin Ballout is a global investment leader, former Chairman of ENERKON solar International (ENKS), and an expert in blockchain, investment banking, and regulatory affairs. His extensive experience spans financial governance, international markets, and corporate legal protections. For more information, legal documentation, or to request an interview, please contact:  Diplomatic Trade Benjamin Ballout Chairman & CEO  45 Rockefeller Plaza, suite 2000 New York- NY-10111 Office: 877-501-1977 877-501-8100  Diplomatic Trade Ltd is a global investment and financial services firm specializing in private equity, investment banking, and government-commercial relations. The firm plays a strategic role in facilitating high-value transactions across key sectors, including energy, technology, real estate, and blockchain finance. With a strong presence in international markets, Diplomatic Trade Ltd bridges the gap between governments and private enterprises, driving economic growth through strategic partnerships, trade facilitation, and financial advisory services.  For more information, visit: https://diplomatictrade.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520821/former-enerkon-chairman-files-50m-defamation-lawsuit-against-radio-free-europe-and-journalist-todd-prince)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benjamin-ballout-files-50m-lawsuit-against-radio-free-europe-for-defamation/f0b16e85fee7429e855372cbd4b1c1d5) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1jfu9p9/benjamin_ballout_files_50m_lawsuit_against_radio/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/20/camcTwuB.webp)
