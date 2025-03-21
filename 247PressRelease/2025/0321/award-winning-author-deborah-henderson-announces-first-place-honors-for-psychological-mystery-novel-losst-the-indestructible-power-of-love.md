@@ -1,0 +1,20 @@
+# Award Winning Author Deborah Henderson Announces First Place Honors for Psychological Mystery Novel, Losst: The Indestructible Power of Love
+
+WILMINGTON, NC, March 21, 2025 /24-7PressRelease/ -- Award-winning author Deborah Henderson has announced that her psychological mystery novel, 'Losst: The Indestructible Power of Love', took First Place in The Authors Show® 2024 Book Cover Contest.  Henderson's novel is set apart from many others in the genre by being a story that is both vivid and immersive. It is a profound work that explores human emotions, relationships, love, and loss. It is both heart-wrenching and uplifting.  After the tragic loss of her father and then her mother, Samantha is left with a monster of a man and becomes a prisoner in her own home. At the young age of thirteen, she manages to escape.  With no specific destination, she hitches a ride north. She ends her journey in beautiful Sayward, BC, where she turns the page and creates a beautiful new chapter in her life. As much as she tries, though, the monster relentlessly haunts her in her dreams and nightmares.  Once again cursed by tragedy, Samantha's life takes a tailspin. This time, she loses her grip on reality. In a vengeful attempt to seek justice, she collects her hiking gear and supplies and embarks on an adventure that leads to a painful reality.  She is also the author of 'The Missing Pieces', a thriller that was an Author Academy Award First Prize Winner.  After twenty years in prison, Bobby is granted her freedom. With no recollection of her past and the events that led to her incarceration, she sets off to build a life for herself. Alone in the world, she cautiously tries to integrate back into society.  As she goes about her new daily life, the pieces of her past start exploding around her. Nightmares, flashbacks, and people she meets connect her to fragments of a frightening life before prison. Knowing that Bobby suffers from PTSD, her new friends try to help her put the missing pieces of her life back together.  "I write because it makes me feel better," Henderson stated. "It's a kind of therapy, I guess. Readers enjoy my books because they realize that they are not alone and that there is hope. We can all find the strength to survive if we dig down deep enough inside ourselves. Do what makes you happy and never give up."  Deborah Henderson is available for media interviews and can be reached at debhend29@gmail.com.  Both books are available on Amazon in print and eBook form. 'The Missing Pieces' is also available as an audiobook. For more information, visit her website at https://deborahhendersonauthor.com.  About Deborah Henderson:  Deborah Henderson enjoys painting, music, writing, nature, and outdoor adventures including hiking, kayaking, and the occasional rock climbing, parachuting, and scuba diving. Like many people, she has lived a challenging life. Many traumatic experiences still weigh heavily on her soul, the most recent of which is the loss of her daughter and grandson.  Deborah has also conquered personal challenges. As part of the Cancer Research Society Kilimanjaro Challenge, she raised $11,000 for cancer research. After five days of climbing, she summitted on October 28, 2013, a day she will never forget. She, like her protagonist Bobby, is a survivor who finds the strength to keep going. Deborah finds peace today living with her husband on Vancouver Island, Nanaimo, BC, surrounded by lakes, mountains, and the ocean. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520838/award-winning-author-deborah-henderson-announces-first-place-honors-for-psychological-mystery-novel-losst-the-indestructible-power-of-love)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/award-winning-author-deborah-henderson-claims-first-place-in-book-cover-contest/efddb95fa8e62c625f5a7b8423484988) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1jgb5nl/awardwinning_author_deborah_henderson_claims/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/21/gleeQlEl.webp)
