@@ -1,0 +1,20 @@
+# It's Demo Time in Vail Arizona, As Veteran Receives Official "Military Makeover with Montel®"
+
+TUCSON, AZ, March 22, 2025 /24-7PressRelease/ -- Spring is here and what better way to start spring, with a home makeover… Renovations for the Military Makeover with Montel® project began on March 12th and are scheduled to be completed by March 23rd. During this time, we had the incredible opportunity to spend time with the dedicated and hard working cast and crew of the show. We also had the privilege of connecting with the show's Official Non-Profit Partner, Purple Heart Homes, whose involvement is crucial to the success of these life-changing makeovers.  Witnessing the unwavering commitment and tireless efforts of local and national vendors as well as everyone involved in the project was truly inspiring. From the skilled construction teams to the compassionate support staff, each individual plays a vital role in creating a memorable and transformative experience for the deserving military family. The collaborative spirit and shared goal of honoring and supporting those who have served our country are evident in every aspect of the Military Makeover project.  The cast and crew are in full renovation mode as they transform the home of an Air Force Veteran Matt Kosto and his family. Fans may catch the show when it airs on Lifetime TV in May 2025.  We had the honor of speaking with Montel Williams and some of the cast and sponsors and this is what they had to say about this 42nd season of such an amazing show that continuously gives back:  Montel Williams: "This season of Military Makeover is special—we're not just renovating a house, we're creating a home for a family that has endured and overcome the challenges of military life. It's a privilege to celebrate MSgt Kosto's remarkable career and his family's enduring support. Virginia Kosto's story of sacrifice and strength is nothing short of inspiring. While Matt served abroad, she was the anchor at home, raising their children and holding the family together. This makeover is a heartfelt thank you to her and their family for their unwavering commitment."  "Being here in Arizona for Military Makeover and meeting the Kosto family reinforces exactly why we do what we do. Their strength and perseverance through years of service and personal hardship are nothing short of extraordinary. At Purple Heart Homes, we're proud to stand alongside Military Makeover and go the extra mile—alongside our partners—to ensure Veterans like Matt and their families have a safe, accessible, and dignified place to call home. This partnership is a powerful force for good, and we're honored to be part of it." — John Gallina, Co-Founder & CEO, Purple Heart Homes  "Standing alongside the Kosto family this week has been a powerful reminder of the real impact we can make when we come together with purpose. As a Board Member and long-time supporter, it's incredibly moving to see the Purple Heart Homes mission come to life through our partnership with Military Makeover. The Kostos represent the very best of what it means to serve—not just in uniform, but in love, resilience, and family. Being here to witness this transformation firsthand is something I'll never forget." — Mike Lennon, Board Member, Purple Heart Homes  "It's an honor to serve another deserving veteran, and their family and not even the remote Arizona desert will not stop Military makeover." — Art Edmonds, co-host Military Makeover 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520896/its-demo-time-in-vail-arizona-as-veteran-receives-official-military-makeover-with-montel)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/military-makeover-transforms-home-for-air-force-veteran-with-help-from-purple-heart-homes/5016a62df36280d78ab8306ed0630191) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1jho05s/military_makeover_transforms_home_for_air_force/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/23/mendG0Ef.webp)
