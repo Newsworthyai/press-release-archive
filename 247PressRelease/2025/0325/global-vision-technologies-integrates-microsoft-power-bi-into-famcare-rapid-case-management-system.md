@@ -1,0 +1,20 @@
+# Global Vision Technologies Integrates Microsoft Power BI into FAMCare Rapid Case Management System
+
+ST. LOUIS, MO, March 25, 2025 /24-7PressRelease/ -- Global Vision Technologies (GVT), a leading provider of case management solutions, is thrilled to announce the integration of Microsoft Power BI into their flagship FAMCare Rapid Case Management System. This new integration empowers agencies using FAMCare to leverage the full potential of their data by transforming how they access, visualize, and analyze critical information.  Microsoft Power BI, a robust and dynamic data analytics tool, will enable FAMCare users to go beyond traditional reporting. With the power of advanced data visualization and analytics, agencies can now make more informed decisions, optimize service delivery, and uncover valuable insights within their data.  Key Benefits of the Power BI Integration: •	Enhanced Data Mining Capabilities: Agencies can now drill deeper into their data, identifying trends, tracking performance, and pinpointing areas of improvement with ease. •	Customizable Dashboards and Reports: Power BI offers highly customizable dashboards that allow users to create real-time visualizations of data. This provides a clear picture of an agency's operational health and key metrics. •	Predictive Analytics: By harnessing historical data, agencies can utilize predictive analytics to foresee potential outcomes and improve future service planning. •	Real-Time Data Access: The integration ensures agencies can access live data, enabling faster response times to critical needs and enhancing overall program effectiveness. •	Seamless User Experience: FAMCare users will now enjoy a seamless integration with Power BI, allowing for easier data export, report customization, and collaboration across teams.  "The integration of Microsoft Power BI into our FAMCare Rapid Case Management System represents a game changer for our clients," said George Ritacco, VP Client Services at Global Vision Technologies. "The most important advantage this brings is the ability to quickly and easily transform data into actionable insights. For agencies managing large volumes of sensitive client data, the ability to visualize patterns and predict trends is invaluable. Power BI gives our clients the power to make smarter decisions in real time, ultimately enhancing service delivery and ensuring better outcomes for the communities they serve."  By integrating Power BI, GVT reaffirms its commitment to delivering cutting-edge technology solutions for agencies managing critical case data. This addition further strengthens FAMCare's position as the leading case management solution in the market, offering unprecedented access to the analytical tools needed to drive success.  For more information about FAMCare or to schedule a demo, please visit www.famcare.net.  Global Vision Technologies (GVT) is a leader in case management software solutions, providing human services agencies with the tools they need to manage client data, improve workflow, and enhance outcomes. FAMCare, GVT's flagship product, is a comprehensive case management platform designed to streamline data management and improve service delivery. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520949/global-vision-technologies-integrates-microsoft-power-bi-into-famcare-rapid-case-management-system)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gvt-integrates-microsoft-power-bi-into-famcare-rapid-case-management-system-for-enhanced-data-analytics/46052ce57d88d8d2c0783142245e0f74) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1jjdt19/gvt_integrates_microsoft_power_bi_into_famcare/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/25/rend1Hsi.webp)

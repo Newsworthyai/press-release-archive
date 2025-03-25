@@ -1,0 +1,20 @@
+# Stifel Ordered to Pay $132 Million for Misleading Investors About Risky Investments
+
+MIAMI, FL, March 25, 2025 /24-7PressRelease/ -- A FINRA arbitration panel recently ruled in favor of investors, finding that Stifel Nicolaus & Co., Inc. was responsible for their significant investment losses due to misleading them about the riskiness of a product they recommended for them. The award of $132 million included $107 million in compensatory and punitive damages, marking the second-largest investor award in the history of FINRA arbitration.   The case arose after an individual investor made allegations of breach of fiduciary duty, fraud, breach of contract, negligence, and violations of the Florida Securities and Investor Protection Act after suffering significant losses due to the risky nature of the structured notes Stifel's broker, Chuck Roberts, recommended. Structured notes are a hybrid debt security issued by banks that combine a bond component with a derivative component. The return is linked to the performance of an underlying asset, such as a stock or commodity. Due to their risky nature, brokers are supposed to conduct a review to determine that they are in the clients' best interest and that investors understand the particular risks.  Jeffrey Erez, the lead attorney for the plaintiff, says the case is one of nineteen his firm is currently handling involving the same broker. Erez reports that while structured notes are a popular financial product, "they were sold in a misleading way." His firm has hundreds of texts between Chuck Roberts and his clients "representing these structured notes as a low-risk product with a predictable yield," but they are not.   The FINRA arbitration panel found that Stifel had "actual knowledge of the wrongfulness of the conduct and the high probability that injury or damage" would result from overconcentrating the claimants' accounts in structured notes and in limited industries. It further found that the bank failed to send an over-concentration letter and did not address the issue in a phone call meeting when it had a chance to do so. It also found that Stifel was required to have heightened supervision of a broker.  Stifel broker Chuck Roberts is currently facing claims from multiple investors in other FINRA cases who say he defrauded them, costing them more than $20 million in damages. The recent FINRA arbitration award Erez Law PLLC secured represents more than half of Stifel's reported net income for the fourth quarter. Stifel's stock fell 1.9% after the award.  About Erez Law PLLC  Erez Law PLLC is a nationally recognized law firm that focuses exclusively on helping recover losses for defrauded investors in FINRA, AAA, and JAMS arbitrations and state and federal courts. Jeffrey Erez and his team of talented lawyers have recovered over $200 million for investors before the record-breaking arbitration award in the Stifel case. The firm boasts a 99% success rate and over 20 years of experience. Individuals who have suffered significant investment losses are encouraged to contact the firm and take advantage of a free consultation.   The firm works on a contingency, so it does not collect attorney fees until it has recovered compensation for the client. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520940/stifel-ordered-to-pay-132-million-for-misleading-investors-about-risky-investments)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/investors-win-132-million-in-landmark-finra-arbitration-against-stifel-nicolaus-co/9e4720c28a2819f1a36c04f5edd475f3) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1jjdqk9/investors_win_132_million_in_landmark_finra/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/25/rain5aZ0.webp)
