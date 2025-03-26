@@ -1,0 +1,20 @@
+# From Fiction Author of the Year, Kay A. Oliver Unveils A Powerful Disturbance, the Gripping Fourth Book in the Dr. Kaili Worthy Series
+
+LOS ANGELES, CA, March 26, 2025 /24-7PressRelease/ -- Kay A. Oliver, the Award-Winning Author of the Year 2025, is back with the highly anticipated fourth installment in her bestselling Dr. Kaili Worthy Series. A Powerful Disturbance delivers a spine-tingling blend of history, crime, suspense, and supernatural intrigue that will leave readers on the edge of their seats.  Dr. Kaili Worthy, a renowned forensic anthropologist, is known for uncovering hidden truths in the most challenging and mysterious cases. In A Powerful Disturbance, Dr. Worthy finds herself investigating a site in Caracas, Venezuela, where unsettling forces and eerie phenomena surround the excavation of two exhumed political leaders locked in an ancient, vengeful feud.  The story kicks off with Dr. Kaili Worthy and her team expecting to uncover long-lost history, only to find themselves entangled in a chilling battle between science, the cartel, and the supernatural. The discovery of two feuding political leaders, who continue their violent conflict beyond the grave, unleashes a malevolent force, threatening the lives of all involved. As Kaili Worthy navigates betrayal, ancient grudges, and an escalating sense of dread, she must uncover the truth beneath centuries of bloodshed before it's too late.  "Readers have embraced Kaili's intelligence, tenacity, and ability to unravel mysteries against all odds," says Kay A. Oliver. "In this book, I've raised the stakes higher than ever, blending history, crime, and suspense into a page-turning thriller that will captivate readers from start to finish."  Key Features of A Powerful Disturbance Include: • A fearless, intelligent female protagonist, Dr. Kaili Worthy, that readers love • Forensic anthropology and historical elements that add depth and authenticity to the story • An unpredictable mystery packed with twists and turns that will keep readers guessing • A fast-paced, immersive thriller that blends crime, history, and supernatural suspense  With over 25 literary awards, including the International Impact Awards and The BookFest Awards, Kay A. Oliver has cemented her status as a master of suspense and mystery. Her compelling characters and intricate plots have earned her a dedicated global following.  Pre-order your copy of A Powerful Disturbance today - Click Here.  Official Launch Date: March 28, 2025 Available in Print, eBook, and Audiobook Formats  About the Author Kay A. Oliver is a bestselling, award-winning author and a member of the Television Academy. With a focus on action-adventure, mystery, and thriller genres, Kay's novels are celebrated for their gripping narratives, unexpected twists, and unforgettable characters.  Named Fiction Author of the Year 2025 by the International Association of Top Professionals (IAOTP), Kay has been featured in The Wall Street Journal, Who's Who in America, and was honored as the "Distinguished Woman of the Year 2023" by the City of Stanton.  With over a decade of literary success, Kay A. Oliver is a sought-after mentor for aspiring authors, sharing her expertise and insights on her website, KayAOliver.com. Her latest book, A Powerful Disturbance, is set to make waves in the literary world, continuing her legacy of crafting immersive, thrilling mysteries.  Stay Connected with Kay A. Oliver Website: KayAOliver.com Facebook: @AuthorKayAOliver 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520950/from-fiction-author-of-the-year-kay-a-oliver-unveils-a-powerful-disturbance-the-gripping-fourth-book-in-the-dr-kaili-worthy-series)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/award-winning-author-kay-a-oliver-unveils-thrilling-new-release-a-powerful-disturbance/1e5b071e9af502599e324063458373f4) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1jk64f2/awardwinning_author_kay_a_oliver_unveils/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/26/gluerFCn.webp)

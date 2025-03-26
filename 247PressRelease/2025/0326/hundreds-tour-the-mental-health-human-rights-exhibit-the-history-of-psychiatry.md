@@ -1,0 +1,20 @@
+# Hundreds Tour the Mental Health Human Rights Exhibit: The History of Psychiatry
+
+ORLANDO, FL, March 26, 2025 /24-7PressRelease/ -- Hundreds of concerned Floridians toured an exhibit highlighting the history of psychiatry and exposing mental health abuse this week in Kissimmee. The exhibit, "Psychiatry: An Industry of Death", travels all over the world reaching tens of thousands of people annually. Designed to raise awareness on such human rights abuse as the use of electroshock, involuntary examination and the drugging of children with dangerous psychiatric medications, the exhibit is based on the permanent museum located at the international headquarters for CCHR in Los Angeles, California.   Hosted by the Florida chapter of CCHR, an award-winning nonprofit that exposes abuse in the mental health industry, in partnership with the Boomtown Community Partners (BCP), a cornerstone of community engagement in Central Florida, the exhibit attracted people from all walks of life.   During a special presentation recognizing the co-founder of BCP, Isaac "Coach Boom" Vasquez, for his work to help youth, the president for CCHR Florida, Diane Stein, stressed that this exhibit imparts real understanding of the roots of psychiatric abuse, resulting in those who need help receiving real help and not coercive treatment such as involuntary examination or dangerous treatment such as drugs and electroshock.  Other than California, Florida is the only state that has a permanent installation of the "Psychiatry: An Industry of Death" exhibit. Located in the CCHR Center in downtown Clearwater, the museum exhibit was unveiled in July of 2015. Presenting the unvarnished history of psychiatry while also providing information on the state of psychiatry today, the exhibit consists of 14 audiovisual displays revealing the cold, hard facts about psychiatric abuses using interviews from more than 160 doctors, attorneys, educators and survivors to expose the multi-billion dollar fraud that is psychiatry.  Over 10,000 people have toured the Florida museum including students from nursing schools and technical colleges from across the state who come to the museum to go through the 2-hour self-guided tour as part of their clinical days finding the experience to be informative and eye opening. Coupling tours of the museum with seminars and workshops delivered by attorneys and healthcare professionals on the mental health law, known as the Baker Act, CCHR is working to educate lawmakers, doctors and all private citizens on mental health abuse and their rights under the law. The museum is open daily and events are held weekly and monthly. Both are free to the general public. To learn more, please call 727-442-8820 or visit www.cchrflorida.org.  About CCHR: Initially established by the Church of Scientology and renowned psychiatrist Dr. Thomas Szasz in 1969, CCHR's mission is to eradicate abuses committed under the guise of mental health and enact patient and consumer protections. L. Ron Hubbard, founder of Scientology, first brought psychiatric imprisonment to wide public notice: "Thousands and thousands are seized without process of law, every week, over the 'free world' tortured, castrated, killed. All in the name of 'mental health,'" he wrote in March 1969. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520986/hundreds-tour-the-mental-health-human-rights-exhibit-the-history-of-psychiatry)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/florida-exhibit-exposes-psychiatry-abuses/96872e410204ce4bdcc9b08b9a80d392) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1jk646n/florida_exhibit_exposes_psychiatry_abuses/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/26/mint4n7W.webp)
