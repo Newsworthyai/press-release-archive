@@ -1,0 +1,20 @@
+# DFW CAR & TOY MUSEUM SHOWCASES 200+ CLASSIC CARS, INCLUDING THE LEGENDARY 1972 ALFA ROMEO MONTREAL!
+
+FORT WORTH, TX, March 28, 2025 /24-7PressRelease/ -- Car lovers, history enthusiasts, and collectors, get ready! The DFW Car & Toy Museum offers a one-of-a-kind experience with free admission and a dog-friendly atmosphere. With over 200+ rare and iconic vehicles, this museum is a must-visit destination for anyone fascinated by automotive history. Among the standout attractions is the breathtaking 1972 Alfa Romeo Montreal, a car that seamlessly blends Italian design with high-performance engineering.  First unveiled at the 1970 Geneva Motor Show, the Alfa Romeo Montreal was a bold and futuristic sports coupe, designed by the legendary Bertone. This particular left-hand-drive 1972 model was originally sold in Italy, spending its early years in Sicily before being imported to the UK. With only 3,900 Montreals built between 1971 and 1975, this is a rare opportunity to see one up close.  Under the hood, the Montreal is powered by a fuel-injected 2.6-liter V8, paired with a five-speed ZF manual transmission and a limited-slip differential—a combination that delivers an exhilarating driving experience. The car's dogleg shift pattern transmission ensures smooth gear changes, while the recently replaced clutch and driveline mounts (within the last 4,000 miles) enhance performance and reliability.  This Montreal is no ordinary example—it was reportedly used by Alfaholics for the development of their renowned "Fast Road" adjustable suspension package and four-piston disc brakes, making it a truly special machine. Additional performance components include Alfaholics inner and outer track rod ends and shortened stock coil springs, ensuring superior handling.  Inside, the driver is greeted by a stunning three-spoke wood-rimmed steering wheel and Jaeger instruments housed in twin binnacles, adding to Montreal's vintage charm. The factory Borletti air conditioning system has been serviced with new belts, oil, and wiring, ensuring it remains fully functional—a rarity for classic Italian sports cars!  This stunning 1972 Alfa Romeo Montreal, along with over 200+ classic and collector cars, is proudly showcased in the Ron Sturgeon Collection at the DFW Car & Toy Museum. Whether you're an Alfa Romeo fanatic, a classic car lover, or simply looking for a fun, family-friendly experience, this museum is an unmissable destination.  With free admission and a dog-friendly environment, there's no better way to experience these legendary vehicles up close!  About DFW Car & Toy Museum  DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980's collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum was the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520812/dfw-car-toy-museum-showcases-200-classic-cars-including-the-legendary-1972-alfa-romeo-montreal)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rare-1972-alfa-romeo-montreal-showcased-at-dfw-car-toy-museum-in-fort-worth-tx/06636694d8e7757e60a7fba807ee3f46) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1jlpmc3/rare_1972_alfa_romeo_montreal_showcased_at_dfw/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/28/lossLivH.webp)
