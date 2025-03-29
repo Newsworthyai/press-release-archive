@@ -1,0 +1,20 @@
+# Diplomatic Trade & Capital Partners Announces €50 Million Investment in Antalya's Landmark Mixed-Use Development
+
+ANTALYA, TURKEY, March 28, 2025 /24-7PressRelease/ -- Diplomatic Trade and its consortium of capital partners, including Diplomatic Trade Capital and other strategic financial partners, proudly announce a €50 million investment in partnership with MK Group for an exclusive mixed-use real estate development in Antalya. This transformative investment will redefine luxury living, hospitality, and medical tourism in Turkey.  A Visionary Development for Antalya This groundbreaking project aims to establish one of Turkey's most prestigious real estate ventures, seamlessly integrating high-end residential, commercial, and medical innovation. The development will feature: •	Two luxury hotels (4-star & 5-star) offering unparalleled hospitality services. •	Premium residential towers & villas, designed to set new standards in elite living. •	An indoor golf course, catering to an international clientele. •	A world-class anti-aging & rejuvenation clinic, pioneering cutting-edge longevity treatments and medical tourism solutions in Turkey.  Strategic Investment & Financial Structure Diplomatic Trade's €50 million investment will be injected into the project through multiple financial mechanisms, ensuring sustainable growth and project success: • Direct cash injections for infrastructure and development. • Corporate private bond placements to structure financing effectively. • Other strategic financial instruments such as convertible notes and institutional debt financing.  Commitment to Transparency & Excellence As a condition of the partnership, Diplomatic Trade & MK Group will conduct a comprehensive financial audit, valuation, and feasibility study for the project. This process will be carried out by one of the world's top 20 audit firms, ensuring transparency, compliance with global financial standards, and long-term investment security.  Diplomatic Trade's Vision for Antalya's Future "This isn't just an investment; it's a bold step toward shaping Antalya into a global hub for luxury real estate, sophisticated medical innovation, and sustainable tourism. We are creating a destination that blends prestige, innovation, and wellness on an unprecedented scale," said Dr. Benjamin Ballout, CEO of Diplomatic Trade & Capital Partners.  About Diplomatic Trade & Capital Partners Diplomatic Trade & Capital Partners is a global investment firm specializing in high-growth opportunities across real estate, infrastructure, and strategic sectors. With a strong presence in Europe, the Middle East, and Africa, the firm focuses on high-value projects that drive economic development and long-term returns. Leveraging deep market expertise and an extensive network of partners, Diplomatic Trade & Capital Partners plays a key role in funding and structuring transformative investments in emerging and established markets.  About MK Group Is a premier real estate development company committed to creating world-class residential, commercial, and mixed-use projects. With a portfolio of iconic developments across Turkey and beyond, the company is known for its innovative design, high-quality construction, and commitment to sustainability. By integrating modern architecture with smart urban planning, MK Group continues to set new standards for luxury living and investment-grade properties in dynamic markets. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521155/diplomatic-trade-capital-partners-announces-50-million-investment-in-antalyas-landmark-mixed-use-development)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/diplomatic-trade-and-mk-group-partner-for-eur50-million-investment-in-antalya-real-estate-development/bfb8231c57785384b16d35a4b0e6b97c) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1jm9ygh/diplomatic_trade_and_mk_group_partner_for_50/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/29/fondFoma.webp)
