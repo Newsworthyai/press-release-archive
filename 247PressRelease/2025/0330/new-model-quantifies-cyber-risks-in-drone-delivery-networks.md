@@ -1,0 +1,20 @@
+# New Model Quantifies Cyber Risks in Drone Delivery Networks
+
+KNOXVILLE, TN, March 30, 2025 /24-7PressRelease/ -- Researchers develop a probabilistic framework using percolation theory to assess cascading cyber risks in drone swarms, enabling better insurance pricing and risk management for emerging drone delivery systems.  With the rapid growth of drone delivery services, there are now over 2,000 commercial drone deliveries every day worldwide. The global market size reached USD 32.5 billion in 2023 and is expected to surpass USD 78.5 billion by 2032. Advances in drone technology, falling costs, growing consumer demand for efficient delivery, and the improvement of regulatory frameworks have all contributed to this growth trend.  As drones work collaboratively in swarms, however, cybersecurity risks are becoming increasingly prominent. Drone swarms rely on data sharing to perform task scheduling, and this highly interconnected communication mode means that an attack on one node could trigger a chain reaction across the entire network, akin to the risks faced by hotel chains or supply chain networks.  To address this challenge, a recent study by a team of researchers from the School of Mathematical and Statistical Sciences, Arizona State University, proposed a dynamic percolation model. It is based on probabilistic graph theory and spatial Poisson point processes, comprehensively modeling the loss distribution of cybersecurity risks across various scales of drone delivery networks.  By analyzing both single-layer and multi-layer models, the study evaluates the upper bounds of losses for drone swarms and turret networks under cyberattacks, considering different system parameters such as signal strength, communication range, and node vulnerability.  Simulation results indicate that with lower network percolation risks, optimized allocation of defense resources and improved communication protocols can significantly reduce losses; conversely, in cases of high percolation probability, losses tend to increase.  Notably, these findings, published in Risk Sciences, not only offers theoretical and practical support for cybersecurity risk assessments in drone delivery services, but also provides guidance for policymakers, risk management experts, and cybersecurity professionals in optimizing defense strategies.  References DOI 10.1016/j.risk.2024.100009  Original Source URL https://doi.org/10.1016/j.risk.2024.100009  Funding information This work is funded by the National Science Foundation under grant CNS-2000792. The framework and numerical results presented in this work are produced by the joint invention of the authors. This invention is patent pending.  About Risk Sciences Risk Sciences is a general-interest journal that publishes academic research and industry practices on risks and disruptive technologies across all fields including agriculture, economics, engineering, environmental science, finance, health, law, management, natural sciences, and public administration.  Chuanlink Innovations, where revolutionary ideas meet their true potential. Our name, rooted in the essence of transmission and connection, reflects our commitment to fostering innovation and facilitating the journey of ideas from inception to realization.  Related Link: http://chuanlink-innovations.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521172/new-model-quantifies-cyber-risks-in-drone-delivery-networks)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/researchers-develop-probabilistic-framework-for-assessing-cyber-risks-in-drone-swarms/be5c27b93f7f01237aeebf5f9c0d5a09) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1jn7220/researchers_develop_probabilistic_framework_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/30/rift07Z4.webp)
