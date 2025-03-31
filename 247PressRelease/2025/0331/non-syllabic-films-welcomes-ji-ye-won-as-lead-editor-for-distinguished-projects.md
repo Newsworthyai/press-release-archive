@@ -1,0 +1,18 @@
+# Non-Syllabic Films Welcomes Ji Ye Won as Lead Editor for Distinguished Projects
+
+LOS ANGELES, CA, March 31, 2025 /24-7PressRelease/ -- Non-Syllabic Films, led by the visionary Executive Producer Lilia LeDieu, is thrilled to announce the appointment of Ji Ye Won as Lead Editor for the studio's upcoming projects. Known for her exceptional talent and innovative approach to storytelling, Ji Ye Won will bring her expertise to two highly anticipated short films: My Lemon Puppy and Rhyming After You.  Ji Ye Won has established herself as a creative force in film editing, contributing to projects that have garnered critical acclaim and international recognition. Her work has been instrumental in shaping compelling narratives that resonate with audiences worldwide. With an impressive portfolio of collaborations on award-winning films such as Paintless, which captivated audiences on the 2021 festival circuit, Ji Ye Won's reputation as a meticulous and visionary editor precedes her.  The first of these projects, My Lemon Puppy, is a surreal and emotionally charged short film exploring themes of love, transformation, and acceptance. The film's unique narrative and visual style demand a nuanced editorial approach—one that Ji Ye Won is perfectly suited to deliver. The production schedule spans from July to December 2025, with Ji Ye Won leading the editing process through multiple phases, including assembly, structural refinement, sound editing, and final color grading.  Following this, Ji Ye Won will lend her expertise to Rhyming After You, a heartfelt story about connection and self-discovery through poetry. Scheduled for production from October 2027 to January 2028, this project promises a deeply personal and uplifting cinematic experience. Ji Ye Won's ability to balance emotional depth with technical precision will be critical in bringing the film's poetic essence to life.  Lilia LeDieu, Executive Producer at Non-Syllabic Films, expressed her enthusiasm: "Ji Ye Won's exceptional talent and dedication are unparalleled. Her ability to craft stories that leave a lasting impact aligns perfectly with our vision at Non-Syllabic Films. We are honored to have her lead the editing of these remarkable projects."  Non-Syllabic Films has built a reputation for producing thought-provoking and visually stunning works that push creative boundaries. With Ji Ye Won at the helm of post-production for these films, the studio is poised to continue its tradition of excellence in independent cinema.  For media inquiries or further information about Non-Syllabic Films and its upcoming projects, please contact:  Lilia LeDieu Executive Producer Non-Syllabic Films  Email: lilialedieu@gmail.com Website: www.ledieufilms.com  About Non-Syllabic Films: Non-Syllabic Films is an independent production company based in Los Angeles, specializing in creating unique and impactful stories for global audiences. Under the leadership of Lilia LeDieu, the company has produced critically acclaimed films that have won numerous awards at prestigious international festivals. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521187/non-syllabic-films-welcomes-ji-ye-won-as-lead-editor-for-distinguished-projects)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/non-syllabic-films-appoints-ji-ye-won-as-lead-editor-for-upcoming-projects/db511b3fa09245736aa8f52ee65e2c06) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/31/jadeXz2R.webp)

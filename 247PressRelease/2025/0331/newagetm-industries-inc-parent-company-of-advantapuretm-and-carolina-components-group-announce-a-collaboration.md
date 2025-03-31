@@ -1,0 +1,20 @@
+# NewAge™ Industries, Inc., Parent Company of AdvantaPure™ and Carolina Components Group Announce a Collaboration
+
+DURHAM, NC, March 31, 2025 /24-7PressRelease/ -- NewAge™ Industries, Inc. (NAI), parent company of AdvantaPure™ and NewAge Performance Products (NAPP), is a global leader in fluid transfer systems solutions for the biopharma and industrial markets.  Carolina Components Group, Inc. (CCG) is a supplier of ultra-pure equipment designed to process critical fluids in controlled environments for the pharmaceutical and biotech manufacturing industry.  Today, NewAge Industries, Inc. (NAI), parent company of AdvantaPure and NewAge Performance Products, and Carolina Components Group, Inc. (CCG), announced a collaboration to co-develop and co-market eco-friendly products for the single-use biopharma manufacturing market. The partnership is designed to collaboratively develop and market products with a reduced carbon footprint. The anticipated first deliverable will be a line of Thermoplastic Elastomer (TPE) tubing products which will assist our partners in achieving their greenhouse gas (GHG) reduction targets, making sustainability-linked purchasing decisions and aligning to regulatory requirements, having bio-friendly options in the market and driving towards a more circular economy.  "Sustainability and carbon footprint reduction are objectives that are constantly brought to our attention by our partners in the single-use space who seek our help to improve their outcomes. We are committed to leveraging our already globally recognized sustainability initiatives, as evidenced by our Gold Ecovadis rating, to expand our portfolio to serve this crucial need within our space. We are pleased to share this goal with such a great partner like CCG," said Mary Marcus, CEO of NewAge Industries.  "We value NAI's unwavering focus on sustainability. We are pleased to form this partnership aimed at bringing much-needed eco-friendly tubing materials to the marketplace. We are constantly striving to enhance CCG's sustainability initiatives and believe furthering our partnership in this regard, with a world class manufacturing organization like NAI, will allow us to do so," said John Cooling, President & CEO at Carolina Components Group.  About NewAge Industries: In business since 1954, NewAge Industries, Inc. the parent company of AdvantaPure and NewAge Performance Products, designs, manufactures, and distributes fluid transfer systems solutions, of a variety of materials, including silicone, TPE, rubber and more, in reinforced and unreinforced styles, for the high purity pharmaceutical, biopharma and industrial markets.  About Carolina Components Group: CCG is a world class integrator and supplier of rigid and disposable ultra-pure processing equipment utilized in biopharmaceutical manufacturing processes all over the world. Started by a group of seasoned industry professionals in 2020, CCG is dedicated to a positive company culture, sustainability and unrivaled customer service.  For More Information: Mary Marcus, CEO NewAge Industries, Inc.  145 James Way Southampton, PA 18966 Email: mmarcus@newageindustries.com  John Cooling, CEO & President Carolina Components Group, Inc. 1001 Hill Drive Durham, NC 27703 Email: jcooling@carolinaflow.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/520932/newage-industries-inc-parent-company-of-advantapure-and-carolina-components-group-announce-a-collaboration)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newage-industries-and-carolina-components-group-collaborate-on-eco-friendly-biopharma-products/5fc75ecdd07c9cfc0005158ca73e04e3) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1jnxkhw/newage_industries_and_carolina_components_group/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/253/31/plum_xG9.webp)
