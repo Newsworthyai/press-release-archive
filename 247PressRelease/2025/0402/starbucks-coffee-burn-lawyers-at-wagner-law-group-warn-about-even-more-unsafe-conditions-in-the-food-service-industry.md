@@ -1,0 +1,20 @@
+# Starbucks Coffee Burn Lawyers at Wagner Law Group Warn About Even More Unsafe Conditions in the Food Service Industry
+
+LOS ANGELES, CA, April 02, 2025 /24-7PressRelease/ -- Coffee burn incidents and other fast food industry related problems have been leading to more burn injury lawsuits & litigation in recent years. Customers and employees have been victimized by unscrupulous practices by big corporation. Customers have been injured and employees have been exposed to unfair labor practices.  Personal injury lawyers at Wagner Law Group have decades of experience representing injured people and employees who have been treated unfairly. "We understand that when an innocent person is victimized by a large corporation that restitution is in order. We fight relentlessly to make sure our clients get the compensation they deserve," says Butch Wagner, Founder of Wagner Law Group.  A delivery driver was recently awarded 50 million dollars as a result of a burn that was sustained while attempting to pick up a customer's delivery. According to the facts surrounding the case it was determined that the coffee lid wasn't secured properly by the Starbucks employee. "These large corporations put such an emphasis on expediency that they often exclude common safety. This goes for how they prepare their products to how they treat their employees," says Butch.  In addition to being experienced coffee burn and employee compensation attorneys Wagner Law Group also has secured over 100 million dollars for fire victims. They are top Eaton fire lawyers. They have decades of experience handling fire cases and have had many fair outcomes for their clients when it comes to PG&E and SDE related fires.  Eaton fire lawyers at Wagner Law Group know the initial trauma of the fire was difficult but the rebuilding process is even more stressful. Many people are facing difficulties with insurance companies and the responsible parties not wanting to be held accountable to mitigate costs. "We make sure to fight every responsible entity. The insurance companies, the municipalities and the utility companies on behalf of our clients to make the best outcome is achieved," says Butch.  Personal injury attorneys at Wagner Law Group recommend people document anything they think may be an injury or violation of employee rights. Had the delivery driver not had clear evidence to support the claim it may have been more difficult to prove. "Just pull out your phone and take a couple of pictures or videos to help document what happened," says Butch.  If you have been a victim of an injury caused by a large corporation or you have been treated unfairly as an employee as a result of lack of training or other cost cutting measures to increase profits, Wagner Law Group may be able to help you seek compensation. "We stand up for people who don't have the resources to stand up for themselves. Large corporation have endless amounts of money to fight against lawsuits, we help level the playing field," says Butch Wagner.  Accident, injury and wage and hour attorneys at Wagner Law Group have triumphed in numerous Personal Injury and Employment cases for our clients and their families. Through aggressive, professional and clear litigation practices, we fight tooth and nail to get you the compensation you deserve while providing communication to keep you well-informed during the legal process. The Wagner Law Group invites you for a free consultation, where you won't have to pay a dime unless we win your case. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521370/starbucks-coffee-burn-lawyers-at-wagner-law-group-warn-about-even-more-unsafe-conditions-in-the-food-service-industry)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wagner-law-group-fights-for-victims-of-burn-injuries-and-unfair-labor-practices/762208ce013ba094fcfc60e05178c5c1) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1jpytu1/wagner_law_group_fights_for_victims_of_burn/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/2/fastAJ2J.webp)
