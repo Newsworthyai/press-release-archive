@@ -1,0 +1,20 @@
+# Dill Dinkers Indoor Pickleball Facility Now Open in Atlanta's West End
+
+ATLANTA, GA, April 04, 2025 /24-7PressRelease/ -- A week ago, Atlanta's West End was introduced to a new neighbor: Dill Dinkers' indoor pickleball center. As soon as their giant mural went up, the local community began dropping in to find out more.   April 2nd marked the end of their soft opening "Community Free Week," where over 1,000 people – from those learning pickleball for the first time to advanced players excited for new courts – came together for connection, exercise, fun and competition.   The metro area has long struggled to have enough court space for the rapidly growing sport, with more than 1.1 million players in Atlanta currently, growing at 51.8% year-over-year. The facility, which underwent a major renovation of a warehouse space by Ackerman & Co., represents a significant addition to the local sports and community landscape.  "There's a shortage of courts and lack of structure for skills progression, so players are turning to places like Dill Dinkers. Add to that spring's high pollen counts and pending hot weather, and we knew the demand would be high. What we didn't anticipate was the incredible outpouring of support from the community. From the businesses at next door Lee + White handing out grand opening flyers, to the nearby police precinct adding us to their newsletter, to neighbors stopping in while out for a walk, everyone has welcomed us with great enthusiasm," said Daniel Hardeman, Chosewood resident and regional franchise developer.   The White Street facility will be the first of multiple locations planned for Fulton and surrounding areas, including Dekalb, Cobb, Gwinnett and Cherokee counties, owned by additional local franchisees.   On April 18th, Dill Dinkers will host its ribbon cutting, marking its official grand opening. Meanwhile, play will continue for members and visitors, as well as clinics, lessons, leagues, social events and corporate gatherings.  For more information about the new Dill Dinkers West End location, visit dilldinkers.com/atlanta  About Dill Dinkers Dill Dinkers is the established leader and fastest-growing concept of dedicated indoor pickleball club franchises in the country. The Dill Dinkers brand is known for its fun, friendly and welcoming environment where players of all ages and skill levels can play, socialize and improve their skills. Each club offers dedicated indoor courts separated by fences, top-tier court surfaces, event space, a ball machine and a state-of-the-art reservation system powered by CourtReserve. Dill Dinkers offers court reservations for members and visitors, as well as clinics, private and semi-private lessons, leagues, business advertising and court rentals for private events.  About Ackerman & Co. Headquartered in Atlanta, Ackerman & Co. is a privately held, full-service commercial real estate firm focused on providing quality investment, brokerage, management and development services in the Southeast. The company, founded in 1967, retains an expert team of 100 real estate professionals. To date, Ackerman & Co. has developed and acquired 44 million square feet of office, medical, industrial, retail and mixed-use space, has 4.5 million square feet under management, and maintains an investment portfolio valued at $1 billion. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521476/dill-dinkers-indoor-pickleball-facility-now-open-in-atlantas-west-end)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-indoor-pickleball-center-dill-dinkers-opens-in-atlanta-s-west-end/13873e30cbee97376ed3e1052e020936) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1jrhvqa/new_indoor_pickleball_center_dill_dinkers_opens/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/4/hintYV7t.webp)
