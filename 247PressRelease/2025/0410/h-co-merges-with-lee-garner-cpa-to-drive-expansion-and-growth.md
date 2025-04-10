@@ -1,0 +1,20 @@
+# H&CO Merges with Lee Garner CPA to Drive Expansion and Growth
+
+MELBOURNE, FL, April 10, 2025 /24-7PressRelease/ -- H&CO, a leading provider of tax, accounting, technology, entity management, and global expansion services, is pleased to announce its merger with Lee Garner CPA, a well-respected firm specializing in tax & accounting. This strategic acquisition reinforces H&CO's commitment to delivering comprehensive financial and business solutions to clients worldwide.  With this merger, H&CO continues its growth trajectory, expanding its footprint and enhancing its ability to serve businesses and individuals with world-class expertise. Clients of both firms will benefit from a broader range of services, increased resources, and a strengthened team of professionals dedicated to providing tailored solutions.  "We are thrilled to welcome the Lee Garner team to H&CO," said Armando Hernandez, CEO at H&CO. "Their expertise and client-focused approach align perfectly with our values, and together, we will continue to drive innovation and excellence in our industry."  Lee Garner CPA's existing clients will experience a seamless transition, maintaining relationships with their trusted advisors while gaining access to H&CO's expanded service offerings and global network.  "Joining forces with H&CO marks an exciting new chapter for our firm and our clients," said Lee Garner, Founder of Lee Garner CPA. "H&CO's global reach and comprehensive suite of services will provide our clients with even greater opportunities for success, and we look forward to contributing to this shared vision of excellence."  This merger represents a significant milestone in H&CO's mission to empower businesses with the financial, technological, and strategic support needed to thrive in today's evolving marketplace.  For more information, please contact: María Briones  For media inquiries or further information, please contact María Briones at mbriones@hco.com or Nichole Thomson at nthomson@hco.com  About H&CO H&CO is a globally recognized leader in international professional services dedicated to delivering exceptional solutions that empower businesses, families, and individuals to expand and thrive in an increasingly interconnected world. Built on a foundation of integrity, excellence, and innovation, we are committed to exceeding expectations and driving measurable results. With a strong emphasis on long-term client relationships, we provide tailored strategies that help our clients navigate complex financial landscapes while making a meaningful impact in the communities we serve.  With a presence in over 29 countries and a team of more than 950 professionals, H&CO offers a comprehensive suite of services, including Accounting, International Tax, SAP Business One Implementation, Global Entity Management and Trust Services, Human Capital, and more. As a leader in international services, we help clients conquer new frontiers, expand into global markets, and successfully manage cross-border complexities. Founded in 1992, the firm has grown from a local accounting practice into a premier global provider of professional services, equipping businesses, families, and individuals with the expertise and resources needed to succeed on a global scale. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521593/hco-merges-with-lee-garner-cpa-to-drive-expansion-and-growth)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/h-co-announces-merger-with-lee-garner-cpa-to-expand-financial-services-globally/8d0130cec76e54c6d9c675f084e5c5de) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1jvs3s5/hco_announces_merger_with_lee_garner_cpa_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/10/knobLbxE.webp)
