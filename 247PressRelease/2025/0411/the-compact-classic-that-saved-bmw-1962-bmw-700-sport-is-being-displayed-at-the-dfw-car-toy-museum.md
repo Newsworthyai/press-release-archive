@@ -1,0 +1,20 @@
+# The Compact Classic That Saved BMW: 1962 BMW 700 Sport is Being Displayed at the DFW Car & Toy Museum
+
+FORT WORTH, TX, April 11, 2025 /24-7PressRelease/ -- The DFW Car & Toy Museum is proud to present the 1962 BMW 700 Sport, a rare and historically significant model from BMW's early years. As part of the esteemed Ron Sturgeon Collection, this compact coupe represents a pivotal moment in BMW's history, blending sleek design, innovative engineering, and an unmistakable driving experience.  Designed by Giovanni Michelotti, the BMW 700 features a steel monocoque chassis, making it a lightweight yet rigid platform that contributed to its agile handling. The coupe body boasts a shorter greenhouse and an increased rear-window rake angle, distinguishing it from the two-door sedan model. The Sport variant was further enhanced with a rear anti-roll bar, ensuring improved stability and cornering capabilities. Stopping power is handled by drum brakes on all four corners, a standard for its time but still effective in delivering confident braking performance.  Inside the 1962 BMW 700 Sport, the cabin offers a driver-focused layout with essential yet refined features. Appointments include seatbelts, hand-crank side windows, a fire extinguisher, a glove compartment, a floor-mounted shifter, and a heater, providing both comfort and safety for its occupants. A wood-rimmed aftermarket steering wheel frames a 90-mph speedometer and an AutoMeter tachometer, keeping the driver informed of the car's performance. The five-digit odometer currently displays 42k miles.  Powering this classic coupe is an air-cooled 697cc flat-twin engine, which underwent a complete rebuild under previous ownership. The restoration included rebuilding the cylinder heads, crankshaft, and camshafts, as well as the installation of a replacement oil pump, bearings, pistons, and modified carburetor jets. The dual Solex carburetors and a custom stainless-steel muffler exhaust system enhance its performance, while power is efficiently routed to the rear wheels through a four-speed manual transaxle.  A defining model for BMW, the 700 Sport played a crucial role in shaping the company's future, marking its transition into a brand renowned for performance and driving pleasure. This example, now proudly displayed at the DFW Car & Toy Museum, offers visitors the rare opportunity to see this beautifully preserved classic up close.  About DFW Car & Toy Museum  DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980's collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521466/the-compact-classic-that-saved-bmw-1962-bmw-700-sport-is-being-displayed-at-the-dfw-car-toy-museum)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rare-1962-bmw-700-sport-unveiled-at-dfw-car-toy-museum/5c689438a969411e205ccb82286ed6b0) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1jwk41q/rare_1962_bmw_700_sport_unveiled_at_dfw_car_toy/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/11/hintVupQ.webp)
