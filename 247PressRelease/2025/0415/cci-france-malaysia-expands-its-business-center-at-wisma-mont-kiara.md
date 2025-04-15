@@ -1,0 +1,20 @@
+# CCI France Malaysia Expands Its Business Center at Wisma Mont Kiara
+
+KUALA LUMPUR, MALAYSIA, April 15, 2025 /24-7PressRelease/ -- To support the needs of the nearly 600 French companies currently established in the country, the Chamber relocated and expanded its facility in Mont Kiara, doubling its capacity and upgrading its infrastructure. The centerpiece of this expansion is a large multipurpose function room, fully equipped for conferences and training sessions of up to 40 participants, providing a dynamic space to better serve startups, SMEs, and multinationals.  A New Highlight for Business & Learning The standout feature of the center is its versatile function room, which also hosts HRDC-certified training programs and conferences by CCI France Malaysia. Topics covered include HR & Management, AI, sales, sustainability and more, reinforcing the Chamber's commitment to upskilling talent within its business community.  A National Network of Business Support With this expansion, CCI France Malaysia now operates two business centers in Kuala Lumpur, KL Sentral and Mont Kiara, alongside satellite offices in Johor Bahru, Penang, and Kota Kinabalu.  Across this national network, the Chamber offers: •	30 private offices •	22 fully equipped workstations •	6 meeting rooms •	And the capacity to host over 50 companies across Malaysia  The Wisma Mont Kiara Business Center alone now accommodates 16 workstations and offices combined.  Full-Service Business Support In addition to its physical infrastructure, CCI France Malaysia provides a comprehensive suite of services to support business success: •	Company setup and visa application assistance •	Payroll and accounting services •	Certified translations and document legalisation •	Administrative and legal support for business setup and regulatory compliance •	HRDC-certified training programs   Strengthening French-Malaysian Business Ties The inauguration was officiated by YBhg. Datuk Sikh Shamsul Ibrahim Sikh Abdul Majid, CEO of the Malaysian Investment Development Authority (MIDA), highlighting the strong and ongoing collaboration between CCI France Malaysia and MIDA in fostering French investment and innovation in Malaysia.  Also present were H.E. Axel Cruau, Ambassador of France to Malaysia, and Richard Fostier, President of CCI France Malaysia. The event brought together key members of the Malaysian-French business community, institutional partners, and corporate stakeholders, reinforcing bilateral ties and opening new avenues for collaboration and growth.  See more photos: https://flic.kr/s/aHBqjC8wQo  About CCI France Malaysia  CCI France Malaysia, a self-funding and a non-profit organisation, fosters a dynamic business ecosystem, facilitating trade and investment between France and Malaysia. With over 300 members, CCIFM provides essential business services, including company setup, visa assistance, accounting, payroll & legal services as well as commercial assistance.  Additionally, CCIFM operates two incubators in Kuala Lumpur (KL Sentral & Mont Kiara) and satellites in Penang, Johor and Sabah with a total capacity of 60 people including fully equipped offices and coworking spaces, supporting entrepreneurs, SMEs, and multinationals. With a strong legacy of commitment and professionalism, CCIFM continues to be a key partner for companies looking to expand in Malaysia and the Asia-Pacific region. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521636/cci-france-malaysia-expands-its-business-center-at-wisma-mont-kiara)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cci-france-malaysia-expands-facility-in-mont-kiara-to-strengthen-business-ties/5f040b20288cd479368ba8dc5452e4ef) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1jzlr0v/cci_france_malaysia_expands_facility_in_mont/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/15/cool0rFF.webp)

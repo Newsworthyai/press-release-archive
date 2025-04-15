@@ -1,0 +1,20 @@
+# Quiet Zoning Change in Palmdale Allegedly Costs Local Property Owner Over $1 Million
+
+PALMDALE, CA, April 15, 2025 /24-7PressRelease/ -- A commercial building located at 38940 Trade Center Drive in Palmdale is at the center of growing controversy after a zoning change by the City allegedly cost the property owner over $1 million in damages—and may have been implemented without the required notification to those directly affected. The building was originally used by Tarps Plus, a tarp company, and then leased it out to Vivint Solar/Sunrun.  According to documents reviewed by this publication, the 22,680-square-foot property was originally purchased under mixed-use zoning, a classification that permitted a wide range of commercial and light industrial activity. However, in what appears to be a sweeping but low-profile rezoning move, the City reclassified the property and several nearby buildings as "Medical Flex"—a much more limited designation—sometime around 2022.  The Problem? The owner—who had successfully operated and leased the space under its original mixed-use rights for over a decade—was never formally notified of the change, despite state and county regulations that appear to require notice when zoning amendments materially impact property value.  The financial fallout was immediate and significant. In 2024, the owner entered escrow to sell the property for $4 million to a buyer intending to use it for light manufacturing—a use explicitly permitted under the original zoning. However, the City reportedly blocked the use, citing the Medical Flex designation, and the deal collapsed. The building was later sold for only $3 million.  Further complicating the issue is the involvement of a national solar energy company—Sunrun Inc. (formerly Vivint Solar)—which had been leasing the building. Public documents suggest the tenant may have submitted a business license that mischaracterized the use of the building, contributing to the City's determination that the grandfathered rights had been lost.  Legal experts familiar with zoning law say this situation raises serious questions about regulatory takings, due process violations, and municipal transparency. "If a city rezones your property without notice and it results in a major financial loss, that could be grounds for an inverse condemnation claim," said one land use attorney who reviewed the case details anonymously.  This case is now drawing attention from both legal professionals and real estate advocates, particularly as California cities face mounting scrutiny over opaque planning decisions and overregulation of commercial space.  A Broader Issue? Advocates say this incident may be part of a larger trend where municipalities enact zoning changes with little public engagement or transparency, often putting the burden on small business owners and property investors.  "This isn't just about one building," said a commercial property watchdog. "This is about whether cities can change the rules of the game without telling anyone, and then penalize people for not playing by the new rules they never knew existed."  As legal teams and public interest groups evaluate the matter, pressure is mounting for the City of Palmdale to explain its process, its communication failures, and whether affected property owners have any recourse.  Contact for More Information: Cathy Harris cathyharris0000@gmail.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521775/quiet-zoning-change-in-palmdale-allegedly-costs-local-property-owner-over-1-million)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/controversy-erupts-over-zoning-change-impacting-palmdale-commercial-building/5f5ca775f7e12341340d3d77201b27b4) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1jzlqvn/controversy_erupts_over_zoning_change_impacting/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/15/mintPvaE.webp)
