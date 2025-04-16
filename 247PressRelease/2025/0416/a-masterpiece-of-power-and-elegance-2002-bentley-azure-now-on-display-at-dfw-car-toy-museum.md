@@ -1,0 +1,20 @@
+# A Masterpiece of Power and Elegance: 2002 Bentley Azure Now on Display at DFW Car & Toy Museum
+
+FORT WORTH, TX, April 16, 2025 /24-7PressRelease/ -- The DFW Car & Toy Museum is proud to unveil a true icon of luxury and performance—the 2002 Bentley Azure, now on display as part of the prestigious Ron Sturgeon Collection. This breathtaking light blue convertible embodies sophistication, exclusivity, and craftsmanship at its finest.  The Bentley Azure was the distinguished successor to the Continental Convertible, designed to elevate Bentley's reputation beyond gentlemanly luxury and into the realm of automotive celebrity status. Developed in collaboration with the renowned Italian design house Pininfarina, the Azure took over two years to perfect before its grand unveiling in March 1995 at the Geneva Motor Show.  Every aspect of Azure's creation reflected world-class craftsmanship. The shell and soft top were meticulously constructed at Pininfarina's Cambiano factory before final assembly was completed at Bentley's legendary Crewe facility. Produced between 1995 and 2003, this particular example is believed to be one of only 71 built for the 2002 model year, making it a truly rare sight to behold.  Under the hood, the Azure commands attention with a Rolls-Royce/Bentley 6.75-liter V8, enhanced by an intercooled Garrett turbocharger. With an impressive 385 horsepower, this grand touring convertible defies expectations. Despite weighing over 5,400 pounds, the Azure boasts an exhilarating 0-60 mph time of just 6.5 seconds and a top speed of 160 mph—figures that defined high-performance luxury in its era.  A true testament to Pininfarina's masterful design, this Azure's elegant color scheme accentuates the striking coachwork that transformed the Continental R into this remarkable four-seater convertible. Offering unmatched refinement, power, and comfort, the 2002 Bentley Azure is a vehicle that commands attention both on the road and in the museum.  Now on display at the DFW Car & Toy Museum, this rare Bentley joins a collection of over 200 legendary automobiles, promising an unforgettable visit for classic car enthusiasts and luxury aficionados alike. With free admission and a dog-friendly environment, guests are invited to experience automotive history up close.  Don't miss your chance to witness the majesty of the 2002 Bentley Azure—only at the DFW Car & Toy Museum!  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980's collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521477/a-masterpiece-of-power-and-elegance-2002-bentley-azure-now-on-display-at-dfw-car-toy-museum)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dfw-car-toy-museum-showcases-rare-2002-bentley-azure-convertible/3bc0ec56c4169dc2d2cb729ae3ab003b) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1k0ekmp/dfw_car_toy_museum_showcases_rare_2002_bentley/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/16/finejuik.webp)
