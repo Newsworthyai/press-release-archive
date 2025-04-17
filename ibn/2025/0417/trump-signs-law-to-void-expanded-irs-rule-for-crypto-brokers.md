@@ -22,17 +22,17 @@ President Donald Trump recently signed a measure overturning a controversial IR
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/ccw/trump-signs-law-to-void-expanded-irs-rule-for-crypto-brokers/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/trump-signs-law-to-void-expanded-irs-rule-for-crypto-brokers/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/trump-signs-bill-nullifying-irs-crypto-broker-rule/7ee17c240e05e08c1774e93be3137daa) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trump-signs-measure-overturning-irs-rule-impacting-crypto-exchanges/5b8fb09fbc8d53b78457418e92cd78e1) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1k1cp6i/trump_signs_bill_nullifying_irs_crypto_broker_rule/) 
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1k1m1br/trump_signs_measure_overturning_irs_rule/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/17/jazzffjz.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/17/faceukWB.webp)
