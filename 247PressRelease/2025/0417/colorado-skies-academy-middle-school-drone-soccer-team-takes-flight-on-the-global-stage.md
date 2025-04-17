@@ -1,0 +1,20 @@
+# Colorado SKIES Academy Middle School Drone Soccer Team Takes Flight on the Global Stage
+
+DENVER, CO, April 17, 2025 /24-7PressRelease/ -- Colorado SKIES Academy (CSA), an aviation-focused middle school based in Englewood, Colorado, is flying high after an incredible season for its drone soccer team, CSA TopDrone. These dedicated middle schoolers have proven themselves on both regional and international stages.  At the Drone Soccer Rocky Mountain Regional Championships on March 15, 2025, held at Colorado State University's Lory Student Center, CSA TopDrone was one of only five teams to qualify and compete. They proudly earned 3rd place overall, finishing as Colorado's top-ranked middle school team.  Four of the five pilots from one of the high school teams, Colorado Early Colleges (CEC), are CSA alumni. One of those alumni, Harlow Medina, a CEC freshman pilot, was responsible for bringing competitive drone soccer to the school, is supporting the coach with training, and is the team captain.   Adding to the legacy, another CSA graduate, Tyler Coryell—now a junior in high school—serves as TopDrone's assistant coach. A member of CSA's original drone soccer team, they've gone on to start a team at their high school and will serve as a drone pilot coach this summer.  April 3-5, 2025, TopDrone competed in the Drone Soccer World Cup during the prestigious Sun N' Fun Aerospace Expo in Lakeland, Florida—North America's second-largest airshow. The CSA team stood out as the only middle school team among three competitors. In a stunning performance, CSA TopDrone clinched 1st place in the tournament.  But their impact didn't stop at the competition. The CSA pilots and coaches stepped up as mentors, sharing gear tips and coaching strategies with their peers. Their leadership helped raise the level of play across the board.  The Sun N' Fun Aerospace Expo also gave CSA learners rare access to career opportunities. In addition to competing, students attended youth sessions with Blue Angels pilots, connected with every branch of the U.S. military, visited the Hot Ramp to meet performing pilots, and spoke with aerospace employers about pathways into aviation careers. As drone soccer ambassadors, they will be featured by international news outlets.  "This team represents everything Colorado SKIES Academy stands for—innovation, leadership, and a passion for flight," said Roy Coryell, Drone Soccer Coach. "We couldn't be prouder of their achievements and how they've represented our school."  With students leading the charge, CSA's drone soccer program is more than just a sport—it's a launchpad for the next generation of aviators, engineers, and changemakers.  About Colorado SKIES Academy  Colorado SKIES Academy is a tuition-free, public charter school serving grades 6-8 in Englewood, Colorado. The school's mission is to ignite a passion for learning through an aerospace-focused curriculum, preparing learners for success in high school, college, and careers in STEM fields. CSA offers a supportive and engaging learning environment where learners are encouraged to think critically, collaborate effectively, and pursue their dreams.  For more information about Colorado SKIES Academy, please visit https://coloradoSKIESacademy.org or contact info@coloradoskiesacademy.org. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521916/colorado-skies-academy-middle-school-drone-soccer-team-takes-flight-on-the-global-stage)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/colorado-skies-academy-s-topdrone-dominates-drone-soccer-competitions/d4636ba43845f88afc6f31fb23da387b) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k16w55/colorado_skies_academys_topdrone_dominates_drone/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/17/filewRiD.webp)
