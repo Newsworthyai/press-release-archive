@@ -1,0 +1,20 @@
+# Boston Business Journal Names iuvo a 2025 Best Places to Work Company
+
+BOSTON, MA, April 22, 2025 /24-7PressRelease/ -- The Boston Business Journal has named iuvo to its 2025 Best Places to Work — the BBJ's exclusive ranking of the Massachusetts companies that have built outstanding work environments for their people.  The 100 companies honored in 2025 range in size and industry, with winners from the technology sector, retail industry, health care space, commercial real estate and more.  When asked how he feels about this recognition, iuvo's President and CEO Bryon Beilman stated,  "Out of all the awards that we have received, this is my favorite. It is both difficult to achieve and validates how hard we work to empower the people of iuvo."  "The companies that comprise this year's Best Places to Work are among the most diverse in the decades we've been doing this program," said Carolyn Jones, Market President and Publisher of the Boston Business Journal. "Their commitment to teamwork, employee engagement, flexibility and trust are the model to which the region's businesses look for inspiration."   The businesses that met criteria for office location and size participated in employee-engagement surveys distributed by Business Journal partner Quantum Workplace. Employees were asked to rate their work environment, work-life balance, job satisfaction, advancement opportunities, management, compensation, and benefits.   Based on the results of those surveys, businesses were assigned a score out of 100 percent and ranked by Quantum. The top-rated companies are listed in five size categories — extra small (20 to 49 employees), small (50 to 99 employees), medium (100 to 249 employees), large (250 to 499 employees) and extra-large (500 or more).   When asked what advice he would offer to other leaders looking to build a great workplace culture, Bryon stated:  "I share the full recipe in my book, but if you're looking for a place to start, begin by clearly defining your core values. Then, ensure that everyone you work with aligns with those values. That's the foundation of any great workplace culture."  The Best Places to Work celebration will be held in-person on June 12th at The Westin Copley Place from 5:30pm – 8:30pm. The special publication will appear in the June 13th weekly edition of the Boston Business Journal.  About iuvo  iuvo is a Boston-based IT consulting company and managed services partner offering professional IT consulting and solutions to the businesses that are driving innovation and growth all over the US. Since 2007 we've been disrupting the IT industry to bring exceptional service to co-managed and in-house IT teams across the nation. Our core belief is that information technology should accelerate the growth of your business and not be a constraint. Managed Services, IT Consulting & Strategy, Virtual CIO, Secure AI, DevOps, Security Services, Cloud Services and more are part of our offerings to make our clients successful. Learn more at www.iuvotech.com.  About The Boston Business Journal The Boston Business Journal is the region's premier business media organization, one of 44 markets owned by American City Business Journals. For marketing and sponsorship opportunities, contact the Business Journal today. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521892/boston-business-journal-names-iuvo-a-2025-best-places-to-work-company)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iuvo-recognized-as-one-of-the-best-places-to-work-in-massachusetts-by-boston-business-journal/e1671ba86b891acf0f0a7811783a46f6) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1k50d4x/iuvo_recognized_as_one_of_the_best_places_to_work/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/22/vastbgUL.webp)
