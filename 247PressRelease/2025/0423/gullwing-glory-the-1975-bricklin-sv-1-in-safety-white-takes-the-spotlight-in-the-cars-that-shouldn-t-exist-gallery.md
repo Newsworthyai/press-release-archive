@@ -1,0 +1,20 @@
+# Gullwing Glory: The 1975 Bricklin SV-1 in Safety White Takes the Spotlight in the "Cars That Shouldn't Exist" Gallery
+
+FORT WORTH, TX, April 23, 2025 /24-7PressRelease/ -- Among the rarest automotive treasures of the 1970s, the Bricklin SV-1 stands as a bold statement of performance, safety, and futuristic design. Now, a pristine 1975 Bricklin SV-1, finished in stunning Safety White, is making waves as part of the esteemed Ron Sturgeon Collection. A true pioneer in automotive engineering, this SV-1 embodies the innovative spirit of Malcolm Bricklin, offering enthusiasts and collectors alike a glimpse into one of the most ambitious American sports car projects of its time.  Revolutionary Design Meets Unmistakable Style Produced in May 1975, this Bricklin SV-1 showcases the car's signature acrylic resin body panels, which are bonded to a fiberglass substrate for durability and impact resistance. Mounted on a robust steel frame with an integrated rollover structure, the SV-1 was designed with safety in mind—a vision well ahead of its time.  This particular model features the striking and original Safety White finish, complemented by iconic pop-up headlights, impact bumpers, black-finished lower bodywork, and dual exhaust outlets. One of its most celebrated features, the distinctive gullwing doors, have been upgraded from hydraulic to pneumatic operation using a Big H Bricklin kit, ensuring smooth and reliable function.  Performance and Power Under the Hood The heart of this SV-1 is a Ford-supplied 351 cubic-inch Windsor V8 engine, factory-rated at 175 horsepower with a two-barrel carburetor. Power is delivered to the rear wheels via a Ford FMX three-speed automatic transmission, providing an exhilarating yet refined driving experience. With just 32,000 miles on the five-digit odometer, this car remains a remarkable example of the breed.  A Collector's Dream With only 2,100 examples produced for the 1975 model year, this Bricklin SV-1 represents an exclusive opportunity for collectors and enthusiasts to own a piece of automotive history. Adding to its provenance, this SV-1 comes complete with an owner's manual signed by none other than Malcolm Bricklin himself, along with additional manufacturer's literature.  The "cars that should not exist" gallery in the museum includes such notable cars as a Yugo, AMC Pacer, and a Ford Pinto. The owner of the museum thinks a little fun is always called for, and hopes visitors will agree.  The Ron Sturgeon Collection is displayed at the DFW Car & Toy Museum and proudly welcomes this legendary vehicle, reinforcing its commitment to preserving and showcasing rare and historically significant automobiles.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980's collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521474/gullwing-glory-the-1975-bricklin-sv-1-in-safety-white-takes-the-spotlight-in-the-cars-that-shouldnt-exist-gallery)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rare-1975-bricklin-sv-1-showcased-in-ron-sturgeon-collection/da106a5298b801cdb8301c9bac0b08b3) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k5t835/rare_1975_bricklin_sv1_showcased_in_ron_sturgeon/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/23/pinkP0Ix.webp)
