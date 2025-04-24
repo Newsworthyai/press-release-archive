@@ -1,0 +1,44 @@
+# Data Showing Pacylex Pharmaceuticals’ Lead Drug Zelenirstat Disrupts Oxidative Phosphorylation in Breast Cancer Cells Will Be Presented at AACR 2025
+
+Edmonton, Alberta, Canada April 24, 2025. Pacylex Pharmaceuticals Inc. (Pacylex) is a clinical-stage pharmaceutical company and world leader in developing N-myristoyltransferase inhibitors (NMTis) for cancer. Oral zelenirstat is a proprietary, potent, NMTi under clinical investigation as a first-in-class targeted therapy for the treatment of hematologic cancers. Pacylex has 27 additional potent NMTis as potential payloads for antibody drug conjugates (ADCs) for the treatment of solid tumor cancers. Today, Pacylex announced that new research conducted at the University of Alberta, demonstrating that zelenirstat reduces complex I formation and oxidative phosphorylation in the mitochondria of triple-negative breast cancer (TNBC) cells, will be presented at the American Association for Cancer Research (AACR) Annual Meeting from April 25-30, 2025, in Chicago, Illinois, USA. Zelenirstat also reduced the growth of triple-negative breast cancer (TNBC) stem cells, with implications for reducing metastasis.
+
+A poster will be presented describing evidence for profound disruption of mitochondrial complex I formation in TNBC cancer cells with concomitant loss of oxidative phosphorylation. The company’s CEO, Dr. Michael Weickert, will be available during the poster session and for one-on-one meetings. The details of the poster are below:
+
+![](https://process.filestackapi.com/AG3wH2AR3SP2Mo58NZitaz/rotate=exif:true/resize=width:1200/https://cdn.filestackcontent.com/ZGSKEUs6Q7msspjB2DJi)
+
+“We recently published evidence that zelenirstat disrupts growth signaling and energy production in the mitochondria of acute myeloid leukemia cells”, said Dr. Luc Berthiaume, CSO of Pacylex. “These new studies show zelenirstat similarly impacts aggressive breast cancer cells. Since mitochondrial oxidative phosphorylation is required for metastasis and cancer stem cell survival, the two major causes of death from cancer and cancer relapses, it has major implications for its potential use as a therapy in solid tumors.”
+
+ For more information:Pacylex Pharmaceuticals Contact: Michael J. WeickertCEO, Pacylex Pharmaceuticals, Inc.E: michael.weickert@pacylex.comP: 650-218-1840Twitter @Pacylex (https://twitter.com/pacylex) LinkedIn (www.linkedin.com/company/pacylex-pharma)Facebook (https://www.facebook.com/pacylex)About zelenirstat (aka PCLX-001 or DDD86481)Zelenirstat (formerly identified as PCLX-001 or DDD86481) is a first-in-class, oral, small-molecule NMTi being developed to treat patients with leukemia, lymphoma, and for the treatment of solid tumors when used as a payload for ADCs. Zelenirstat selectively kills cancer cells in vitro and has been shown to regress hematologic malignancies and inhibit the growth of lung and breast cancer tumors in animal models. Pacylex completed and published a Phase 1 multiple ascending dose safety, tolerability, and pharmacokinetics study on zelenirstat in patients with relapsed/refractory lymphoma and refractory solid tumors (NCT04836195). Zelenirstat demonstrated an acceptable safety and tolerability profile, pharmacokinetics consistent with once-daily oral dosing, and early signs of efficacy. A clinical study in relapsed/refractory AML patients is now underway (ClinicalTrials.gov ID NCT06613217).About Pacylex Pharmaceuticals	Pacylex is the world leader in developing N-myristoyltransferase inhibitors (NMTis) as targeted therapies for the treatment of hematologic cancers and as payloads for antibody drug conjugates (ADCs) for solid tumors. Pacylex is conducting clinical studies of its lead drug, oral Zelenirstat, the first and only clinically validated NMTi. The FDA has granted zelenirstat both Orphan Drug Designation and Fast Track Designation for AML. The US Department of Defense is supporting the initial clinical investigation of zelenirstat in AML patients. Pacylex is headquartered in Edmonton, Alberta, Canada, but also has an office in the San Francisco Bay area. The Cure Cancer Foundation, Alberta Cancer Foundation, and Alberta Innovates supported the initial clinical studies. For additional information, please visit www.pacylex.com.Forward-Looking StatementsThis press release contains forward-looking statements and forward-looking information within the meaning of applicable securities laws, such as statements relating to future events or the Company’s future financial and operating performance, as well as the Company’s business plans, growth initiatives, and objectives and prospects. Generally, forward-looking statements and forward-looking information may be identified by the use of forward-looking terminology, including the words “believe,” “may,” “will,” “estimate,” “continue,” “anticipate,” “intend,” “should,” “plan,” “goal,” “expect,” “strategy,” “future,” “likely,” "proposed,” “scheduled,” “forecast,” “budget,” “could,” “would,” variations of such words of phrases and other similar expressions, or by the use of words or phrases which state that certain actions, events or results may, could, would, or might occur or be achieved. However, the absence of these words does not mean that a statement is not forward looking. Forward-looking statements and forward-looking information are subject to numerous factors, risks and uncertainties that could cause actual results to differ materially, including, but not limited to, the Company’s ability to successfully execute on its business plans and strategies, avoid delays in planned clinical trials, hire and retain key personnel, obtain appropriate or necessary governmental approvals to market potential products and obtain future funding for product development and working capital on commercially reasonable terms, changes in laws, and  general macroeconomic conditions, including economic slowdowns, recessionary risks, rising inflation and interest rates, and supply chain disruptions. Forward-looking statements and forward-looking information are based on the beliefs of management as well as assumptions made by and information currently available to management as of the date hereof, and none of the Company or its affiliates undertakes any obligation to update or issue revisions to any forward-looking statements or forward-looking information contained herein to reflect any future events or circumstances, except as required by law. The foregoing does not constitute an offer or solicitation to acquire any securities in the Company or any related or associated entity or affiliate. The information contained herein is not intended as legal, tax, financial or investment advice. Furthermore, the information contained herein may not be applicable to or suitable for an individual’s specific circumstances or needs. 
+
+---
+
+[Original/Source Press Release](https://pacylex.reportablenews.com/pr/data-showing-pacylex-pharmaceuticals-lead-drug-zelenirstat-disrupts-oxidative-phosphorylation-in-breast-cancer-cells-will-be-presented-at-aacr-2025)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pacylex-pharmaceuticals-unveils-promising-research-on-zelenirstat-s-efficacy-in-combating-triple-negative-breast-cancer/c1a1af86eafd5e605c533c84faea9a73) 
+
+
+Pickup - [advos.io](https://advos.io/en/pacylex-s-zelenirstat-shows-promise-in-disrupting-triple-negative-breast-cancer-cell-metabolism/202513196)
+
+Pickup - [newsworthy.ai](https://newsworthy.ai/curated/new-research-reveals-potential-breakthrough-in-triple-negative-breast-cancer-treatment/202513196)
+
+Pickup - [hrmarketer.com](https://hrmarketer.com/en/pacylex-pharmaceuticals-reveals-promising-research-on-zelenirstat-s-impact-on-triple-negative-breast-cancer-cells/202513196)
+
+Pickup - [citybuzz.co](https://citybuzz.co/pacylex-pharmaceuticals-reveals-promising-zelenirstat-research-targeting-triple-negative-breast-cancer)
+
+Pickup - [boostify.news](https://boostify.news/en/zelenirstat-shows-promise-in-disrupting-triple-negative-breast-cancer-cell-growth/202513196)
+
+Pickup - [newswriter.ai](https://newswriter.ai/en/pacylex-pharmaceuticals-zelenirstat-shows-promise-in-disrupting-triple-negative-breast-cancer-cell-metabolism/202513196)
+
+Pickup - [enhancedpr.com](https://enhancedpr.com/en/pacylex-pharmaceuticals-reveals-promising-zelenirstat-research-targeting-triple-negative-breast-cancer/202513196)
+
+Pickup - [fishervista.com](https://fishervista.com/en/zelenirstat-shows-promise-in-disrupting-triple-negative-breast-cancer-cell-metabolism/202513196)
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k6syg6/pacylex_pharmaceuticals_unveils_promising/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/reportable/qrcode/254/24/hikeqvZ_.webp)
