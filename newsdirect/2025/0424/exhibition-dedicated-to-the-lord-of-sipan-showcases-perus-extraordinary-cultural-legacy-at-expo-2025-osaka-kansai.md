@@ -31,14 +31,14 @@ View source version on newsdirect.com: https://newsdirect.com/news/exhibition-de
 [Original/Source Press Release](https://newsdirect.com/news/exhibition-dedicated-to-the-lord-of-sipan-showcases-perus-extraordinary-cultural-legacy-at-expo-2025-osaka-kansai-145566501)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/peru-pavilion-shines-light-on-mochica-cultural-legacy-at-expo-2025-osaka-kansai/d6f6ce989f0535d1d3ec446373b6f7eb) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/peru-pavilion-at-expo-2025-osaka-kansai-showcases-mochica-cultural-legacy/1dfe8085a3908ac53b968f4695223b58) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/eventNews/comments/1k749of/peru_pavilion_shines_light_on_mochica_cultural/) 
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1k7anhv/peru_pavilion_at_expo_2025_osakakansai_showcases/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/254/24/yawnvDn8.webp)
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/254/25/vastq0kP.webp)

@@ -7,14 +7,14 @@ SAN DIEGO, CA, April 24, 2025 /24-7PressRelease/ -- Motive Interactive, a leadin
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522106/motive-interactive-named-a-top-growth-partner-in-the-2025-singular-roi-index)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/motive-interactive-named-top-growth-partner-on-2025-singular-roi-index/3a305793cf4289891f0605fa9d68c7d9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/motive-interactive-named-top-growth-partner-on-2025-singular-roi-index/39a7105b91a96b327d8e774d7c2ae306) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1k6mabc/motive_interactive_named_top_growth_partner_on/) 
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1k7bfgr/motive_interactive_named_top_growth_partner_on/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/24/vibeWMyG.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/seekeagl.webp)

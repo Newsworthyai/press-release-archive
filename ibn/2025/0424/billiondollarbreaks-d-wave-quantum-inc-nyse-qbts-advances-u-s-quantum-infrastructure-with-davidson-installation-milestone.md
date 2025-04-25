@@ -33,14 +33,12 @@ D-Wave Quantum Inc. (NYSE: QBTS) (“D-Wave”) announced the completion of phy
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/bdc/billiondollarbreaks-d-wave-quantum-inc-nyse-qbts-advances-u-s-quantum-infrastructure-with-davidson-installation-milestone/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-inc-completes-assembly-of-quantum-system-at-davidson-technologies-headquarters/39425a59c6e180be22cd336c4e6473c9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-inc-completes-installation-of-quantum-system-in-huntsville-alabama/dd53171d6f5ce3acde07335259bbe009) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k6z0bi/dwave_quantum_inc_completes_assembly_of_quantum/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/urgeJ7E_.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/lean_WDl.webp)

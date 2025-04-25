@@ -33,14 +33,12 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/aston-bay-holdings-ltd-tsx-v-bay-otcqb-atbhf-strengthens-position-through-strategic-partnership-in-the-mining-sector/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/aston-bay-secures-strategic-partnership-for-storm-copper-project/6cc6848b97d82474dd3816435abf89e1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aston-bay-secures-strategic-partnership-to-advance-storm-copper-project/57179c14320cd121a2d7a6bad699655d) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k670pg/aston_bay_secures_strategic_partnership_for_storm/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/23/tallq9BR.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/beanamIZ.webp)

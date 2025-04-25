@@ -7,14 +7,14 @@ VIRGINIA BEACH, VA, April 18, 2025 /24-7PressRelease/ -- Sweet Living Group, a p
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521923/sweet-living-group-secures-strong-us-patent-portfolio-for-ecozinc-technology-to-drive-sustainable-innovation-in-textiles)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/sweet-living-group-secures-18-u-s-patents-for-ecozinc-technology-advancements/4cf564b8ce737614c497e0ab23525512) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sweet-living-group-secures-u-s-patents-for-ecozinc-r-technology-advancements/ee0bb5de1f28c448dfa368eefbdb8e53) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1k1z089/sweet_living_group_secures_18_us_patents_for/) 
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1k7ardy/sweet_living_group_secures_us_patents_for_ecozinc/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/18/lilyECF0.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/lilyj1En.webp)

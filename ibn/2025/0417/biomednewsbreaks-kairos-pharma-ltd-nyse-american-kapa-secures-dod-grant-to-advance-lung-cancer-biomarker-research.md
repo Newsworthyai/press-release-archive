@@ -31,14 +31,14 @@ Kairos Pharma (NYSE American: KAPA) announced that the U.S. Department of Defe
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/biomednewsbreaks-kairos-pharma-ltd-nyse-american-kapa-secures-dod-grant-to-advance-lung-cancer-biomarker-research/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/kairos-pharma-receives-876k-dod-award-for-env105-trial-research/b2f0682a147699793ba6e80895a4d292) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kairos-pharma-secures-funding-for-biomarker-research-in-lung-cancer-treatment/cb07e3cccbbf53d7b45139a2441516bc) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k1ecyu/kairos_pharma_receives_876k_dod_award_for_env105/) 
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1k7biug/kairos_pharma_secures_funding_for_biomarker/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/17/hikeH11c.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/gleeINaA.webp)

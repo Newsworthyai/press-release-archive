@@ -27,14 +27,12 @@ In today’s unpredictable global climate, managing a company’s reputation h
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/report-finds-that-association-with-musk-is-a-corporate-risk/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/reputation-risk-index-identifies-association-with-musk-as-corporate-risk/c13ca5bf1304a3b74a11c15ddf97a42b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-report-highlights-risks-associated-with-high-profile-figures-in-business/12db49228f5004fae5d8260fd975c836) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k57g9r/reputation_risk_index_identifies_association_with/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/wall31Sv.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/chipZzwy.webp)

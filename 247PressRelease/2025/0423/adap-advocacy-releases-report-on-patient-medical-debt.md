@@ -7,14 +7,14 @@ WASHINGTON, DC, April 23, 2025 /24-7PressRelease/ -- ADAP Advocacy today, as par
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522036/adap-advocacy-releases-report-on-patient-medical-debt)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/report-reveals-high-medical-debt-impacting-us-patients/ff65f6a318f41f01629d02b91ad328d2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-report-reveals-impact-of-medical-debt-crisis-on-patients-in-the-united-states/b81b05a63b688b7eb08d925d3b2cf411) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k5t81e/report_reveals_high_medical_debt_impacting_us/) 
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1k7bb7o/new_report_reveals_impact_of_medical_debt_crisis/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/23/gainXGH0.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/taroRO8i.webp)

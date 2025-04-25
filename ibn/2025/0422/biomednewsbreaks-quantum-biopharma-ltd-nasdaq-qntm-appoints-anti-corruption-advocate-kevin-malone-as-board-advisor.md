@@ -31,14 +31,12 @@ Quantum BioPharma (NASDAQ: QNTM) has appointed Kevin Malone as an advisor to i
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/biomednewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-appoints-anti-corruption-advocate-kevin-malone-as-board-advisor/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-biopharma-appoints-kevin-malone-as-advisor-to-board-of-directors/00c9615f51406ed24fd8adcd08d959d6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kevin-malone-joins-quantum-biopharma-as-advisor-to-board-of-directors/00ac4d23255918b60b0b548ef7978277) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k580vi/quantum_biopharma_appoints_kevin_malone_as/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/riftvxW2.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/bestfmpv.webp)

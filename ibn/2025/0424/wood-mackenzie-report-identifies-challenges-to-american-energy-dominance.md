@@ -29,14 +29,12 @@ The primary source of energy globally is oil and gas, which make up a whopping 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/wood-mackenzie-report-identifies-challenges-to-american-energy-dominance/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/us-dominance-in-oil-and-gas-production-highlighted-in-recent-report/d5fda5675e82fae4c52f9d6ebb118571) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/united-states-leads-global-oil-and-gas-production-gemxx-corp-analyzes-report/33f66cceca4bfbfbc91bd947e2d20f77) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k6tinb/us_dominance_in_oil_and_gas_production/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/epicnktf.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/quizIGki.webp)

@@ -27,7 +27,7 @@ McEwen Mining (NYSE: MUX) (TSX: MUX) recognizes the significance of new geologic
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-mcewen-mining-inc-nyse-mux-tsx-mux-recognizes-major-advancement-at-surebet-with-new-geological-model-confirming-rirg-source-and-high-grade-gold-expansion-potential/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-mining-acknowledges-new-geological-findings-on-goliath-resources-surebet-discovery-in-golden-triangle/13cf52bdd6309be2f6842fc80bd3a7b9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mcewen-mining-recognizes-significance-of-new-geological-findings-in-british-columbia-s-golden-triangle/e263217ff908fc6579ab647bb6628f84) 
 
  
 
@@ -35,4 +35,4 @@ McEwen Mining (NYSE: MUX) (TSX: MUX) recognizes the significance of new geologic
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/daveAsea.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/divex_1r.webp)

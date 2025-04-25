@@ -34,14 +34,14 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/thumzup-media-corp-nasdaq-tzup-continues-building-its-client-base-with-its-proprietary-tech-for-ad-campaigns/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/thumzup-media-corp-bridges-gap-between-advertisers-and-influencers-in-social-media-market-expansion/782a7d8895899764e97fb24bc44aff43) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/thumzup-media-corp-innovates-social-media-advertising-with-proprietary-product/d0f39de0cfe94ee5ac832b6d2b4a7bbb) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k4led6/thumzup_media_corp_bridges_gap_between/) 
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1k7bqqv/thumzup_media_corp_innovates_social_media/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/21/harpC9Yu.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/finezVI5.webp)

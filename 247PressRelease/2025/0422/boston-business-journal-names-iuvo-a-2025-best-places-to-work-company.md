@@ -7,14 +7,14 @@ BOSTON, MA, April 22, 2025 /24-7PressRelease/ -- The Boston Business Journal has
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521892/boston-business-journal-names-iuvo-a-2025-best-places-to-work-company)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/iuvo-recognized-as-one-of-the-best-places-to-work-in-massachusetts-by-boston-business-journal/e1671ba86b891acf0f0a7811783a46f6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/iuvo-recognized-as-a-best-place-to-work-by-boston-business-journal/63ee40fbb2b2b619bf3331d2f91dae52) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/technology_press/comments/1k50d4x/iuvo_recognized_as_one_of_the_best_places_to_work/) 
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1k7b3e0/iuvo_recognized_as_a_best_place_to_work_by_boston/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/22/vastbgUL.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/roamctJl.webp)

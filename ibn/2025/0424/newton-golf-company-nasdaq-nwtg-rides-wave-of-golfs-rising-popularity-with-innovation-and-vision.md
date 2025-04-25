@@ -27,14 +27,12 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/newton-golf-company-nasdaq-nwtg-rides-wave-of-golfs-rising-popularity-with-innovation-and-vision/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/newton-golf-company-rides-wave-of-golf-s-rising-popularity-with-innovation-and-vision/6ea7d872c7f21c896c1d264bb9c78cc7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newton-golf-rides-wave-of-golf-s-rising-popularity-with-innovation-and-vision/723ef24ff29a88fdc74f5247e70c19a6) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k6xj17/newton_golf_company_rides_wave_of_golfs_rising/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/loftQHud.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/lunanJ23.webp)

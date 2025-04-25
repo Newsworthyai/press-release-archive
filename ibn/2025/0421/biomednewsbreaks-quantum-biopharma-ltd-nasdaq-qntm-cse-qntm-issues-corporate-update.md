@@ -31,14 +31,12 @@ Quantum BioPharma (NASDAQ: QNTM) (CSE: QNTM) is a biopharmaceutical company dedi
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/biomednewsbreaks-quantum-biopharma-ltd-nasdaq-qntm-cse-qntm-issues-corporate-update/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-biopharma-announces-corporate-updates-and-debt-settlement/b6f576660378b6eefb50d0d24f2901d5) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/quantum-biopharma-announces-corporate-updates-and-debt-settlements/e284de8dbe6bf512dd0307126810a7f2) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k4mgo7/quantum_biopharma_announces_corporate_updates_and/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/21/epicvlce.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/lime9_RA.webp)

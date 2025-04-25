@@ -7,14 +7,14 @@ OAKLAND, CA, April 19, 2025 /24-7PressRelease/ -- What if Easter wasn't about Je
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521987/craig-gross-former-pastor-declares-jesus-isnt-coming-backwe-are-the-resurrection-launches-spiritual-plants-and-redefines-easter-with-music-cannabis-and-a-new-kind-of-church)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/former-pastor-craig-gross-re-emerges-as-digital-rose-launches-spiritual-plants-movement-with-cannabis-pioneer-guy-rocourt/9d19862b7f6bee871f4c4b44592ea661) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/former-pastor-launches-spiritual-cannabis-movement-with-legendary-pioneer/e06b523b039f31f75b1567562217061d) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1k2qoa0/former_pastor_craig_gross_reemerges_as_digital/) 
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1k7avj5/former_pastor_launches_spiritual_cannabis/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/19/wolfFLEH.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/seekD1Fl.webp)

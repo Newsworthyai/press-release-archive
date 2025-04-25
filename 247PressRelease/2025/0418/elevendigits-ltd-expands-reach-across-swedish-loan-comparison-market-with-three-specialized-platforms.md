@@ -7,14 +7,14 @@ LONDON, ENGLAND, April 18, 2025 /24-7PressRelease/ -- The sites target a specifi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521793/elevendigits-ltd-expands-reach-across-swedish-loan-comparison-market-with-three-specialized-platforms)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/elevendigits-ltd-launches-specialized-loan-comparison-websites-in-sweden/8d0fd98c848ec8ae99a4293d952e0230) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/elevendigits-ltd-introduces-specialized-loan-comparison-sites-in-sweden/0977912604f2322118ddd0718fdf43c5) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k1z37k/elevendigits_ltd_launches_specialized_loan/) 
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k7ar6w/elevendigits_ltd_introduces_specialized_loan/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/18/dash99Ya.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/eachpASH.webp)

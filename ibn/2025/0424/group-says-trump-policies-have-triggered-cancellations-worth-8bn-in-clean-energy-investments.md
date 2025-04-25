@@ -25,14 +25,12 @@ A renewable energy business group has revealed that the Trump administration’s
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/group-says-trump-policies-have-triggered-cancellations-worth-8bn-in-clean-energy-investments/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/trump-policies-lead-to-8-billion-in-renewable-energy-investments-being-cancelled/38cbdc6d9e9cd855a4018c70cfacac0e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renewable-energy-investments-worth-8-billion-cancelled-due-to-trump-policies/55cbc41e280ec7ff4b8e6a174625542c) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k6s4bf/trump_policies_lead_to_8_billion_in_renewable/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/waitnbmv.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/seek1L_I.webp)

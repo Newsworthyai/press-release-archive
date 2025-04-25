@@ -37,14 +37,14 @@ View source version on newsdirect.com: https://newsdirect.com/news/edge-boost-an
 [Original/Source Press Release](https://newsdirect.com/news/edge-boost-announces-responsible-gaming-partnership-with-birches-health-289175891)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/edge-boost-announces-partnership-with-birches-health-to-promote-responsible-gaming/9744375dfed28baf4f3e81dc3873e01b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/edge-boost-and-birches-health-partner-for-responsible-gaming-support/b3a4c27b6421ba8a4ce965ceae616149) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1k6ruuz/edge_boost_announces_partnership_with_birches/) 
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1k7an55/edge_boost_and_birches_health_partner_for/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/254/24/mendwMIk.webp)
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/254/25/waitSdwT.webp)

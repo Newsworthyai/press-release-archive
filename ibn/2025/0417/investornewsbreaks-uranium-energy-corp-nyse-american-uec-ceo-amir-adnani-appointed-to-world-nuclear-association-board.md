@@ -27,14 +27,14 @@ Uranium Energy (NYSE American: UEC) announced that its Founder, President and CE
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-uranium-energy-corp-nyse-american-uec-ceo-amir-adnani-appointed-to-world-nuclear-association-board/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/uranium-energy-corp-ceo-appointed-to-world-nuclear-association-board/cb5b14bb13bae302e34ecb7ad8941077) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/amir-adnani-of-uranium-energy-corp-appointed-to-world-nuclear-association-s-board-of-management/6f0e65da538c8daa34c90e97fc3871e7) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k1fsp7/uranium_energy_corp_ceo_appointed_to_world/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7bj7j/amir_adnani_of_uranium_energy_corp_appointed_to/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/17/mendYo3K.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/keeptiRi.webp)

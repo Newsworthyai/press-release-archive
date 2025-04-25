@@ -7,12 +7,14 @@ ATLANTA, GA, April 23, 2025 /24-7PressRelease/ -- Expanding into its third locat
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522093/bizarre-coffee-brewing-up-its-third-metro-atlanta-location-in-roswell-ga)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/bizarre-coffee-expands-to-roswell-with-new-location-offering-specialty-cocktails/0f130b029e12e9be87fc6b409e325a2d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bizarre-coffee-to-open-largest-location-in-roswell-ga-with-expanded-menu-and-craft-cocktails/b9a354f47b60e2d7a6b403ba2859d293) 
 
  
 
- 
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7b7gy/bizarre_coffee_to_open_largest_location_in/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/23/barnfibB.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/club_PK0.webp)

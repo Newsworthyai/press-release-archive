@@ -27,14 +27,12 @@ Cybin (NYSE American: CYBN) (NEO: CYBN) announced the expansion of its strategic
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-cybin-inc-nyse-american-cybn-neo-cybn-expands-phase-3-trial-network-to-18-sites-for-cyb003-in-depression/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/cybin-expands-strategic-partnerships-for-phase-3-trial-of-cyb003-in-major-depressive-disorder/0e4883fb94b7e527043a9debb23a6b28) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cybin-expands-strategic-partnerships-for-phase-3-trial-of-cyb003-in-major-depressive-disorder/4c3660513b10712f9633b569a77d6bcb) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1k5zr7n/cybin_expands_strategic_partnerships_for_phase_3/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/23/airyC4SF.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/eachyxF7.webp)

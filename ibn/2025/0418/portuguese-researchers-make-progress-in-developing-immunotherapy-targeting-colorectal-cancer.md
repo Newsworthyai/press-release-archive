@@ -23,14 +23,14 @@ Portuguese researchers working to advance colorectal cancer treatment have disco
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tg/portuguese-researchers-make-progress-in-developing-immunotherapy-targeting-colorectal-cancer/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/portuguese-researchers-uncover-new-white-blood-cell-for-colorectal-cancer-immunotherapy/b82a42928d15e63590f10ceae3ad0e51) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-white-blood-cell-discovery-offers-hope-in-colorectal-cancer-treatment/a9e9b8dd00ed126106fded11220e4e59) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1k280cr/portuguese_researchers_uncover_new_white_blood/) 
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1k7bmto/new_white_blood_cell_discovery_offers_hope_in/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/18/eachHijW.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/gloweVfF.webp)

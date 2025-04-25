@@ -31,14 +31,14 @@ View source version on newsdirect.com: https://newsdirect.com/news/florida-boy-b
 [Original/Source Press Release](https://newsdirect.com/news/florida-boy-burger-co-co-founder-roger-lolly-leads-statewide-expansion-with-four-new-locations-760041454)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/florida-boy-burger-co-announces-statewide-expansion-plans-with-four-new-locations/9bcca6947267df6acb4d8522876cb019) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/florida-boy-burger-co-announces-statewide-expansion-with-four-new-locations/39c5d56a86de0c96ccf98819b6e5f2d2) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k6pzgv/florida_boy_burger_co_announces_statewide/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7an2z/florida_boy_burger_co_announces_statewide/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/254/24/pitapicoyvXt.webp)
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/254/25/jolt9nE0.webp)

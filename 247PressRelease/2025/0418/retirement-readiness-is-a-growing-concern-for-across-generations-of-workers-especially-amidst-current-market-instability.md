@@ -7,14 +7,14 @@ ROSELAND, NJ, April 18, 2025 /24-7PressRelease/ -- As the stock market swings wi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521949/retirement-readiness-is-a-growing-concern-for-across-generations-of-workers-especially-amidst-current-market-instability)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/gen-xers-struggle-with-retirement-savings-amid-economic-uncertainty/9632170d79b349185a896c971777a9e3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gen-x-retirement-savings-facing-obstacles-amid-economic-uncertainty/f255098abe1da617d95627649e6429d6) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1k1z02k/gen_xers_struggle_with_retirement_savings_amid/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7ar9k/gen_x_retirement_savings_facing_obstacles_amid/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/18/miel3oA1.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/menduFDR.webp)

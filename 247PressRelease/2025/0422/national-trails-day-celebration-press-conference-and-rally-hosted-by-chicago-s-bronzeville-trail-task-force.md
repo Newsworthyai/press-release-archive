@@ -7,14 +7,14 @@ CHICAGO, IL, April 22, 2025 /24-7PressRelease/ -- The Bronzeville Trail Task For
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522102/national-trails-day-celebration-press-conference-and-rally-hosted-by-chicagos-bronzeville-trail-task-force)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/bronzeville-trail-task-force-announces-development-of-new-elevated-park-for-walking-running-and-biking/42cab27b3bf6ac97826b772808a515d6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bttf-and-rtc-partner-to-develop-bronzeville-trail-for-community-health-and-economic-growth/1105f4257dd5a6e33c787f65fcc6bd4d) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/eventNews/comments/1k5ndpm/bronzeville_trail_task_force_announces/) 
+[Reddit Post](https://www.reddit.com/r/TravelAndLeisureNews/comments/1k7b326/bttf_and_rtc_partner_to_develop_bronzeville_trail/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/23/roamkFvc.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/ella28lB.webp)

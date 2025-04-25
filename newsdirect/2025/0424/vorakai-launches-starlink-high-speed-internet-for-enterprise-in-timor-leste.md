@@ -55,14 +55,14 @@ View source version on newsdirect.com: https://newsdirect.com/news/vorakai-launc
 [Original/Source Press Release](https://newsdirect.com/news/vorakai-launches-starlink-high-speed-internet-for-enterprise-in-timor-leste-521483594)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vorakai-lda-becomes-authorized-reseller-of-starlink-in-timor-leste-transforming-digital-connectivity/eab6a05dfec9b046d884a1f2690ee09e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/vorakai-lda-to-provide-starlink-high-speed-internet-in-timor-leste/b9a634dcbc088e87568c7ec590c18a85) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k70sly/vorakai_lda_becomes_authorized_reseller_of/) 
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1k7andu/vorakai_lda_to_provide_starlink_highspeed/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/254/24/mosshadE.webp)
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/254/25/bold4V0p.webp)

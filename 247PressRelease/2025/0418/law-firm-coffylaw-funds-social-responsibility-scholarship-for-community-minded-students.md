@@ -7,14 +7,14 @@ MAPLEWOOD, NJ, April 18, 2025 /24-7PressRelease/ -- The Newark, NJ intellectual 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521930/law-firm-coffylaw-funds-social-responsibility-scholarship-for-community-minded-students)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/coffylaw-launches-1000-social-responsibility-scholarship-for-law-students/fddc8c8a0d219d76529787ee93d0c729) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coffylaw-introduces-1000-scholarship-for-students-pursuing-careers-in-law-and-social-support-services/656c3b18dc3674cfaf174ef63c558790) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k1z04p/coffylaw_launches_1000_social_responsibility/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7ar44/coffylaw_introduces_1000_scholarship_for_students/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/18/pinkI2qQ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/pinkkm34.webp)

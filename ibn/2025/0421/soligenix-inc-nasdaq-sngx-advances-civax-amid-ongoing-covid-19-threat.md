@@ -33,14 +33,12 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/soligenix-inc-nasdaq-sngx-advances-civax-amid-ongoing-covid-19-threat/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/soligenix-advances-civax-vaccine-amid-rising-covid-19-deaths/017990d94d3372b8d104017beb0260b7) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/soligenix-advances-civax-vaccine-to-combat-rising-covid-19-deaths/591b26162181a70181569b7dd516d350) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k4mw8a/soligenix_advances_civax_vaccine_amid_rising/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/21/pondX01R.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/odoraQbU.webp)

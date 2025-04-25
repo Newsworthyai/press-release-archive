@@ -27,14 +27,12 @@ President Donald Trump recently launched a big plan to help the United States be
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/texas-republicans-could-delay-trumps-infrastructure-plans-for-ai/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/trump-launches-stargate-project-with-major-companies-to-boost-ai-industry/e3133c5ff3f1487b3e5e7f956ee2d66e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trump-launches-stargate-project-to-boost-us-ai-industry/12cd11a212a67f0fc381ed7c90cfdf19) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k60gk2/trump_launches_stargate_project_with_major/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/23/rendLp_k.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/filosda3.webp)

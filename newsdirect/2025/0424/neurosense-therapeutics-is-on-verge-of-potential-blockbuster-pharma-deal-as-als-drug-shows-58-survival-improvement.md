@@ -38,14 +38,14 @@ View source version on newsdirect.com: https://newsdirect.com/news/neurosense-th
 [Original/Source Press Release](https://newsdirect.com/news/neurosense-therapeutics-is-on-verge-of-potential-blockbuster-pharma-deal-as-als-drug-shows-58-survival-improvement-616263848)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/neurosense-therapeutics-nears-blockbuster-pharma-deal-for-als-treatment/74db78871f9725231a7b2a66592ed7c2) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/neurosense-therapeutics-nears-blockbuster-pharma-deal-as-als-drug-shows-58-survival-improvement/578b2ea00afe829abfb1c6a8c29c78ff) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k6u8bk/neurosense_therapeutics_nears_blockbuster_pharma/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7an9e/neurosense_therapeutics_nears_blockbuster_pharma/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/254/24/gleeBwsC.webp)
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/254/25/ulnaJn9v.webp)

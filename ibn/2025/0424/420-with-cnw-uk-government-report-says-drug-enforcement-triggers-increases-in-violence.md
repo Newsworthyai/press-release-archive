@@ -25,14 +25,12 @@ A government-commissioned report in the UK has found that efforts to crack down 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-uk-government-report-says-drug-enforcement-triggers-increases-in-violence/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/uk-government-report-suggests-drug-enforcement-increases-violence/061fb398e7b3b61f504aab2d98f9f312) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uk-government-report-links-drug-enforcement-to-increased-violence/c2e4fb9d4f297f2960b22d022165926a) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1k72utu/uk_government_report_suggests_drug_enforcement/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/loftRATi.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/tarowD8_.webp)

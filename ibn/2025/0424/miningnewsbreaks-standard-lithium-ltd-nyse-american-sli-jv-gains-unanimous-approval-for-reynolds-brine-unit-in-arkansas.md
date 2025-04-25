@@ -31,14 +31,12 @@ Standard Lithium (NYSE American: SLI), through its joint venture with Equinor, a
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-standard-lithium-ltd-nyse-american-sli-jv-gains-unanimous-approval-for-reynolds-brine-unit-in-arkansas/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/standard-lithium-receives-approval-for-south-west-arkansas-lithium-project/945069275f4931bde3c88925c32e7241) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/standard-lithium-s-joint-venture-receives-approval-for-south-west-arkansas-project-phase-i/57066cbda0a03aa9b377449e2244374a) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1k6uje6/standard_lithium_receives_approval_for_south_west/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/pinkfpUi.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/clubltK0.webp)

@@ -37,14 +37,14 @@ View source version on newsdirect.com: https://newsdirect.com/news/u-s-silicon-m
 [Original/Source Press Release](https://newsdirect.com/news/u-s-silicon-metal-producers-file-petitions-to-stop-unfairly-traded-imports-from-angola-australia-laos-norway-and-thailand-215687359)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-silicon-metal-producers-seek-action-against-unfairly-traded-imports/e84135e682689f97de8b4d4d59d64d51) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/u-s-silicon-metal-producers-seek-action-against-unfairly-traded-imports/47fc1d64474dfb936b8b6f26ceebf5f8) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k72q0r/us_silicon_metal_producers_seek_action_against/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7anfu/us_silicon_metal_producers_seek_action_against/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/254/24/roamiA7b.webp)
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/254/25/roam5oRo.webp)

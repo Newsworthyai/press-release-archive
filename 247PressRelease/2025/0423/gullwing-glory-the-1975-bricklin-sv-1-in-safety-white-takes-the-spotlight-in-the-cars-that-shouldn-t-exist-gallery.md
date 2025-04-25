@@ -7,14 +7,14 @@ FORT WORTH, TX, April 23, 2025 /24-7PressRelease/ -- Among the rarest automotive
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521474/gullwing-glory-the-1975-bricklin-sv-1-in-safety-white-takes-the-spotlight-in-the-cars-that-shouldnt-exist-gallery)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/rare-1975-bricklin-sv-1-showcased-in-ron-sturgeon-collection/da106a5298b801cdb8301c9bac0b08b3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rare-1975-bricklin-sv-1-showcased-in-ron-sturgeon-collection-at-dfw-car-toy-museum/3ae724780d28c61557dcc15d5a310b18) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k5t835/rare_1975_bricklin_sv1_showcased_in_ron_sturgeon/) 
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k7bb9y/rare_1975_bricklin_sv1_showcased_in_ron_sturgeon/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/23/pinkP0Ix.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/mendsY9a.webp)

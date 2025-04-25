@@ -37,14 +37,12 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/ford-otosan-deploys-vehicle-manufacturing-application-built-with-d-wave-quantum-inc-s-nyse-qbts-technology/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ford-otosan-deploys-quantum-application-to-optimize-production-sequencing-for-ford-transit-vehicles/31c5fa05a6b99b8ceadb903f6a03f107) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ford-otosan-deploys-hybrid-quantum-application-to-enhance-ford-transit-production/a8ddcc7a5b41b153bfa25150519c3ea1) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k5duqf/ford_otosan_deploys_quantum_application_to/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/xenoUDPm.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/bakeJHmp.webp)

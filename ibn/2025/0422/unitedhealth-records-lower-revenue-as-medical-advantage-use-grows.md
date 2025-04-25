@@ -29,14 +29,12 @@ UnitedHealth Group, the largest health insurance firm in the U.S., has reduced 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/unitedhealth-records-lower-revenue-as-medical-advantage-use-grows/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/unitedhealth-group-lowers-revenue-forecast-due-to-increased-medicare-advantage-use/eedb6131d7f004b3ca4859f9cf09142e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unitedhealth-group-cuts-revenue-forecast-as-medicare-advantage-use-surges/dbe48f08fd63e00bf06c74d6c6fff435) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k57g75/unitedhealth_group_lowers_revenue_forecast_due_to/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/navyT46P.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/takesVwn.webp)

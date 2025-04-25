@@ -27,14 +27,12 @@ Stem cells are the “master cells” within the body because they can grow into
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/how-stem-cells-help-in-blood-cancer-treatment/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/stem-cell-therapy-revolutionizing-blood-cancer-treatment/dd3a9ba2472cd3d82f22538d8d8e3520) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/stem-cell-therapy-revolutionizing-blood-cancer-treatment/d052809f31955478d388e9a5e55498c5) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1k6tiqd/stem_cell_therapy_revolutionizing_blood_cancer/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/smogjWeT.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/zealPq_P.webp)

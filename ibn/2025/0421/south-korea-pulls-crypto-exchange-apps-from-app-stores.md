@@ -27,14 +27,14 @@ South Korea is taking strong action against cryptocurrency platforms that fail t
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/bdc/south-korea-pulls-crypto-exchange-apps-from-app-stores/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/south-korea-takes-action-against-illegal-crypto-apps/319039ea3aad86f6ebc9bd50ede39561) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/south-korea-cracks-down-on-illegal-crypto-apps-industry-leaders-on-alert/87c111155340bbb62b09b9774855283b) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1k4g8v3/south_korea_takes_action_against_illegal_crypto/) 
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1k7bmvw/south_korea_cracks_down_on_illegal_crypto_apps/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/21/lamb6MEn.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/poem9FSY.webp)

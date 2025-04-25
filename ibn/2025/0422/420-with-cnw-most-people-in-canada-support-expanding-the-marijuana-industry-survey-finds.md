@@ -25,14 +25,12 @@ Most Canadians believe the government should do more to support the legal marij
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-most-people-in-canada-support-expanding-the-marijuana-industry-survey-finds/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/majority-of-canadians-support-expansion-of-legal-marijuana-industry-poll-finds/42091f5052ca9b1c8ec37823a4b4de53) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/majority-of-canadians-support-expansion-of-legal-marijuana-industry/ebcb35ff7b44454c3d059f3794e124d9) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1k5h4xs/majority_of_canadians_support_expansion_of_legal/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/jadexWTm.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/hike6OWi.webp)

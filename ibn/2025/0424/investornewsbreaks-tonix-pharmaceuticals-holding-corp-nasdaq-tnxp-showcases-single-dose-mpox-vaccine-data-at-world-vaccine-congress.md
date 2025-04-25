@@ -27,14 +27,12 @@ Tonix Pharmaceuticals (NASDAQ: TNXP), a fully-integrated biopharmaceutical compa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-tonix-pharmaceuticals-holding-corp-nasdaq-tnxp-showcases-single-dose-mpox-vaccine-data-at-world-vaccine-congress/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/tonix-pharmaceuticals-highlights-positive-data-on-tnx-801-vaccine-at-world-vaccine-congress/295fddc779189fda74bc940bf3340ada) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tonix-pharmaceuticals-showcases-positive-data-on-tnx-801-vaccine-candidate-at-world-vaccine-congress/fbed56c43a38215aceaa415a84e889ae) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k6tefg/tonix_pharmaceuticals_highlights_positive_data_on/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/calm_l3D.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/dualotvq.webp)

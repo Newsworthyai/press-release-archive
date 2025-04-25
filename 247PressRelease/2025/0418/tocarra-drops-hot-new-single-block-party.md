@@ -7,14 +7,14 @@ CHICAGO, IL, April 18, 2025 /24-7PressRelease/ -- Rising star Tocarra is set to 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521945/tocarra-drops-hot-new-single-block-party)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/tocarra-set-to-ignite-the-summer-with-new-single-block-party-featuring-mr-bravalis-and-benone/d7f6ff55d6c3f069c3279dbf341489f1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tocarra-s-block-party-set-to-be-the-ultimate-summer-anthem/58e74ec7b751ebe827726a90be60f811) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k1z0a3/tocarra_set_to_ignite_the_summer_with_new_single/) 
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k7arbz/tocarras_block_party_set_to_be_the_ultimate/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/18/riceKvf0.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/waitd9M8.webp)

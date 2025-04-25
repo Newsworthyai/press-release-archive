@@ -25,14 +25,12 @@ Researchers at Ohio State University Medical Center have identified a key enzym
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tg/study-identifies-key-enzyme-that-could-be-targeted-to-fight-brain-cancers/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/breakthrough-discovery-key-enzyme-identified-to-combat-deadly-brain-cancers/ddff5836e3eab98d53009c199fc7a9f9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/key-enzyme-identified-for-fighting-deadly-brain-cancers/48f1917936340e9c981f31744bcbc140) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1k60gnf/breakthrough_discovery_key_enzyme_identified_to/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/23/hikek_R7.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/chef9iI3.webp)

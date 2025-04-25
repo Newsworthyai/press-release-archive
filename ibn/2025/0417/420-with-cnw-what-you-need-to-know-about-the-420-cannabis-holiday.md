@@ -25,14 +25,14 @@ This year, an unusual overlap is happening: Easter Sunday and the unofficial ca
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-what-you-need-to-know-about-the-420-cannabis-holiday/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/easter-sunday-and-420-celebration-coincide-cronos-group-inc-reflects-on-the-unique-day/bb77f9d5fe270861b59b095c1fdc341e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/easter-sunday-and-420-celebration-coincide-on-april-20-cronos-group-inc-reflects-on-unique-overlap/ce9ffdc9503a1a4d1128c914ee1c85f4) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1k1n66s/easter_sunday_and_420_celebration_coincide_cronos/) 
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1k7bmrr/easter_sunday_and_420_celebration_coincide_on/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/17/cakeETrb.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/jokeqiYL.webp)

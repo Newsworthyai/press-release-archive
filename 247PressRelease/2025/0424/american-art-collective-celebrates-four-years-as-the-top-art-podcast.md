@@ -7,14 +7,14 @@ SCOTTSDALE, AZ, April 24, 2025 /24-7PressRelease/ -- The American Art Collective
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522103/american-art-collective-celebrates-four-years-as-the-top-art-podcast)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/american-art-collective-marks-325th-episode-milestone-with-diverse-guest-lineup/82de705288ccf7805989208a3f30a353) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/american-art-collective-marks-325th-episode-milestone-with-host-michael-clawson/2e960047b3f8ed991c4253c7645a9c4f) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k6ma9q/american_art_collective_marks_325th_episode/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7bfiq/american_art_collective_marks_325th_episode/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/24/gulfYtVF.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/ulna383b.webp)

@@ -7,14 +7,14 @@ SHIRLEY, NY, April 22, 2025 /24-7PressRelease/ -- "The past two years have witne
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522021/creative-biolabs-rides-the-wave-of-therapies-for-a-booming-antibody-industry)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/innovative-cancer-treatment-solutions-by-creative-biolabs/d44f808a19f44f96ded8d82b9ce443a1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/creative-biolabs-revolutionizes-cancer-treatment-with-innovative-reagents-and-kits/fb96dc654c20f166df54a27da2eae12e) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/eventNews/comments/1k50cqh/innovative_cancer_treatment_solutions_by_creative/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7azdo/creative_biolabs_revolutionizes_cancer_treatment/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/22/goldCzKK.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/lilylgYg.webp)

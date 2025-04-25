@@ -7,14 +7,14 @@ KNOXVILLE, TN, April 23, 2025 /24-7PressRelease/ -- A groundbreaking study publi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press_release/522060/breakthrough-in-anti-aging-solutions-supramolecular-bakuchiol-in-ionic-liquid-enhances-efficacy-and-minimizing-irritation)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-anti-aging-breakthrough-with-supramolecular-bakuchiol-solution/3ad41ba4c8d633032d4bd232ccd7dc4c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/groundbreaking-study-introduces-novel-supramolecular-bakuchiol-solution-for-anti-aging/24cd0dfe6a7b4c96bcb7822e6a8c8a1f) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1k5t55r/revolutionary_antiaging_breakthrough_with/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7b3fx/groundbreaking_study_introduces_novel/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/23/noteDkcK.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/tallD7az.webp)

@@ -7,14 +7,14 @@ COVENTRY, RI, April 21, 2025 /24-7PressRelease/ -- Indian composer CR Srikanth u
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522018/cr-srikanth-expands-his-signature-genre-vs-pop-with-a-cinematic-and-cross-cultural-sound)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/composer-cr-srikanth-launches-vs-poptm-genre/e434b627d7edfa6fc7364c52c7c99db4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cr-srikanth-unveils-vs-poptm-a-fusion-of-western-classical-and-indian-music/1941c36b5e3b806e6915e042f07e4b93) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k47h6v/composer_cr_srikanth_launches_vs_pop_genre/) 
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k7b306/cr_srikanth_unveils_vs_pop_a_fusion_of_western/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/21/roamtaKc.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/barnC3Ru.webp)

@@ -7,14 +7,14 @@ BEVERLY HILLS, CA, April 23, 2025 /24-7PressRelease/ -- Aging is not just a numb
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522101/fit-after-50-pramila-j-rayavarapus-guide-to-strength-confidence-and-ageless-beauty)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/empowering-women-over-50-pramila-j-rayavarapu-launches-fit-after-50/2f4fda2c34ae8a47b77f7371d02e7948) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/empowering-women-over-50-author-pramila-j-rayavarapu-s-new-book-fit-after-50-guides-readers-towards-healthier-happier-lives/2e6896451e4b8735154daf3dbcb613f2) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/BookNews/comments/1k5t52f/empowering_women_over_50_pramila_j_rayavarapu/) 
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1k7anld/empowering_women_over_50_author_pramila_j/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/23/bossxNp2.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/gain9UD0.webp)

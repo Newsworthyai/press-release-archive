@@ -29,14 +29,12 @@ Saudi Arabia is making major moves in using telemedicine and AI to enhance its
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/saudi-arabia-taps-ai-to-transform-healthcare-delivery/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/saudi-arabia-embraces-ai-and-telemedicine-to-enhance-healthcare-system/f650cf2441b446676076a038dae9e7ac) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/saudi-arabia-embraces-ai-and-telemedicine-for-healthcare-transformation/635ec590b013bd95db5d6d2fb7ca5c90) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k6titk/saudi_arabia_embraces_ai_and_telemedicine_to/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/noteMZRq.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/roamnAO5.webp)

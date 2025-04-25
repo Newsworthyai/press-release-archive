@@ -25,14 +25,12 @@ Bitcoin’s price currently sits around $83,794, slipping by 2.47% in the last 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ccw/could-bitcoin-be-gearing-up-for-a-rebound-or-a-crypto-winter/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-price-dips-amidst-speculation-of-crypto-winter-hive-blockchain-technologies-watches-closely/6c9ae35d4dfe316892f3120af29a13b4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bitcoin-price-dips-raise-concerns-of-crypto-winter/6ab6cb8d79162d55ebd7560f68854d35) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1k6s4e5/bitcoin_price_dips_amidst_speculation_of_crypto/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/mintmSSD.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/jokey2T3.webp)

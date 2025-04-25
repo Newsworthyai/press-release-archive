@@ -27,14 +27,12 @@ Energy Fuels (NYSE American: UUUU) (TSX: EFR), a U.S.-based leader in uranium, r
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-energy-fuels-inc-nyse-american-uuuu-tsx-efr-schedules-q1-2025-earnings-call-for-may-8/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/energy-fuels-to-host-conference-call-to-review-q1-2025-financial-results/fca35842817f4339f1c3cb6528c9c73c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/energy-fuels-to-host-conference-call-to-review-first-quarter-2025-financial-results/6b99cfd39c9a20d9895f9404c0336109) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/technology_press/comments/1k6sy74/energy_fuels_to_host_conference_call_to_review_q1/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/envyCZiK.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/even_Zuv.webp)

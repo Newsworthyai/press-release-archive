@@ -25,14 +25,14 @@ LinkedIn has taken a big step to help businesses reach more people by expanding
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/linkedin-expands-its-video-advert-option-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/linkedin-expands-video-advertising-with-wire-program-thumzup-media-corp-emerges-as-key-player/edada69477cbaa6fb162e97edcf5c7d1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/linkedin-expands-video-advertising-with-the-wire-program/ec0ec5a26aadcd4198af776aedc85dfc) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1k4g3oi/linkedin_expands_video_advertising_with_wire/) 
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1k7bmzz/linkedin_expands_video_advertising_with_the_wire/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/21/roamhril.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/icy3G23.webp)

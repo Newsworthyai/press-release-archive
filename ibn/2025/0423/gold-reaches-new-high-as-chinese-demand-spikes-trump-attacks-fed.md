@@ -31,14 +31,12 @@ On Monday, gold continued its upward climb beyond the $3,300 mark to reach fres
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/gold-reaches-new-high-as-chinese-demand-spikes-trump-attacks-fed/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-prices-soar-beyond-3400-as-chinese-demand-peaks/a71df601de8e5f632316d1607ab6f53d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-prices-reach-new-highs-above-3400-as-chinese-demand-surges/eadfd0b2ef073aeb5a8407aae8a54e1f) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1k657o4/gold_prices_soar_beyond_3400_as_chinese_demand/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/23/yarnCVNs.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/kiwiBjVu.webp)

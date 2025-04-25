@@ -25,14 +25,12 @@ A group of cannabis beverage companies is launching a large-scale research pro
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-makers-of-thc-infused-drinks-seek-adults-to-participate-in-observational-study/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/cannabis-beverage-companies-conducting-research-on-thc-infused-drinks-effects-on-alcohol-use-and-mood/82945f917190b110e4a9c60911a16336) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cannabis-beverage-companies-conducting-research-on-thc-infused-drinks/d263bdbd18f93532d6fbfe1d19110939) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1k4o2vq/cannabis_beverage_companies_conducting_research/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/21/diveDWuM.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/jokePgsh.webp)

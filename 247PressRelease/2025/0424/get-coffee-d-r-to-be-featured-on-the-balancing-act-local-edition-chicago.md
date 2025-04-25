@@ -7,14 +7,14 @@ VELVA, ND, April 24, 2025 /24-7PressRelease/ -- Last weekend, The Balancing Act 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522145/get-coffeed-to-be-featured-on-the-balancing-act-local-edition-chicago)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/get-coffee-d-r-the-rise-of-cold-brew-infused-hard-chews/170569acc421e2b105a7599d8581ccf3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/get-coffee-d-r-the-rise-of-cold-brew-infused-hard-chews/f75ddabb92f93e3131017059863a325e) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k6m7bq/get_coffeed_the_rise_of_cold_brewinfused_hard/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7bbhk/get_coffeed_the_rise_of_cold_brewinfused_hard/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/24/coolH4FN.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/smog7sPK.webp)

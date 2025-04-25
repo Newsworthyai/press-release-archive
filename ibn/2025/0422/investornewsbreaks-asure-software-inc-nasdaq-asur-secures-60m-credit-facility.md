@@ -25,14 +25,12 @@ Asure Software (NASDAQ: ASUR), a provider of integrated software solutions, has 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-asure-software-inc-nasdaq-asur-secures-60m-credit-facility/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/asure-software-secures-60m-credit-facility-with-midcap-financial/7cb40bb42c52acafd52c4cd88635ca73) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/asure-software-secures-60m-credit-facility-in-financial-agreement-with-midcap-financial/b437b19f4164d54fa68756f412b34a82) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k5fdjy/asure_software_secures_60m_credit_facility_with/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/frogbFMk.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/mildm0iO.webp)

@@ -25,14 +25,14 @@ Two measures designed to speed up Delaware’s launch of its recreational cann
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-delaware-lawmakers-consider-bills-to-address-gaps-in-marijuana-law/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/delaware-lawmakers-push-bills-to-expedite-recreational-cannabis-market-launch/5fcbe56ef53f26a3495da420dfc35242) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/delaware-lawmakers-push-bills-to-address-cannabis-industry-missteps/76668f2d78fe71370d72fdce86616faa) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1k2f3nr/delaware_lawmakers_push_bills_to_expedite/) 
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1k7bqfq/delaware_lawmakers_push_bills_to_address_cannabis/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/18/linea3fB.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/envyKYYI.webp)

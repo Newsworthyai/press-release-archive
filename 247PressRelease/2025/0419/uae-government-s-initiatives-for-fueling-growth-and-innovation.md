@@ -7,14 +7,14 @@ DUBAI, UAE, April 19, 2025 /24-7PressRelease/ -- The UAE government is taking bo
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522007/uae-governments-initiatives-for-fueling-growth-and-innovation)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/uae-government-unveils-sustainable-growth-initiatives-at-world-government-summit-2025/3dfeae361bc9eae95177f0453c778401) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uae-government-unveils-sustainable-growth-initiatives-at-world-government-summit-2025/0a7488f8228038f3df9a668d81a6ad87) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k2qo8a/uae_government_unveils_sustainable_growth/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7avbx/uae_government_unveils_sustainable_growth/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/19/tallrIR4.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/smogG8Vq.webp)

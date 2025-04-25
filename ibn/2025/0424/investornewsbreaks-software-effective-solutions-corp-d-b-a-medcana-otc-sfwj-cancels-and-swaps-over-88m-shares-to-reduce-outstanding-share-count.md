@@ -27,14 +27,12 @@ Software Effective Solutions (d/b/a MedCana) (OTC: SFWJ) doing business as MedCa
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-software-effective-solutions-corp-d-b-a-medcana-otc-sfwj-cancels-and-swaps-over-88m-shares-to-reduce-outstanding-share-count/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/medcana-announces-significant-share-reduction-and-restructuring-efforts/e854ea22373ca29fa5254e4fdfd78f8c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/medcana-announces-significant-share-reduction-and-restructuring/3d005e71e41a1f33507dad0b126f2bff) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1k6xj4r/medcana_announces_significant_share_reduction_and/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/fondfXpz.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/nina7hi6.webp)

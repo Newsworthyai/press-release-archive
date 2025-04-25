@@ -33,14 +33,12 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/zacks-initiates-coverage-on-solarbank-corp-nasdaq-suun-cboe-ca-sunn-fse-gy2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/solarbank-expands-into-independent-power-production-and-battery-storage-systems-to-meet-rising-demand/82ca38a08a05c1c807633b95c60a68d5) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/zacks-report-highlights-solarbank-s-expansion-into-power-production-and-storage-systems/08228e061041c5092d6c3ad806bee7c8) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k6xnzg/solarbank_expands_into_independent_power/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/ablePeMo.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/pintzVCw.webp)

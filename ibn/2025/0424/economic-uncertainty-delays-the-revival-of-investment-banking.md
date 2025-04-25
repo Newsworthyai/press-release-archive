@@ -27,14 +27,12 @@ Investment banking was expected to make a strong comeback in early 2025. But ins
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/bdc/economic-uncertainty-delays-the-revival-of-investment-banking/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/investment-banking-revival-delayed-due-to-economic-uncertainty-and-global-market-volatility/304c28946bfc87390b1501e572a3329d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/economic-uncertainty-delays-investment-banking-revival-in-early-2025/f0a753a1719c62b155caeb9e63d85092) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k6s4gt/investment_banking_revival_delayed_due_to/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/ellef2aF.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/kiwi4vfG.webp)

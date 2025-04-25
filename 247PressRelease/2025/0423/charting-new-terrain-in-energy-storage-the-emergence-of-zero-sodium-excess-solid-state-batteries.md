@@ -7,14 +7,14 @@ KNOXVILLE, TN, April 23, 2025 /24-7PressRelease/ -- A cutting-edge breakthrough 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522059/charting-new-terrain-in-energy-storage-the-emergence-of-zero-sodium-excess-solid-state-batteries)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-interphase-design-enhances-energy-density-in-solid-state-batteries/e984ad6b54fffd1051e2dfd9b3ae017b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/revolutionary-interphase-design-propels-zero-sodium-excess-batteries-to-new-heights/6e41fdcb8882fff68e81e35b749668e1) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1k5t57k/revolutionary_interphase_design_enhances_energy/) 
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1k7b72t/revolutionary_interphase_design_propels/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/23/beanuuCA.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/rubygUZC.webp)

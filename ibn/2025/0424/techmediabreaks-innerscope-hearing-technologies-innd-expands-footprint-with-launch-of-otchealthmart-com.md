@@ -31,14 +31,12 @@ InnerScope (OTC: INND) today announced the official grand opening of OTCHealth
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-innerscope-hearing-technologies-innd-expands-footprint-with-launch-of-otchealthmart-com/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/innerscope-launches-otchealthmart-com-making-healthcare-products-accessible-to-everyone/fa88bf8b9758bcc0f57e9fea2140e1c1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/innerscope-launches-otchealthmart-com-for-affordable-healthcare-solutions/a54da54eceabb887d1ff9e1720865383) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k6zr36/innerscope_launches_otchealthmartcom_making/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/larkiCFl.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/bakedebl.webp)

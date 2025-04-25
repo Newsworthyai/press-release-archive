@@ -25,14 +25,14 @@ Since Donald Trump returned to the White House, his administration has taken a f
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ccw/critics-say-trump-family-is-deepening-its-crypto-interests-while-promoting-deregulation/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/trump-family-s-crypto-interests-spark-industry-speculation/0d17a813edaea0d79d10b96efa5a5500) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/trump-family-s-crypto-interests-and-ccw-s-communications-services-make-waves-in-industry/9fb3cdd81724597eed6ea4dc5b783768) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1k4g3ij/trump_familys_crypto_interests_spark_industry/) 
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1k7bjbw/trump_familys_crypto_interests_and_ccws/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/21/jazz6y3D.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/dive13sC.webp)

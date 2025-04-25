@@ -7,14 +7,14 @@ LOS ANGELES, CA, April 22, 2025 /24-7PressRelease/ -- SuperCrowdLA, a major nati
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522053/supercrowdla-grants-free-tickets-to-fire-affected-entrepreneurs-at-first-ever-california-conference)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/supercrowdla-offers-free-tickets-to-fire-impacted-small-business-owners-in-california-debut/f3718ab98496b6930c7385a7eed3841c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/supercrowdla-offers-free-tickets-to-fire-impacted-small-business-owners-for-california-debut/fda7306135e30c63e1f3046c868ca290) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1k50d1h/supercrowdla_offers_free_tickets_to_fireimpacted/) 
+[Reddit Post](https://www.reddit.com/r/StartupBusinessNews/comments/1k7azmf/supercrowdla_offers_free_tickets_to_fireimpacted/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/22/moonjS4m.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/lunaEjsp.webp)

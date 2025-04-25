@@ -27,14 +27,12 @@ Wheaton Precious Metals (NYSE: WPM) (TSX: WPM) will announce its first quarter 2
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-wheaton-precious-metals-corp-nyse-wpm-tsx-wpm-to-release-q1-2025-results-may-8/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/wheaton-precious-metals-to-release-q1-2025-financial-results-and-host-conference-call/6f132a0a31c03532e3366d2abcc1109b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/wheaton-precious-metals-to-announce-first-quarter-financial-results-for-2025/3ee0a1d323b3283a9591e261ec1c20ac) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/eventNews/comments/1k5zrds/wheaton_precious_metals_to_release_q1_2025/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/23/jadeOAPJ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/lambfF9i.webp)

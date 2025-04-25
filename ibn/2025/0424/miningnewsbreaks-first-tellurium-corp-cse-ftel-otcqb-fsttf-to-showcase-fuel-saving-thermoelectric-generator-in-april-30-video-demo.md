@@ -31,14 +31,12 @@ First Tellurium (CSE: FTEL) (OTCQB: FSTTF) announced that its majority-owned s
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-first-tellurium-corp-cse-ftel-otcqb-fsttf-to-showcase-fuel-saving-thermoelectric-generator-in-april-30-video-demo/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/first-tellurium-corp-to-debut-thermoelectric-generator-radiator-saving-fuel-and-costs/304c27c809a39983ea2a947ad6e2cd90) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/first-tellurium-s-pyrodelta-energy-set-to-unveil-thermoelectric-generator-radiator/46de2b8a0f39cfe527ff9e8ec89d2171) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/technology_press/comments/1k6tecb/first_tellurium_corp_to_debut_thermoelectric/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/hintIRuQ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/paleYHTm.webp)

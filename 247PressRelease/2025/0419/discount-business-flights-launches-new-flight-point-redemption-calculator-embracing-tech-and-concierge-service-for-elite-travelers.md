@@ -7,14 +7,14 @@ LOS ANGELES, CA, April 19, 2025 /24-7PressRelease/  Why It Matters Busy professi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522009/discount-business-flights-launches-new-flight-point-redemption-calculator-embracing-tech-and-concierge-service-for-elite-travelers)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/new-point-redemption-calculator-launched-by-discount-business-flights/3e0e621a5e0f5e7601209072f9056d38) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-point-redemption-calculator-launched-by-discount-business-flights-to-optimize-credit-card-points-for-international-business-class-travel/09ca48a73aca3c15630a31f8bb787fa1) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k2qobe/new_point_redemption_calculator_launched_by/) 
+[Reddit Post](https://www.reddit.com/r/TravelAndLeisureNews/comments/1k7avl8/new_point_redemption_calculator_launched_by/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/19/epiccCdq.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/idea37mi.webp)

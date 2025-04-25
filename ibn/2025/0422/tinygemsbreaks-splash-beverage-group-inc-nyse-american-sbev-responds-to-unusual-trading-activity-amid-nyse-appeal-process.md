@@ -27,14 +27,12 @@ Splash Beverage Group (NYSE American: SBEV), a portfolio company of leading beve
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tg/tinygemsbreaks-splash-beverage-group-inc-nyse-american-sbev-responds-to-unusual-trading-activity-amid-nyse-appeal-process/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/splash-beverage-group-faces-high-trading-activity-amid-nyse-appeal-process/89786c4775b8fdbddf324c991358c851) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/splash-beverage-group-faces-high-trading-activity-amid-nyse-listing-appeal/7801a99599126dd1e65882f326bd1197) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k5g8yb/splash_beverage_group_faces_high_trading_activity/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/ninaoUjc.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/waitIEQl.webp)

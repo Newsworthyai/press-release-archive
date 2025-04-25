@@ -7,14 +7,14 @@ SACRAMENTO, CA, April 24, 2025 /24-7PressRelease/ -- Effective January 1, 2025, 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522138/auburn-davis-center-for-dbt-expands-services-and-leadership-under-new-ownership)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/tom-harrer-assumes-ceo-role-at-auburn-davis-center-for-dbt-pledges-to-expand-access-to-dialectical-behavior-therapy-services/a0e0b9d93ff0dcc3622905130b49250e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/tom-harrer-takes-helm-at-auburn-davis-center-for-dbt-elevates-dbt-services-in-california/f61edc2e6b5251e406eb38bc75d064d2) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1k6m7im/tom_harrer_assumes_ceo_role_at_auburndavis_center/) 
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1k7bf86/tom_harrer_takes_helm_at_auburndavis_center_for/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/24/rainjzvz.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/tileBorI.webp)

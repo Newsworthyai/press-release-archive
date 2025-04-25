@@ -7,14 +7,14 @@ SHIRLEY, NY, April 18, 2025 /24-7PressRelease/ -- iPSCs, isolated from adult som
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521921/creative-biolabs-launches-new-ipsc-based-solutions-to-advance-stem-cell-therapy-research)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/creative-biolabs-unveils-full-range-of-ipsc-services-for-disease-research-and-regenerative-medicine/9d199fb0b064b6128d51b42ecf6f15ed) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/creative-biolabs-introduces-comprehensive-ipsc-services-for-stem-cell-therapy-development/f913769ecc065ae958211fc54d2bd0f1) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1k1z06j/creative_biolabs_unveils_full_range_of_ipsc/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7arfv/creative_biolabs_introduces_comprehensive_ipsc/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/18/coolwpYe.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/lossN_Qh.webp)

@@ -7,14 +7,14 @@ CHICAGO, IL, April 22, 2025 /24-7PressRelease/ -- The United Negro College Fund 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522105/uncf-celebrates-81st-anniversary-with-second-annual-uncfomni-channel-radio-12-hour-live-stream-radiothon-on-friday-april-25th)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/uncf-hosts-radiothon-to-raise-25000-in-one-day/5b9a89f21a64c7cba21272a53dfa66d4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/uncf-omni-channel-radio-radiothon-to-raise-25000-with-star-studded-event/9a93ada18838ffc8ffdda218973bdfb8) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k5nywl/uncf_hosts_radiothon_to_raise_25000_in_one_day/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7azb9/uncfomnichannel_radio_radiothon_to_raise_25000/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/23/rubyn2ax.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/yogaaeOC.webp)

@@ -27,14 +27,12 @@ Berkshire Hathaway (NYSE: BRK.A) (NYSE: BRK.B) continues to hold VeriSign Inc. (
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-berkshire-hathaway-inc-nyse-brk-a-nyse-brk-b-reaffirms-confidence-in-verisign-nasdaq-vrsn-despite-market-skepticism/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/berkshire-hathaway-holds-firm-on-verisign-inc-investment-amidst-analyst-concerns/0df868b70149e54138ce287ec55310a0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/berkshire-hathaway-holds-firm-on-verisign-position-in-internet-infrastructure/bb6bd46b8b8490fed8511e81d97d5827) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/technology_press/comments/1k5fdh6/berkshire_hathaway_holds_firm_on_verisign_inc/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/keepRB39.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/pavegGYy.webp)

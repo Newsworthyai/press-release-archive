@@ -25,14 +25,12 @@ American tech giant Google has signed the first-ever geothermal energy agreemen
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/google-signs-geothermal-energy-agreement-the-first-ever-in-asia/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/google-signs-first-ever-geothermal-energy-deal-in-asia/95c846f2bfd04ac1404716f42bb27de6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/google-signs-first-ever-geothermal-energy-deal-in-asia-with-baseload-capital/e8657a2e8f60b72816e9e74080c1bfae) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k5ae6z/google_signs_firstever_geothermal_energy_deal_in/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/noontHAJ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/archp7St.webp)

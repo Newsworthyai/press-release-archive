@@ -31,14 +31,12 @@ Thumzup (NASDAQ: TZUP) is shaking up the multibillion-dollar marketing industry
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-thumzup-media-corp-nasdaq-tzup-unveils-gibberadstm-ai-powered-platform-redefines-personalized-marketing/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/thumzup-launches-ai-agent-marketplace-to-transform-marketing-industry/85d895e689c45d869d250f0003d2e961) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/thumzup-unveils-lifestyle-ai-agent-marketplace-to-revolutionize-marketing-industry/4843f80576ecd0193b47ef6a5f06bc20) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1k70sse/thumzup_launches_ai_agent_marketplace_to/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/neonIPU3.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/hintt4Ug.webp)

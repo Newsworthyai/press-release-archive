@@ -27,14 +27,14 @@ Aditxt (NASDAQ: ADTX) announced that Dr. Charles Howe of the Mayo Clinic will jo
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-aditxt-inc-nasdaq-adtx-to-host-mayo-clinics-dr-charles-howe-in-may-2-update-on-adi-100-preclinical-study/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/mayo-clinic-s-dr-howe-to-discuss-aditxt-s-adi-100-study/b71f77faa44b21043bde057170903969) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mayo-clinic-expert-to-discuss-aditxt-s-breakthrough-study-in-weekly-update/0da44f410341824bf9b765cc17021714) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k1fi7y/mayo_clinics_dr_howe_to_discuss_aditxts_adi100/) 
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1k7biyd/mayo_clinic_expert_to_discuss_aditxts/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/17/evenk6js.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/neonSTz5.webp)

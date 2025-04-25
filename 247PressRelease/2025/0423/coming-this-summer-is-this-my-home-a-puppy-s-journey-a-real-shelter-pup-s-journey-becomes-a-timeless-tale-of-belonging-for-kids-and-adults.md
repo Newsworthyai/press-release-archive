@@ -7,14 +7,14 @@ BOSTON, MA, April 23, 2025 /24-7PressRelease/ -- A Real Dog. A Real Journey. A S
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521914/coming-this-summer-is-this-my-home-a-puppys-journey-a-real-shelter-pups-journey-becomes-a-timeless-tale-of-belonging-for-kids-and-adults)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/heartwarming-tale-of-a-puppy-s-search-for-home-captivates-readers-of-all-ages/492f6fccce6bcf29bf0c2fce239176cf) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heartwarming-tale-of-a-puppy-s-journey-in-is-this-my-home-by-blade-kotelly/27eb2d72a9719f56610476bac4fa995c) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/BookNews/comments/1k5tauq/heartwarming_tale_of_a_puppys_search_for_home/) 
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1k7bbcf/heartwarming_tale_of_a_puppys_journey_in_is_this/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/23/icy2NpD.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/rainxxI3.webp)

@@ -31,14 +31,14 @@ Aston Bay (TSX.V: BAY) (OTCQB: ATBHF) announced the filing of its NI 43-101 tec
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-aston-bay-holdings-ltd-tsx-v-bay-otcqb-atbhf-files-initial-resource-report-for-storm-copper-project/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/aston-bay-holdings-ltd-announces-ni-43-101-technical-report-for-storm-copper-project/fcc55b3facb805d5c0501dc2af5ba73d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aston-bay-files-ni-43-101-report-for-storm-copper-project-preliminary-economic-assessment-planned-for-q3-2025/877b74f40bf4f6ca00eff1d13fd8dc7d) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k4fi2y/aston_bay_holdings_ltd_announces_ni_43101/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7bn26/aston_bay_files_ni_43101_report_for_storm_copper/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/21/ideaDn5x.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/rendkpYO.webp)

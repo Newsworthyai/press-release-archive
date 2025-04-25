@@ -27,14 +27,12 @@ Aston Bay (TSX.V: BAY) (OTCQB: ATBHF) provided an update on the 2025 exploration
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-aston-bay-holdings-ltd-tsx-v-bay-otcqb-atbhf-updates-2025-exploration-plans-for-storm-copper-project/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/aston-bay-tsx-v-bay-otcqb-atbhf-announces-2025-exploration-program-update-at-storm-copper-project/31ca903d3602ee2a9159ab25209baa26) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/aston-bay-provides-update-on-2025-exploration-program-at-storm-copper-project-in-nunavut/afb2cd673df5fc2d36cf211ce99a5b9d) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k5zran/aston_bay_tsxv_bay_otcqb_atbhf_announces_2025/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/23/taroFsjo.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/frogQvqJ.webp)

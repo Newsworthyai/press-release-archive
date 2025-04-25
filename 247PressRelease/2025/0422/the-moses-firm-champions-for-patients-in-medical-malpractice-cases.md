@@ -7,14 +7,14 @@ ATLANTA, GA, April 22, 2025 /24-7PressRelease/ -- The Moses Firm, an Atlanta-bas
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522086/the-moses-firm-champions-for-patients-in-medical-malpractice-cases)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/the-moses-firm-advocates-for-victims-of-medical-malpractice/c0c647b4b00349281262f57856bd4607) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-moses-firm-stands-as-a-beacon-of-hope-for-medical-malpractice-victims/05c40c267b66aa2d110e15f407f4f9aa) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1k5chh5/the_moses_firm_advocates_for_victims_of_medical/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7b393/the_moses_firm_stands_as_a_beacon_of_hope_for/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/22/joke0jOi.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/epic0g0i.webp)

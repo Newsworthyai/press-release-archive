@@ -27,14 +27,14 @@ Cybin (NYSE American: CYBN) (NEO: CYBN), a clinical-stage neuropsychiatry compan
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-cybin-inc-nyse-american-cybn-neo-cybn-forms-strategic-partnership-with-osmind-to-prepare-for-mental-health-drug-commercialization/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/cybin-partners-with-osmind-to-enhance-mental-health-treatment-infrastructure/36749b01af0b2473a91ca98a93de5664) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/cybin-partners-with-osmind-to-enhance-mental-health-solutions/64abb5ba224f3ea412c40494a4b6d454) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1k4dft7/cybin_partners_with_osmind_to_enhance_mental/) 
+[Reddit Post](https://www.reddit.com/r/PsychedelicsNews/comments/1k7bje3/cybin_partners_with_osmind_to_enhance_mental/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/21/taroMQxx.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/rubyshHN.webp)

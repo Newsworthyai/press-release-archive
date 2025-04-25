@@ -27,14 +27,12 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/brera-holdings-plc-nasdaq-brea-satisfies-the-figcs-standards-in-s-s-juve-stabia-s-r-l-acquisition-review-by-italian-football-authority/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/brera-holdings-receives-approval-for-acquisition-of-majority-stake-in-s-s-juve-stabia-s-r-l/46274169c66c4610ac089170233ef9fe) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brera-holdings-receives-figc-approval-for-acquisition-of-s-s-juve-stabia-s-r-l/4e50891ce8bbe8f7a81191076e3c3db4) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k670z2/brera_holdings_receives_approval_for_acquisition/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/23/quayysvq.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/lean4tC1.webp)

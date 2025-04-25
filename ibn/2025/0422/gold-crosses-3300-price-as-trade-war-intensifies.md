@@ -29,14 +29,12 @@ Last week, the price of gold hit a new high, with bullion per ounce exceeding th
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/gold-crosses-3300-price-as-trade-war-intensifies/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-price-hits-record-high-as-demand-surges/e6e44b1d48abbcc9bbeb3ad8a434b55b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-prices-reach-record-high-as-demand-surges-amid-economic-uncertainty/20ca594abdddc3a2aa2fbfe8284ba712) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k57gcc/gold_price_hits_record_high_as_demand_surges/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/pend9YL9.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/riftw92y.webp)

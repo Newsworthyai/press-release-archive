@@ -7,14 +7,14 @@ ATLANTA, GA, April 23, 2025 /24-7PressRelease/ -- Reality TV personality, entrep
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522127/restaurateur-reality-star-peter-thomas-debuts-candid-new-podcast-1-society-with-powerful-two-part-premiere-featuring-renowned-psychologist-dr-alduan-tartt)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/peter-thomas-launches-1-society-podcast-live-for-honest-conversations-on-life-and-love/a1388a3a8bf6bbde9bd0e29c9f1d1b8e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/reality-tv-personality-peter-thomas-launches-emotional-podcast-with-dr-alduan-tartt/a0fe8a813f3541fc694103af985326bf) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k657l2/peter_thomas_launches_1_society_podcast_live_for/) 
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k7anjl/reality_tv_personality_peter_thomas_launches/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/23/quitietf.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/rushyXNe.webp)

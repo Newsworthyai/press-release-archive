@@ -29,14 +29,12 @@ Canada One (TSX.V: CONE) (OTC: COMCF) (FSE: AU31) has announced its receipt of 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/rockbreaks-canada-one-mining-corp-tsx-v-cone-otc-comcf-fse-au31-to-advance-exploration-at-flagship-copper-dome-project/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/canada-one-receives-exploration-permit-for-copper-dome-project-in-british-columbia/b2cb66d6f0643fe7a56cba6395888505) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/canada-one-receives-5-year-exploration-permit-for-copper-dome-project-in-british-columbia/0760491172b9fae45aa216a484de4a18) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k6soub/canada_one_receives_exploration_permit_for_copper/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/oval0JsZ.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/tallKruB.webp)

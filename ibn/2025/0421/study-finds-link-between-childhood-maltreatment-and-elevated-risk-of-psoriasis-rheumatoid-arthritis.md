@@ -27,14 +27,12 @@ A new study whose findings appeared in the journal Heliyon has found that indivi
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/study-finds-link-between-childhood-maltreatment-and-elevated-risk-of-psoriasis-rheumatoid-arthritis/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/childhood-maltreatment-linked-to-higher-risk-of-immune-disorders-study-reveals/cfd85f16f1de63f838bc9e6d170ca7fb) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/study-links-childhood-maltreatment-to-higher-risk-of-chronic-immune-disorders/43203f15ea6eaa2d77cf6ad13cd403e9) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1k4ey4j/childhood_maltreatment_linked_to_higher_risk_of/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/21/zerocLJM.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/larkqGMe.webp)

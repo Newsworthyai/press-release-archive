@@ -36,14 +36,12 @@ Onar (OTCQB: ONAR), a marketing technology company and network of agencies, has 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-onar-holding-corporation-otcqb-onar-highlights-57-revenue-growth-global-expansion-and-onar-labs-in-annual-shareholder-letter/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/onar-otcqb-onar-releases-2024-shareholder-letter-highlighting-growth-and-expansion/d20145ff7e44243b6e483e115e87e826) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/onar-releases-2024-shareholder-letter-revealing-strong-growth-and-expansion-plans/0efd36dae0f8b3b94b6edf0bf5ae44e1) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k6sya8/onar_otcqb_onar_releases_2024_shareholder_letter/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/silkpWWx.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/pondmWK6.webp)

@@ -7,14 +7,14 @@ WILMINGTON, NC, April 21, 2025 /24-7PressRelease/ -- Bestselling author Eric Mad
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522015/no-charge-download-of-bestselling-literary-fiction-ebook-by-author-eric-madeen-available-in-ebook-form-at-amazon-april-23-and-24-2025)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-eric-madeen-offers-water-drumming-in-the-soul-ebook-for-free-on-amazon/1b439349544e78611c331374e42d7f1d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bestselling-author-eric-madeen-offers-acclaimed-novel-water-drumming-in-the-soul-for-free-on-amazon/443658b7619cea77245488f0caeb1ae8) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/BookNews/comments/1k47h23/bestselling_author_eric_madeen_offers_water/) 
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1k7b2y3/bestselling_author_eric_madeen_offers_acclaimed/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/21/echootzk.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/warp48m0.webp)

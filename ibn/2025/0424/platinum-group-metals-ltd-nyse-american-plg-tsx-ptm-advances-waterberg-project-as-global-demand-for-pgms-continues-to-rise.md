@@ -33,14 +33,12 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/platinum-group-metals-ltd-nyse-american-plg-tsx-ptm-advances-waterberg-project-as-global-demand-for-pgms-continues-to-rise/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/plg-s-waterberg-project-poised-to-become-major-global-pgm-mine/ea9fc73e8370375de2996c774268969f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/platinum-group-metals-making-strides-with-waterberg-project-development-in-south-africa/9ce63fcc501a8b6eb60f737736454636) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k6xiux/plgs_waterberg_project_poised_to_become_major/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/keep7YYz.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/lushXO6M.webp)

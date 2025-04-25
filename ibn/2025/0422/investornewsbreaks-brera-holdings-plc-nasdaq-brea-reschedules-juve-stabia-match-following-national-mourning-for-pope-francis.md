@@ -29,14 +29,14 @@ Brera Holdings (NASDAQ: BREA) announced that its Serie B portfolio club, S.S. Ju
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-brera-holdings-plc-nasdaq-brea-reschedules-juve-stabia-match-following-national-mourning-for-pope-francis/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/brera-holdings-serie-b-club-reschedules-match-after-league-wide-postponement/8b194791a83bc4430b93a52815ed65ec) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brera-holdings-s-s-juve-stabia-reschedules-match-in-honor-of-pope-francis/ad432a53fe34f2f38cc46e72d68d4647) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k57glz/brera_holdings_serie_b_club_reschedules_match/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7bqyr/brera_holdings_ss_juve_stabia_reschedules_match/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/boldiL84.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/isle_5BC.webp)

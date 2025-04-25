@@ -7,14 +7,14 @@ BOSTON, MA, April 22, 2025 /24-7PressRelease/ -- Coastal Windows & Exteriors pro
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522035/coastal-windows-exteriors-celebrates-15-years-of-purpose-recognition-results)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/coastal-windows-exteriors-celebrates-15-years-of-excellence-and-community-impact/a15c8b33c5603e9cba29a0cfa560ba00) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/coastal-windows-exteriors-marks-15th-anniversary-with-top-national-awards-and-community-commitment/d6bde1ea250602a1883dd9bcc0b9fac2) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1k50fok/coastal_windows_exteriors_celebrates_15_years_of/) 
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k7b70b/coastal_windows_exteriors_marks_15th_anniversary/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/22/fineI3Ht.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/palegp02.webp)

@@ -7,14 +7,14 @@ LOS ANGELES, CA, April 24, 2025 /24-7PressRelease/ -- As the ophthalmology commu
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522112/ehnote-at-ascrs-asoa-2025-transforming-eye-care-with-ophthalmology-20)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ehnote-unveils-ophthalmology-2-0-platform-at-ascrs-annual-meeting/9559c6fe7f3369ba99f1025ff41d8e5c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ehnote-unveils-ophthalmology-2-0-platform-at-ascrs-annual-meeting/3043f07521561a22e45de7e5e2c2acc0) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/technology_press/comments/1k6ma7u/ehnote_unveils_ophthalmology_20_platform_at_ascrs/) 
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1k7bfa2/ehnote_unveils_ophthalmology_20_platform_at_ascrs/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/24/duneac5A.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/joindiQl.webp)

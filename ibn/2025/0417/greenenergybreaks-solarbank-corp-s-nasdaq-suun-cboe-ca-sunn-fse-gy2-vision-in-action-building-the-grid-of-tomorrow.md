@@ -31,14 +31,14 @@ Disseminated on behalf of SolarBank Corporation
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/greenenergybreaks-solarbank-corp-s-nasdaq-suun-cboe-ca-sunn-fse-gy2-vision-in-action-building-the-grid-of-tomorrow/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/solarbank-reinforces-commitment-to-clean-energy-future-with-solar-battery-storage-and-ev-charging-projects/748042775fa1b72d158a02dc003fc6ab) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solarbank-corporation-advances-renewable-energy-projects-with-strategic-partnerships/4963b94da415150700c4b1c49c570059) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k1l1g6/solarbank_reinforces_commitment_to_clean_energy/) 
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1k7bmpd/solarbank_corporation_advances_renewable_energy/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/17/jinx5VWc.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/rainE5c9.webp)

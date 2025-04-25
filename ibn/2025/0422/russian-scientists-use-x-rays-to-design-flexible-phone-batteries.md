@@ -27,14 +27,12 @@ Smartphones have come a long way. Today, we have foldable phones and even screen
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/bdc/russian-scientists-use-x-rays-to-design-flexible-phone-batteries/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/russian-scientists-use-x-rays-to-design-flexible-phone-batteries/ead0fafe983cd0e282bf91dbf3223d7e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/russian-scientists-use-x-rays-to-design-flexible-phone-batteries/19efe52d4e603744045acf75817d9692) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k5aedh/russian_scientists_use_xrays_to_design_flexible/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/camcfOGO.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/frog1Xf4.webp)

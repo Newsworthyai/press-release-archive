@@ -29,14 +29,14 @@ Mullen Automotive (NASDAQ: MULN) announced that its subsidiary, Bollinger Motor
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/greencarnewsbreaks-mullen-automotive-inc-nasdaq-muln-delivers-first-2025-bollinger-b4-to-envirocharge-for-mobile-charging-deployment/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-s-bollinger-motors-delivers-first-2025-b4-electric-truck-for-mobile-charging-unit-conversion/ad678fdab596cb1bad2356dc4e5ea5c3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-delivers-bollinger-b4-electric-truck-for-mobile-charging-unit-conversion/7cd5616a66e0905e81737cbdb1f6f3e0) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k1gydm/mullen_automotives_bollinger_motors_delivers/) 
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1k7bj0r/mullen_automotive_delivers_bollinger_b4_electric/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/17/knobxJGL.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/icyAeN7.webp)

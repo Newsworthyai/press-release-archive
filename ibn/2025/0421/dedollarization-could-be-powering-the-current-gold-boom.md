@@ -29,14 +29,14 @@ The price of gold rose by over 6% last week, making this one of its strongest pe
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/dedollarization-could-be-powering-the-current-gold-boom/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-price-surges-over-6-amidst-dedollarization-trend/ea2f97259640204674b1a9f6abd877cb) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-price-surges-over-6-amid-dedollarization-trend/82bf12d01ad8772e53916fb1db8a9d1b) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1k4ey1u/gold_price_surges_over_6_amidst_dedollarization/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7bqoi/gold_price_surges_over_6_amid_dedollarization/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/21/xenoaWMT.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/chipmOnM.webp)

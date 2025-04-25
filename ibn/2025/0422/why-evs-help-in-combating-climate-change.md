@@ -27,14 +27,12 @@ Despite the challenges that the electric vehicle industry has faced in recent mo
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/gcs/why-evs-help-in-combating-climate-change/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-inc-and-greencarstocks-lead-the-charge-in-combating-climate-change-with-ev-solutions/46ea569fc8733728c9e6bae2407f7561) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/electric-vehicles-key-in-combatting-climate-change-mullen-automotive-inc-leads-the-way/579c9dd8b14c2d2ebad55c21bdf178cb) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k57g45/mullen_automotive_inc_and_greencarstocks_lead_the/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/riceirni.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/meanxZiA.webp)

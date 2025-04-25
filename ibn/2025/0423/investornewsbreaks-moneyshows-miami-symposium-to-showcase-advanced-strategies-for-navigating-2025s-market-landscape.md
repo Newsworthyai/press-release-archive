@@ -27,14 +27,12 @@ MoneyShow, a leading producer of financial conferences for affluent investors, a
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-moneyshows-miami-symposium-to-showcase-advanced-strategies-for-navigating-2025s-market-landscape/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/moneyshow-to-host-second-annual-masters-symposium-in-miami/a6433d2225118b145cc1c9215943d252) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/moneyshow-announces-second-annual-masters-symposium-in-miami-with-focus-on-maximizing-profits-in-2025/69d467e76cda0b7d7cb5d4fb73e4d3df) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/eventNews/comments/1k67hhc/moneyshow_to_host_second_annual_masters_symposium/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/23/gulfd3P0.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/vibeMY2Y.webp)

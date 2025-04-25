@@ -7,14 +7,14 @@ NEW YORK, NY, April 18, 2025 /24-7PressRelease/ -- Shincheonji Church of Jesus i
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521919/shincheonji-church-of-jesus-slams-french-media-report)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-church-in-france-challenges-biased-reporting/0e08f6d62d23c0c0cb151629558ce8f5) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/shincheonji-church-of-jesus-in-france-speaks-out-against-biased-article-by-french-newspaper/07abc22fa38e4b5110c68750dbc3c8bd) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k1z0fm/shincheonji_church_in_france_challenges_biased/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7av78/shincheonji_church_of_jesus_in_france_speaks_out/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/18/ulnaKX06.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/xenoZ0J0.webp)

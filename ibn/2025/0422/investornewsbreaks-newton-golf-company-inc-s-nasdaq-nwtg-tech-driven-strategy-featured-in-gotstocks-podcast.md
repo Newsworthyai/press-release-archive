@@ -29,14 +29,12 @@ Newton Golf Company (NASDAQ: NWTG), a technology-forward golf equipment manufact
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-newton-golf-company-inc-s-nasdaq-nwtg-tech-driven-strategy-featured-in-gotstocks-podcast/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/newton-golf-company-featured-on-gotstocks-podcast-for-innovative-golf-equipment-design/ae84e8847179db722415a75f7071499b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/newton-golf-company-featured-on-gotstocks-podcast-with-ceo-dr-greg-campbell/189ef8ba82d42c0262a7890684152a08) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k5f2zd/newton_golf_company_featured_on_gotstocks_podcast/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/quitbdcg.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/zealVHL9.webp)

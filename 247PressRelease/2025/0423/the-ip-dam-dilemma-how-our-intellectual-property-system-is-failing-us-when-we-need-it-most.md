@@ -7,14 +7,14 @@ WHITE PLAINS, NY, April 23, 2025 /24-7PressRelease/ -- Over 800,000 patents are 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522055/the-ip-dam-dilemma-how-our-intellectual-property-system-is-failing-us-when-we-need-it-most)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ip-dam-dilemma-innovators-struggle-with-patent-backlog/609d1959a7dd96232ffed5c44a8381d3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/instant-iptm-solving-the-ip-dam-dilemma-with-blockchain-technology/2f5901aa071c73aeacbf31a9d6567142) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1k5t5dq/ip_dam_dilemma_innovators_struggle_with_patent/) 
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1k7b7cy/instant_ip_solving_the_ip_dam_dilemma_with/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/23/swimZYmD.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/flaxZzHL.webp)

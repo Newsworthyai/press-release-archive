@@ -27,14 +27,14 @@ GivBux (OTC: GBUX) announced the finalized terms of its special dividend, with t
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-givbux-inc-otc-gbux-finalizes-special-dividend-with-1-for-10-warrant-offering/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/givbux-announces-special-dividend-terms-and-expansion-of-super-app-platform/17b185dea71cf760218ebace42212d06) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/givbux-announces-special-dividend-terms-and-super-app-expansion/881bb8bd3a56409c810085342d59ed0b) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k57gj1/givbux_announces_special_dividend_terms_and/) 
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k7bn6j/givbux_announces_special_dividend_terms_and_super/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/wamcN0YY.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/lossNRBE.webp)

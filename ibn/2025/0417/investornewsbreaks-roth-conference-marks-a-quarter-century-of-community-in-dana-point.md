@@ -27,14 +27,14 @@ The 37th Annual ROTH Conference drew thousands of participants from around the g
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-roth-conference-marks-a-quarter-century-of-community-in-dana-point/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/roth-conference-celebrates-25-years-in-dana-point-california/c1e7460088eaf4bbec56d3b9a90c03f1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/37th-annual-roth-conference-celebrates-community-partnerships-and-success/4e50b971acf05d816c0c9728b59b20c5) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k1jwj0/roth_conference_celebrates_25_years_in_dana_point/) 
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1k7bj2y/37th_annual_roth_conference_celebrates_community/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/17/maskTaY4.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/seekNsxD.webp)

@@ -23,14 +23,12 @@ The Maryland Cannabis Convention will be held on May 2-3, 2025, at the Baltimore
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/experts-gather-at-the-maryland-cannabis-convention-to-explore-new-opportunities/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/maryland-cannabis-convention-set-to-showcase-latest-developments-in-cannabis-sector/8aa39b74841979c0495b656d50bdf69a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/maryland-cannabis-convention-to-showcase-latest-developments-in-the-cannabis-sector/3507ee664f79812e19953d0866c9d64e) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1k670su/maryland_cannabis_convention_set_to_showcase/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/23/joltLkpe.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/yarnJLf2.webp)

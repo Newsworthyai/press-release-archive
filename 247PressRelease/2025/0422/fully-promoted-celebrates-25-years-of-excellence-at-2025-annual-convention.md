@@ -7,14 +7,14 @@ WEST PALM BEACH, FL, April 22, 2025 /24-7PressRelease/ -- Fully Promoted®, a to
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522025/fully-promoted-celebrates-25-years-of-excellence-at-2025-annual-convention)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/fully-promoted-marks-25th-year-anniversary-with-trailblazing-convention/342ac323cd1e0eae60e714c50df2b963) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fully-promoted-marks-25th-anniversary-with-trailblazing-convention/26ada8b55d4934f04b1f254f978fc948) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1k50cyg/fully_promoted_marks_25th_year_anniversary_with/) 
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1k7azkg/fully_promoted_marks_25th_anniversary_with/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/22/odorJ6P2.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/sageCbAM.webp)

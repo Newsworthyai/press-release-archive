@@ -31,14 +31,12 @@ Disseminated on behalf of SolarBank Corporation
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/greenenergybreaks-solarbank-corp-nasdaq-suun-cboe-ca-sunn-fse-gy2-refiles-2024-financials-to-add-predecessor-auditor-report/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/solarbank-corporation-refiles-audited-financial-statements-for-2024/8b50e3b3fd52324b0d5de35b9fd5d466) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solarbank-corporation-refiles-financial-statements-for-2024-with-ontario-securities-commission-request/627c6f7f0c4b9c8bcd1387338df81327) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k6uoju/solarbank_corporation_refiles_audited_financial/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/tilewrkv.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/loss9HnV.webp)

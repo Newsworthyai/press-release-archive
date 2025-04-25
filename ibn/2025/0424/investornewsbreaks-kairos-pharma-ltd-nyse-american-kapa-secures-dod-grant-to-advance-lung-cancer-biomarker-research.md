@@ -27,14 +27,12 @@ Kairos Pharma (NYSE American: KAPA), a clinical-stage biopharmaceutical company
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-kairos-pharma-ltd-nyse-american-kapa-secures-dod-grant-to-advance-lung-cancer-biomarker-research/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/kairos-pharma-provides-update-on-clinical-trials-and-strategic-developments/44e3f994a37749dc9b69ff7c47dd5458) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kairos-pharma-issues-shareholder-letter-outlining-progress-and-strategic-developments/949beb4c60d69da4e525d204472c7211) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k6t3w4/kairos_pharma_provides_update_on_clinical_trials/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/kiwioOlU.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/calmc60_.webp)

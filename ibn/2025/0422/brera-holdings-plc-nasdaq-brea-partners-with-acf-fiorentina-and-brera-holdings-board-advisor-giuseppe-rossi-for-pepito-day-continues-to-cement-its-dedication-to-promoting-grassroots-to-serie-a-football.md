@@ -27,14 +27,14 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/brera-holdings-plc-nasdaq-brea-partners-with-acf-fiorentina-and-brera-holdings-board-advisor-giuseppe-rossi-for-pepito-day-continues-to-cement-its-dedication-to-promoting-grassro/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/brera-holdings-partners-with-acf-fiorentina-for-pepito-day-to-honor-giuseppe-rossi/7c7af9c4db31643e1cca0b60f5e82b8c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brera-holdings-partners-with-acf-fiorentina-for-pepito-day-celebration/ee3f1946c7f1942d980cd9eb7846f80e) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k5dujx/brera_holdings_partners_with_acf_fiorentina_for/) 
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1k7bn8g/brera_holdings_partners_with_acf_fiorentina_for/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/calmlsBq.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/markJV65.webp)

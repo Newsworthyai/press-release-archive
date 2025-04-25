@@ -35,14 +35,12 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/esgold-corp-cse-esau-otcqb-esauf-details-recent-achievements-upcoming-milestones-as-it-advances-expanded-exploration-at-montauban/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/esgold-secures-funding-for-montauban-project-eyes-near-term-production/383bd7806fdfa09677e3a9b937f82dd5) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/esgold-secures-funding-for-montauban-project-eyes-gold-production-in-q3-2025/3cf8f6da45a4f65a5ac1d86e97cab6ac) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1k6xixw/esgold_secures_funding_for_montauban_project_eyes/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/bendv_Vg.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/roam5w_5.webp)

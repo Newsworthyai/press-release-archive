@@ -27,14 +27,14 @@ Nightfood Holdings (OTCQB: NGTF) is modernizing the hospitality industry with i
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-nightfood-holdings-inc-ngtf-leading-hospitality-tech-revolution-with-innovative-solutions/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nightfood-holdings-innovates-hospitality-industry-with-ai-driven-robotics-solutions/6d66f7558e9f81cbf8c05c582beb440c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nightfood-holdings-modernizes-hospitality-industry-with-ai-driven-robotics-solutions/661131e4273614fca994cc10e18a920e) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/technology_press/comments/1k1m1ep/nightfood_holdings_innovates_hospitality_industry/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7bj9l/nightfood_holdings_modernizes_hospitality/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/17/pearUV7y.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/airyUN5R.webp)

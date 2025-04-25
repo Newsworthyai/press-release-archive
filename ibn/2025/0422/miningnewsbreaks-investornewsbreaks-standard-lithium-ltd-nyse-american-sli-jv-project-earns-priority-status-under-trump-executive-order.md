@@ -31,7 +31,7 @@ Standard Lithium (NYSE American: SLI) announced that its South West Arkansas Pro
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-investornewsbreaks-standard-lithium-ltd-nyse-american-sli-jv-project-earns-priority-status-under-trump-executive-order/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/standard-lithium-s-south-west-arkansas-project-named-priority-critical-mineral-production-project/0614f5a41b0ec8d707689db5540b41ea) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/standard-lithium-s-south-west-arkansas-project-designated-critical-mineral-production-project/829c9682dfb2497e040810af1b3125a5) 
 
  
 
@@ -39,4 +39,4 @@ Standard Lithium (NYSE American: SLI) announced that its South West Arkansas Pro
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/openYFfx.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/numbyjsj.webp)

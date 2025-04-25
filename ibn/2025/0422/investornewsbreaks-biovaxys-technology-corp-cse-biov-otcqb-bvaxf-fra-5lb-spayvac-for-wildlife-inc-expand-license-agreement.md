@@ -27,14 +27,12 @@ BioVaxys (CSE: BIOV) (OTCQB:BVAXF) (FRA: 5LB) and SpayVac-for-Wildlife announced
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-biovaxys-technology-corp-cse-biov-otcqb-bvaxf-fra-5lb-spayvac-for-wildlife-inc-expand-license-agreement/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/biovaxys-and-spayvac-for-wildlife-expand-fields-of-use-in-license-agreement/24ce71d8b66c9a19eb7cb7ea4d07b582) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/biovaxys-and-spayvac-for-wildlife-expand-license-agreement-to-aquaculture-market/2a357f5b88bab108a06999c3745c2574) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1k5fddy/biovaxys_and_spayvacforwildlife_expand_fields_of/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/chipfOEl.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/leanq4hc.webp)

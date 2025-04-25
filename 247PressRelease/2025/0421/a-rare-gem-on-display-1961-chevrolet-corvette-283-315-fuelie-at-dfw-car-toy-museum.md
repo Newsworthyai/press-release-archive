@@ -7,14 +7,14 @@ FORT WORTH, TX, April 21, 2025 /24-7PressRelease/ -- Classic car enthusiasts and
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521468/a-rare-gem-on-display-1961-chevrolet-corvette-283-315-fuelie-at-dfw-car-toy-museum)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/vintage-american-icon-1961-chevrolet-corvette-unveiled-at-dfw-car-toy-museum/5fc8ef5d403cb7b61640a723d519439b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dfw-car-toy-museum-unveils-rare-1961-chevrolet-corvette-283-315-fuelie-4-speed/f9eca2523df772e378a7ae034cefa7cb) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/eventNews/comments/1k47h5a/vintage_american_icon_1961_chevrolet_corvette/) 
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1k7az4q/dfw_car_toy_museum_unveils_rare_1961_chevrolet/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/21/warpQGKz.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/rendRuF2.webp)

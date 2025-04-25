@@ -7,14 +7,14 @@ NEW YORK, NY, April 22, 2025 /24-7PressRelease/ -- Korean contemporary artist Sa
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522020/the-other-art-fair-brooklyn-new-york-artist-sangwon-chun-showcases-experimental-cityscapes)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/korean-artist-sangwon-chun-to-showcase-urban-paintings-at-the-other-art-fair-in-brooklyn/128de97c610cf53f55afb1410ae1e27f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-korean-artist-sangwon-chun-to-showcase-work-at-the-other-art-fair-in-brooklyn/8d50c034ef6ec74b53b1016d54c8f117) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k50csb/korean_artist_sangwon_chun_to_showcase_urban/) 
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k7b6y6/renowned_korean_artist_sangwon_chun_to_showcase/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/22/riftzc9c.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/navyE6kJ.webp)

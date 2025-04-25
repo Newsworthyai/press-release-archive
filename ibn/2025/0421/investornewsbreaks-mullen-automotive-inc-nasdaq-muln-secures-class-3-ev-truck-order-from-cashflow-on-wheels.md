@@ -27,14 +27,14 @@ Mullen Automotive (NASDAQ: MULN), an electric vehicle manufacturer, announced a 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-mullen-automotive-inc-nasdaq-muln-secures-class-3-ev-truck-order-from-cashflow-on-wheels/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-lands-1-4m-order-for-electric-trucks-from-cashflow-on-wheels/f6be6db8fb16f96347307e7d4120bac9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-lands-1-4m-order-for-electric-trucks-from-cashflow-on-wheels/c9f401acd2300d2eddb857d6992dbec2) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k4f815/mullen_automotive_lands_14m_order_for_electric/) 
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1k7bqhh/mullen_automotive_lands_14m_order_for_electric/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/21/zeroGmWY.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/evenwHJD.webp)

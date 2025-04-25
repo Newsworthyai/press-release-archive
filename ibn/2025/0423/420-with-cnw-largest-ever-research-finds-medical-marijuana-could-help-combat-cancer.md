@@ -25,14 +25,12 @@ A recent study—the largest of its kind—has found strong scientific backing f
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/420-with-cnw-largest-ever-research-finds-medical-marijuana-could-help-combat-cancer/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/new-study-shows-medical-marijuana-s-potential-in-cancer-management/ff186d712eeaefa43b3233fa7c7696af) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/groundbreaking-study-shows-medical-marijuana-s-potential-in-cancer-treatment/f1dd35c0dfcb6120ee9738596ab261e6) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1k69ti2/new_study_shows_medical_marijuanas_potential_in/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/23/jinxDKol.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/fasthqeu.webp)

@@ -29,14 +29,14 @@ Software Effective Solutions (d/b/a MedCana) (OTC: SFWJ) doing business as Medc
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/cnw/cannabisnewsbreaks-software-effective-solutions-corp-d-b-a-medcana-otc-sfwj-expands-into-australia-with-acquisition-of-cannabis-import-and-distribution-licenses/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/medcana-expands-global-reach-with-acquisition-of-cannabis-import-licenses-in-australia/a35df3132ef206ff8d209d330c0cee77) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/medcana-expands-global-reach-with-acquisition-of-pharmaceutical-cannabis-licenses-in-australia/d7ebfcebdacf77a726b24971d890f98c) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1k1hor8/medcana_expands_global_reach_with_acquisition_of/) 
+[Reddit Post](https://www.reddit.com/r/CannabisNewsInfo/comments/1k7bj50/medcana_expands_global_reach_with_acquisition_of/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/17/hintFpnU.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/harpBBFq.webp)

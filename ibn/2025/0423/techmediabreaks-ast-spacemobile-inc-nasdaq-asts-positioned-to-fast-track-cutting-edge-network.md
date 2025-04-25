@@ -29,14 +29,12 @@ AST SpaceMobile (NASDAQ: ASTS) is building the first and only space-based cellu
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-ast-spacemobile-inc-nasdaq-asts-positioned-to-fast-track-cutting-edge-network/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/ast-spacemobile-secures-460m-in-funding-to-accelerate-space-based-cellular-network-development/218f8eeaefcaf5504143beb8f49d67ed) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/ast-spacemobile-secures-460m-in-financing-for-space-based-cellular-broadband-network/9354c6144150a2b441df4704ab21ea1d) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k67hed/ast_spacemobile_secures_460m_in_funding_to/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/23/yarnVNDK.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/hushiCgB.webp)

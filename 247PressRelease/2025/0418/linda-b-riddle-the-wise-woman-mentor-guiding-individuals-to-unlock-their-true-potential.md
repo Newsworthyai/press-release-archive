@@ -7,12 +7,14 @@ CHESAPEAKE, VA, April 18, 2025 /24-7PressRelease/ -- Linda B. Riddle, known as T
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522010/linda-b-riddle-the-wise-woman-mentor-guiding-individuals-to-unlock-their-true-potential)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/the-wise-woman-mentor-guiding-transformation-through-empathy-and-wisdom/e048b6ad35050146bf44da6e31ba358d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/linda-b-riddle-the-wise-woman-mentor-empowers-individuals-through-holistic-healing-and-coaching/038fe86f24a3af98699823a0050b7056) 
 
  
 
- 
+
+
+[Reddit Post](https://www.reddit.com/r/AlternativeHealthNews/comments/1k7arht/linda_b_riddle_the_wise_woman_mentor_empowers/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/19/fern0Qdx.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/bestYu4A.webp)

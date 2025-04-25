@@ -29,14 +29,12 @@ Knightscope (NASDAQ: KSCP) a developer of autonomous security robots and AI tech
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-knightscope-inc-nasdaq-kscp-secures-1-2m-in-new-contracts-expands-ai-security-footprint-nationwide/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/knightscope-secures-1-2m-in-new-contracts-for-security-robots-and-ai-technologies/9a06623e7ce41fe8b649324a609a8ac6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/knightscope-secures-1-2m-in-new-contracts-for-security-robots-and-ai-technologies/858f6a77f5d276a618577ffc32a2f94d) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k6vq9k/knightscope_secures_12m_in_new_contracts_for/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/numb1WP1.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/eachMBqT.webp)

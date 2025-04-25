@@ -7,14 +7,14 @@ LISBON, PORTUGAL, April 24, 2025 /24-7PressRelease/ -- Tiago Capelo Monteiro, a 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522107/from-depression-to-inspiration-how-tiago-capelo-monteiro-went-from-2000-hours-of-gaming-into-international-success)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/student-transforms-life-through-online-learning-inspires-thousands-worldwide/35cbd814c4d8922436c97ba85f9b3690) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/student-s-remarkable-transformation-inspires-thousands-worldwide/ab79ac97a14c32f3eb475e84ec7af62d) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/GamingNewsInfo/comments/1k6m7lt/student_transforms_life_through_online_learning/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7bfem/students_remarkable_transformation_inspires/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/24/chipoPkL.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/apexctJ3.webp)

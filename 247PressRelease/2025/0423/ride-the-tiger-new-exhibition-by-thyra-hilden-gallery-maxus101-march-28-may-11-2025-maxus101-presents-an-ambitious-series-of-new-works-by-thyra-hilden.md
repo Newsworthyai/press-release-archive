@@ -7,14 +7,14 @@ COPENHAGEN, DENMARK, April 23, 2025 /24-7PressRelease/ -- RIDE THE TIGER: NEW EX
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522095/ride-the-tiger-new-exhibition-by-thyra-hilden-gallery-maxus101-march-28-may-11-2025-maxus101-presents-an-ambitious-series-of-new-works-by-thyra-hilden)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/thyra-hilden-s-ride-the-tiger-exhibition-exploring-feminine-power-through-art/5b7926de68b43b3ee0ed0f68c5f6f217) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/artist-thyra-hilden-redefines-feminine-expression-in-ride-the-tiger-exhibition/041d4fbccc12451654922b5252ce58d8) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k5t7xz/thyra_hildens_ride_the_tiger_exhibition_exploring/) 
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k7bezo/artist_thyra_hilden_redefines_feminine_expression/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/23/pondwguk.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/evenACoY.webp)

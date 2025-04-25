@@ -35,14 +35,14 @@ Nutriband (NASDAQ: NTRB) CEO Gareth Sheridan has been named a finalist in the 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/biomednewsbreaks-nutriband-inc-nasdaq-ntrb-ceo-named-ey-entrepreneur-of-the-year-2025-finalist-in-established-category/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nutriband-ceo-gareth-sheridan-named-finalist-in-ey-entrepreneur-of-the-year-awards/ac1282c23b24ad24ea1647b937e83b4b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nutriband-ceo-gareth-sheridan-named-finalist-in-2025-ey-entrepreneur-of-the-year-awards/84e82273dbed05869b8e029dc0a27e7e) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1k1es29/nutriband_ceo_gareth_sheridan_named_finalist_in/) 
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1k7biwl/nutriband_ceo_gareth_sheridan_named_finalist_in/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/17/cakeIStn.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/seekq1HG.webp)

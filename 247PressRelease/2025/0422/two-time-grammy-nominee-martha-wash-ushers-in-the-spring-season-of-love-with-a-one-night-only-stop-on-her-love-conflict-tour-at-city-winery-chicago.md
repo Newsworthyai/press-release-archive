@@ -7,14 +7,14 @@ CHICAGO, IL, April 22, 2025 /24-7PressRelease/ -- Legendary vocalist and two-tim
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522019/two-time-grammy-nominee-martha-wash-ushers-in-the-spring-season-of-love-with-a-one-night-only-stop-on-her-love-conflict-tour-at-city-winery-chicago)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/martha-wash-announces-nationwide-tour-kickoff-in-chicago/3cd711187c051a1e7225d2165256453c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/martha-wash-to-launch-nationwide-tour-with-performance-at-city-winery-chicago/c81400f4812328efc223d444b25d6507) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k50ctx/martha_wash_announces_nationwide_tour_kickoff_in/) 
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k7bb08/martha_wash_to_launch_nationwide_tour_with/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/22/ninoZj97.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/lossJiMr.webp)

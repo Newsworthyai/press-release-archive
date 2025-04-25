@@ -35,14 +35,14 @@ View source version on newsdirect.com: https://newsdirect.com/news/navex-one-sup
 [Original/Source Press Release](https://newsdirect.com/news/navex-one-supporting-hipaa-compliance-with-integrated-risk-and-compliance-content-531051649)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/navex-one-revolutionizes-hipaa-compliance-for-healthcare-organizations/c07e6adeb17480ed049aa666cc8f5e72) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/navex-launches-navex-one-to-enhance-hipaa-compliance-for-healthcare-organizations/078a65c865cbe9e146de158cf84147d4) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k6yelc/navex_one_revolutionizes_hipaa_compliance_for/) 
+[Reddit Post](https://www.reddit.com/r/Leadership_Management/comments/1k7anbl/navex_launches_navex_one_to_enhance_hipaa/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/254/24/deepJwte.webp)
+![Blockchain Registration](https://cdn.newsramp.app/news-direct/qrcode/254/25/club0V2R.webp)

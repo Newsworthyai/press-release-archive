@@ -7,14 +7,14 @@ JACKSONVILLE, FL, April 24, 2025 /24-7PressRelease/ -- Answer the Question is a 
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522104/acclaimed-production-designer-hojin-lee-joins-largo-legend-for-psychological-horror-feature-answer-the-question)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/award-winning-production-designer-joins-psychological-horror-film-answer-the-question/4010adb3edd93a1ce98b20174e925357) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/award-winning-designer-joins-horror-film-answer-the-question/2b57892713f5cfcedb80772c4d703254) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k6m79l/awardwinning_production_designer_joins/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7bbjj/awardwinning_designer_joins_horror_film_answer/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/24/pearbfMu.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/airyZLOx.webp)

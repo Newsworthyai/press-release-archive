@@ -29,14 +29,14 @@ The record-setting rally in the gold market paused on Thursday as many investors
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/golds-rally-hits-the-brakes-as-investors-take-profits/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-rally-pauses-as-investors-take-profits-ahead-of-long-weekend/bd2b0c5b53fee8671cc597753dc04584) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gold-rally-pauses-as-investors-take-profits-before-long-weekend/b025113d44f790ce2ae2d91793f010cf) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k4g3lr/gold_rally_pauses_as_investors_take_profits_ahead/) 
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1k7bmy5/gold_rally_pauses_as_investors_take_profits/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/21/iris1Lwy.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/yogaR6kf.webp)

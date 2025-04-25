@@ -7,14 +7,14 @@ BEVERLY HILLS, CA, April 19, 2025 /24-7PressRelease/ -- Located at 9730 Wilshire
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521998/golden-silhouette-named-2023-detox-spa-of-the-year-by-travel-hospitality-awards)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-silhouette-recognized-for-excellence-in-lymphatic-drainage-therapy-in-beverly-hills/3cf4ca4aa0da3b6bcb5eb4042475b542) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/golden-silhouette-wellness-spa-awarded-for-innovative-lymphatic-drainage-therapy-in-beverly-hills/2824eed25dfed4933d9d11b4866c99ea) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1k2qod6/golden_silhouette_recognized_for_excellence_in/) 
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1k7avnr/golden_silhouette_wellness_spa_awarded_for/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/19/flax7nUH.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/jinxdlZZ.webp)

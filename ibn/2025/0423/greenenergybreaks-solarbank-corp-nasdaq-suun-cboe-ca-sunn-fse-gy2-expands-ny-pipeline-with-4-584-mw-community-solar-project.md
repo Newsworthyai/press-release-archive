@@ -33,7 +33,7 @@ Disseminated on behalf of SolarBank Corporation
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/greenenergybreaks-solarbank-corp-nasdaq-suun-cboe-ca-sunn-fse-gy2-expands-ny-pipeline-with-4-584-mw-community-solar-project/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/solarbank-corporation-to-develop-4-584-mw-solar-project-in-upstate-new-york/7a1d3b5916c9c2ef3e1055b30beecda8) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/solarbank-corporation-to-develop-4-584-mw-solar-project-in-upstate-new-york/0e01ac48cac4ca4b01595be33eef80cf) 
 
  
 
@@ -41,4 +41,4 @@ Disseminated on behalf of SolarBank Corporation
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/23/chipLL4H.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/joinIJjf.webp)

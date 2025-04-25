@@ -25,14 +25,14 @@ Drivers in Europe could afford battery electric vehicles (BEVs) if they had acc
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/gcs/social-leasing-programs-could-improve-ev-affordability-in-europe/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/social-leasing-programs-could-make-electric-cars-affordable-in-europe-experts-say/cf9d04f4d7c975c95cc8c61fca52441f) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/social-leasing-programs-could-make-electric-cars-more-affordable-in-europe/9fda582095fb1ac049b3b377f5aed240) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/technology_press/comments/1k4exyr/social_leasing_programs_could_make_electric_cars/) 
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1k7bqm8/social_leasing_programs_could_make_electric_cars/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/21/gainCvJD.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/limenGwa.webp)

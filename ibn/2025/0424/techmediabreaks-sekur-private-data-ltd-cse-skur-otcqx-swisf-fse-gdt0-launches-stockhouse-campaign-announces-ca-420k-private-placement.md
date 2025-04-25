@@ -29,14 +29,12 @@ Sekur Private Data (CSE: SKUR) (OTCQB: SWISF) (FSE: GDT0), a Swiss-hosted cybers
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-sekur-private-data-ltd-cse-skur-otcqx-swisf-fse-gdt0-launches-stockhouse-campaign-announces-ca420k-private-placement/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/sekur-private-data-engages-stockhouse-to-drive-market-awareness-and-launches-private-placement/ebc8aa21cc7cf86b95c0fc04aa317bd1) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/sekur-private-data-engages-stockhouse-to-drive-market-awareness-and-prepares-to-release-new-solutions/7e0e4dd7e5c245f6c5e497c621f8d4f6) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1k6u3l8/sekur_private_data_engages_stockhouse_to_drive/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/poem3LK4.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/tilePNAl.webp)

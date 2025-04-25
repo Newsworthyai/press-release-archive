@@ -39,14 +39,12 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/d-wave-quantum-inc-nyse-qbts-expands-quantum-optimization-offerings-to-accelerate-commercial-adoption/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-inc-expands-quantum-optimization-offerings-to-accelerate-commercial-adoption/6bbfcea0ce9b936c8f05868e51be3b06) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/d-wave-quantum-inc-expands-quantum-optimization-offerings-to-accelerate-commercial-adoption/d5654f57811e2f039aab4aa220c843ec) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k4mwba/dwave_quantum_inc_expands_quantum_optimization/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/21/ellaHmMi.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/jaderqbm.webp)

@@ -29,14 +29,14 @@ AudioEye (NASDAQ: AEYE), the industry-leading digital accessibility company, pre
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ainw/ainewsbreaks-roth-capital-partners-acted-as-lead-manager-for-audioeye-inc-s-nasdaq-aeye-33m-follow-on/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/audioeye-announces-pricing-of-secondary-offering-of-common-stock/82b3db26cadcfe11edfe85c1aa66abdf) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/audioeye-announces-pricing-of-secondary-offering-at-24-00-per-share/3a0f751ccb4fa85c0a9ec85a30dafb7c) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k4jk4c/audioeye_announces_pricing_of_secondary_offering/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k7bqsv/audioeye_announces_pricing_of_secondary_offering/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/21/hintWV0h.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/markmZc4.webp)

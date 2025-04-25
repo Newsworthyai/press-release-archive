@@ -7,14 +7,14 @@ MIAMI, FL, April 19, 2025 /24-7PressRelease/ -- It's All BS challenges readers t
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522006/coming-soon-its-all-bs-by-mark-shub)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/mark-shub-s-it-s-all-bs-guides-readers-to-break-free-from-biases-and-make-informed-decisions/5c0568b9e2d1a99f5424bbd4a720486a) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/entrepreneur-mark-shub-releases-groundbreaking-book-it-s-all-bs-to-help-readers-navigate-biases-and-make-better-decisions/e6bc6628043f05b13b79f606bd17d4ae) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/BookNews/comments/1k2qr5p/mark_shubs_its_all_bs_guides_readers_to_break/) 
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1k7az2o/entrepreneur_mark_shub_releases_groundbreaking/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/19/glueMy7N.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/paleAyhg.webp)

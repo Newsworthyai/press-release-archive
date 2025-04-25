@@ -31,14 +31,12 @@ ESGold (CSE: ESAU) (OTCQB: ESAUF) has identified a large-scale, high-conductivi
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-esgold-corp-cse-esau-otcqb-esauf-confirms-major-untested-vms-target-at-montauban-following-vtem-data-review/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/esgold-discovers-high-conductivity-anomaly-at-montauban-project/72049649e76a6141b9f5f79a47506d7e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/esgold-corp-identifies-high-conductivity-anomaly-in-montauban-project-signals-district-scale-discovery-potential/021ce4bec59f202348ef8e52e557d145) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k6x8ne/esgold_discovers_highconductivity_anomaly_at/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/rendx8wx.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/jokeWwmZ.webp)

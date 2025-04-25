@@ -7,14 +7,14 @@ TORONTO, ON, April 24, 2025 /24-7PressRelease/ -- E-scooters have quickly become
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522108/are-electric-scooters-replacing-bicycles-for-urban-commuting)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/are-electric-scooters-the-future-of-urban-commuting/ba4f503d7a89abf13bb3910ea2443dbe) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/the-future-of-urban-commuting-electric-scooters-vs-bicycles/d14c6aee750f5e5f87a5502ea20c894d) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1k6m7k3/are_electric_scooters_the_future_of_urban/) 
+[Reddit Post](https://www.reddit.com/r/Energy_Climate_News/comments/1k7bfcf/the_future_of_urban_commuting_electric_scooters/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/24/kissz599.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/fastZSAp.webp)

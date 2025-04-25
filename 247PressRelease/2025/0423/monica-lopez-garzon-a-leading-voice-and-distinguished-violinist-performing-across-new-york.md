@@ -7,14 +7,14 @@ NEW YORK, NY, April 23, 2025 /24-7PressRelease/ -- Mónica López Garzón has ea
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522056/m%C3%B3nica-l%C3%B3pez-garz%C3%B3n-a-leading-voice-and-distinguished-violinist-performing-across-new-york)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-violinist-monica-lopez-garzon-to-thrill-audiences-in-new-york-performances/625ff36f20c651e1c61e522576e28553) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/renowned-violinist-monica-lopez-garzon-to-showcase-artistry-in-new-york-shows/20d22bbcf65acf4dbbbb42143a9a0fcc) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k5t5ar/renowned_violinist_mónica_lópez_garzón_to_thrill/) 
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1k7b76t/renowned_violinist_mónica_lópez_garzón_to/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/23/rubyCS9_.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/mendbZOE.webp)

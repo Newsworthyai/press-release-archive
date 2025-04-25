@@ -7,14 +7,14 @@ BROOMFIELD, CO, April 24, 2025 /24-7PressRelease/ -- The Colorado Rural Health C
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522124/colorado-rural-health-center-honors-top-rural-healthcare-facilities-for-overall-performance)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/colorado-rural-health-center-honors-top-10-rural-healthcare-facilities-for-outstanding-performance/0b3d926efccd6942263871b5d3bbce94) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/colorado-rural-health-center-awards-top-10-rural-healthcare-facilities-for-overall-performance/5c10e387ec767e44b48d3bf8490b45f9) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1k6m77u/colorado_rural_health_center_honors_top_10_rural/) 
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1k7bbf1/colorado_rural_health_center_awards_top_10_rural/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/24/mintU1H5.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/milkAsiM.webp)

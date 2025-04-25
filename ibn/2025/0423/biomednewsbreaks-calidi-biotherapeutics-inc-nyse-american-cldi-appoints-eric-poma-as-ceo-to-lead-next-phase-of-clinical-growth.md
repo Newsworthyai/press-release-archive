@@ -33,14 +33,12 @@ Calidi Biotherapeutics (NYSE American: CLDI) announced the appointment of Eric 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/biomednewsbreaks-calidi-biotherapeutics-inc-nyse-american-cldi-appoints-eric-poma-as-ceo-to-lead-next-phase-of-clinical-growth/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/calidi-biotherapeutics-appoints-eric-poma-ph-d-as-ceo-to-drive-clinical-development/0ba8f1a2da10504fdf4c213546c0e4e3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/calidi-biotherapeutics-appoints-new-ceo-and-advances-systemic-virotherapy-platform/fb600ff5a6afed94689046e0cab7778c) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k61guv/calidi_biotherapeutics_appoints_eric_poma_phd_as/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/23/seek_FoR.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/voltZv_H.webp)

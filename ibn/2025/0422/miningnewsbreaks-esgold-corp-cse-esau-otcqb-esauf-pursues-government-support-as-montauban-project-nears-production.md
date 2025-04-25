@@ -31,14 +31,12 @@ ESGold (CSE: ESAU) (OTCQB: ESAUF) announced ongoing discussions with both the Q
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-esgold-corp-cse-esau-otcqb-esauf-pursues-government-support-as-montauban-project-nears-production/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/esgold-corp-secures-funding-for-montauban-project-and-advances-towards-gold-production/a9703c927a225c4482ad4c1bf998a7e0) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/esgold-corp-advances-montauban-project-towards-gold-production/abc646c5a697e02bf92e77781218e977) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k57gfm/esgold_corp_secures_funding_for_montauban_project/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/flax_3pM.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/bakeNjyU.webp)

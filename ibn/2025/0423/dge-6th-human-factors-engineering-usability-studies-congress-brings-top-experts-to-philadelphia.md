@@ -23,14 +23,12 @@ DGE invites industry leaders, executives, and professionals to attend the 6th Hu
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/dge-6th-human-factors-engineering-usability-studies-congress-brings-top-experts-to-philadelphia/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/dge-hosts-6th-human-factors-engineering-congress-in-philadelphia/75e63c8a3ec8a4bf29f28f12ca20179b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/join-the-6th-human-factors-engineering-usability-studies-congress-in-philadelphia/d126a35795ab5db5817151dc0634502f) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1k670vu/dge_hosts_6th_human_factors_engineering_congress/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/23/epicZBOi.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/bestBZij.webp)

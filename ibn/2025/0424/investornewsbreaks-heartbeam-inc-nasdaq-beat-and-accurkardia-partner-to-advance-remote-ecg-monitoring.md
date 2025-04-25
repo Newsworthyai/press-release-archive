@@ -27,14 +27,12 @@ HeartBeam (NASDAQ: BEAT), a medical technology firm innovating in personalized c
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-heartbeam-inc-nasdaq-beat-and-accurkardia-partner-to-advance-remote-ecg-monitoring/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/heartbeam-collaborates-with-accurkardia-to-enhance-remote-cardiac-monitoring/6bca4668952459d86d76e9c43950c030) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heartbeam-collaborates-with-accurkardia-to-enhance-remote-cardiac-care/bae81c873e4a8eb7f59b4e79cef3c4c3) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1k6syd6/heartbeam_collaborates_with_accurkardia_to/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/24/quizG3Ad.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/gainKMtE.webp)

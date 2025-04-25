@@ -27,14 +27,14 @@ Glidelogic (USOTC: GDLG) today announced that its ResearchMind AI platform achie
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-glidelogic-corp-usotc-gdlg-research-ai-platform-nears-top-scores-in-independent-benchmark/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/glidelogic-s-researchmind-ai-platform-achieves-high-score-accelerating-research-proposal-drafting/3f5e036e17f4ad8e9b70cdb1419950a6) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/glidelogic-s-researchmind-ai-platform-achieves-high-score-accelerates-research-proposal-drafting/99ccf5add3b4b10db1babf108e633e5f) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1k57lk5/glidelogics_researchmind_ai_platform_achieves/) 
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1k7bqwh/glidelogics_researchmind_ai_platform_achieves/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/mildJDzA.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/lendE75R.webp)

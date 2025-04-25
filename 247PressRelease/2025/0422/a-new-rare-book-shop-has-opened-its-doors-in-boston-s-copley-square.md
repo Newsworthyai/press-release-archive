@@ -7,14 +7,14 @@ BOSTON, MA, April 22, 2025 /24-7PressRelease/ -- Boston has a new book shop, Phi
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522054/a-new-rare-book-shop-has-opened-its-doors-in-bostons-copley-square)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-shop-philip-salmon-company-rare-books-opens-in-boston/8d45a73e72353c15c23d65f253f5d046) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/new-book-shop-in-boston-continues-legacy-of-rare-and-beautiful-materials/6a8a9b431d0839ba4f453871192a0afa) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/BookNews/comments/1k50czx/new_book_shop_philip_salmon_company_rare_books/) 
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k7b36t/new_book_shop_in_boston_continues_legacy_of_rare/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/22/quizoKMm.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/nukeKNor.webp)

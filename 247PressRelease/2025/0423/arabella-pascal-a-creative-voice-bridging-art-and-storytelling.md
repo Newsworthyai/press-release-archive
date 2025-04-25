@@ -7,14 +7,14 @@ CAMARILLO, CA, April 23, 2025 /24-7PressRelease/ -- With a background that spans
 [Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522090/arabella-pascal-a-creative-voice-bridging-art-and-storytelling)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/arabella-pascal-a-creative-force-in-visual-arts-and-literature/cf377d203328313a5282f341bb18a39d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arabella-pascal-a-creative-journey-of-identity-and-connection/e1012e8d451b8236553544e39599177f) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/BookNews/comments/1k5t7z9/arabella_pascal_a_creative_force_in_visual_arts/) 
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1k7b78w/arabella_pascal_a_creative_journey_of_identity/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/23/quitFSYG.webp)
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/odorLzYL.webp)

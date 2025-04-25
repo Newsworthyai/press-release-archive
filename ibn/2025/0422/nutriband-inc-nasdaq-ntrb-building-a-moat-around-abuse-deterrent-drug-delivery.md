@@ -35,14 +35,12 @@
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/nutriband-inc-nasdaq-ntrb-building-a-moat-around-abuse-deterrent-drug-delivery/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/nutriband-secures-new-trademark-and-patents-targets-lucrative-sales-opportunity/633be298a81afa91f2c21093956d68d8) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nutriband-secures-new-u-s-trademark-and-international-patents-for-aversa-tm-platform/80fef424fe67b85a15431942885a5a59) 
+
+ 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1k5dumy/nutriband_secures_new_trademark_and_patents/) 
-
-
-
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/22/mailbwMg.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/riceffM8.webp)
