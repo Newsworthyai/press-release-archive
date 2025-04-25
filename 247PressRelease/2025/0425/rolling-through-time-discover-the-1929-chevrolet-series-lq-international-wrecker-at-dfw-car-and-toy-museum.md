@@ -1,0 +1,20 @@
+# Rolling Through Time: Discover the 1929 Chevrolet Series LQ International Wrecker at DFW Car and Toy Museum
+
+FORT WORTH, TX, April 25, 2025 /24-7PressRelease/ -- Step back in time and witness automotive history in motion at the DFW Car and Toy Museum! The latest gem to grace our collection is the meticulously restored 1929 Chevrolet Series LQ International Wrecker, a one-of-a-kind marvel that captures the rugged spirit of early 20th-century motoring. Whether you're a seasoned gearhead or a family looking for an unforgettable day out, this is an experience you won't want to miss.  This 1½-ton powerhouse, refurbished in 2019, showcases a perfect blend of vintage aesthetics and robust engineering. Powered by a reliable 194ci inline-six engine paired with a three-speed manual transmission, the Chevrolet Series LQ was built to conquer the toughest jobs of its era.  "The 1929 Chevrolet Series LQ Wrecker isn't just a truck; it's a rolling piece of history," said Ron Sturgeon, proud collector and automotive enthusiast. "Every detail tells a story of durability and innovation, making it a must-see for anyone who appreciates classic vehicles."  The wrecker features a rugged wood bed equipped with a fully operational Manley boom, complete with a crank, chains, J-hooks, and a Beebe Bros. five-ton winch. The truck is packed with vintage charm, boasting details like a steel front bumper, running boards, and a Coca-Cola-branded cooler. Even a quirky chicken enclosure finds its place among the period-correct accessories, adding a touch of whimsy to this industrial workhorse. A sign on the truck says "towing 3 cents per mile or 3 chickens".   Step inside the cab, and you'll be transported to another era. The black vinyl bench seat, wood-rimmed steering wheel, and barrel-style speedometer evoke the grit and determination of early drivers. With mechanical drum brakes on all four corners and solid axles with leaf springs, this wrecker demonstrates how vehicles once handled the road's challenges with rugged grace.  The DFW Car and Toy Museum invites you to explore this rare piece of automotive history alongside an extensive collection of classic cars and toys. Whether you're marveling at the engineering or simply soaking in the nostalgia, the 1929 Chevrolet Series LQ International Wrecker promises an exciting journey through time.  Don't miss your chance to see this historic wrecker up close!  Visit us at the DFW Car and Toy Museum and let history roll into your heart.  About DFW Car & Toy Museum  DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980's collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/521782/rolling-through-time-discover-the-1929-chevrolet-series-lq-international-wrecker-at-dfw-car-and-toy-museum)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/step-back-in-time-with-the-1929-chevrolet-series-lq-international-wrecker-at-dfw-car-and-toy-museum/f34758ecc97933cba3dd88c16c55f9e2) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1k7f9rt/step_back_in_time_with_the_1929_chevrolet_series/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/25/fern7IOP.webp)
