@@ -17,14 +17,14 @@ Port-au-Prince, Haiti – International Top-Up and Natcash Remittance are revolu
 [Original/Source Press Release](https://evertise.net/international-top-up-and-natcash-remittance-transforming-connectivity-and-financial-empowerment-in-haiti-with-natcom/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/natcom-revolutionizes-connectivity-and-financial-services-in-haiti/cf8b5547756b2f186fc9ad0a40041c65) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/natcom-revolutionizes-connectivity-and-financial-services-in-haiti/616e07b703b0c28b1c1c737aba438b86) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1jnv32f/natcom_revolutionizes_connectivity_and_financial/) 
+[Reddit Post](https://www.reddit.com/r/TravelAndLeisureNews/comments/1ka0ari/natcom_revolutionizes_connectivity_and_financial/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/253/31/glowAd6U.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/dashCYW6.webp)

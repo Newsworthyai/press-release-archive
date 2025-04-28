@@ -19,12 +19,14 @@ Lafayette, LA based eCommerce wedding floral rental business positioned for acce
 [Original/Source Press Release](https://evertise.net/something-borrowed-blooms-secures-3-6-million-in-series-b-funding-led-by-callais-capital/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/lafayette-based-ecommerce-wedding-floral-rental-business-secures-3-6m-in-funding-for-growth/f9b96cf055344eebc08b3b909a46c5f9) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lafayette-based-wedding-floral-rental-business-secures-3-6m-in-funding/b04b5d9404597596ca10430080bd50e9) 
 
  
 
- 
+
+
+[Reddit Post](https://www.reddit.com/r/StartupBusinessNews/comments/1ka06ab/lafayettebased_wedding_floral_rental_business/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/253/27/joinshqE.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/envyuStV.webp)

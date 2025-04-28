@@ -27,14 +27,14 @@ Port-au-Prince, Haiti – NATCOM, Haiti’s leading telecommunications provider,
 [Original/Source Press Release](https://evertise.net/natcom-revolutionizing-connectivity-and-financial-inclusion-in-haiti-with-international-top-up-natcash-remittance-services/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/natcom-redefines-connectivity-and-financial-inclusion-in-haiti-with-innovative-services/7ae8e8c19af0ca150dddab0c1273672b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/natcom-revolutionizes-connectivity-and-financial-inclusion-in-haiti-with-new-services/e752a54dcae0d43affd2677221b315f8) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1izg275/natcom_redefines_connectivity_and_financial/) 
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ka0alh/natcom_revolutionizes_connectivity_and_financial/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/252/27/roamyQo6.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/riftXEnt.webp)

@@ -43,14 +43,14 @@ Teams will compete throughout the night for a chance to win $10,000
 [Original/Source Press Release](https://evertise.net/worlds-first-vibe-coding-competition-announced-at-rally-conference/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/rally-launches-first-ever-vibe-coding-competition-at-innovation-conference/657374f9f9bdfc92768152cbc3103362) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rally-announces-first-ever-vibe-coding-competition-with-10000-prize/885ff042363b46e81090d071470f55f1) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/eventNews/comments/1jnv347/rally_launches_firstever_vibe_coding_competition/) 
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1ka06d3/rally_announces_firstever_vibe_coding_competition/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/253/31/daveScTO.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/paleqE0a.webp)

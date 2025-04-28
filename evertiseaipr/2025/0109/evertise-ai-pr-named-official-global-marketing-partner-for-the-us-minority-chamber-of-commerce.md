@@ -35,14 +35,14 @@ Collaboration Aims to Enhance Global Outreach and Opportunities for Minority-Own
 [Original/Source Press Release](https://evertise.net/evertise-ai-pr-named-official-global-marketing-partner-for-the-us-minority-chamber-of-commerce/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/evertise-ai-pr-named-global-marketing-partner-for-us-minority-chamber-of-commerce/665fda2f8d660fd845c0abc6d5071cf3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/evertise-ai-pr-named-global-marketing-partner-for-us-minority-chamber-of-commerce/07a907e5840d5af99a29563336e96fda) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1iih1b1/evertise_ai_pr_named_global_marketing_partner_for/) 
+[Reddit Post](https://www.reddit.com/r/MarketingNewsramp/comments/1ka0132/evertise_ai_pr_named_global_marketing_partner_for/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/252/5/tarob5Sz.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/airyt1bd.webp)

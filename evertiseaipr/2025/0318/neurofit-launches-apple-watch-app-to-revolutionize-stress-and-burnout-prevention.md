@@ -56,14 +56,14 @@ Real-time stress monitoring and prevention now available in 40+ languages – ri
 [Original/Source Press Release](https://evertise.net/neurofit-launches-apple-watch-app-to-revolutionize-stress-and-burnout-prevention/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/neurofit-launches-apple-watch-app-for-real-time-stress-monitoring-in-40-languages/d5a43859285aaf3ec28d8be3bd64d852) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/neurofit-launches-apple-watch-app-for-real-time-stress-monitoring-in-40-languages/3f1fc6fee15a6abbad958fbc5c66e294) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1jdvsiq/neurofit_launches_apple_watch_app_for_realtime/) 
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1ka0aoe/neurofit_launches_apple_watch_app_for_realtime/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/253/18/dunetYe0.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/ablebzpG.webp)

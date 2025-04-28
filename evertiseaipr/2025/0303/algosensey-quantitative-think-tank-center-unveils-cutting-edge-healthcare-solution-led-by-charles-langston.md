@@ -43,14 +43,14 @@ March 03, 2025, New York, Evertise Ai PR, Algosensey Quantitative Think Tank Cen
 [Original/Source Press Release](https://evertise.net/algosensey-quantitative-think-tank-center-unveils-cutting-edge-healthcare-solution-led-by-charles-langston/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/algosensey-quantitative-think-tank-center-unveils-groundbreaking-healthcare-solution/b38a28b174b2fbb67ce80e0504078d1d) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/algosensey-quantitative-think-tank-center-launches-groundbreaking-healthcare-solution/2095c6367e52bba45d5319bbe7a919be) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1j41tyx/algosensey_quantitative_think_tank_center_unveils/) 
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1ka067a/algosensey_quantitative_think_tank_center/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/253/5/noon49a0.webp)
+![Blockchain Registration](https://cdn.newsramp.app/evertise-ai-pr/qrcode/254/28/ablekYXk.webp)
