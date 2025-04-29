@@ -1,0 +1,20 @@
+# Terisa Griffin the Talented Soul Singer Songwriter and Storyteller Sensation is Coming to a City Near You
+
+CHICAGO, IL, April 29, 2025 /24-7PressRelease/ -- With a voice that commands the room and a presence that turns every performance into an unforgettable moment, Terisa Griffin is the kind of artist you feel as much as you hear. She's spontaneous, sultry and definitely in the moment. She's the embodiment of soul — raw, confident and creatively unmatched.  Born the daughter of a minister, Terisa's musical journey began in the church, harmonizing every Sunday with her three sisters. Her father's personal choir, those early gospel roots laid the foundation for the powerful storytelling and emotional depth she brings to every song. That's where she first found her voice — and it's been captivating audiences ever since.  Griffin has opened for icons like Jerry "IceMan" Butler, Diana Ross, Will Downing, The O'Jays, George Benson, Patti LaBelle, Charlie Wilson, Sheryl Lee Ralph, and Gregory Porter. Her name belongs among legends — and her performances prove it.  Internationally recognized for her hit single "Wonderful," co-produced with Grammy-nominated Terry Hunter, Terisa blends timeless soul with modern edge. Her independent catalog features four acclaimed albums and a suite of dance singles, including her soul-stirring rendition of Marvin Gaye's "Distant Lover," which charted at #34 on Billboard and #33 on Urban Radio MediaBase.  In late 2023, Griffin launched her sold-out "More Than A Woman" tour — an 8-city journey through City Winery venues and intimate clubs, giving fans an exclusive first listen to her upcoming June 2024 release. With heartfelt lyrics and unapologetic soul, her latest work echoes the greats while remaining unmistakably her own.  More than a vocalist, Terisa is a storyteller — on stage and on screen. She made her acting debut in Hill Harper's film "The Truth" penning the title track "Can't Stop Loving You," showing yet again that her artistry knows no boundaries.  Offstage, Terisa's passion continues through philanthropy. In 2007, she founded Better Love Yourself, Inc., a 501(c)(3) nonprofit dedicated to empowering young adults through education and self-worth. Her annual Trunk Parties have gifted over 8,000 students across various cities with essential college supplies, mentoring workshops, and a powerful message: You are worth it.  Terisa Griffin is more than a woman. She's a movement. A voice. A vibe. And her best work is just beginning.   Please visit the website https://www.terisagriffin.com and follow Terisa Griffin on  Instagram @terisa_griffin  Facebook https://www.facebook.com/terisa.griffin  For serious media inquiries contact: Jonell Whitt via email Whyjonellpr@gmail.com  Here's a Sneak Preview of Terisa Griffin's Upcoming Events - Check her Website for More Dates to be Added -  May 21st DJ Flash Elizabeth NJ   JUNE June 7th Mon Claire Hotel (MC) Hotel MonClaire New Jersey  June 9th-17th Portugal Guardsmen June 21st Opening for Boney James (Country Club Hills)  JULY July 11-12 BLY Trunk Event in DC July 19-20 BLY Trunk Event in St. Louis July 27th Trunk Event Chicago  August 23rd Chicago City Winery 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522262/terisa-griffin-the-talented-soul-singer-songwriter-and-storyteller-sensation-is-coming-to-a-city-near-you)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/soulful-artist-terisa-griffin-continues-to-captivate-audiences-with-powerful-storytelling-and-philanthropy-efforts/418e3ec46371974026b1a1423f234395) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1kai16q/soulful_artist_terisa_griffin_continues_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/29/tall2Gua.webp)
