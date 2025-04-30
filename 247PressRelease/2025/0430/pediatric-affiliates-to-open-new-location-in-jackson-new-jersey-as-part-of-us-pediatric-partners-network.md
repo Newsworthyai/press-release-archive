@@ -1,0 +1,20 @@
+# Pediatric Affiliates to Open New Location in Jackson, New Jersey as Part of US Pediatric Partners Network
+
+JACKSON TOWNSHIP, NJ, April 30, 2025 /24-7PressRelease/ -- Pediatric Affiliates, one of New Jersey's most trusted pediatric practices, is opening a new location in Jackson Township in early summer of this year. Located at 27 S Cooks Bridge Rd, Suite 2-12, inside the Hackensack Meridian Health Village at Jackson, the new location will serve families from surrounding communities such as Jackson Mills, Pine Park, Royal Grove, Woodmere, and more in order to continue its commitment to providing accessible, high-quality care for children and adolescents across Ocean County.  With a legacy of caring for New Jersey families for over 40 years, Pediatric Affiliates is known for its experienced providers, family-friendly approach, and unwavering dedication to each child's health and well-being. The new Jackson location will offer a full range of pediatric services—including newborn care, well visits, immunizations, sick visits, and adolescent care—delivered with the same personalized attention patients have come to expect across all locations.  "We've seen incredible growth in the Jackson area and have long wanted to bring our services closer to the families who live here," said Dr. Ira Haimowitz, provider at Pediatric Affiliates. "This new office allows us to offer the same high standard of care in a convenient setting—making it easier than ever for parents to access a team they already know and trust."  "Our goal is to raise the standard of pediatric care across the region. By expanding our proven model into more communities, we believe we can make a meaningful difference in the health and lives of these children," said Dr. Robert Shanik, provider at Pediatric Affiliates.  The new Jackson office will be open six days a week and offer same-day appointments, weekend hours, and provider triage access for after hours assistance. Upon opening, Dr. Haimowitz, Dr. Shanik, and Dr. Braverman will be seeing patients at the Jackson office in addition to continuing to serve families at their current locations.   Pediatric Affiliates' Jackson location will join a growing network of offices located throughout Ocean and Monmouth counties, all operating as part of US Pediatric Partners, a pediatric healthcare organization committed to expanding care in underserved and growing communities.  To learn more about Pediatric Affiliates and stay updated on the Jackson office opening, visit pediaff.com.  Pediatric Affiliates, PA is a trusted pediatric practice group serving families across Ocean and Monmouth counties in New Jersey for over 40 years. With a team of experienced board-certified pediatricians, nurse practitioners, and physician assistants, the practice provides comprehensive care for children from birth through adolescence—including well visits, sick care, immunizations, behavioral health consultations, and chronic condition management. With multiple convenient locations, extended hours, and a patient-first philosophy, Pediatric Affiliates is committed to delivering accessible, compassionate care throughout New Jersey that supports every stage of a child's development. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522227/pediatric-affiliates-to-open-new-location-in-jackson-new-jersey-as-part-of-us-pediatric-partners-network)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/pediatric-affiliates-to-open-new-location-in-jackson-township-nj-offering-comprehensive-pediatric-care/57e522a3f285c217933626064edd47d1) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1kbas56/pediatric_affiliates_to_open_new_location_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/254/30/lunaR7xj.webp)
