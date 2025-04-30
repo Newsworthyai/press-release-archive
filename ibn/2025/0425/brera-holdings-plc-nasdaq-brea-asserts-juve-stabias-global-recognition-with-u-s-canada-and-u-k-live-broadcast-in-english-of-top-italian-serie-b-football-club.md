@@ -25,17 +25,17 @@
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/brera-holdings-plc-nasdaq-brea-asserts-juve-stabias-global-recognition-with-u-s-canada-and-u-k-live-broadcast-in-english-of-top-italian-serie-b-football-club/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/brera-holdings-plc-nasdaq-brea-asserts-juve-stabias-global-recognition-with-u-s-canada-and-u-k-live-broadcast-in-english-of-top-italian-serie-b-football-club-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/brera-holdings-juve-stabia-match-broadcasted-live-in-u-s-canada-and-u-k/2598c3750dabe2f9990ad39eaaae3b17) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/brera-holdings-juve-stabia-match-broadcasted-live-in-english-marks-global-milestone/ea185145ebdc4a257e6d63717ba448fd) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1k7q5xl/brera_holdings_juve_stabia_match_broadcasted_live/) 
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1kbis9i/brera_holdings_juve_stabia_match_broadcasted_live/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/25/icy3Vgu.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/254/30/pinecW9Y.webp)
