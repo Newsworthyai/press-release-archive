@@ -26,17 +26,17 @@ The oversupply of lead has entered its third straight year while zinc is experie
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/zinc-and-lead-surplus-grows-as-economic-uncertainty-clouds-outlook/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/rns/zinc-and-lead-surplus-grows-as-economic-uncertainty-clouds-outlook-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/zinc-and-lead-face-oversupply-issues-in-market/db80b2064f2447201f4ae2c86e0b021b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lead-and-zinc-markets-experiencing-oversupply-impact-on-mining-industry-players/e892b99387f3024b84a43f99851b3124) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1kfbj2n/zinc_and_lead_face_oversupply_issues_in_market/) 
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1kfkf0h/lead_and_zinc_markets_experiencing_oversupply/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/255/5/lossgatj.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/255/5/envyGJrG.webp)
