@@ -1,0 +1,20 @@
+# Driving Results: BT Partners Teams Up with ServiceTitan to Deliver Seamless Financial & Operational Insights
+
+CHICAGO, IL, May 06, 2025 /24-7PressRelease/ -- BT Partners, a leading provider of technology solutions, is thrilled to announce its partnership with ServiceTitan.   Jacob Specht, the VP of Executive Analytics at BT Partners says, "BT Partners is excited to partner with ServiceTitan to continue bringing expert accounting, warehousing, and data analytics solutions to their customers." He continues, "Partnering with ServiceTitan is a game-changer for our clients. We've already seen tremendous results with companies like Stan's and Leap Partners, who are using Domo, Sage Intacct, and ServiceTitan to revolutionize how they manage and analyze their businesses."  BT Partners brings cutting-edge accounting & financial management, business intelligence and data analytics solutions to ServiceTitan companies everywhere through this partnership. By leveraging BT Partners' proprietary integration between Domo and ServiceTitan, companies can seamlessly send data from ServiceTitan straight into Domo, enabling easy data visualization and a 360-degree view of valuable insights across all locations related to technicians, inventory, scheduling, billing, and more. This powerful connector provides real-time visibility and transforms raw data into actionable intelligence that drives growth.   BT Partners also connects client's Sage Intacct to their ServiceTitan. "Our Sage Intacct solution is a great fit for ServiceTitan clients," said David Thikoll, BT Partners' VP of Business Development. "The combination of ServiceTitan's operational strength with Intacct's powerful financial capabilities helps businesses achieve unparalleled financial management and insight." The team helps clients get more insight out of their finances by combining the solutions and eliminating both manual work and errors with automated workflows.  Clients have been enjoying working with BT Partners, with the team's combination of industry insight and strong technical expertise. Patrick Ritter, CFO of Leap Partners and a client of BT Partners stated in a recent case study, "BT Partners is the go-to shop for Domo, particularly within the HVAC sector. They have deep industry experience and understand how to draw insights from ServiceTitan. We knew we wanted to work with them, and they haven't disappointed."   "We gained visibility into win rates that we didn't realize we were lacking. Uncovering and organizing the data raised awareness among our sales reps and managers, helping everyone see what steps lead to more success," shared Tim Bunt, CFO of Stan's HVAC, Plumbing, and Electrical in a recent interview.  BT Partners is now listed on the ServiceTitan Marketplace, where companies can get direct access to their expertise in Domo, Sage Intacct, and Snowflake, along with their proprietary integration.  About BT Partners  BT Partners helps organizations use technology to get ahead. Their enterprise solutions, managed IT, and executive analytics improve performance, but their people set them apart. By putting relationships over transactions, their team of trusted advisors helps clients thrive. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522453/driving-results-bt-partners-teams-up-with-servicetitan-to-deliver-seamless-financial-operational-insights)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/bt-partners-collaborates-with-servicetitan-to-revolutionize-financial-management-for-clients/c75d4ee52703f9cd5311d34bb4c4b3c8) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1kfyke0/bt_partners_collaborates_with_servicetitan_to/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/6/rain4xf2.webp)
