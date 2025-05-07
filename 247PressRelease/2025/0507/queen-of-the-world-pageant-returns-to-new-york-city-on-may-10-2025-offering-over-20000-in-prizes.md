@@ -1,0 +1,20 @@
+# Queen of the World Pageant Returns to New York City on May 10, 2025, Offering Over $20,000 in Prizes
+
+NEW YORK, NY, May 07, 2025 /24-7PressRelease/ -- One of the world's premier international pageants, the Queen of the World Pageant will hold its highly anticipated finale and coronation night on May 10, 2025, at the Jay Sharp Theater in Symphony Space, New York City.  This transformative pageant experience rewards winners with a stunning prize package valued at over $20,000. Winners will receive a custom crown and sash, international travel opportunities, a high-end diamond jewelry piece by Taija Diamonds, a custom queen's jacket by Punktified Boutique, and a professional photoshoot and makeup session by Jennifer Lloyd. The package also includes luxury skincare, handmade earrings, a $750 Muzzie's shopping certificate, professional photography by Anthony Panzino.  All contestants will also receive an impressive swag bag valued at $200, filled with curated items from generous sponsors. The organization expresses heartfelt gratitude to its sponsors, whose support empowers and uplifts women around the globe.  Founded by triple crown titleholder Alice Lee Giannetta and produced by Beauty Redefined-a minority woman-owned production company-the Queen of the World Pageant is a modern, top-tier celebration of glamour, style, confidence, beauty, diversity, and inclusion. With four competitive divisions-Miss, Ms., Mrs., and Elite-the pageant offers a welcoming platform for women of all ages and backgrounds.  Alice Lee Giannetta, having personally experienced the pageant world from every angle-as both a contestant and a working titleholder-created Queen of the World to deliver an elevated and empowering experience for women everywhere. The organization believes pageants remain relevant and inspiring when led with professionalism, produced with passion, and managed with integrity.  Queen of the World invites all women to join the revolution and redefine what it means to be beautiful, confident, and united. The pageant fosters a community where women support one another, celebrate their differences, and shine together-with lots of sparkles.  Contestants arrive in New York City on May 5 for a full week of training, confidence-building workshops, interviews, and networking opportunities. The pageant concludes with the grand finale on May 10, streamed live via pay-per-view.  To attend, sponsor, or learn more, visit www.queenoftheworldpageant.com  To Our Reigning Queens, As we prepare for another unforgettable year, we want to take a moment to express our deepest gratitude to the women who have worn the crown with unmatched grace and power. You are the heart of our movement, and you have each embodied what it means to be Glamorous. Confident. Modern. - Miss Queen of the World 2024, Maya Ramsahoye - Your elegance and light have uplifted women across the globe. - Ms. Queen of the World 2024, China Allen - Your authenticity and spirit have created space for women to dream boldly. - Mrs. Queen of the World 2024, Jennifer Lloyd - Your artistry, professionalism, and heart have left an incredible legacy. - Elite Queen of the World 2024, Kristi Wischnack - Your wisdom and strength continue to inspire all generations.  You've redefined what leadership, beauty, and purpose look like-and we are forever proud to have you as part of the Queen of the World family.  With love and honor, The Queen of the World Pageant Team 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522526/queen-of-the-world-pageant-returns-to-new-york-city-on-may-10-2025-offering-over-20000-in-prizes)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/queen-of-the-world-pageant-set-for-grand-finale-in-new-york-city/60c4393721b1ababa7b7d09f3b111eb1) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1kgrcsz/queen_of_the_world_pageant_set_for_grand_finale/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/7/taroYh59.webp)
