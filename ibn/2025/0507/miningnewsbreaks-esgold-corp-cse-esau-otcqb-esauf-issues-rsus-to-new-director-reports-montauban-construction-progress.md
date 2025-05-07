@@ -1,14 +1,14 @@
 # MiningNewsBreaks – ESGold Corp. (CSE: ESAU) (OTCQB: ESAUF) Issues RSUs to New Director, Reports Montauban Construction Progress
 
-ESGold (CSE: ESAU) (OTCQB: ESAUF) a pre-production gold and silver company advancing its Montauban Project in Quebec, has issued 500,000 restricted share units (“RSUs”) to new board member Peter Espig as part of its equity incentive plan. Espig brings deep experience in project finance and transitioning juniors to producers. The company also confirmed that construction at its Montauban processing site is progressing on schedule, with the delivery of Humphrey Spirals—key to the gravity recovery circuit—expected next week. ESGold targets production by year-end 2025.
+ESGold (CSE: ESAU) (OTCQB: ESAUF) a pre-production gold and silver company advancing its Montauban Project in Quebec, has issued 500,000 restricted share units (“RSUs”) to new board member Peter Espig as part of its equity incentive plan. Espig brings deep experience in project finance and transitioning juniors to producers. The company also confirmed that construction at its Montauban processing site is progressing on schedule, with the delivery of Humphrey Spirals—key to the gravity recovery circuit—expected next week. ESGold targets production by year-end 2025.
 
- To view the full press release, visit https://ibn.fm/mR25P
+ To view the full press release, visit https://ibn.fm/7HpGr
 
  About ESGold Corp.
 
  ESGold Corp. (CSE: ESAU) (OTCQB: ESAUF) (FSE: Z7D) is a fully permitted, pre-production resource company at the forefront of clean mining and exploration innovation. With proven expertise in Quebec, the Company is advancing its projects toward production and feasibility while delivering long-term value through sustainable resource recovery and exploration. ESGold’s flagship Montauban property, located 80 kilometers west of Quebec City, serves as a model for responsible mining practices, combining near-term production with district-scale discovery potential.
 
- NOTE TO INVESTORS: The latest news and updates relating to ESAUF are available in the company’s newsroom at https://ibn.fm/ESAUF
+ NOTE TO INVESTORS: The latest news and updates relating to ESAUF are available in the company’s newsroom at https://ibn.fm/ESAUF
 
  About MiningNewsWire
 
@@ -31,14 +31,14 @@ ESGold (CSE: ESAU) (OTCQB: ESAUF) a pre-production gold and silver company advan
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/mnw/miningnewsbreaks-esgold-corp-cse-esau-otcqb-esauf-issues-rsus-to-new-director-reports-montauban-construction-progress/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/esgold-corp-advances-montauban-project-with-new-board-member-and-construction-progress/15676921760168416a30a25c325e1ae3) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/esgold-corp-advances-montauban-project-with-key-equipment-delivery-expected/f5de14f00bf6a8cdc4a0919ea5503075) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1kgxoig/esgold_corp_advances_montauban_project_with_new/) 
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1kh2bti/esgold_corp_advances_montauban_project_with_key/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/255/7/milkEGXk.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/255/7/davemfjS.webp)
