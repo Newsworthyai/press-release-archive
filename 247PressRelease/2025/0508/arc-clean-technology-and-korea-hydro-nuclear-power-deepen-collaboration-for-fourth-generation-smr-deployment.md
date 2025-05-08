@@ -1,0 +1,20 @@
+# ARC Clean Technology and Korea Hydro & Nuclear Power deepen collaboration for fourth-generation SMR deployment
+
+SEOUL, KOREA, May 08, 2025 /24-7PressRelease/ -- ARC Clean Technology (ARC), a leading developer of advanced nuclear technology, met with Korea Hydro & Nuclear Power (KHNP) last week in Seoul to advance discussions on collaboration opportunities related to the deployment and commercialization of ARC's advanced small modular reactor, the ARC-100. The meeting took place on April 29 at the Lotte Hotel in Seoul.  The ARC-100 is a 100-megawatt Generation IV sodium-cooled fast reactor designed for both on-grid electricity and industrial heat applications. The technology is being advanced in partnership with New Brunswick Power (NB Power) at their Point Lepreau site which is currently home to robust existing nuclear infrastructure. In 2023, NB Power submitted a License to Prepare Site application to the Canadian Nuclear Safety Commission (CNSC) for a commercial demonstration of the ARC reactor, and the utility is also considering ARC technology as part of a plan for additional SMR capacity at the Lepreau site.  Last year, ARC, KHNP, and NB Power signed a trilateral collaboration agreement to explore fleet deployment opportunities for the ARC-100. The agreement established a framework for joint work on commissioning, operations, maintenance, and project management of ARC units, starting with the commercial demonstration project in New Brunswick.  The meeting further strengthened that partnership, with a shared commitment to accelerate fourth-generation SMR deployment and enhance long-term cooperation between ARC and KHNP. The discussions also aligned with KHNP's broader strategy to expand its global SMR footprint beyond the company's ongoing development of its pressurized water reactor, the Innovative SMR (i-SMR).  Dr. Jooho Whang, CEO of KHNP, stated "The ARC-100 is one of the most advanced technologies approaching commercialization among fourth-generation SMRs. Through our collaboration, we aim to secure future growth drivers for the nuclear industry and build a robust nuclear portfolio to lead the global market."  "KHNP is a world leader in nuclear operations and construction, and we are pleased to continue building our relationship," added Donald Wolf, CEO of ARC Clean Technology. "As we work toward commercial deployment of the ARC-100 in North America and explore opportunities internationally, KHNP's deep expertise and global capabilities are a natural complement to our technology."  About ARC Clean Technology ARC Clean Technology Inc. is a clean energy technology company developing the ARC-100, an advanced small modular reactor offering safe, reliable, and economical carbon-free power. Leveraging proven technology from the 30-year performance of its prototype, the ARC-100's modular design provides 100 megawatts of energy for electricity and industrial applications. ARC is also a participant in the U.S. Department of Energy's Advanced Reactor Demonstration Program (ARDP), supporting accelerated SMR development. ARC Clean Technology has offices in New Brunswick, Canada and Washington, DC.  For more information, visit www.arc-cleantech.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522586/arc-clean-technology-and-korea-hydro-nuclear-power-deepen-collaboration-for-fourth-generation-smr-deployment)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/arc-clean-technology-advances-collaboration-with-khnp-for-deployment-of-arc-100-reactor/650e8c1178134b6b1f7ca898f3da3e80) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1khk3kh/arc_clean_technology_advances_collaboration_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/8/fond1nvj.webp)
