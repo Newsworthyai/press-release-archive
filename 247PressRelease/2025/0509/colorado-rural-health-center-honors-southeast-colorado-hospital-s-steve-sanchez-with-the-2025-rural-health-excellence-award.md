@@ -1,0 +1,20 @@
+# Colorado Rural Health Center Honors Southeast Colorado Hospital's Steve Sanchez with the 2025 Rural Health Excellence Award
+
+BROOMFIELD, CO, May 09, 2025 /24-7PressRelease/ -- The Colorado Rural Health Center (CRHC) awarded Steve Sanchez, Community Relations Manager at Southeast Colorado Hospital, with the "Rural Health Excellence" award. Presented during The Colorado Rural Healthcare Conference, the award recognizes individuals for their exceptional contributions to rural health advocacy and commitment to service to their communities.   "The Rural Health Excellence Award is given annually to an individual who demonstrates a commitment to their facility, community, and to the larger mission of delivering comprehensive, affordable, high-quality healthcare to rural Colorado" said CRHC CEO Michelle Mills. "Congratulations, Steve, and thank you for all your hard work!"   Steve Sanchez has served Southeast Colorado Hospital District since 2017. He was elected as the Board Chairman for the Southeast Regional Healthcare Coalition and as the State of Colorado Southeast Region Healthcare Coalition Board Chair of the steering committee. Along with his involvement in the Southeast Region, he currently serves on the state level as a Commissioner on the State of Colorado Suicide Prevention Commission.   "Thank you, Colorado Rural Health Center for this award," said Steve Sanchez. "It was a surprise and a positive affirmation of the work that so many people, [including myself] do to meet the needs of our workplaces and communities."   Steve also provides a vital voice on the CRHC Policy and Legislative Committee and is heavily involved in CRHC's events and opportunities. In 2023, Steve facilitated the receipt of the 2023 Marva Jean Jackson award through the Colorado Rural Health Center. The award was used to fund the Ogallala Commons Internship program, designed to help rural students across the region gain work experience in quality and needed careers in their home communities.   "Rural health is very complex work and so many of us work together for the better good of our patients and coworkers," said Steve Sanchez. "It is an honor to be recognized for Rural Health Excellence."   "I am proud to have such hardworking and engaged CRHC members," said Mills. "Our members inspire us at the Colorado Rural Health Center and the Rural Health Excellence Award is a great way to honor just one of the many hardworking individuals across the state."   Nominations for the 2026 award will open in January of next year.  The Colorado Rural Health Center was established in 1991 as Colorado's State Office of Rural Health. As a 501(c)(3) nonprofit corporation, CRHC serves dual roles as the State Office of Rural Health and the State Rural Health Association. The organization's mission is to enhance healthcare services in the state by providing information, education, linkages, tools, and energy toward addressing rural health issues. CRHC's vision is to improve healthcare services available in rural communities to ensure that all rural Coloradans have access to comprehensive, affordable, high-quality healthcare. For more information visit www.coruralhealth.org, call 303-832-7493, or call toll free 800-851-6782 from rural Colorado. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522612/colorado-rural-health-center-honors-southeast-colorado-hospitals-steve-sanchez-with-the-2025-rural-health-excellence-award)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/colorado-rural-health-center-awards-rural-health-excellence-to-steve-sanchez/a54ddd005fc12ed4531408ec793afaee) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1kick73/colorado_rural_health_center_awards_rural_health/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/9/calmA0JP.webp)
