@@ -1,0 +1,20 @@
+# Addison Wood Wins 2024 First Coast Home Pros Young Entrepreneur Scholarship
+
+JACKSONVILLE, FL, May 12, 2025 /24-7PressRelease/ -- First Coast Home Pros supports future business leaders through its Young Entrepreneur Scholarship. Addison Wood was selected to receive the $2,500 award. She stood out for her clear business vision, strong commitment to education, and passion for helping people with food allergies live safer lives.  Addison Wood has been awarded the First Coast Home Pros Young Entrepreneur Scholarship for her standout business idea: Alchemy Bakery, a bakery for people with food allergies. Inspired by her own experience living with a severe peanut allergy, Addison's concept is about solving a problem she knows firsthand.  Her personal story, paired with a clear and thoughtful business plan, impressed the judges with its authenticity, innovation, and purpose. Alchemy would offer baked goods free of the nine most common food allergens. Addison's vision is a powerful example of turning challenges into meaningful changes.  Addison Wood, the 2024 First Coast Home Pros Young Entrepreneur Scholarship winner, is wrapping up her first year at Purdue University as an Engineering major. She plans to focus on Civil Engineering with a concentration in Transportation and Infrastructure Systems, driven by a strong interest in how modern technologies like automated vehicles impact roads and traffic.  Beyond academics, Addison is actively involved in campus life, supporting Make-A-Wish through Chi Omega and raising funds for the Andrea Rizzo Foundation as part of Higher Ground Dance Company. A lifelong dancer and volunteer, she also helps with her family's business and enjoys working with kids through camps and babysitting.  Addison credits her parents as her biggest inspiration and hopes to follow in their entrepreneurial footsteps. She plans to intern during college, work in the engineering field after graduation, and eventually earn her MBA to start her own business. With help from the scholarship, she feels motivated to stay on track and is excited about the new opportunities it brings.  Addison Wood's determination, creativity, and strong work ethic will lead to lasting success in both her career and personal life. As she wraps up her first year at Purdue University, she is already building a solid path toward a bright future. The team at First Coast Home Pros congratulates Addison for her well-deserved win!  About First Coast Home Pros  First Coast Home Pros is a full-service home cleaning and improvement company based in Jacksonville, Florida. Founded in 2008 by Joshua Kennedy, the company began with professional window cleaning and quickly expanded due to high customer demand.  Today, First Coast Home Pros offers a wide range of expert services, including carpet cleaning, maid services, pressure washing, tile and grout cleaning, air duct cleaning, and even handyman and remodeling services. Each team specializes in specific tasks to ensure top-quality results.  The company is built on a strong commitment to communication, respect for the clients' time and home, and technical excellence. With trained professionals, industry-leading tools, and a customer-first philosophy, First Coast Home Pros continues to be a trusted name for homeowners across Northeast Florida. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522698/addison-wood-wins-2024-first-coast-home-pros-young-entrepreneur-scholarship)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/first-coast-home-pros-supports-future-business-leaders-with-young-entrepreneur-scholarship/3d439c0f8bee009f57856fcd91948e32) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1kl277k/first_coast_home_pros_supports_future_business/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/12/urgeOmjC.webp)
