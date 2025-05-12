@@ -1,0 +1,20 @@
+# Dionies Sportswear Counters Industry Price Hikes with Permanent 20% Discount Model
+
+ATLANTA, GA, May 12, 2025 /24-7PressRelease/ -- As sportswear brands around the globe increase retail prices in response to rising tariffs and supply chain challenges, Dionies Sportswear is doing the exact opposite: offering a consistent 20% discount on all products every day. This bold strategy sets Dionies apart from competitors and aims to attract price-conscious consumers looking for quality athletic gear. By prioritizing affordability, the brand hopes to build a loyal customer base while navigating the complexities of the current market.  While inflation and import tariffs drive up prices on athletic gear, Dionies is breaking away from industry trends by creating a pricing model that delivers premium-quality activewear at a price point consumers can afford, without compromising performance, style, or sustainability.  "Our customers shouldn't have to sacrifice quality just because the market is shifting," says Xavier Grimes, founder of Dionies Sportswear. "We've re-engineered our business to absorb industry pressures, so they don't have to."  Unlike limited-time offers seen across the industry, Dionies "Always 20% Off" model isn't a marketing trick—it's a core value. The brand encourages transparency and empowers its customers to understand what they're paying for: moisture-wicking, movement-ready apparel built to last, without the inflated retail markup.  Over the past year, consumers have faced rising costs across categories, including fitness apparel, as tariffs on imported textiles and materials have climbed. Most major brands have responded with price increases. Dionies took a different route.  By building a model with tariff-resistant sourcing where consumers aren't paying the price, Dionies can offer a permanent 20% discount across all collections, including bestsellers like the Pro-Active Fitness Set, Elevate Your Game Sports Tee, and the Serenity Yoga Collection that reflect its overall commitment to quality, style, and affordability. As a result of this model, Dionies is quickly becoming a go-to brand for consumers who value both performance and affordability.  "We're not running a sale," adds Grimes. "This is our new business model. Fair pricing is the foundation of trust—and that's what we're here to build."  Unlike brands that inflate prices only to offer occasional markdowns, Dionies Sportswear's pricing model is based on transparency and fairness. The 20% discount isn't temporary—it's a promise.  There are no seasonal markups, no flash sales. and no hidden costs. The "Always 20% Off" model is just reliable, high-performance gear built for everyday people at prices they can afford.  As the sportswear market becomes increasingly inaccessible for budget-conscious consumers, Dionies is winning loyalty from those looking for high-performance, long-lasting gear that fits their lifestyle and budget.  About Dionies Sportswear  Founded in Atlanta, Georgia, Dionies Sportswear is a next-generation activewear brand committed to delivering high-performance apparel at honest prices. Built for movement, made with purpose, and driven by accessibility, Dionies empowers everyday people to look and feel good without paying inflated prices. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522670/dionies-sportswear-counters-industry-price-hikes-with-permanent-20-discount-model)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dionies-sportswear-stands-out-with-permanent-20-discount-on-premium-activewear/9689f6d68b133675f97bcc4740da3c56) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1kkmczw/dionies_sportswear_stands_out_with_permanent_20/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/12/epicFgzu.webp)
