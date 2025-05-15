@@ -1,0 +1,20 @@
+# Kendall Hunt and Great River Learning Join OpenStax Technology Partners Program
+
+DUBUQUE, IA, May 15, 2025 /24-7PressRelease/ -- Kendall Hunt Publishing Company and its innovative digital division, Great River Learning (GRL), are proud to announce their official entry into the OpenStax Technology Partners Program, a collaborative initiative spearheaded by OpenStax, a nonprofit educational technology organization. This partnership reinforces Kendall Hunt's ongoing commitment to enhancing access, affordability, and innovation in higher education.  By joining the OpenStax Technology Partners Program, Kendall Hunt and GRL will integrate their content and platforms with OpenStax's widely adopted open educational resources (OER), creating seamless experiences for faculty and students. The partnership aims to combine the flexibility and accessibility of OER with the robust pedagogical tools and services offered by Kendall Hunt and GRL.  "We look forward to expanding our relationship with OpenStax," commented Chad Chandlee, President and COO of Kendall Hunt. "Our customization efforts over the last 80+ years have shown that localized, course-specific content is affordable and drives improved learning outcomes. We are excited to provide our customized, digital solutions to more faculty and institutions through this innovative partnership with OpenStax."  As part of the collaboration, Kendall Hunt's and Great River Learning's interactive and customizable digital learning tools will enhance the usability of OpenStax materials across a wide range of academic disciplines. This integration will allow educators to tailor course content more effectively while providing students with engaging, multimedia-rich learning experiences.  "We are happy to welcome Kendall Hunt and Great River Learning into our Technology Partner program," said Daniel Williamson, Managing Director for OpenStax. "This program provides educators with a powerful ecosystem of technologies aligned with the quality OpenStax content they trust. By combining the accessibility of our open educational resources with their innovative digital solutions, we are creating even more pathways to effective learning experiences."  The OpenStax Technology Partners Program supports the development of a robust ecosystem of integrated tools and platforms that enhance the use of OpenStax textbooks. By joining this initiative, Kendall Hunt and GRL are helping to strengthen the connection between high-quality open educational resources and the powerful digital solutions that educators and students rely on to succeed.  Since 1944, Kendall Hunt has been a privately owned and operated educational publishing company. With over 10,000 print and digital titles available today, Kendall Hunt is best known for providing educators with quality content solutions for the classroom. A rare combination of stability and innovation has made Kendall Hunt a leader in the PreK-12 and Higher Education publishing industry. Following in the footsteps of our founder, William C. Brown, Kendall Hunt Publishing combines an immense library of outstanding course content with a consultative, solutions-based approach to publishing. For more information, visit http://he.kendallhunt.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522795/kendall-hunt-and-great-river-learning-join-openstax-technology-partners-program)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kendall-hunt-and-great-river-learning-partner-with-openstax-to-enhance-higher-education-access/9426f2fb2f42253477021e232fa095ff) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1kn2b5e/kendall_hunt_and_great_river_learning_partner/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/15/vastYcos.webp)

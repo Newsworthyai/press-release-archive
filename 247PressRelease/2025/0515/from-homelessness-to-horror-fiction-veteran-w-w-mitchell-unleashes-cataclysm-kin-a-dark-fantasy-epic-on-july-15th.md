@@ -1,0 +1,20 @@
+# From Homelessness to Horror Fiction: Veteran W.W. Mitchell Unleashes Cataclysm Kin, a Dark Fantasy Epic, on July 15th
+
+ST. LOUIS, MO, May 15, 2025 /24-7PressRelease/ -- On July 15th, U.S. Marine Corps veteran and debut author W.W. Mitchell will release Cataclysm Kin, a haunting horror-fantasy novel that blends mythology, psychological depth, and apocalyptic tension. This marks the official launch of a sweeping seven-book saga—and the rebirth of a writer who nearly walked away from it all.  The story follows Edith and Bethany, celestial sisters who once fled their war-torn realm in search of peace on Earth. Centuries later, one hides among mortals in secret. The other has mutated into something monstrous. Their bond, once sacred, now teeters on the edge of ruin—while the world burns under skies stained red and otherworldly creatures awaken to reclaim what was lost.  As the Halphobs rise and the Kelxsiar stalk the final remnants of divine bloodlines, the sisters are thrust into a reckoning that could collapse realms. Cataclysm Kin is a brutal yet lyrical descent into divine trauma, ancient wrath, and the thin line between salvation and devastation.  But the story behind the novel is just as compelling.  Mitchell served in the United States Marine Corps, traveling across the globe and sharpening his perspective through new cultures and deep personal reflection. While he wrote throughout his military service, it was during his darkest hour—facing homelessness in Chicago, and grappling with depression and alcoholism—that the future of his writing hung in the balance.  "I almost gave it up," Mitchell shares. "But writing was one of the things that kept pulling me back. It reminded me that I had something worth building."  Now in control of his life and craft, Mitchell runs Trigonic Press, the indie publisher behind Cataclysm Kin and the hub for an entire multimedia storytelling empire. Trigonic isn't just a publishing house—it's a production company in motion. A limited series pilot for Cataclysm Kin has already entered early development, and his second novel, The Legend of Sky City, is currently in early pre-production for a feature film.  "I love building worlds, and that's what starting this series is for me," says Mitchell. "It's about blending genres boldly and filling them with characters who feel larger than life—but still human. That's what makes a story stick."  Cataclysm Kin is the first strike in a bold new literary universe—one rooted in cosmic terror, raw emotion, and the redemptive power of creation. "If you're into stories with blood, betrayal, and beauty," Mitchell adds, "this is just the beginning."  Cataclysm Kin will be available in paperback, hardcover, and ebook formats on July 15th, 2025, wherever books are sold. ISBNs and review materials are available upon request.  Trigonic Media is a multi-platform storytelling company founded by author and entrepreneur W.W. Mitchell. Home to both Trigonic Press (publishing) and Trigonic Films (production), the company develops bold, genre-bending stories that span books, television, and film. Focused on original IP, diverse voices, and emotionally charged narratives, Trigonic is committed to building immersive worlds that resonate with audiences across mediums. With projects like Cataclysm Kin and The Legend of Sky City, Trigonic Media is forging a new creative frontier—where powerful storytelling meets visionary execution.  Visit the Website 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522666/from-homelessness-to-horror-fiction-veteran-ww-mitchell-unleashes-cataclysm-kin-a-dark-fantasy-epic-on-july-15th)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marine-corps-veteran-w-w-mitchell-to-release-debut-novel-cataclysm-kin/929d2c1d6aaa094efe7a1fa992600c7c) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1kn2b96/marine_corps_veteran_ww_mitchell_to_release_debut/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/15/deepta9E.webp)

@@ -1,0 +1,20 @@
+# Florida's Largest Home Show Returns to Palm Beach for Memorial Day Weekend—Now Featuring Craig Conover, Designer Vignettes, VIP Access & Live Culinary Tastings
+
+WEST PALM BEACH, FLMay 15, 2025 /24-7PressRelease/ -- The Home Show is rolling out the red carpet this Memorial Day Weekend (May 23–26, 2025) at the Palm Beach County Convention Center, bringing 100,000+ square feet of cutting-edge home design, remodeling inspiration, and exclusive experiences—all under one roof.   What to Expect:  Location: Palm Beach County Convention Center 650 Okeechobee Blvd, West Palm Beach, FL  Show Dates + Hours: Friday, May 23: 11:00 a.m. – 7:00 p.m. Saturday, May 24: 11:00 a.m. – 7:00 p.m. Sunday, May 25: 11:00 a.m. – 7:00 p.m. Monday, May 26: 11:00 a.m. – 6:00 p.m.  Tickets: Available Online  Hottest Moments This Year:  Celebrity Guest Craig Conover (Bravo's Southern Charm and Co-Founder of Sewing Down South) Craig takes the stage Saturday & Sunday at 3 PM to share his story of turning a side passion into a thriving lifestyle brand. Don't miss the VIP Experience, including:  Reserved seating Signed copy of Pillow Talk Exclusive meet & greet photo op  Reservations: Online Only  2025 Real Estate Market Update  Join Jonathan Lickstein, President of Broward, Palm Beaches & St. Lucie Realtors, for an in-depth seminar on what's next in the local housing market.  Designer Show House  Tour stunning design vignettes curated by some of the region's most sought-after talents: Andrea Mejia (Sensa Design) Marina Barghouti (Interior Stylist & Influencer) Josiane A. Raphael (Founder, Ebotan Interiors)  Live Culinary Experience  Taste your way through live demos featuring South Florida's most popular chefs, paired with cocktail pairings and gourmet bites. Sponsored by: Thermador, FUSE Specialty Appliances, LIOHER, Lifetime Kitchen.  Chef Jennifer Parker, Nutritionist and Founder of Evolved Catering Services Chef Bryan Lopez, Executive Chef of Prezzo Italian Restaurant & Bar Brooke and Kelly, mixologists offering summertime cocktail recipes  Top Brand & Exhibitors You'll Meet:  From luxury kitchen design to outdoor living solutions, meet industry leaders like:  Van Kirk Pools – Custom Pool Builders PID Floors – Luxury Engineered Wood Flooring Terrazzo GraniTech USA – Decorative Plaster & Surfaces LUXE Outdoor Living – Authorized Jacuzzi® Dealer Tiara Furniture – Custom Kitchens Belamo Design – European Patio Furniture Velum Design – Stretch Ceiling & Lighting Statewide Windows & Doors – Hurricane Protection Pool Cover USA – Sliding Deck Pool Covers Moon Valley Nurseries – Exotic Trees Sukabumi – Green Stone and Black Lava Stone …and many more!  Categories include:  Kitchen & Bath Remodeling Furniture & Home Decor Impact Windows, Doors & Roofing Smart Home Tech & Security Outdoor Kitchens, Landscaping & Pergolas Flooring, Wall Coverings, Solar Energy & Generators Art, Décor, and more!  Tickets & Info Buy Tickets: homeshows.com/tickets Full Event Details: homeshows.com  About the Home Show  The Home Show has been a trusted destination for Florida homeowners for over 40 years, bringing together top designers, contractors, and brands under one roof. From Miami to Fort Lauderdale and Palm Beach, we create immersive, design-forward experiences to help you love where you live. The Home Show is where your house becomes a home.™ 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522833/floridas-largest-home-show-returns-to-palm-beach-for-memorial-day-weekendnow-featuring-craig-conover-designer-vignettes-vip-access-live-culinary-tastings)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/experience-the-ultimate-home-design-event-at-the-palm-beach-county-convention-center-this-memorial-day-weekend/54107d4ca4bc5222d2c55a04004714b1) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1kn28dc/experience_the_ultimate_home_design_event_at_the/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/15/limeViZJ.webp)

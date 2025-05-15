@@ -1,0 +1,20 @@
+# GOSKATE Celebrates Go Skate Day 2025 with Free Events Across North America and Expands Global Skatepark Directory
+
+LOS ANGELES, CA, May 15, 2025 /24-7PressRelease/ -- GOSKATE, the leading provider of skateboarding lessons worldwide, is proud to announce its continued support for Go Skate Day 2025 with hundreds of events happening on June 21st. Among these, three major free skateboarding master classes will be hosted in Seattle, Toronto, and St. Petersburg, Florida, led by some of GOSKATE's top certified instructors.  Event Highlights: • Seattle, WA – Instructor Gabriel Maloy (with 18 years of experience) will lead a free master class at Lake City Skatepark at 2:00 PM. Gabriel has taught hundreds of kids throughout Seattle, Bellevue, Shoreline, and Kirkland. • Toronto, ON (Markham) – Instructor Mohammad Fazli will host a session at Markham Centennial Skatepark (McCowan Rd & Bullock Dr) at 2:00 PM, welcoming riders of all skill levels across the Greater Toronto Area. • St. Petersburg, FL – Instructor Benjamin Pedigo will lead a lesson at St. Petersburg Skatepark at 1:00 PM, bringing his Florida-grown experience to riders of all ages.  Each instructor will be wearing GOSKATE-branded apparel and distributing free giveaways to attendees. These events reflect GOSKATE's mission to inspire the next generation of skaters and strengthen local communities through the power of skateboarding.  "Skateboarding goes beyond tricks—it builds resilience, confidence, and community," said Robert Guirola, Director of Excellence at GOSKATE. "Go Skate Day is a reminder that local skate communities need support, mentorship, and shared passion. We're honored to be part of so many events where skaters come together to uplift each other."  A full list of Go Skate Day 2025 events supported by GOSKATE can be found at: https://goskate.com/top/go-skateboarding-day/  GOSKATE Adds 7,000 New Listings to Its Global Skatepark Directory  In a continued effort to make skateboarding more accessible to riders everywhere, GOSKATE has expanded its Worldwide Skatepark Directory by adding 7,000 new skateparks across the globe. Available at https://www.goskate.com/sp/, this growing directory is one of the most comprehensive tools for skaters looking to discover, explore, and connect with skateparks in their area or while traveling.  "Skateboarding is alive and growing in every corner of the world," said Rob Dunfey, Founder and CEO of GOSKATE. "By expanding our global skatepark directory, we're helping skaters find their next favorite spot—whether it's down the street or on the other side of the world. More than ever, we call on the skateboarding community to support each other, share local knowledge, and keep pushing forward together."  From local parks to global directories, GOSKATE continues to champion the growth of skateboarding culture—one rider, one session, and one skatepark at a time.  GOSKATE is the world's leading provider of private skateboarding lessons, offering expert instruction across North America and beyond. With thousands of certified instructors and a commitment to accessibility, GOSKATE empowers riders of all ages and skill levels to achieve their goals. Its expansive online skatepark directory and dedication to community events like Go Skate Day reflect the company's mission to grow and support skateboarding culture worldwide. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522791/goskate-celebrates-go-skate-day-2025-with-free-events-across-north-america-and-expands-global-skatepark-directory)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/goskate-supports-go-skate-day-2025-with-free-master-classes-and-expands-global-skatepark-directory/7e2c3b956b6c8f64e561381168fd7c87) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1kn2e4x/goskate_supports_go_skate_day_2025_with_free/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/15/vastiZA6.webp)
