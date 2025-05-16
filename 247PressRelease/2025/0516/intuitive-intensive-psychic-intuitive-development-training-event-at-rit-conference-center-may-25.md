@@ -1,0 +1,20 @@
+# Intuitive Intensive - Psychic-Intuitive Development Training Event at RIT Conference Center May 25
+
+ROCHESTER, NY, May 16, 2025 /24-7PressRelease/ -- All people have a natural ability to sense seemingly invisible energies around them. Very young children interact with the spirit world, relatives who passed away before the child was born. As one begins school, if unsupported, this natural ability begins to diminish.   On Sunday, May 25th, expert medical intuitive, quantum healer and psychic medium, Rev. Suzy Woo, B.Msc, will be providing a full day of training, personal coaching and guidance on psychic and intuitive development.   It is a day of experiential learning; starting with a self-assessment based on simple exercises, to be used as a starting point. Multiple methods and tools will be taught and demonstrated interactively, to substantially increase one's ability to see, smell, taste, hear, feel and know what would not otherwise be known.   Other topics included are medical intuitive reading, numerology, the energy of numbers; how phases and signs of the moon impact events and our individual lives, and the Akashic Records, a fifth dimensional library of all potentials and past lifetimes.  "It's for the curious, the novice, and the expert; because everyone can learn a lot here," Suzy Woo says.  "Those who have premonitions, visions, or vivid dreams about events that happen later, are not crazy or bad; they are tuned in. This will help people realize the gifts they have, and build on these skills to trust their inner guidance, in any given moment. Know when someone is dishonest, or if something or someone is for you or not."  Strong intuitives can earn a living with their skills, examples include helping law enforcement to find missing people, finding mystery illnesses as a medical intuitive, or helping someone overcome a fear of swimming with past life regression therapy.  Ticket prices include appetizers, dinner, soft drinks, all study materials and a gift box valued over $50.   No prior experience is necessary.  The full day of training has a VIP ticket option at $475 or GA tickets are $399. Participants who are also attending the prior day's Empath Retreat will receive a $60 instant refund for attending both events.   The hands-on day of training is happening at RIT Inn & Conference Center, 5257 W Henrietta Rd, Henrietta, NY 14467 from 9:30am-5pm.   Tickets are available exclusively via online at www.Suzy-Woo.com under the 'Events' tab.  Since meals are included, tickets must be purchased in advance, due by May 25. Walk ins will not be permitted.  "It will be a fun day of learning, with good company, good food, awesome gifts, and great tools you can use for the rest of your life.   Woo concludes, "It's a huge confidence booster when you realize you can trust yourself, your intuition, that gut feeling. You just know things. When we don't trust that, we usually end up sorry.   I can't wait to meet everyone there."  Rev. Suzy Woo, B.Msc. is a metaphysician based in Ellicottville, NY. She is a sought after energy healer, astrologer, psychic medium, motivational speaker, sound healer, author and coach, holding retreats across the United States. Realizing her own healing journey following marital domestic violence and sexual assault, she helps her clients to connect to their soul in purest form. Her teachings and experiential events prove life-changing, increasing self-awareness, boosting confidence, and helping people to "live a life you don't want to escape from." 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522837/intuitive-intensive-psychic-intuitive-development-training-event-at-rit-conference-center-may-25)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unlock-your-psychic-potential-with-rev-suzy-woo-s-training-event/50d8e3fb62bcb0dd6a627038f1dbb287) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/AlternativeHealthNews/comments/1knuugo/unlock_your_psychic_potential_with_rev_suzy_woos/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/16/pond0THB.webp)
