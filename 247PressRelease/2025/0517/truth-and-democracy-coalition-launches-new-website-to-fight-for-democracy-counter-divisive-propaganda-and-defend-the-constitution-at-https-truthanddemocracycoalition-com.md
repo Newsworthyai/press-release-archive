@@ -1,0 +1,20 @@
+# Truth and Democracy Coalition Launches New Website to Fight for Democracy, Counter Divisive Propaganda, and Defend the Constitution at https://TruthandDemocracyCoalition.com
+
+LOS ANGELES, CA, May 17, 2025 /24-7PressRelease/ -- On March 30, 2025, at 1 pm PDT in person and on March 31st at 10 am online, Richard Procida will present The Truth and Democracy Coalition's new website, programs, and events designed to reach across ideological, religious, and political lines to build the movement to save democracy. The in-person press conference and community meeting will be at the Liberty Community Plaza at 14181 Telegraph Rd, Whittier, CA 90604-2554. Register for the online press conference at https://tinyurl.com/TDCPressConference   Americans are a propagandized people. Political extremism and the widespread dissemination of divisive propaganda have pitted Americans against one another. All sides have been propagandized. Everyone is impacted. Conservatives, liberals, and radicals all consume propaganda.  The Truth and Democracy Coalition is committed to protecting and strengthening democracy in an era of growing division and disinformation. We bring together individuals from all walks of life—Republicans and Democrats, radicals and moderates, Socialists, Liberals, and Conservatives—to uphold and defend the Constitution while strengthening the foundations of democracy. Our mission is to build a broad, diverse, and engaged movement that empowers individuals and communities to stand against authoritarian threats, defend democratic values, and promote truth in public discourse.  Richard Procida, the founder of the Truth and Democracy Coalition, will present the web page, explain the programs, and answer questions. He is available for media interviews and can be contacted at (562) 665-3317 and RichProcida64@Gmail.com  Author and attorney Richard Procida founded the Truth and Democracy Coalition to unite Americans, counter disinformation, defend the Constitution, and fight for democracy. His vision is to bring conservatives, liberals, and radicals together around shared values. Democracy, freedom, and the rule of law, for example, are foundational American values.  As an attorney who studied constitutional law at American University and authored a textbook on foreign comparative constitutional law, he intuitively recognized the looming threat to democracy and freedom posed by the propaganda war. At a time when many were saying that Trump was "just a symptom" of a larger racist system, Mr. Procida began writing and speaking at rallies calling for impeachment and warning Americans about the threat to democracy posed by the Trump Administration. He started a podcast called Democracy Under Fire which later became The Truth and Democracy Podcast, and wrote articles for LAProgressive.com, BuzzFlash.com, and DemCast.com. He held annual events on January 6th to remember the assault on the capital and prevent it from happening again.   Mr. Procida studied social science and communications with a minor in the Study of Women and Men in Society at the University of Southern California. He studied law at American University, Washington College of Law in Washington, D.C. He also co-authored a survey of laws and social attitudes toward sexually explicit materials in various countries and regions of the world (Social Issues in Global Perspective: Pornography, Lexington Books (2003)). He currently leads the Truth and Democracy Coalition. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522883/truth-and-democracy-coalition-launches-new-website-to-fight-for-democracy-counter-divisive-propaganda-and-defend-the-constitution-at-httpstruthanddemocracycoalitioncom)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/richard-procida-to-unveil-truth-and-democracy-coalition-s-initiatives-to-save-democracy/cf85ef389ec4844abd4ca660d466ade8) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1kon55b/richard_procida_to_unveil_truth_and_democracy/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/17/apexq2wQ.webp)
