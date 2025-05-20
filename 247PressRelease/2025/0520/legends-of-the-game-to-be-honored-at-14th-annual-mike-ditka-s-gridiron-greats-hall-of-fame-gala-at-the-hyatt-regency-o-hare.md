@@ -1,0 +1,20 @@
+# Legends of the Game to Be Honored at 14th Annual Mike Ditka's Gridiron Greats Hall of Fame Gala at the Hyatt Regency O'Hare
+
+CHICAGO, IL, May 20, 2025 /24-7PressRelease/ -- The Gridiron Greats Assistance Fund is set to shine a spotlight on football legends and their off-the-field heroics at the 14th Annual Mike Ditka's Gridiron Greats Hall of Fame Gala, taking place May 30th at 6:00 p.m. at the elegant Hyatt Regency O'Hare in Rosemont. This unforgettable evening will celebrate the careers and charitable contributions of former NFL greats, hosted by sports radio personality John Tournour (J.T. the Brick), with a special performance by renowned Chicago entertainer John Vincent.  The Gridiron Greats Class of 2025 Hall of Fame Inductees include: former Chicago Bears Pro Bowl center, Olin Kreutz; former New York Giants 2x Super Bowl cornerback, Mark Collins; former San Francisco 49ers & Denver Broncos Super Bowl tight end, Vernon Davis; former New York Giants 2x Super Bowl defensive end, Leonard Marshall; former Chicago Bears & Atlanta Falcons linebacker, Chris Draft; and former CFL Hamilton Tiger Cats 4x Grey Cup wide receiver & defensive back, Garney Henley.   In addition, Sylvia Mackey, wife of former NFL legend and Hall of Famer John Mackey, will present her namesake Award to Angela Biletnikoff. Angela is CEO of the Biletnikoff Foundation, which addresses the challenges of substance abuse, domestic violence, and human trafficking among young people.    Marv Levy, NFL & CFL Hall of Fame coach and former Gridiron Greats board member, will proudly present Chris Draft with the Marv Levy Impact Award, which recognizes an advocate for the Armed Forces who has dedicated much of their time and influence supporting and serving the military community, has exceptional leadership qualities, and is honorable, honest and courageous.   Proceeds for this special night will benefit the Gridiron Greats Assistance Fund, which is an independent 501(c)(3) organization providing assistance to NFL players in medical and financial dire need.   Special thanks to CFL, CFLAA, Chicago Bears, Coastal Orthopaedics & Sports Medicine, El Bandido Yankee Tequila, Encore, Hourglass Wealth Management, Hyatt Regency O'Hare Chicago, Las Vegas Raiders, Molson Coors, Pepsi, Periscope, Prodigy Printing and Promotions, RMD Advertising, Rudolph Foods, Sharper Dot Printing, Smirnoff, VOSS Water, and to all our supporters who purchased tables and program ads.  Limited tickets/tables are available for purchase. For more information on tickets and sponsorships: http://www.gridirongreats.org/halloffame Karen Wright (847) 656-5487  About Gridiron Greats Assistance Fund The Gridiron Greats Assistance Fund, Inc. (GGAF) is a Wisconsin nonprofit corporation that has received recognition of federal tax-exempt status as a public charity under Section 501(c)(3) of the Internal Revenue Code. Gridiron Greats' mission is to assist dire need retired NFL players and their families. GGAF provides medical assistance and financial assistance for day-to-day necessities. http://www.gridirongreats.org/   About Hyatt Regency O'Hare Chicago: As the largest hotel outside the city, Hyatt Regency O'Hare Chicago is home to spaces ranging from traditional ballrooms to inspiring networking areas and top-floor reception venues. Located five minutes from O'Hare International Airport, and offering a complimentary airport shuttle, we are a comfortable and convenient location for travelers. 9300 W Bryn Mawr Ave Rosemont, IL 60018 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522943/legends-of-the-game-to-be-honored-at-14th-annual-mike-ditkas-gridiron-greats-hall-of-fame-gala-at-the-hyatt-regency-ohare)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/gridiron-greats-assistance-fund-hosts-14th-annual-hall-of-fame-gala-celebrating-nfl-legends/742b3f27ae10f4190aa49cdc4ba59b19) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1kqywmh/gridiron_greats_assistance_fund_hosts_14th_annual/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/20/vastThgw.webp)
