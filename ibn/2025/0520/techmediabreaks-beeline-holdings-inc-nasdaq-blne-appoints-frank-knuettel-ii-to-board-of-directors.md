@@ -2,7 +2,7 @@
 
 Beeline Holdings (NASDAQ: BLNE)  announced the appointment of Frank Knuettel II to its board of directors, effective immediately. Knuettel brings over 20 years of executive leadership experience across early-stage public companies in technology and life sciences, and currently serves as CEO of Channel Therapeutics Corporation. Known for his capital markets expertise and M&A success, including leading Unrivaled Brands from $10 million to $100 million in revenue, Knuettel has raised more than $400 million throughout his career and held key roles at IP Commerce and MJardin Group. His appointment supports Beeline’s growth strategy in the investment lending market.
 
- To view the full press release, visit https://ibn.fm/f5r9h
+ To view the full press release, visit https://ibn.fm/1oMb6
 
  About Beeline Financial Holdings, Inc.
 
@@ -29,14 +29,14 @@ Beeline Holdings (NASDAQ: BLNE)  announced the appointment of Frank Knuettel I
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-beeline-holdings-inc-nasdaq-blne-appoints-frank-knuettel-ii-to-board-of-directors/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/beeline-holdings-appoints-frank-knuettel-ii-to-board-of-directors/5a9e432b490ef54132ced9a97eddc97b) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/beeline-holdings-appoints-frank-knuettel-ii-to-board-of-directors/bb7fa01de1986aa36d046f58d412887d) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1kr7c3k/beeline_holdings_appoints_frank_knuettel_ii_to/) 
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1ks2uhe/beeline_holdings_appoints_frank_knuettel_ii_to/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/255/20/calmTKXe.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/255/21/joinG6B4.webp)
