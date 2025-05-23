@@ -1,0 +1,20 @@
+# Creative Biolabs Expands Exosome Capabilities in May Platform Upgrade
+
+SHIRLEY, NY, May 22, 2025 /24-7PressRelease/ -- Creative Biolabs has announced a major enhancement of its Extracellular Vesicle (EV) platform, with a focus on improving exosome isolation and purification, characterization and quantification, and RNA sequencing.  "Developing a modular exosome service system that offers greater flexibility and sensitivity for high-throughput analysis—particularly for RNA diagnostics—was essential, given the growing demand from cancer, neurodegenerative, and autoimmune disease research," explained the Head of Exosome Research at Creative Biolabs.  Strategies for Exosome Isolation and Characterization Exosomes serve as vital mediators of intercellular communication, carrying components such as RNA, proteins, and lipids released by parent cells. These features, combined with their nanoscale size, make exosome isolation particularly challenging. In response, Creative Biolabs has upgraded its platform by refining differential centrifugation parameters and optimizing density gradient protocols. Now the platform incorporates standardized microfluidic approaches, further automating and increasing the precision of EV extraction from biofluids such as blood and cerebrospinal fluid.  Characterization of exosomes was augmented with more advanced Nanoparticle Tracking Analysis (NTA) and Transmission Electron Microscopy (TEM) integration, as well as FACS, Western blotting, and other ancillary workflow optimizations. These validated multi-technique approaches greatly enhance the accuracy at which vesicles are characterized, whether it be by size, quantity, or protein markers.  Exosomal RNA Sequencing with Bioinformatics Support Notably, Creative Biolabs has strengthened its exosome RNA sequencing services. With the application of next-generation sequencing (NGS), all RNA types, including miRNAs, lncRNAs, circRNAs, and mRNAs, can now be exhaustively quantified. This supports transcriptome-wide differential expression analysis and functional pathway investigation.   "EV-RNA sequencing is rapidly becoming an indispensable methodology for uncovering early diagnostic signals of a disease," said the head of the platform. "Our solution not only delivers high-quality data but also includes complete bioinformatics pipelines—from data preprocessing and alignment to differential gene screening and pathway enrichment."  Alongside these technological upgrades, Creative Biolabs has further developed their quality control system. Each step of the experimental workflow incorporates reference standards and systematic cross-validation to ensure data accuracy and reproducibility.  With the scope of these changes, Creative Biolabs has developed methods for analysis of EV contents on a single-particle level and integrated exosome engineering with drug delivery platforms. "In our view, EVs are not only carriers of biomarkers but might also act as precision vehicles for therapeutic molecules," the platform lead noted.  To learn more, please visit https://www.creative-biolabs.com/exosome/.  About Creative Biolabs Having built an innovative service portfolio that includes exosomes and biomarker services, Creative Biolabs remains committed to developing end-to-end solutions for life-science researchers and corporate clients in need of support from fundamental research to preclinical development. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523038/creative-biolabs-expands-exosome-capabilities-in-may-platform-upgrade)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/creative-biolabs-enhances-exosome-platform-for-rna-diagnostics/87c17e7c83551f08f6d0465bf23deb2d) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1kt2296/creative_biolabs_enhances_exosome_platform_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/22/yarnCHfW.webp)
