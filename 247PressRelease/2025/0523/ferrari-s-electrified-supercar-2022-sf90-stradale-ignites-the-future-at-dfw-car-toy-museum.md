@@ -1,0 +1,20 @@
+# Ferrari's Electrified Supercar: 2022 SF90 Stradale Ignites the Future at DFW Car & Toy Museum
+
+FORT WORTH, TX, May 23, 2025 /24-7PressRelease/ -- The DFW Car and Toy Museum is thrilled to showcase one of the most advanced supercars ever created—the 2022 Ferrari SF90 Stradale, now on display as part of the prestigious Ron Sturgeon Collection. Painted in a signature Ferrari red, this engineering marvel celebrates the 90th anniversary of Scuderia Ferrari while redefining what's possible on four wheels.  The SF90 Stradale is Ferrari's first-ever Plug-in Hybrid Electric Vehicle (PHEV), blending traditional muscle with cutting-edge electrification. Underneath its sculpted aluminum skin lies a twin-turbocharged 4.0-liter F154 FA V8 engine and three electric motors—two up front and one nestled at the rear between the engine and gearbox. Together, they unleash a staggering 986 horsepower and 590 lb-ft of torque, channeled to all four wheels through an eight-speed dual-clutch automatic transmission.  Designed with racing DNA, the SF90's powertrain is a masterclass in performance integration. The regenerative braking system is controlled by a brake-by-wire setup that precisely splits force between the carbon-ceramic hydraulic brakes—painted in bold red—and the electric motors. Meanwhile, the electronic Side Slip Control (eSSC) and electric traction control (eTC) systems dynamically distribute torque to individual corners for mind-bending grip.  Inside the SF90, form meets function. The carbon-fiber- and leather-trimmed steering wheel is loaded with Ferrari's signature manettino driving-mode selector, shift lights, paddle shifters, and an engine-start button. A digital instrument cluster and head-up display immerse the driver in real-time performance data.  Even the cooling systems are a feat of engineering. The engine bay is meticulously designed to manage temperatures nearing 900°C, while housing sensitive battery, inverter, and electronic components. A 7.9-kWh lithium-ion battery pack sits between the engine and the carbon-fiber cabin bulkhead, further enhancing the car's balance and efficiency.  "The Ferrari SF90 is proof that the future of performance isn't just fast—it's smart, sustainable, and absolutely thrilling," says Ron Sturgeon, founder of the DFW Car and Toy Museum. "It's an honor to bring this technological masterpiece to our guests."  Come witness the future of Ferrari up close—alongside more than 200 classic, exotic, and collectible vehicles—only at the DFW Car & Toy Museum.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980's collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522282/ferraris-electrified-supercar-2022-sf90-stradale-ignites-the-future-at-dfw-car-toy-museum)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dfw-car-and-toy-museum-showcases-2022-ferrari-sf90-stradale-a-hybrid-supercar-marvel/232aa02a81322f480bbc8ae5d07bdc25) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1ktdsgb/dfw_car_and_toy_museum_showcases_2022_ferrari/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/23/oxensrda.webp)
