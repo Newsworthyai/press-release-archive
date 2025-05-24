@@ -1,0 +1,20 @@
+# NW Unicorn LLC Appoints Jianming (Nicolas) Li as Lead Designer for Brand Expansion at Two Premier U.S. Footwear Events
+
+SEATTLE, WA, May 24, 2025 /24-7PressRelease/ -- NW Unicorn LLC (www.nwunicorn.com) is pleased to announce the appointment of Jianming (Nicolas) Li as Lead Designer. Mr. Li will play a central role in the creative and strategic direction of NW Unicorn's market expansion at two of the most distinguished U.S. footwear industry events: the Footwear Show New York Expo (FSNYE) 2025 and the Barefoot Shoe Expo 2026.  Jianming (Nicolas) Li: Award-Winning Footwear Innovator Mr. Li is internationally recognized for his groundbreaking designs and has received multiple prestigious awards, including the 2024 Global Footwear Award for "Death Entanglement" and the 2025 IDA Design Award (Bronze) for his Square-Round Chelsea Boots. His work is celebrated for its fusion of craftsmanship, philosophical depth, and sustainability, and has been featured at major fashion weeks in Paris, Shanghai, and Guangdong, as well as in leading publications such as ELLE China and Harper's Bazaar China.  Leading Role at Two Distinguished U.S. Events  • Footwear Show New York Expo (FSNYE) 2025: As Lead Designer for NW Unicorn's children's barefoot footwear brand, PIGYPIGY, Mr. Li will oversee the brand's U.S. launch and market development at FSNYE, one of North America's most influential footwear trade shows. The event, held December 1–3, 2025, at the Metropolitan Pavilion in New York City, aligns with FFANY Market Week and attracts top retailers, buyers, and media. Mr. Li will lead the design and presentation of PIGYPIGY's 2026–2027 barefoot product line, direct market research, and engage with key buyers and partners to position the brand as an innovator in children's footwear.  • Barefoot Shoe Expo 2026: Mr. Li has been invited to serve as Footwear Design Director and Brand Product Lead for the BLACK CICADA project, debuting at the Barefoot Shoe Expo in May 2026. This expo is the world's only trade show dedicated exclusively to barefoot, minimalist, and anatomical footwear, featuring over 120 global brands and a focus on health-driven design. Mr. Li will oversee the design and development of BLACK CICADA's inaugural barefoot collection, lead technical innovation, and represent the brand to buyers, medical professionals, and industry media.  Reputation of the Events • FSNYE/FFANY Market Week is a cornerstone of the U.S. footwear industry, renowned for its high-caliber attendees and its role in shaping market trends and partnerships.  • Barefoot Shoe Expo stands as the premier global platform for barefoot and anatomical footwear, bringing together leaders in innovation, health, and design for the latest advancements in the field.  A Statement from NW Unicorn LLC "Jianming Li's exceptional talent and vision make him the ideal Lead Designer to guide our brands into the U.S. market," said Wayne Alan Hsu, President of NW Unicorn LLC. "His leadership at these two prestigious events will set new standards for creativity, innovation, and commercial success."  For more information, please contact: Wayne Alan Hsu, President NW Unicorn LLC Phone: +1 315 383 6463 Email: wayne@nwunicorn.com Website: www.nwunicorn.com  About NW Unicorn LLC: NW Unicorn LLC is a forward-thinking footwear company dedicated to innovative design and sustainable market growth, partnering with visionary designers to deliver leading products to the global marketplace. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523130/nw-unicorn-llc-appoints-jianming-nicolas-li-as-lead-designer-for-brand-expansion-at-two-premier-us-footwear-events)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nw-unicorn-llc-appoints-award-winning-designer-jianming-li-to-lead-market-expansion-at-u-s-footwear-events/db07cb5a3c154e2fb349c385c8b1c3d4) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1ku5s6l/nw_unicorn_llc_appoints_awardwinning_designer/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/24/lilydl6a.webp)
