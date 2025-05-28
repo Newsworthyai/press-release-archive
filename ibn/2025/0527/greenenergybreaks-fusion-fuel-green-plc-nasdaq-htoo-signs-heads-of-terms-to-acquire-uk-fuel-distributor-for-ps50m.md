@@ -29,14 +29,14 @@ Fusion Fuel Green (NASDAQ: HTOO) announced it has signed non-binding Heads of Te
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/ges/greenenergybreaks-fusion-fuel-green-plc-nasdaq-htoo-signs-heads-of-terms-to-acquire-uk-fuel-distributor-for-50m/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/fusion-fuel-green-nasdaq-htoo-announces-acquisition-of-uk-fuel-distribution-business/e3b7d67c8b8f31bdee06451ba7edfec4) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/fusion-fuel-green-nasdaq-htoo-set-to-acquire-uk-based-fuel-distribution-business-for-ps50-million/295f05a7866b80a09367378e95e7b9ff) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1kwuedd/fusion_fuel_green_nasdaq_htoo_announces/) 
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1kwxbte/fusion_fuel_green_nasdaq_htoo_set_to_acquire/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/255/27/tileUtRe.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/255/27/bossoaju.webp)
