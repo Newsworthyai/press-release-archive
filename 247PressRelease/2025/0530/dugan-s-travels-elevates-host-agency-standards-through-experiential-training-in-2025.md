@@ -1,0 +1,20 @@
+# Dugan's Travels Elevates Host Agency Standards Through Experiential Training in 2025
+
+BREMERTON, WA, May 30, 2025 /24-7PressRelease/ -- Dugan's Travels, a nationally recognized host agency, is celebrating its 26th year with a high-impact calendar of seminars, FAM trips, and supplier-driven education in 2025. Known for its supportive approach and dedication to advisor success, Dugan's is setting a new standard for host agencies by prioritizing real-world, hands-on training for independent travel advisors.  Experiential Learning at the Core  The year began with a series of immersive experiences that gave agents direct exposure to the destinations and products they sell:  •	In January, Dugan's hosted a Virgin Voyages Seminar at Sea aboard the Valiant Lady, which also included a hotel inspection in Key West, allowing agents to gain first-hand experience with both cruise and land-based travel products.  •	In February, advisors participated in an Oahu and Maui FAM, exploring Hawaii's top resorts and learning how to effectively sell multi-island itineraries.  •	April featured two back-to-back seminar-at-sea events:  Aboard the Celebrity Silhouette, agents took part in learning about Celebrity Cruise Line and conducted a hotel inspection in Key West.  Immediately following, agents joined a Royal Caribbean sailing, focusing on family cruise sales and experiencing an exclusive site visit to Sandals Royal Bahamian.  A Powerful Second Half of the Year  •	DU Seattle, taking place in July, will include ship inspections of the Celebrity Edge, Royal Princess, and Norwegian Encore, plus advisor networking and small-group supplier sessions.  •	DU Anaheim, scheduled for September, is Dugan's signature multi-day training event. Highlights include interactive supplier workshops, a dynamic trade show, and a fun social event hosted by Sandals Resorts.  In October, a select group of advisors will participate in the Ireland FAM with Globus, combining cultural exploration with product training designed to boost sales of escorted European tours.  Focused on Advisor Growth  Dugan's Travels supports over 350 independent agents across the U.S. by offering:  •	Competitive commissions up to 90% •	Weekly supplier webinars and live education •	Personalized support from an experienced team •	Motivation through the agency's Adventure League •	Exclusive Dugan's Agent Community including access to Inner Circle Suppliers. •	Preferred access to leading travel brands via the Inner Circle Program  "Our agents succeed because they're equipped, informed, and truly supported," said Dugan. "We're proud of what 2025 is becoming—and we're just getting started."  Dugan's Travels is a travel host agency based in Bremerton, Washington, supporting over 300 independent contractor agents across the United States. Founded in 1997 and launching its hosting program in 1999, Dugan's Travels has built a strong reputation for its supportive community, agent-first philosophy, and commitment to real-world training and growth.  All members of the Dugan's Travels team work virtually and are located throughout the United States, allowing for flexible, nationwide support. The agency is a proud member of IATAN, CLIA, and ASTA, and has been recognized with top industry honors including Presidents' Circle with Travel Leaders Network and Elite Diamond Agency status with ALG Vacations.  Dugan's Travels is dedicated to helping independent travel advisors succeed through education, connection, and experience. Learn more at www.joindugans.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523330/dugans-travels-elevates-host-agency-standards-through-experiential-training-in-2025)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dugan-s-travels-celebrates-26th-year-with-innovative-training-programs-in-2025/2d63878f7c17c2296a119d04fa4c5651) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1kyy3xg/dugans_travels_celebrates_26th_year_with/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/255/30/ideaeUKr.webp)
