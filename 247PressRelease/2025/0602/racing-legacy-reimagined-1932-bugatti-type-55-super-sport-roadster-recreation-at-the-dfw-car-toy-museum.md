@@ -1,0 +1,20 @@
+# Racing Legacy Reimagined: 1932 Bugatti Type 55 Super Sport Roadster Recreation at the DFW Car & Toy Museum
+
+FORT WORTH, TX, June 02, 2025 /24-7PressRelease/ -- Visitors to the DFW Car & Toy Museum can now witness a breathtaking tribute to one of Bugatti's most revered creations—the 1932 Bugatti Type 55 Super Sport Roadster—meticulously recreated by the master craftsmen at Pur Sang of Argentina. This recreation, now a proud feature of the Ron Sturgeon Collection, honors the legacy of Bugatti's racing roots while offering a road-going experience that's both thrilling and accessible.  Originally introduced in 1932, the Type 55 was Bugatti's bold fusion of motorsport engineering and grand touring elegance. Based directly on the Type 51 Grand Prix race car, the Type 55 featured a supercharged 2.3-liter dual-overhead-cam straight-eight engine—the first road-going Bugatti to do so. This advancement wasn't just for show; it was a practical upgrade inspired by Bugatti's racing clientele, many of whom competed as privateers and demanded power to match their passion.  "Jean Bugatti knew his clients didn't just want to look fast—they wanted to be fast," says Ron Sturgeon, owner of the DFW Car & Toy Museum. "This recreation captures that exact spirit. It's history you can drive."  Only 38 original Type 55s were produced between 1932 and 1935, typically with striking, open-topped bodywork that highlighted the car's fierce competition heritage. The flowing lines, doorless cut-down sides, iconic horseshoe grille, and lightweight eight-spoke aluminum wheels remain among the most recognizable hallmarks of the Bugatti brand.  Thanks to Pur Sang's expert reproduction, enthusiasts can experience the raw, mechanical beauty of the original—without the multi-million-dollar price tag. This recreation preserves every design and performance detail while incorporating modern enhancements for improved reliability and ease of maintenance. Whether on the road or track, this Bugatti is built to be driven.  Don't miss your chance to see this extraordinary recreation up close at the DFW Car & Toy Museum, where more than 200 classic and collectible cars and over 3,000 vintage toys await. Admission is always free.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522901/racing-legacy-reimagined-1932-bugatti-type-55-super-sport-roadster-recreation-at-the-dfw-car-toy-museum)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dfw-car-toy-museum-debuts-stunning-recreation-of-1932-bugatti-type-55-super-sport-roadster/adeddc6c9844b6a14c98e14686b16548) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1l1bp4a/dfw_car_toy_museum_debuts_stunning_recreation_of/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/2/pend1oij.webp)
