@@ -1,0 +1,20 @@
+# Renowned Pediatrician Dr. Miro Ukraincik to Join Pediatric Affiliates, Strengthening New Jackson Office
+
+LAKEWOOD, NJ, June 04, 2025 /24-7PressRelease/ -- Pediatric Affiliates is pleased to announce that Dr. Miro Ukraincik, a highly respected pediatrician with over two and half decades of experience, will be joining its growing team of providers in August at the practice's newest location in Jackson, NJ. With a reputation for compassionate care and deep ties to the Lakewood community, the addition of Dr. Ukraincik represents Pediatric Affiliates' continued investment in quality, accessible pediatric care across Ocean County.  Dr. Ukraincik has been a cornerstone of pediatric care in the region and is widely regarded for his deep clinical knowledge and longstanding commitment to the families he serves. His patient-centered approach and strong community ties align seamlessly with Pediatric Affiliates' mission to deliver trusted, personalized care across every stage of childhood.  "We are thrilled to welcome Dr. Ukraincik to Pediatric Affiliates this summer," said Dr. Ira Haimowitz. "His reputation in the community and the trust he's built with so many families make him a natural and exciting addition to our growing team, and a perfect provider for the new Jackson office."  Dr. Miro Ukraincik earned his medical degree from University of Zagreb School of Medicine and completed his pediatric residency at Long Island Jewish Medical Center. His broad experience and commitment to his patients and community have made him a highly sought-after provider in the Lakewood area.  "As our practice continues to grow, we are committed to bringing in physicians who not only provide exceptional medical care but also reflect the values we hold close–compassion, accessibility, and long-term community relationships," said Dr. Robert Shanik. "Dr. Ukraincik embodies all of these qualities, and we're proud to be welcoming him to our team very soon."   Pediatric Affiliates' new Jackson office, located at 27 S Cooks Bridge Rd, Suite 2-12 in the Hackensack Meridian Health Village, will join a growing network of offices located throughout Ocean and Monmouth counties.   For more information about Pediatric Affiliates or the Jackson office opening, please visit https://pediaff.com/Home.  About Pediatric Affiliates, PA  Pediatric Affiliates, PA is a trusted pediatric practice group serving families across Ocean and Monmouth counties in New Jersey for over 40 years. With a team of experienced board-certified pediatricians, nurse practitioners, and physician assistants, the practice provides comprehensive care for children from birth through adolescence—including well visits, sick care, immunizations, behavioral health consultations, and chronic condition management. With multiple convenient locations, extended hours, and a patient-first philosophy, Pediatric Affiliates is committed to delivering accessible, compassionate care throughout New Jersey that supports every stage of a child's development. As a proud member of the US Pediatric Partners network, Pediatric Affiliates shares in a broader mission to expand high-quality pediatric care in growing and underserved communities. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523461/renowned-pediatrician-dr-miro-ukraincik-to-join-pediatric-affiliates-strengthening-new-jackson-office)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dr-miro-ukraincik-joins-pediatric-affiliates-in-jackson-nj/54fe03e3f74379e6335485d7dd4e96f0) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1l2zi59/dr_miro_ukraincik_joins_pediatric_affiliates_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/4/taro7z96.webp)
