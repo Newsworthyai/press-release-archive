@@ -1,0 +1,20 @@
+# United Medical at the 28th Eurasian Economic Summit: Advancing Global Dialogue and Sustainable Healthcare
+
+WILMINGTON, DE, June 04, 2025 /24-7PressRelease/ -- Insights from the 28th Eurasian Economic Summit in Istanbul  At United Medical LLC, we are committed to supporting initiatives that promote sustainable development, innovation, and global dialogue. We are pleased to share highlights from the recent 28th Eurasian Economic Summit, held in Istanbul on May 7-8, an event that brought together over 800 distinguished leaders from 43 countries under the theme: "A More Human World, Dialogue for a Livable World."  This summit provided a vital platform for discussing some of the most pressing issues facing our world today—ecology, economy, technology, energy, healthcare, and peace—with the aim of fostering collaborative solutions.  Marmara Group Foundation President Akkan Suver emphasized the importance of diverse voices working together with a shared purpose. He highlighted global challenges such as war, involuntary migration, climate change, and energy crises, advocating for open dialogue as a means to achieve peace.  Discussions ranged from "Ecology, Economy, Energy, and Artificial Intelligence" to "Disaster-Resilient Cities," reflecting the interconnectedness of our global systems. Esteemed academics and thought leaders, including Dr. Aziz Sancar, Dr. İlber Ortaylı, Dr. Özgür Çengel, and Dr. Uğur Özgöker, shared their perspectives on fostering innovation and stability.  Celebrating Four Decades of Impact  This year marked the 40th anniversary of the Marmara Group Strategic and Social Research Foundation. To honor this milestone, the Foundation presented awards to recognize its late members and celebrated those who have contributed significantly to its mission.  Kemal Erkan, CEO of United Medical LLC, received a Thank You Award for his dedication and ongoing support of the Foundation's initiatives. Additionally, Kemal Erkan was appointed as the U.S. Representative for the Marmara Group Foundation in Civil Society Activities—a role aligned with the Foundation's partnership with the United Nations and its participation in the United Nations Global Compact.  This partnership affirms a commitment to principles of human rights, labor standards, and environmental sustainability.  A Message from Kemal Erkan  During his keynote address at the summit, Kemal Erkan emphasized the importance of sustainability in healthcare. He highlighted that innovation and adaptability are essential to safeguarding our healthcare systems from future crises.  "We must move beyond reactive care and focus on building long-term health resilience," he stated, underscoring the need for proactive, sustainable healthcare solutions.  Our Commitment  At United Medical LLC, we believe that collaboration and dialogue are vital in addressing global challenges. We remain dedicated to supporting sustainable healthcare solutions and fostering initiatives that promote a healthier, more equitable world.  Thank you for your continued partnership and support.  Disclaimer: This message is for informational purposes and reflects the views of United Medical LLC.  Related Link: https://www.kemalerkan.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523509/united-medical-at-the-28th-eurasian-economic-summit-advancing-global-dialogue-and-sustainable-healthcare)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/global-leaders-unite-at-eurasian-summit-for-sustainable-future/53ab633daa14310e7f1edb3eaeea1396) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1l3ebx5/global_leaders_unite_at_eurasian_summit_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/4/mendvrWe.webp)
