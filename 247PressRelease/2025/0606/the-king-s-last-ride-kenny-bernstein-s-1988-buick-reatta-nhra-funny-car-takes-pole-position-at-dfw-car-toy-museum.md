@@ -1,0 +1,20 @@
+# The King's Last Ride: Kenny Bernstein's 1988 Buick Reatta NHRA Funny Car Takes Pole Position at DFW Car &amp; Toy Museum
+
+FORT WORTH, TX, June 06, 2025 /24-7PressRelease/ -- Drag racing fans, start your engines. The DFW Car & Toy Museum is proud to showcase a true titan of the NHRA strip—the 1988 Buick Reatta NHRA Funny Car campaigned by none other than the "King of Speed" himself, Kenny Bernstein. Draped in its legendary Budweiser King livery, this striking piece of motorsport history now resides in the acclaimed Ron Sturgeon Collection.  Kenny Bernstein's legacy in drag racing is nothing short of legendary. His reign began in 1978, and by the time he closed out his Funny Car career in 1988, he had already secured four consecutive NHRA Funny Car Championships from 1985 to 1988. This exact style of car represents the final chapter of Bernstein's Funny Car dominance—before he transitioned to Top Fuel in 1989, where he would go on to win two more championships in 1996 and 2001.  "This car is raw, powerful, and iconic. It's a symbol of an era when Kenny Bernstein was rewriting the record books at every turn," says Ron Sturgeon. "To have a car from his final championship Funny Car season is like having a page torn straight out of racing history."  While the chassis of this Reatta is fitted with a non-running engine, the dramatic presence of its fully intact frame and unmistakable Budweiser King bodywork is enough to ignite nostalgia for racing fans and newcomers alike. Every detail—from the bold sponsor decals to the dragster's aerodynamic silhouette—embodies the spirit of speed and the golden era of NHRA racing.  Visitors to the museum can get up close and personal with this stunning example of Funny Car engineering, honoring a driver who not only broke speed barriers but helped define American motorsport culture.  Come experience the thunderous legacy of Kenny Bernstein at the DFW Car & Toy Museum, home to over 200 rare cars and 3,000 vintage toys, where admission is always free.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522978/the-kings-last-ride-kenny-bernsteins-1988-buick-reatta-nhra-funny-car-takes-pole-position-at-dfw-car-toy-museum)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/legendary-kenny-bernstein-s-1988-buick-reatta-nhra-funny-car-joins-dfw-museum/bf2ce897d5a360087f0ccbca781f43bb) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1l4mcod/legendary_kenny_bernsteins_1988_buick_reatta_nhra/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/6/mielx9Fm.webp)

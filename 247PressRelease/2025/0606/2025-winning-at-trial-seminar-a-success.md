@@ -1,0 +1,20 @@
+# 2025 Winning At Trial Seminar A Success
+
+NASHUA, NH, June 06, 2025 /24-7PressRelease/ -- The New Hampshire Bar Association recently hosted a Continuing Education seminar in Concord, NH. On Thursday, April 17, local attorneys participated in a full-day presentation and panel discussion titled "Winning at Trial." The program was co-chaired by one of the litigation attorneys from Welts, White, & Fontaine, P.C., a firm in Southern New Hampshire with personal injury lawyers, workers' compensation lawyers, divorce and family law lawyers and estate planning lawyers. The seminar featured 11 speakers from various fields of law practice, including family law, criminal law, personal injury, employment law, and commercial litigation. With a focus on litigation and trial strategy, each presenting attorney noted specific approaches and strategies for success in all types of trials. Thursday's seminar was broken into several short presentations, with the topics as follows:  - Preparing Your Own Witness to Testify - Effectively Using Demonstratives and Physical Evidence To Enhance Your Case - Panel Voir Dire - Primacy and Recency in Opening Statements - Communicating a Complex Case to the Jury in an Opening Statement - Using Depositions at Trial - What to do When Your Witness's Testimony Differs From Prior Statements - Using Recorded Recollection as Substantive Evidence (N.H.R. Evid. 803(5)) - Controlling a Witness During Cross-Examination - Opinion Testimony by Lay Witnesses (N.H.R. Evid. 701) - Effectively Highlighting What Is Missing from the Plaintiff's Case - Tailoring Your Closing to the Trial Evidence  At the conclusion of each set of three presentations, participants were permitted a brief question-and-answer session with the presenting attorney. The panel discussions were moderated by the co-chair attorneys. Key takeaways and applications of the ideas presented by one speaker to different fields of law were discussed by participants.  Winning At Trial was an overwhelming success. With 23 attendees in person and a further 45 attending via Webinar, this was a very popular continuing education session for the New Hampshire Bar Association.  Per New Hampshire Supreme Court Rule 53, all members of the NH Bar Association must complete 12 credit hours of continuing education each year, two of which must focus on legal ethics. Continuing education is an opportunity for attorneys to grow, expand their skills, and better serve their clients. Keeping up to date on changes in case law that can affect our clients and honing our litigation skills is fundamental to our legal practice.  About Welts, White, & Fontaine, P.C.  Welts, White, & Fontaine, P.C., is a long-established multi-practice firm in New Hampshire, serving clients in personal injury, worker's compensation, family law, and bankruptcy courts across the state. As active members of the New Hampshire Bar Association and other professional organizations, including the Family Law Section and Worker's Compensation Section of the New Hampshire Bar Association, the Paralegal Advisory Board at Rivier College, and the New Hampshire Supreme Court's Access to Justice Commission. We believe in giving back to the legal community by volunteering our time as continuing education moderators and presenters, exchanging valuable knowledge with our peers. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523561/2025-winning-at-trial-seminar-a-success)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nh-bar-association-s-winning-at-trial-seminar-empowers-attorneys/241b0741e53b6de1429f93c74cfab283) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1l4mcbf/nh_bar_associations_winning_at_trial_seminar/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/6/gluebNeR.webp)
