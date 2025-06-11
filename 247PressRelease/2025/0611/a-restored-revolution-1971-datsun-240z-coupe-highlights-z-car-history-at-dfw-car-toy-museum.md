@@ -1,0 +1,20 @@
+# A Restored Revolution: 1971 Datsun 240Z Coupe Highlights Z-Car History at DFW Car &amp; Toy Museum
+
+FORT WORTH, TX, June 11, 2025 /24-7PressRelease/ -- A legendary sports car with a rich backstory and a role in automotive history is now part of the prestigious Ron Sturgeon Collection at the DFW Car & Toy Museum: the 1971 Datsun 240Z Coupe, a beautifully restored Series 1 model that helped pave the way for Nissan North America's famed Vintage Restoration Program of the 1990s.  Originally restored in 1992 by the renowned Pierre Z Car Center, this particular 240Z gained notoriety for its role in the proposal that led to Nissan's official restoration initiative—during which approximately 37 vintage Z-cars were acquired, restored, and sold through select dealerships. With appearances in Road & Track (February 1997) and Hemmings Sports & Exotic Car (December 2007), it's not just a showpiece—it's a symbol of Z-car preservation.  Under the hood, the car is powered by a 2.4-liter L24 inline-six—a replacement engine rebuilt and installed during its 1992 restoration—delivering 151 horsepower and 146 lb-ft of torque through a four-speed manual transmission. Enhancements include a tubular exhaust header, electronic distributor conversion, and a 280Z-sourced fuse block, making it as reliable as it is authentic.  "This 240Z is far more than a beautiful coupe—it helped shape how vintage Japanese sports cars are restored and celebrated today," says Ron Sturgeon. "It's an honor to have such a historically significant car in our museum."  Additional features that mark it as a Series 1 model include the distinctive vents below the rear hatch glass, front and rear bumper guards, and color-matched aftermarket mirrors. Inside, the cabin sports factory instrumentation with a 160-mph speedometer, 8k-rpm tachometer, and center-mounted gauges for oil pressure, fuel level, coolant temperature, and amperage. The five-digit odometer shows just 34,000 miles.  Experience a true turning point in Z-car history at the DFW Car & Toy Museum, where over 200 classic and collectible vehicles and more than 3,000 vintage toys are on display—all with free admission.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/522981/a-restored-revolution-1971-datsun-240z-coupe-highlights-z-car-history-at-dfw-car-toy-museum)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/historic-1971-datsun-240z-joins-dfw-car-toy-museum/072297cacfc8ee40f40f2d50dd0b840f) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1l8mfsq/historic_1971_datsun_240z_joins_dfw_car_toy_museum/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/11/limePD9e.webp)
