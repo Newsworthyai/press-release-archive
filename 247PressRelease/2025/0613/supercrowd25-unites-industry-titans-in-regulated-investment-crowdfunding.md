@@ -1,0 +1,20 @@
+# SuperCrowd25 Unites Industry Titans in Regulated Investment Crowdfunding
+
+STOCKTON, CA, June 13, 2025 /24-7PressRelease/ -- The Super Crowd, Inc., a public benefit corporation at the forefront of impact crowdfunding, today announced a powerhouse trio of spotlight speakers for SuperCrowd25, its fourth annual global conference dedicated to democratizing capital through regulated investment crowdfunding.  Headlining the two-day virtual event on August 21–22, 2025, are: Rebecca Kacaba, Co-Founder and CEO of DealMaker, the leading capital-raising platform that has processed over $2 billion in online investments. Ron Miller, Chairman of StartEngine and a four-time INC 500/5000 award recipient. Jonny Price, President of Wefunder, one of the pioneering leaders in community-based startup funding.  SuperCrowd25 will also feature dozens of additional high-profile speakers, including impact investors, policymakers, social entrepreneurs, and crowdfunding experts—making it the most robust and dynamic gathering of its kind.  The Super Crowd, Inc. is also proud to welcome The ProActive Realty Group, LLC as the exclusive Max-Impact Sponsor of the event. Under the leadership of Dr. Canaan Van Williams, Pro Active is redefining affordable rapid housing with its NOAH (Naturally Occurring Affordable Housing) model, delivering sustainable returns while creating second-chance housing opportunities for underserved populations across five states.  ProActive is an active participant in the regulated investment crowdfunding space, raising capital currently under Regulation Crowdfunding for affordable housing. Working to address a suite of UN Sustainable Development Goals, ProActive uses crowdfunding to democratize access to its investments. Dr. Williams will be speaking at SuperCrowd25, too.  "SuperCrowd25 is more than a conference—it's a movement. With the leaders of DealMaker, StartEngine, and Wefunder joining us, we are gathering the people who are rewriting the rules of capital to favor communities, everyday investors, and underrepresented entrepreneurs," said Devin Thorpe, CEO of The Super Crowd, Inc. and host of SuperCrowd25. "This is where the future of finance takes center stage."  "We are honored to support SuperCrowd25 as the Max-Impact Sponsor," said Dr. Canaan Van Williams, CEO and founder of Pro Active Real Estate. "Our mission is to create deeply affordable, second-chance housing with dignity and measurable impact aligned with the SDGs. This event brings together the capital and the conviction to scale that work."  Participation Options The event will be streamed live globally via e360tv and YouTube, and registration is free to watch. Attendees who wish to connect directly with speakers, sponsors, and fellow changemakers can register for just $25, unlocking premium access to networking tools before, during, and after the event. Register now at www.supercrowd25.com.  SuperCrowdLA is produced by The Super Crowd, Inc., a public benefit corporation dedicated to advancing impact crowdfunding and empowering diverse founders. The event brings together social entrepreneurs, impact investors, and ecosystem leaders to build a more inclusive and sustainable economy. Learn more at https://TheSuperCrowd.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523762/supercrowd25-unites-industry-titans-in-regulated-investment-crowdfunding)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/supercrowd25-unites-leaders-in-impact-crowdfunding-for-inclusive-economy/a2fa352ecf1ba8487e7ddbca8108c701) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1la9rnn/supercrowd25_unites_leaders_in_impact/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/13/zestVLDr.webp)

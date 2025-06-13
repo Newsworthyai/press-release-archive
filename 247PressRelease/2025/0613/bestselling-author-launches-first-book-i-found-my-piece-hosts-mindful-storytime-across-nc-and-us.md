@@ -1,0 +1,20 @@
+# Bestselling Author Launches First Book I Found My Piece – hosts Mindful Storytime across NC and US
+
+RALEIGH, NC, June 13, 2025 /24-7PressRelease/ -- Hendersonville Pride family zone came alive with laughter, reflection, and creativity on Saturday as children and their families gathered for a special Mindful Storytime event featuring local author Rashmi Kumar Shah. The event spotlighted Shah's new children's book I Found My Piece, a beautifully illustrated story that helps children explore mindfulness, emotions, and the journey of finding inner calm.  With warmth and humor, Shah engaged young readers by weaving in personal experiences and inviting thoughtful questions during her interactive reading. The story time was followed by a hands-on activity where children decorated oversized cardboard puzzle pieces — each drawing what brings them peace and makes them feel whole, inspired directly by the book's central metaphor.  "I wrote this book because I didn't see stories that taught children how to center themselves during life's changes," Shah shared. "Through storytelling and creativity, I wanted to provide a gentle empowering guide for young minds navigating their feelings. A reminder that mindfulness isn't just for adults, it's a tool that kids can carry with them for life."  Both hardcover and paperback editions of I Found My Piece were available for purchase at the event, and Shah delighted in signing copies and connecting with families and educators. The book is published by Archway Publishing, a service created by Simon & Schuster in partnership with Author Solutions, offering authors professional guidance and resources to bring their stories to life.  The book has recently gained national attention, climbing to #35 on Amazon's Top 100 Paid Books list for "New Age Meditation" — a category typically dominated by adult nonfiction. I Found My Piece was the only children's book in the Top 100 at the time.  "This milestone is surreal. It shows there's a real hunger for new wellness tools — not just for adults, but for children too," Shah said. "Families are looking for stories that reflect emotional growth, mindfulness, and connection. I'm honored that this little book is resonating."  The Hendersonville event marked an early stop in Shah's "Mindful Storytime Tour" with past and upcoming appearances including:  • May 31 – Quail Ridge Books, Raleigh, NC • June 7 – Henderson Pride Festival, Henderson, NC • June 21 – The Roasted Bookery, Wilmington, NC • July 1 – Zen Youth Yoga, Austin, TX  More North Carolina dates, including additional Western NC-area events, will be announced soon.  "It's amazing to watch kids not only connect with the story, but also reflect on what makes them feel safe, happy, and calm," said Shah. "That's really the heart of the book — giving children tools to name and navigate their emotions."  About Rashmi Shah  Rashmi Shah moved to the U.S. from England at the age of six and grew up in eastern North Carolina. After earning both a bachelor's and a law degree from UNC Chapel Hill, she dedicated 15 years to practicing corporate immigration law. She was a recipient of the local Triangle Business Journal 40U40. She has since launched a mindfulness coaching practice and published her first book I Found My Piece which has been featured on Amazon's Top 100, in New Age Meditation reaching #35. Rashmi believes that when we are deeply connected to ourselves and open to growth, we create space for magic to show itself. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523804/bestselling-author-launches-first-book-i-found-my-piece-hosts-mindful-storytime-across-nc-and-us)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rashmi-shah-s-i-found-my-piece-sparks-mindfulness-in-children-nationwide/e9abad2918c2164e7dd686c505464beb) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1la9rcz/rashmi_shahs_i_found_my_piece_sparks_mindfulness/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/13/ovalt12u.webp)
