@@ -1,0 +1,20 @@
+# Author Xuemo's Literary Vision: Illuminating Pathways to Peace Across Eurasia
+
+NEW YORK, NY, June 15, 2025 /24-7PressRelease/ -- On June 9, award-winning author Xuemo delivered an academic lecture titled "The Legacy of Hexi, Reflections on Faith, and a Eurasian Dream of Peace" at King Juan Carlos University (URJC) in Spain. The event was hosted by the distinguished URJC philosophy professor Raúl Ramirez Ruiz and attracted a vibrant audience comprising students, faculty members, and scholars engaged in Eurasian cultural studies. The atmosphere was charged with energy as dynamic intellectual exchanges explored diverse Eurasian cultural perspectives.  Hexi Corridor: A Millennium of Civilization Buried in Loess Xuemo opened his talk by guiding the audience on a journey through time and space to his homeland-the Hexi Corridor in western China. This ancient corridor, he said, is not only a site of buried civilizations, but also a living museum of early culture and a key to understanding the origins of Chinese civilization. "Loess is a page of time; each layer conceals a thousand-year story," Xuemo remarked.  Faith and Everyday Life: Philosophy Is Not a Statue on a Pedestal "While many people seek salvation through belief," Xuemo noted, "Chinese faith emphasizes attainment through cultivation." This reflects how faith becomes the way of living, and how it reanimates the cultural core. He explained that Chinese belief rests on three foundational pillars: Buddhist compassion, Daoist harmony with nature, and Confucian social responsibility. While China may not have a concept of "God" similar to that of the West, belief in Tian Dao—the Way of Heaven—is equally profound and intricately woven into the everyday life of the Chinese.  The Eurasian Dream of Peace: Literature as a Lamp In the face of shared global crises—war, anxiety, and the erosion of faith by scientific materialism—Xuemo called for "a new culture to redeem this era." He emphasized the power of literature to move the heart—and, through that, to advance peace.  "I cannot change the world," he said, "but I can change the hearts of those who read my books. And through them, the world naturally changes." He introduced several of his representative works, which have been translated into 25 languages, and donated a selection of books to the URJC university library.  Returning to the Humanities: Rekindling the Flame of Human Sensibility Amid the ongoing tension between scientific rationalism and humanistic values, Xuemo urged a revival of poetic sensibility. "Science is a tool; the humanities offer direction. Science speaks to the brain; the humanities speak to the heart." He noted that China is currently experiencing a renaissance of humanistic belief—precisely the kind of revival that is increasingly absent in the contemporary West.  The Value of Idealism: Why Should We Live? Responding to a student's question about whether philosophy has become detached from real life, Xuemo replied: "Eating keeps us alive; thinking tells us why we should live." He believes that only when humanity rises from mere survival to spiritual existence can civilization endure.  "In the end, we are all travelers heading toward the sun. Even if we never reach it, we must keep a heart that yearns to fly." Xuemo's Don Quixote-like idealism stirred a deep sense of resonance among the audience.   PS : Wild Fox Ridge, Xuemo's award-winning novel, is now available on Amazon  Ruxue International Media Inc www.xuemo.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523842/author-xuemos-literary-vision-illuminating-pathways-to-peace-across-eurasia)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xuemo-illuminates-eurasian-cultural-legacy-and-peace-through-literature/584de4458fd200d3b5a94586343c91b2) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1lc2em8/xuemo_illuminates_eurasian_cultural_legacy_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/15/dive6xdB.webp)
