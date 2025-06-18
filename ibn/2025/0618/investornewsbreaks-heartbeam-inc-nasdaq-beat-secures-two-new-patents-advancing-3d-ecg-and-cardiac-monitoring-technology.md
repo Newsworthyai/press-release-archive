@@ -28,17 +28,17 @@ HeartBeam (NASDAQ: BEAT), announced the issuance of two new U.S. patents that st
 
 ---
 
-[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-heartbeam-inc-nasdaq-beat-secures-two-new-patents-advancing-3d-ecg-and-cardiac-monitoring-technology/)
+[Original/Source Press Release](https://rss.investorbrandnetwork.com/iw/investornewsbreaks-heartbeam-inc-nasdaq-beat-secures-two-new-patents-advancing-3d-ecg-and-cardiac-monitoring-technology-2/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/heartbeam-strengthens-cardiac-care-innovation-with-new-patents/758bb84b138ab13a4195274a4438182e) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/heartbeam-strengthens-cardiac-care-innovation-with-new-patents/515b710ac5c403194cb726c3ceeef4e6) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/newsramp/comments/1lej32r/heartbeam_strengthens_cardiac_care_innovation/) 
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1leomku/heartbeam_strengthens_cardiac_care_innovation/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/256/18/navyBMxP.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/256/18/nuke53N_.webp)

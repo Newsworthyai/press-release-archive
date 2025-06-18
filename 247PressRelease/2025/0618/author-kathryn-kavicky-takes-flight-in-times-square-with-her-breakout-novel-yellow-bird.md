@@ -1,0 +1,20 @@
+# Author Kathryn Kavicky Takes Flight in Times Square With Her Breakout Novel Yellow Bird
+
+NEW YORK, NY, June 18, 2025 /24-7PressRelease/ -- In a moment that perfectly mirrors the themes of transformation and triumph found in her book, author Kathryn Kavicky lit up Times Square with the billboard debut of her novel Yellow Bird — an achievement few authors reach and one that signals Kavicky's arrival as a powerful new voice in fiction.  The vibrant image of Kavicky on the screen above Broadway, paired with her radiant appearance below it, captures the exact moment this North Carolina-based author turned heads in the publishing world. Yellow Bird, already gaining critical momentum, is being recognized for its emotional honesty, luminous prose, and deeply human storytelling.  A Milestone in the Heart of Manhattan Kavicky's appearance on the Times Square billboard places her alongside the world's most recognized authors, artists, and innovators. Displayed in one of the world's most photographed locations, the billboard was broadcast to millions via the EarthCam livestream and stopped foot traffic with its bold design and powerful presence.  The billboard celebrated both Yellow Bird and the author herself, positioning Kathryn Kavicky not just as a debut novelist, but as a force in modern storytelling.  About the Book: Yellow Bird A story of resilience, rediscovery, and radical self-acceptance, Yellow Bird follows a protagonist navigating emotional upheaval with courage and clarity. With its rich narrative voice and layered characters, the novel speaks to anyone who has faced a crossroads — and found the strength to soar.  "Like its title, and the symbolism of the little yellow bird, this book is about having the confidence to move forward, to rise above obstacles," says Kavicky. "It's about being optimistic, even when you think your wings are gone."  Readers and reviewers alike have praised the novel's introspective tone and uplifting message, calling it "a beautifully written testament to second chances and self-worth."  About the Author Kathryn Kavicky is a writer based in the Midwest whose work blends introspective realism with hope-forward storytelling. Her experiences in both creative and academic circles inform her grounded, emotionally resonant prose.  Her journey from draft to Times Square reflects her own story of persistence and creative renewal, making her an inspiration to aspiring writers and readers alike.  "I wrote this story to help people feel seen," Kavicky says. "To remind them that even in moments of uncertainty, we still have the power to move forward — and even fly."  Nationwide Availability Yellow Bird is now available in print and digital formats across major retailers:  • Paperback: Amazon, Barnes & Noble • eBook: Amazon Kindle, Apple Books, Kobo  Contact  For more information, interviews, or review copies, please contact:  kathryn@kathrynkavicky.com www.kathrynkavicky.com  Franklin Publishers: info@franklinpublishers.com +1 (877) 668-1098  About Franklin Publishers  Franklin Publishers is committed to bringing exceptional literary works to readers worldwide. With a focus on hybrid publishing, we combine the strengths of both self-publishing and traditional publishing to provide a seamless and successful publishing experience for our authors. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523977/author-kathryn-kavicky-takes-flight-in-times-square-with-her-breakout-novel-yellow-bird)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kathryn-kavicky-s-yellow-bird-soars-in-times-square-debut/283c58d97196beb889bf6de34a08ec7c) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BookNews/comments/1lel48t/kathryn_kavickys_yellow_bird_soars_in_times/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/18/bestJAZE.webp)
