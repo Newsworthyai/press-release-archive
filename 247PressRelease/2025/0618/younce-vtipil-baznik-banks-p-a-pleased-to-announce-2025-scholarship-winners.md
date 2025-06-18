@@ -1,0 +1,20 @@
+# Younce, Vtipil, Baznik &amp; Banks, P.A. Pleased to Announce 2025 Scholarship Winners
+
+RALEIGH, NC, June 18, 2025 /24-7PressRelease/ -- To help accomplish that, the firm hosts an annual essay contest and awards a total of $3,000 in scholarship prizes to the winners. They hope these funds can help deserving students in North Carolina with college expenses in order to meet their educational and career goals. This year's applicants answered the question: Tell us what justice means to you and how you plan to make society more just in the future.  After reviewing many thoughtful and inspiring essays, Younce, Vtipil, Baznik & Banks, P.A. is thrilled to recognize the winners of their 2025 scholarship competition:  First Place: Jayceon Norris Second Place: Dixie Huffman  Jayceon Norris is the winner of the first-place prize – a $2,000 scholarship. Jayceon attended North Pitt High School, where he played varsity football. Despite his own struggles with loss, Jayceon is passionate about mental health and works to uplift anyone around him and help those in need. These passions fuel his dream career in the field of psychology. As a first-generation college student, he hopes to obtain a master's degree. No matter where he ends up, Jayceon wants to be involved with volunteer and advocacy work, as well as entrepreneurship.  Dixie Huffman is the second-place winner and will receive a $1,000 scholarship. She attended Fred T Foard High, where she was on the varsity swim team. Dixie will be a first-generation college student as a member of the University of Colorado – Colorado Springs 2029 class, majoring in Political Science and Philosophy. She plans to become an attorney focused on policy reform, especially in areas such as juvenile justice, mental health, and educational equity. Dixie is most passionate about the law, writing, and advocating for people who are often overlooked.  The attorneys at Younce, Vtipil, Baznik & Banks, P.A. wish to congratulate these accomplished and promising students, as well as recognize the excellent essays submitted by all applicants. The team wishes them the best of luck in college and their future careers and looks forward to seeing the positive impact they will have on the world.  About Younce, Vtipil, Baznik & Banks, P.A. The attorneys at Younce, Vtipil, Baznik & Banks, P.A. handle a variety of claims, including personal injury, workers' compensation, and family law cases. The Raleigh-based firm serves clients throughout North Carolina, helping them seek the best possible outcome in their legal matters.  Their experienced lawyers are committed to providing compassionate and effective legal representation, along with one-on-one client service that treats individuals with the respect they deserve. Their team has fluent English- and Spanish-speaking staff members who provide hands-on, personalized care so clients feel comfortable and in control of their case. As a client-oriented law firm, they also utilize state-of-the-art case management tools to ensure that clients receive the best representation possible.  The firm's attorneys have received several awards and recognitions for their outstanding legal representation and service, including an AV Preeminent rating from the highly regarded Martindale-Hubbell Law Directory. Contact Younce, Vtipil, Baznik & Banks, P.A. today to find out how they can help with your legal needs. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523928/younce-vtipil-baznik-banks-pa-pleased-to-announce-2025-scholarship-winners)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/nc-law-firm-awards-3k-in-scholarships-to-future-leaders/c536e15a2b53a769c78018928da39130) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1leb39i/nc_law_firm_awards_3k_in_scholarships_to_future/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/18/xenotKG9.webp)

@@ -1,0 +1,20 @@
+# Marlabs and Perfecter.ai Announce Strategic Partnership to Modernize Lending Institutions with Scalable AI Solutions
+
+PISCATAWAY, NJ, June 18, 2025 /24-7PressRelease/ -- Marlabs, a leading digital solutions provider specializing in enterprise transformation, and Perfecter.ai, a cutting-edge AI platform for intelligent document processing, have announced a strategic partnership focused on delivering AI-powered solutions to modernize operations across the lending industry.  This collaboration aims to help banks, credit unions, mortgage providers, and other lending institutions streamline critical workflows by automating document analysis while at the same time enhancing risk evaluation and accelerating decision-making processes. Through this collaboration, they help lending institutions reduce their loan cycle times and improve customer satisfaction.  "Lending institutions face growing pressure to improve agility and compliance while managing massive volumes of unstructured data," said Thomas Collins, CEO of Marlabs. "By integrating Perfecter.ai's intelligent document platform into our artificial intelligence and machine learning solution stack, we're enabling lenders to adopt AI responsibly and at scale. Through intelligent, AI-powered automation, we're driving faster time-to-value in areas like asset-backed underwriting, loan origination, and regulatory reporting."  Perfecter.ai's platform is specially designed for the high-stakes needs of financial services and brings transparency, speed, and auditability to document-heavy processes. Lending institutions can now move away from manual workflows and toward AI-driven efficiency—without compromising accuracy or control.  "Our mission is to make AI safe, fast, and usable for high-impact industries like lending," said Srinath Rajaram, CEO of Perfecter.ai. "Marlabs brings the deep domain expertise and enterprise trust needed to deliver this value at scale. Together, we can help lenders move beyond experimentation and toward measurable transformation."  Through joint go-to-market efforts, the partnership will offer: • Pre-built AI accelerators for underwriting and loan processing • Compliance-ready solutions for document validation and data extraction • Advisory services to align AI adoption with risk management strategies  Watch Perfecter NOW™ in action: https://www.youtube.com/watch?v=2uDe0PxsPbI Learn more about the partnership: https://www.marlabs.com/partners/perfector-ai  Media Contact: kylie.frandsen@marlabs.com  About Marlabs Marlabs helps enterprises transform digitally and drive innovation by leveraging cloud, data, automation, and AI. Headquartered in New Jersey and with global delivery centers, Marlabs has a proven track record of delivering complex technology solutions to Fortune 500 clients across industries. www.marlabs.com  About Perfecter.ai Perfecter.ai is an enterprise-grade AI document processing platform that simplifies the deployment, governance, and scaling of AI initiatives for banking, financial services, and insurance industries. Built to support responsible AI practices, Perfecter.ai's platform enables organizations to operationalize AI at speed while maintaining transparency, security, and control. www.perfecter.ai 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523956/marlabs-and-perfecterai-announce-strategic-partnership-to-modernize-lending-institutions-with-scalable-ai-solutions)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/marlabs-perfecter-ai-partner-to-transform-lending-with-ai/1022ed0765914fdf2f9111fe277f0ad2) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/BlockchainWeb3New/comments/1leb5lj/marlabs_perfecterai_partner_to_transform_lending/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/18/paveTVtA.webp)

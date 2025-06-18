@@ -1,0 +1,20 @@
+# Faith, Family, and 4 Million Downloads: Devotional Podcast Marks New Life On and Off the Mic
+
+MIAMI, FL, June 18, 2025 /24-7PressRelease/ -- The "My Morning Devotional" podcast has surpassed 4 million downloads, in the same month that the founder of the podcast celebrates the birth of her first child after a long battle with pregnancy loss.   Launched in 2020 by South Florida entrepreneur Alison Delamota, the five-minute daily devotional podcast began as a response to her newsletter subscribers' request for an audio version of her prayers. Over time, it blossomed into a daily spiritual habit for thousands worldwide.  In December 2023, Alison stepped away from actively podcasting to focus on healing after suffering a miscarriage. Not wanting to desert the devoted podcast community she built, she invited the four daughters of her pastor's family to continue the work she began.  The Alessi sisters—Stephanie, Lauren, Gaby, and Richelle—have faithfully carried forward the podcast's mission, maintaining its "5-minute daily dose of heaven" format and re-engaging a global community of listeners. Their heartfelt reflections and consistent delivery helped return the podcast to the top 50 of Spotify's Religion & Spirituality charts in April 2024.  This dual celebration—a major audience milestone and the birth of Millie Mae in May 2025—is a testament to the power of faith, family, and spiritual consistency, even in seasons of transition and healing.  Even more fittingly, Delamota's daughter bears the same initials as the show she founded - Millie Mae Delamota (MMD).  Gaby Alessi, one of the new hosts, stated, "This means so much to us and the MMD family. We know that God is using this podcast to bless millions, but it all starts with each individual listener who tunes in every morning. It's a blessing to open the word of God, share our heart, and pray together every day."   Alison, speaking from home while caring for her newborn, shared these thoughts: "When I made the decision to step away to focus on growing my family, I entrusted the podcast to my church family and dear friends—Stephanie, Richelle, Lauren, and Gaby. Watching them carry the mission forward and celebrate the incredible milestone of 4 million downloads has only reaffirmed what this show has always been about. It was never about the voice behind the mic, but the guidance, healing, and wisdom of the Scriptures we read together."  The show's worldwide audience remains devoted to its accessible, faith-filled format, and continues to tune in for the 5 minute moments of inspiration every single weekday.   For new listeners or longtime fans, "My Morning Devotional" is available on all major podcast platforms. To subscribe, visit http://mymorningdevo.co.  About "My Morning Devotional":  "My Morning Devotional" is a top-rated daily devotional podcast that has inspired millions with its heartfelt messages of faith, hope, and encouragement. Started in 2020 by Alison Delamota and now hosted by the Alessi sisters of Metro Life Church in Miami, FL, the show continues to uplift listeners with its signature "5-minute dose of heaven." and has repeatedly ranked in the top 50 Religious and Spirituality podcasts on Spotify. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523946/faith-family-and-4-million-downloads-devotional-podcast-marks-new-life-on-and-off-the-mic)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/my-morning-devotional-podcast-hits-4m-downloads-amid-founder-s-joyful-milestone/4b6b8c74323a4c82776e41b6ffe5932a) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1leb5ol/my_morning_devotional_podcast_hits_4m_downloads/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/18/navyMvG8.webp)

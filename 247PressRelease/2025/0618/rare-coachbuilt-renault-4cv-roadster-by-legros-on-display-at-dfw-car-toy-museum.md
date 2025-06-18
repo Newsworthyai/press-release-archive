@@ -1,0 +1,20 @@
+# Rare Coachbuilt Renault 4CV Roadster by Legros on Display at DFW Car &amp; Toy Museum
+
+FORT WORTH, TX, June 18, 2025 /24-7PressRelease/ -- Among the dozens of rare and historic European classics featured at the DFW Car & Toy Museum, few tell a story as fascinating as the 1950 Renault 4CV Roadster by Legros. Originally introduced in 1947 as France's first post-war economy car, the Renault 4CV was the first French automobile to surpass one million units sold—but this particular example is anything but ordinary.  Wearing bespoke coachwork crafted by Belgian coachbuilder Legros, this rare roadster version features hand-formed steel body panels, dual side mirrors, a shortened windscreen, louvered deck lid, and elegant driving lamps. Painted in a rich blue finish, the car's compact charm and design details exude European flair, offering a striking counterpoint to the mass-produced saloons most people associate with the 4CV name.  Inside, the minimalist two-spoke ivory steering wheel fronts a Jaeger instrument cluster with a 120-km/h speedometer, gauges for coolant and oil temperature, fuel level, and battery charge. A five-digit odometer reads just 38,000 kilometers (~24,000 miles), underscoring its rarity and preservation.  Under the rear deck lid, a replacement 845cc Ventoux inline-four engine paired with a four-speed manual transaxle powers the car—true to its roots as an accessible, agile runabout with a flair for the unique.  "This Legros-bodied 4CV roadster is a brilliant reminder that even the most humble platforms can become rolling art when placed in the hands of a talented coachbuilder," said Ron Sturgeon, founder of the DFW Car & Toy Museum. "It's one of those cars that makes you stop, smile, and ask—'Wait, what is that?'"  The Renault 4CV Roadster by Legros is now on display as part of the Ron Sturgeon Collection at the DFW Car & Toy Museum, home to over 200 cars and 3,000 toys and collectibles.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523951/rare-coachbuilt-renault-4cv-roadster-by-legros-on-display-at-dfw-car-toy-museum)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rare-1950-renault-4cv-roadster-by-legros-steals-spotlight-at-dfw-museum/f481db632fb1a496483298ae9515e94b) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1leb5n4/rare_1950_renault_4cv_roadster_by_legros_steals/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/18/calmIotW.webp)

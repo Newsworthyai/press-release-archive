@@ -1,0 +1,20 @@
+# New Podcast "MidLife Crisis: Bomb Drop and Beyond" Hits 10,000 Streams in First 90 Days – Tackles the Untold Truth of Midlife Crisis
+
+SACRAMENTO, CA, June 18, 2025 /24-7PressRelease/ -- With over 10,000 streams in its first 90 days, the show dives headfirst into the often-ignored emotional storm that derails families, fractures marriages, and leaves psychological scars in its wake.   Drawing from her own experience and an ever-growing community of survivors, Laird explores the sudden and often shocking behavioral shifts that define MLC. These aren't just personal stories, they're a wake-up call to the mental health field and society at large.  "This podcast is a wake-up call," says Laird. "In one support group alone, there are over 5,000 members around the world—many blindsided by the exact same phrase: 'I love you, but I'm not in love with you.' It's an epidemic. I believe untreated midlife crisis is a silent contributor to our high divorce rates. If it were properly understood and addressed, I believe we could cut that rate in half—and in doing so, save countless families."  Laird continues, "Plus, people IN crisis have almost no idea that they are dismantling and destroying their lives. It's like they see what they are doing, but they often can't stop. They come out of it years later – shocked at what happened, remorseful but too often the damage is so deep they simply have to accept what happened and move on. This is so not acceptable as a society, to think that we are allowing people in crisis to make decisions that impact the rest of their lives – and the lives of their family. MLC is temporary, but the decisions they make, when they are not of right mind, are permanent. Does anyone really not find fault with that?"  MidLife Crisis: Bomb Drop and Beyond aims to do more than tell stories. It's pushing for midlife crisis to be formally recognized within the mental health field, with the same seriousness as depression or bipolar disorder. The podcast offers not just empathy, but advocacy—for research, diagnosis, support systems, and legal reform.  With a mix of expert interviews, survivor stories, and bold commentary, the show tackles topics such as:  • Smear campaigns and legal manipulation that rewrite the narrative and vilify the discarded spouse • Long-term trauma in children navigating fractured family systems • The intersection of covert narcissism and emotional abandonment • Emotional and financial devastation faced by the left-behind partner • Why society must stop normalizing abandonment as "reinvention" • The urgent need for legal and mental health reform to protect vulnerable families  Available on all major platforms - Apple, Spotify, YouTube, Pandora, and more— MLC Bomb Drop and Beyond releases new episodes weekly. Listeners are invited to join the growing movement to raise awareness and demand change.  About Trina Laird Trina Laird is CEO of Tigijak Media LLC. After being blindsided by her husband's abrupt departure after 27 years of what she thought was a happy and fun marriage, she transformed her pain into purpose, launching MidLife Crisis: Bomb Drop and Beyond to break the silence, challenge the narrative and provide other survivors a platform to share their situation with others on a global scale. Trina is an active real estate professional in Northern California and is also a student at The School of Trauma Informed Positive Psychology in the UK where she is working towards becoming a Narcissistic Trauma-Informed Coach with a focus on MidLife Crisis. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523898/new-podcast-midlife-crisis-bomb-drop-and-beyond-hits-10000-streams-in-first-90-days-tackles-the-untold-truth-of-midlife-crisis)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/podcast-exposes-midlife-crisis-as-silent-divorce-contributor/ff7f92f6727290e028cee3ba837ddf1d) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1leb5jm/podcast_exposes_midlife_crisis_as_silent_divorce/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/18/openeMm0.webp)
