@@ -1,0 +1,20 @@
+# Roonyx CEO Vladimir Drogan Explores Key Trends and Innovations at Istanbul Fintech Week 2025
+
+ST. PETERSBURG, FL, June 19, 2025 /24-7PressRelease/ -- The two-day event, held on June 11–12, offered deep insights into how Turkey is rapidly building working financial infrastructure from emerging concepts.  "Expanding into global markets requires a deep understanding of regional economic landscapes," said Vladimir Drogan, CEO of Roonyx. "What inspired me in Turkey is how the future isn't just being discussed — it's being built. At Istanbul Fintech Week, regulators and banks showcased real-world implementations of tokenized bonds and real estate. It's clear that innovation here is moving beyond theory and into infrastructure."  Digital Banking 2025: The Shift Toward Modular Ecosystems  One of the key topics covered at the event was the trend known as Digital Banking 2025, which reflects a strategic shift in banking models. Financial institutions are increasingly moving away from monolithic super apps in favor of micro-ecosystems supported by Banking-as-a-Service (BaaS) platforms.  "This trend strongly validates our architectural vision," the Roonyx chief explained. "Roonyx's platform was designed from the start to integrate effortlessly into third-party ecosystems as an on-premise solution. We provide the technology layer without accessing customer data or handling financial transactions. This approach empowers our clients to expand and enrich their fintech ecosystems in a secure and scalable way."  Embedded Finance: Creating Seamless Financial Experiences  The conference also emphasized the accelerating rise of Embedded Finance, which integrates financial functionality directly into non-financial platforms and everyday digital services. Ride-hailing applications were spotlighted as a prime example, where payment processes are fully embedded and largely invisible to users.  "In ride-hailing apps, payments are fully integrated into the user journey, increasing customer lifetime value by 27%," said Mr. Drogan. "This illustrates how deeply financial services can be woven into daily experiences, making them intuitive, seamless, and far more engaging."  Strategic Outlook: Expanding Roonyx's Modular Ecosystem  Inspired by insights gained at Istanbul Fintech Week, Vladimir Drogan also shared a look ahead at Roonyx's strategic plans.  "After witnessing the direction of fintech innovation in this region, I'm seriously considering the expansion of our own modular ecosystem built on the Roonyx platform," he said. "This would allow us to deliver even more flexible, customizable tools for fintech companies seeking next-generation capabilities."  ROONYX is a software development company that designs and builds intelligent, scalable digital products with a strong focus on financial technologies. The company's flagship BNPL solutions are built to serve modern e-commerce and digital finance ecosystems, enabling businesses to offer transparent, data-driven payment experiences to their customers.  With an emphasis on innovation, user experience, and responsible financial infrastructure, ROONYX continues to evolve as a trusted partner in the fintech space.  Related Link: https://roonyx.tech 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523987/roonyx-ceo-vladimir-drogan-explores-key-trends-and-innovations-at-istanbul-fintech-week-2025)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/turkey-s-fintech-innovation-takes-center-stage-at-istanbul-fintech-week/4d5a327ab5a74366fffde344faa5681f) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1lf4lk8/turkeys_fintech_innovation_takes_center_stage_at/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/19/blurKESx.webp)

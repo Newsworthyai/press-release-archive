@@ -1,0 +1,20 @@
+# Diamond Care Transportation Launches Expanded Paratransit and Wheelchair Transportation Services for Seniors and People with Disabilities Across South Carolina
+
+CHARLESTON, SC, June 19, 2025 /24-7PressRelease/ -- Diamond Care Transportation, a trusted provider of Non-Emergency Medical Transportation (NEMT), has officially expanded its operations to provide comprehensive paratransit transportation, senior ride services, and wheelchair transportation throughout South Carolina and into surrounding states including Florida, Washington, Maryland, and the District of Columbia.  This announcement comes in response to rising demand for reliable, compassionate transport solutions for elderly and disabled patients, especially those requiring mobility assistance and disability resources. The expansion includes wheelchair-accessible vehicles, trained drivers certified in ADA-compliant transport, and enhanced ride coordination for transportation to medical appointments, dialysis, rehabilitation, and disability services.  "We are proud to make safe, dependable transportation more accessible for patients across the Southeast," said a company representative. "Our goal is to ensure that seniors and individuals with disabilities never miss a medical appointment due to transportation barriers."  Key Features of Diamond Care Transportation Services:  • Paratransit transportation tailored for individuals with special mobility needs • Wheelchair-accessible vehicles for comfort and safety • Senior transportation services for doctor visits, clinics, and treatment centers • Transportation for people with disabilities to ensure equal access to healthcare • Medicaid-approved and private-pay options available • Easy scheduling by phone or online with live support  The expansion includes partnerships with local healthcare providers and brokers to streamline medical ride bookings for patients across all service areas.  Book Now – Serving These States:  Diamond Care Transportation proudly serves the following regions:  • South Carolina (primary location for new services) • Florida • Washington State • Maryland • Washington, D.C.  Patients, caregivers, and medical facilities can now book a ride online or by calling directly.  About Diamond Care Transportation: Diamond Care Transportation is a leading provider of Non-Emergency Medical Transportation (NEMT), specializing in paratransit services, wheelchair transportation, and senior ride solutions. Committed to providing safe, reliable, and compassionate transport, Diamond Care ensures that people with disabilities, seniors, and medically fragile individuals can access healthcare with dignity and ease. The company serves South Carolina, Florida, Washington, Maryland, and Washington, D.C., offering both Medicaid-covered and private pay transportation options. With trained drivers, ADA-compliant vehicles, and a mission centered on care, Diamond Care Transportation lives by its motto: "We Do Care."  Learn more at: https://diamondcaretransportation.com  Contact Information: Phone: +1 (864) 335-9824 Email: info@diamondcaretransportation.com Website: https://diamondcaretransportation.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524009/diamond-care-transportation-launches-expanded-paratransit-and-wheelchair-transportation-services-for-seniors-and-people-with-disabilities-across-south-carolina)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/diamond-care-transportation-expands-accessible-medical-ride-services-across-southeast/e18d6500d878398603c8273e2c73546c) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1lf4qqr/diamond_care_transportation_expands_accessible/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/19/harp327_.webp)
