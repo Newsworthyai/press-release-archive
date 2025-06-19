@@ -31,14 +31,14 @@ Telomir Pharmaceuticals (NASDAQ: TELO) announced new preclinical data demonstrat
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/bmw/biomednewsbreaks-telomir-pharmaceuticals-nasdaq-telo-reports-preclinical-success-for-telomir-1-in-progeria-cell-lines/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/telomir-pharmaceuticals-telomir-1-shows-promise-in-reversing-cellular-aging/01485c337edb8ee1efd7428cc6ab4b2c) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/telomir-s-telomir-1-shows-promise-in-reversing-cellular-aging-in-progeria/35c064a60310faaa46171c2dda9aa4ec) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1lelxc6/telomir_pharmaceuticals_telomir1_shows_promise_in/) 
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1lerl2m/telomirs_telomir1_shows_promise_in_reversing/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/256/18/envyZVK1.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/256/18/envyOtPp.webp)
