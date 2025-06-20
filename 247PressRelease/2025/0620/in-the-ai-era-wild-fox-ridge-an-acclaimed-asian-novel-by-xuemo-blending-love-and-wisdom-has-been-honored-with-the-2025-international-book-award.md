@@ -1,0 +1,20 @@
+# In the AI era, Wild Fox Ridge, an acclaimed Asian Novel by Xuemo Blending Love and Wisdom, has been honored with the 2025 International Book Award
+
+NEW YORK, NY, June 20, 2025 /24-7PressRelease/ -- Recently, American Book Fest announced the winners and finalists of THE 2025 INTERNATIONAL BOOK AWARDS (IBA), one of the world's largest international book award programs for mainstream, indie, and self-published titles. Among them, Wild Fox Ridge, the English edition of Chinese author Xuemo's novel, stood out from a fiercely competitive global field and won top honors in the Historical Fiction category.  Translated by renowned sinologists Howard Goldblatt and Sylvia Li-chun Lin, and published by Ruxue International Media, Wild Fox Ridge had already garnered significant attention earlier this year. In February, it won the 2025 International Impact Book Award and topped Amazon's bestseller lists multiple times. Xuemo was invited to attend the awards ceremony held in Phoenix, Arizona, as a guest of honor.  Wild Fox Ridge marks a turning point in Xuemo's literary journey, transitioning from his earlier realist works—such as The Desert Trilogy—to a narrative style that blends historical storytelling with mystical elements. The novel reconstructs a forgotten myth from China's West, unraveling the mysterious disappearance of two camel caravans a century ago. Told through 28 ghostly monologues, the story revives the legendary lives of the camel riders in what critics have hailed as "a reconstruction of the Western mythos."  Jeffrey Keen, President and CEO of the Book Festival, noted that this year's competition received thousands of submissions from authors and publishers worldwide, across nearly 100 categories. The selection process was rigorous and multi-staged, culminating in the final announcement of award recipients. As one of the most influential honors for both traditionally and independently published books, the International Book Awards recognizes outstanding works published between 2020 and 2025, and are considered among the highest accolades in North American publishing.  This award not only affirms Xuemo's personal literary achievement but also reflects the rising global recognition of Chinese literature, strengthening the cultural bridge between East and West.  The judging panel included representatives from prominent publishers such as HarperCollins, Penguin Random House, Wiley, Hachette, Rowman & Littlefield, Wipf and Stock, Routledge, Hay House, HCI Press, Minotaur, Inner Traditions, Greenleaf Book Group, She Writes Press, Ideapress Publishing, Kogan Page, Johns Hopkins University Press, Cambridge University Press, Oxford University Press, National Galley of Victoria and hundreds of national and international Independent Houses contribute to this year's Outstanding Competition!, alongside hundreds of independent publishers from around the world.  This week, the Book Festival committee will launch a promotional campaign for Wild Fox Ridge, aiming to bring the novel to an even broader international audience. This initiative is expected to reach well beyond the festival's current following of 132,000 readers, further amplifying the book's global influence.  Wild Fox Ridge bis available worldwide on Amazon. Visit the link below to purchase your copy!  https://www.amazon.com/Wild-Fox-Ridge-Xue-Mo-ebook/dp/B0DCS8TW2V  Ida Liu www.xuemo.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524012/in-the-ai-era-wild-fox-ridge-an-acclaimed-asian-novel-by-xuemo-blending-love-and-wisdom-has-been-honored-with-the-2025-international-book-award)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/xuemo-s-wild-fox-ridge-wins-top-honors-at-2025-international-book-awards/30bee69d927bfbecd2bd433eed385fdd) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1lg6ks3/xuemos_wild_fox_ridge_wins_top_honors_at_2025/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/20/openLMvF.webp)
