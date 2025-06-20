@@ -1,0 +1,20 @@
+# Trial Lawyer Hall of Fame Member to Speak at "Winning Truck Wreck Cases" Seminar
+
+INDIANAPOLIS, IN, June 20, 2025 /24-7PressRelease/ -- One of the nation's top trial lawyers and Trial Lawyer Hall of Fame member John F. Romano will be speaking at this year's "Winning Truck Wreck Cases" Seminar, hosted by David W. Craig and Scott A. Faultless of Craig, Kelley & Faultless.   Romano has practiced law for 50 years, is a veteran of the United States Marine Corps and is board certified in both Civil Trial Law and Civil Practice Advocacy.  Craig, Kelley & Faultless is proud to announce Romano as a seminar speaker. The Winning Truck Wreck Cases Seminar will be held August 4, 2025, at the Embassy Suites Noblesville Indianapolis Conference Center. It is presented by the Indiana Trial Lawyers Association. Registration for the seminar is available on the ITLA website.  Romano's seminar presentation is titled "Storytelling in Truck Wreck Cases with a Special Emphasis on Opening Statements". In his career, Romano has successfully tried over 200 cases and knows what it takes to fight for clients in jury trials. His presentation will be in the afternoon on August 4.  When he was inducted into the Trial Lawyer Hall of Fame in 2016, Romano joined the likes of John Adams, Thurgood Marshall and Clarence Darrow.   The Trial Lawyer Hall of Fame, which has fewer than 90 inductees, honors attorneys "who have left an indelible mark on the American legal tradition through a lifetime of service to the American public, the Constitution, and the American trial bar."  The nonprofit organization, established by the National Trial Lawyers Association, welcomes past and present attorneys each year based on certain criteria. An eligible trial lawyer:  • Has 30+ years of practice in civil and/or criminal defense trial law and is at least 60 years old. • Represents the best of their profession and has exceeded the public and peers' expectations. • Is a true champion and crusader for American justice with superior qualifications of leadership, reputation, influence, etc. as a trial lawyer. • Has achieved a substantial number of favorable results in significant cases. • Continues to conduct themselves in a legal and ethical manner in accordance with the highest legal and professional standards.  Romano has served as president of the Academy of Florida Trial Lawyers, The National Trial Lawyers, the Florida Justice Association, the Southeast Florida Chapter of the American Board of Trial Advocates, Civil Justice Foundation, Gold Coast Chapter of the Federal Bar Association, Palm Beach Chapter of the Federal Bar Association, and the Melvin M. Belli Society.  This is the second year David W. Craig and Scott A. Faultless will be organizing the "Winning Truck Wreck Cases" seminar. Both attorneys are board-certified in truck accident law and serve on the Board of Regents of the Academy of Truck Accident Attorneys. They have been named Top 100 Indiana Trial Lawyers by The National Trial Lawyers.  About Craig, Kelley & Faultless  Craig, Kelley & Faultless is headquartered in Indianapolis and has offices in Indiana and an office in St. Louis, Missouri. The firm handles cases throughout the country and has attorneys licensed in Indiana, Illinois, Missouri, Kentucky, Ohio and Iowa. Craig, Kelley & Faultless can be contacted at 1-800-746-0226, and additional information can be found at www.ckflaw.com, on Facebook at www.facebook.com/ckflaw, or on LinkedIn at www.linkedin.com/company/craig-kelley-&-faultless-attorneys-at-law/. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524022/trial-lawyer-hall-of-fame-member-to-speak-at-winning-truck-wreck-cases-seminar)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/legendary-lawyer-john-romano-to-headline-truck-wreck-seminar/82b17665e4c92272e286d6a35f4af3d3) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1lfxt0m/legendary_lawyer_john_romano_to_headline_truck/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/20/wamcmMLi.webp)
