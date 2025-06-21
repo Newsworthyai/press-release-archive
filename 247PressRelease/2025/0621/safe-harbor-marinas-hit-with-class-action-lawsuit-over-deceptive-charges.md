@@ -1,0 +1,20 @@
+# Safe Harbor Marinas Hit with Class Action Lawsuit Over Deceptive Charges
+
+FORT LAUDERDALE, FL, June 21, 2025 /24-7PressRelease/ -- Kelley | Uustal along with co-counsel, Anastasia Palivos, and South Carolina co-counsel, Mark Tanenbaum and Dick Harpootlian, have filed a national class action lawsuit (Case Number: 2:2025cv05014) on behalf of Miami Charter Yacht, LLC, and affected customers nationwide against Defendants, Safe Harbor Marinas, LLC and SHM Charleston Boatyard, LLC for various claims arising from the alleged deceptive corporate practices.   The lawsuit filed in the U.S. District Court for the District of South Carolina Charleston Division, alleges that the Defendants engaged in "bait-and-switch" type conduct, designed to inflate customer invoices through improper and unauthorized "add on" charges to final billing.   Cristina Pierson, Partner at Kelley | Uustal explains: "We filed this class action lawsuit challenging Safe Harbor Marinas' pattern of inflating customer invoices with unauthorized and deceptive charges unrelated to work they actually performed. Making matters worse for the vessel owners, the coercive 'cash for splash' policy forces customers to pay in full before their vessel can even leave the marina." The lawsuit seeks damages and restitution for affected boat owners nationwide. "We believe there are many more yacht owners who have been victims of this same overbilling scheme who will be entitled to relief through this lawsuit," said Pierson.   Defendant, Safe Harbor Marinas, LLC provides superyacht servicing and repairs to thousands of customers through its 138 marinas located in approximately 24 states. The complaint states that Safe Harbor operates at the direction of centralized corporate management and that "the company's policies, practices, and procedures" were systematically implemented and enforced across its entire national network.  Plaintiff, Miami Charter Yacht, LLC is a Florida limited liability company that owns a 76-foot San Lorenzo yacht known as the "Vasiliki" that is engaged in the private charter business. According to the complaint, Miami Charter Yacht's experience at Safe Harbor's Charleston facility exemplifies the defendants' prevalent deceptive practices. Plaintiff's yacht required repairs in late 2024, and its final bill was "supersized" by a number of unauthorized surcharges and fees.  The lawsuit brings claims for breach of contract, breach of the covenant of good faith and fair dealing, unjust enrichment, and violation of South Carolina's Unfair Trade Practices Act. Plaintiff seeks a trial by jury and monetary damages, restitution, and injunctive relief on behalf of itself and the proposed class.  About Kelley | Uustal Kelley | Uustal was founded in 2008 by nationally recognized attorneys Robert Kelley and John Uustal. Based in Fort Lauderdale, FL., the firm specializes in catastrophic injury, wrongful death cases, and complex commercial litigation. Since its founding, Kelley | Uustal has grown to a team of over 12 award-winning attorneys, featured year after year by publications like Best Lawyers, U.S. News, Super Lawyers, and more. Our attorneys have secured over $1 billion in life-changing verdicts and settlements for our clients. The firm can be reached at (954) 522-6601.   For more information, visit https://kelleyuustal.com/. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524077/safe-harbor-marinas-hit-with-class-action-lawsuit-over-deceptive-charges)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/national-class-action-lawsuit-filed-against-safe-harbor-marinas-for-deceptive-billing-practices/7626cd19805d6132619ed76475642111) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1lgqnzi/national_class_action_lawsuit_filed_against_safe/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/21/clubpcUQ.webp)
