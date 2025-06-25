@@ -1,8 +1,8 @@
 # TechMediaBreaks – Mullen Automotive Inc. (NASDAQ: MULN) Now Accepts Cryptocurrency, Including Bitcoin and $TRUMP Coin, for EV Purchases
 
-cryptocurrency—including Bitcoin and the $TRUMP meme coin—for purchases of Mullen and Bollinger commercial EVs. One of the few automakers to offer crypto payments, Mullen is also exploring the addition of other meme and stablecoins. The move broadens access to its U.S. safety- and emissions-certified EV lineup, including the Mullen ONE van, Mullen THREE truck, and Bollinger B4 chassis cab, which offers a 185-mile range and 7,325-pound payload capacity.
+Mullen Automotive (NASDAQ: MULN), an electric vehicle manufacturer, announced it is now accepting cryptocurrency—including Bitcoin and the $TRUMP meme coin—for purchases of Mullen and Bollinger commercial EVs. One of the few automakers to offer crypto payments, Mullen is also exploring the addition of other meme and stablecoins. The move broadens access to its U.S. safety- and emissions-certified EV lineup, including the Mullen ONE van, Mullen THREE truck, and Bollinger B4 chassis cab, which offers a 185-mile range and 7,325-pound payload capacity.
 
- To view the full press release, visit https://ibn.fm/5n8P2
+ To view the full press release, visit https://ibn.fm/TWDum
 
  About Mullen Automotive Inc.
 
@@ -10,31 +10,33 @@ cryptocurrency—including Bitcoin and the $TRUMP meme coin—for purchases of M
 
  NOTE TO INVESTORS: The latest news and updates relating to MULN are available in the company’s newsroom at https://ibn.fm/MULN
 
- About InvestorWire
+ About TechMediaWire
 
- InvestorWire (“IW”) is a specialized communications platform with a focus on advanced wire-grade press release syndication for private and public companies and the investment community. It is one of 70+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, IW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists and the general public. By cutting through the overload of information in today’s market, IW brings its clients unparalleled recognition and brand awareness. IW is where breaking news, insightful content and actionable information converge.
+ TechMediaWire (“TMW”) is a specialized communications platform with a focus on pioneering public and private companies driving the future of technology. It is one of 70+ brands within the Dynamic Brand Portfolio @ IBN that delivers: (1) access to a vast network of wire solutions via InvestorWire to efficiently and effectively reach a myriad of target markets, demographics and diverse industries; (2) article and editorial syndication to 5,000+ outlets; (3) enhanced press release enhancement to ensure maximum impact; (4) social media distribution via IBN to millions of social media followers; and (5) a full array of tailored corporate communications solutions. With broad reach and a seasoned team of contributing journalists and writers, TMW is uniquely positioned to best serve private and public companies that want to reach a wide audience of investors, influencers, consumers, journalists, and the general public. By cutting through the overload of information in today’s market, TMW brings its clients unparalleled recognition and brand awareness. TMW is where breaking news, insightful content and actionable information converge.
 
- For more information, please visit https://www.InvestorWire.com
+ To receive SMS alerts from TechMediaWire, text “TECH” to 888-902-4192 (U.S. Mobile Phones Only)
 
- Please see full terms of use and disclaimers on the InvestorWire website applicable to all content provided by IW, wherever published or re-published: https://www.InvestorWire.com/Disclaimer
+ For more information, please visit https://www.TechMediaWire.com
 
- InvestorWireAustin, Texaswww.InvestorWire.com512.354.7000 OfficeEditor@InvestorWire.com
+ Please see full terms of use and disclaimers on the TechMediaWire website applicable to all content provided by TMW, wherever published or re-published: https://www.TechMediaWire.com/Disclaimer
 
- InvestorWire is powered by IBN 
+ TechMediaWireAustin, Texaswww.TechMediaWire.com512.354.7000 OfficeEditor@TechMediaWire.com
+
+ TechMediaWire is powered by IBN 
 
 ---
 
 [Original/Source Press Release](https://rss.investorbrandnetwork.com/tmw/techmediabreaks-mullen-automotive-inc-nasdaq-muln-now-accepts-cryptocurrency-including-bitcoin-and-trump-coin-for-ev-purchases/)
                     
 
-[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-leads-with-crypto-payments-for-commercial-evs/8126737e0721b320e057f6fb73033a60) 
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mullen-automotive-pioneers-cryptocurrency-payments-for-evs/c8df0d93e5cb38955a9a6122d4d430e3) 
 
  
 
 
 
-[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1lk8i0z/mullen_automotive_leads_with_crypto_payments_for/) 
+[Reddit Post](https://www.reddit.com/r/CryptoNewsInfo/comments/1lk9yri/mullen_automotive_pioneers_cryptocurrency/) 
 
 
 
-![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/256/25/open0TOw.webp)
+![Blockchain Registration](https://cdn.newsramp.app/ibn/qrcode/256/25/bendBCxB.webp)
