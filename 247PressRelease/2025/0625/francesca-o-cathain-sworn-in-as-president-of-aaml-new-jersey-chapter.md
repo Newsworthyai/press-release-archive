@@ -1,0 +1,20 @@
+# Francesca O'Cathain Sworn in as President of AAML New Jersey Chapter
+
+LIVINGSTON, NJ, June 25, 2025 /24-7PressRelease/ -- Francesca O'Cathain, Esq., head of the Family Law Department at O'Cathain Law Group, was sworn in as the President of the American Academy of Matrimonial Lawyers (AAML) New Jersey Chapter. She begins her one-year term as the leader of the exclusive, statewide organization that includes some of the most respected family law attorneys in the Garden State.   "I am deeply honored to take on the presidency," said O'Cathain. "This organization is a cornerstone of excellence in family law, and I am grateful for the confidence my colleagues have shown in me."  The AAML New Jersey Chapter is part of the national organization, which comprises 1,650 Fellows across the United States. Fellows are recognized by the judiciary and legal peers for their advanced knowledge, skill, and integrity in family law matters. AAML New Jersey is a highly selective group of professionals committed to the highest standards of family law practice.  O'Cathain is widely regarded for her expertise in complex divorce and custody cases. She handles a diverse range of family law matters, including high-net-worth divorces, contentious custody battles, and cases involving children with special needs.   As the managing partner of the Family Law Department of the O'Cathain Law Group, in Hackensack, New Jersey, she has built a reputation for her dedication to clients from all walks of life. O'Cathain is board certified by the New Jersey Supreme Court in family law, a distinction held by only about 3% of attorneys in the state. She is one of only approximately 45 lawyers in New Jersey who are members of the AAML, a mark of professional excellence.  She has lectured for the American Bar Association on family law and is a member of the New Jersey State Bar Association, for whom she also frequently lectures. She also serves as a board member of the Foundation of the nationwide American Academy of Matrimonial Lawyers, the association's charitable wing.   She earned her Juris Doctorate from the University of Connecticut in 2004 and has dedicated her career to helping families navigate difficult transitions with care and precision. She resides in Hillsdale, New Jersey, with her husband, three children, and the family's dog.   For more information about O'Cathain Law Group, please visit www.olgnj.com.  About O'Cathain Law Group O'Cathain Law Group is a leading family law practice based in New Jersey, specializing in divorce, matrimonial, and family law matters. Led by Francesca O'Cathain, Esq. the firm represents clients in complex family law cases, including high-net-worth divorces, custody disputes, and cases involving special needs children.  About the American Academy of Matrimonial Lawyers The American Academy of Matrimonial Lawyers is a nationwide organization of attorneys who are recognized leaders in the field of family law. The Academy's Fellows are selected based on their commitment to high standards of practice, education, and service to clients. The AAML is committed to advancing the field of family law and promoting its highest standards of professionalism.  For more information about the AMML, please visit https://www.aaml.org/.  For more information about the AAML's New Jersey Chapter, please visit https://aamlnj.org/.  Photos courtesy of the AAML NJ 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524276/francesca-ocathain-sworn-in-as-president-of-aaml-new-jersey-chapter)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/francesca-o-cathain-leads-aaml-nj-chapter-as-president/d26948efe8d69e4e71af8fb05e100fe5) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1lki7s3/francesca_ocathain_leads_aaml_nj_chapter_as/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/25/evenyiRS.webp)
