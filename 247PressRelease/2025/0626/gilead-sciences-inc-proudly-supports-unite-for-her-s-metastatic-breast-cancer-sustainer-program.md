@@ -1,0 +1,20 @@
+# Gilead Sciences, Inc. proudly Supports Unite for HER's Metastatic Breast Cancer Sustainer Program
+
+PHILADELPHIA, PA, June 26, 2025 /24-7PressRelease/ -- Unite for HER (UFH) and Gilead Sciences have partnered to provide a new integrative care program free to Black, Hispanic, and underserved metastatic breast cancer patients in the United States. Through the "Metastatic Breast Cancer Sustainer Program," metastatic breast cancer patients can receive integrative therapies, services, and support at no personal cost.   "This program has been truly transformative for our members, and we are proud to partner with Gilead Sciences to bring meaningful, lasting change to their lives," said Sue Weldon, Founder and CEO of Unite for HER. "The Metastatic Breast Cancer Sustainer Program has become a vital lifeline for our members—especially for our Black, Hispanic and Latina members, and those in underserved communities. By providing access to integrative therapies such as acupuncture, professional counseling, personalized nutrition support, fitness memberships, and more at no personal cost, we're empowering members to stay on their treatment path and significantly improve their quality of life while living with cancer. This is about dignity, equity, and whole-person care."  "We are committed to advancing innovative solutions that address the unique needs of the Metastatic Breast Cancer community. We are proud to partner with Unite for HER in their mission to ensure that every patient has access to the care they need and deserve." said Carmen Villar, Senior Vice President of Global Giving, Advocacy, and Responsibility. This partnership reflects our ongoing dedication to empowering communities through meaningful, measurable impact.  Since launching in October 2023, the Unite for HER Metastatic Breast Cancer Sustainer Program has supported over 2,823 metastatic breast cancer patients in the United States. Funding from Gilead Sciences launched a new initiative of the program focused on supporting Black, Hispanic, and under-served metastatic breast cancer patients. To learn more about this program and Unite for HER's free services for breast and ovarian cancer patients in the United States, visit www.uniteforher.org.  About Unite for HER Unite for HER is a 501(c)3 national nonprofit organization that supports breast cancer and ovarian cancer patients by providing integrative therapies, services, education, resources, and support at no personal cost. Our vision is that every person with breast and ovarian cancers will feel the support of a loving community, and will have access to comprehensive education, services, and tools that enrich their health and well-being. For more information visit uniteforher.org.  About Gilead Sciences Gilead Sciences, Inc. is a biopharmaceutical company that has pursued and achieved breakthroughs in medicine for more than three decades, with the goal of creating a healthier world for all people. The company is committed to advancing innovative medicines to prevent and treat life-threatening diseases, including HIV, viral hepatitis, COVID-19, cancer and inflammation. Gilead operates in more than 35 countries worldwide, with headquarters in Foster City, California. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524277/gilead-sciences-inc-proudly-supports-unite-for-hers-metastatic-breast-cancer-sustainer-program)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/unite-for-her-gilead-launch-free-cancer-care-program-for-underserved/36b6b9ca59653a9d10bdc2274796b430) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1lktsq4/unite_for_her_gilead_launch_free_cancer_care/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/26/pearT0_6.webp)
