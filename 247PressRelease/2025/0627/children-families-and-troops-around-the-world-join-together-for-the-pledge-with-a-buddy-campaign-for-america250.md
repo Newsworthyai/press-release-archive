@@ -1,0 +1,20 @@
+# Children, Families, and Troops Around the World Join Together for the Pledge with a Buddy Campaign for America250
+
+EAST WATERFORD, PA, June 27, 2025 /24-7PressRelease/ -- As America prepares to mark 250 years of independence, Curly Girly Button Buddies is proud to launch a global campaign honoring patriotism, unity, and service: #PledgewithaBuddy.  Starting July 4th, 2025, families, schools, communities, veterans, and service members — both at home and abroad — are invited to take part in this heartfelt initiative. At the center is Patriot Buddy, the 12 in plushie that recites the Pledge of Allegiance or the free printable version designed to help children learn the Pledge of Allegiance in a fun, meaningful way.  This global campaign aims to collect 250 pledges a month leading up to the America250 milestone — from classrooms, living rooms, community halls, and military bases worldwide.  How to Join the Campaign:  Launching July 4th, 2025 Goal: 250 Pledges a Month across the globe!  Kids | Classrooms | Veterans | Active Duty Say the Pledge of Allegiance With your Patriot Buddy (plush or printable!) or with your buddy, child, classroom, troop, or fellow veteran Post and tag: @curlygirlybuttonbuddies  FREE Buddy Paper Doll: www.curlygirlybuttonbuddies.com  Upload your stories and images to: My Button Buddy Story  Use these hashtags: #PledgewithaBuddy #PledgeAcrossAmerica #ABCAmerica #MyButtonBuddyStory  Learn History | Make History | Share Your History From schools to bases — let's pledge together!   "From classrooms to military bases, the Pledge of Allegiance is more than just words — it's a shared promise that connects Americans of all ages and backgrounds. Whether spoken by a child learning it for the first time or a service member reciting it far from home, the pledge represents unity, purpose, and pride.  With Patriot Buddy, we're helping turn this daily tradition into a meaningful, lasting lesson. Each Buddy encourages children to understand the values behind the pledge — liberty, justice, and unity — through storytelling, character, and connection. It's not just about memorization. It's about making the words matter.  One buddy. One voice. One shared purpose.  Together, we honor the past, engage the present, and inspire the future — one pledge at a time."  — The Curly Girly Button Buddies Team  "May the hand of a buddy always be near."   Meet the Button Buddies – Designed for Wonder, Made for Connection Our unique and educational children's products are crafted to spark imagination and encourage meaningful discovery—for kids and grown-ups alike!  Button Buddies are more than just adorable companions—they're storytelling sidekicks, imaginative playmates, and comforting friends. Each Buddy is easy to recognize by their colorful belly "button," which matches the color of their right foot. Their soft Velcro hands and sit-down bottoms make them perfect for both praying and playing, holding hands, or clutching small treasures.  Thoughtfully designed to inspire interaction, creativity, and connection, Button Buddies bring storytime to life in a way kids can see, feel, and hold. Whether it's a quiet moment before bed or a big adventure in the backyard, these buddies are ready to join in.  If you're looking for a buddy, you've found one! 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524280/children-families-and-troops-around-the-world-join-together-for-the-pledge-with-a-buddy-campaign-for-america250)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/curly-girly-button-buddies-launches-pledgewithabuddy-for-america250/cc02c67c64a98f892661a194eebd0c09) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1llntrn/curly_girly_button_buddies_launches/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/27/fine_SeP.webp)
