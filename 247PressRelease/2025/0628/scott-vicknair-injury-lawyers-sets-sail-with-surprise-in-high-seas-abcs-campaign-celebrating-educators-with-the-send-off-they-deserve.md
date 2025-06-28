@@ -1,0 +1,20 @@
+# Scott Vicknair Injury Lawyers Sets Sail with Surprise in "High Seas &amp; ABCs" Campaign Celebrating Educators with the Send-Off They Deserve
+
+NEW ORLEANS, LA, June 28, 2025 /24-7PressRelease/ -- Scott Vicknair Personal Injury Lawyers has officially wrapped its 2025 "High Seas & ABCs" charity giveaway with an unforgettable moment where we presented Cindy LeBeouf of St. Charles Elementary with tickets for a fully paid-for cruise to the destination of her choice!  After more than 30 years of tireless dedication in the classroom, LeBeouf is retiring from teaching. We were delighted to help her school celebrate her service and achievements by awarding her this complimentary cruise. Known for her compassion, leadership, and lifelong impact on students and colleagues alike, she embodies everything we set out to honor when we create this charity giveaway.  "We were honored to surprise Ms. LeBeouf with the big news," said David Vicknair, lead attorney at Scott Vicknair Injury Lawyers. "She's a shining example of the kind of educator who changes lives, not just in the classroom, but in the community. It's our privilege to give her a thank-you that's as big as her heart."  The "High Seas & ABCs" charity giveaway was launched to recognize outstanding educators across Southeastern Louisiana by gifting one incredible educator with a well-earned, all-expenses-paid vacation. With dozens of heartfelt nominations and stories that moved the entire team, having just one winner isn't easy.  Now that the giveaway is done, Scott Vicknair Injury Lawyers will continue to building meaningful programs that spotlight local heroes and leave lasting impacts on the local community.  About Scott Vicknair Injury Lawyers Scott Vicknair Injury Lawyers is a Louisiana-based personal injury firm committed to providing exceptional legal representation while also investing in the communities it serves. Their experienced team of dedicated attorneys specializes in car accidents, personal injury, and wrongful death cases in New Orleans. With diverse personal and professional backgrounds, They craft legal-winning strategies tailored to each client's specific case and needs. They are committed to providing exceptional legal services, utilizing significant resources, and relentlessly advocating for their clients to achieve the best possible outcomes.  At Scott Vicknair, we bring 121 years of combined legal experience and a strong record of success in handling Jones Act, Longshore Act, and other maritime injury cases. We understand the dangerous conditions maritime workers face and are committed to protecting their rights and safety. In addition to our maritime focus, we handle a wide range of personal injury claims, including motor vehicle collisions, wrongful death, and other serious accidents.  Our firm is built on trust, integrity, and dedicated advocacy. We believe every client deserves personalized attention and a strategic legal approach tailored to their case. Our team works diligently to investigate, prepare, and litigate each matter with precision, always focused on securing the best possible outcome. Your success is our mission, and we are here to support you throughout the legal process. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524388/scott-vicknair-injury-lawyers-sets-sail-with-surprise-in-high-seas-abcs-campaign-celebrating-educators-with-the-send-off-they-deserve)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/scott-vicknair-honors-retiring-teacher-with-dream-cruise-in-charity-giveaway/63d5990c64db00f07c91f37e5882e125) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1lmgtj7/scott_vicknair_honors_retiring_teacher_with_dream/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/28/ovalbl6Q.webp)
