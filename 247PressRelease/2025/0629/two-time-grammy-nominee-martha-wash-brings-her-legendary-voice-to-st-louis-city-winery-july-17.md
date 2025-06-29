@@ -1,0 +1,20 @@
+# Two-Time GRAMMY Nominee Martha Wash Brings Her Legendary Voice to St. Louis' City Winery – July 17
+
+ST. LOUIS, MO, June 29, 2025 /24-7PressRelease/ -- On Wednesday, July 17, the unstoppable voice behind some of the most iconic anthems in music history, two-time GRAMMY nominee Martha Wash, brings her powerhouse vocals and dynamic stage presence to City Winery St. Louis for one unforgettable night.   Wash is best known for her unforgettable vocals on some of the biggest global hits of the '80s and '90s, defining the sound of a generation with era-shaping anthems like:  "Gonna Make You Sweat (Everybody Dance Now)" – Certified platinum with over 5.5 million copies sold worldwide, featuring Wash as the uncredited powerhouse voice behind C+C Music Factory's breakout smash.  "It's Raining Men" – A platinum-certified anthem that sold over 6 million copies globally, launched as part of the iconic duo The Weather Girls.  She also brought her signature vocal fire to Black Box's international hits, including "Everybody Everybody," "I Don't Know Anybody Else," and "Strike It Up"—tracks that fueled the golden age of dance music and topped charts across the U.S. and Europe. "Dreamland," the Black Box album featuring Wash's vocals, was certified Gold by the RIAA and spawned multiple Billboard Dance #1s, further cementing her legacy as one of the most influential voices in pop and club music history.  In addition to her lead work, Wash's unmistakable voice shines on other classic tracks from the era. She and longtime singing partner Izora Rhodes delivered soaring background solos and ad-libs on Rebbie Jackson's "Centipede," and her powerful vocals also feature on Seduction's hit single "(You're My One and Only) True Love."  Today, Wash continues to break boundaries with her latest album, Love & Conflict — a critically acclaimed fusion of soul, rock, blues, and gospel that reaffirms her place as one of the most vital voices in music. From the fiery funk-rock indictment "Never Enough Money," to the gritty, emotionally raw "Don't Forget My Name," and the vibrant, uptempo empowerment anthem "Glamour Flows," the album showcases Wash at her boldest, most versatile, and most vocally commanding.  "Martha applies her full gospel-rooted grit and a mounting fury…" – The New York Times  "A righteous vocal performance…" – Rolling Stone  With two GRAMMY nominations, 15 Billboard Dance #1 singles, and a voice that has moved millions, Martha Wash remains a living legend whose live performances are pure magic.  City Winery St. Louis – A Rare, Intimate Live Experience This is a chance to experience Martha Wash like never before — up close, personal, and powerful. Come hear the songs that made history and the voice that still stops time.  St. Louis and East St. Louis — she's calling on you.  EVENT DETAILS City Winery St. Louis Wednesday, July 17, 2025 Doors: 6:00 PM | Show: 7:30 PM Tickets on sale now at: https://citywinery.com/st-louis/events/martha-wash-hvjimr  Please note: There is a $25 per person food & beverage minimum for this show. Guests are encouraged to arrive early and enjoy a meal in the City Winery restaurant and wine bar before the performance. A select menu and full bar will also be available during the show.  MEDIA INQUIRIES & INTERVIEWS For interviews, promo requests, or press access, contact: James Washington – flodllc@gmail.com  Follow Martha on Facebook: https://www.facebook.com/themarthawash 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524392/two-time-grammy-nominee-martha-wash-brings-her-legendary-voice-to-st-louis-city-winery-july-17)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/martha-wash-brings-iconic-anthems-to-city-winery-st-louis/817c8a9b54b445e13712c9ab8effc2b4) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1ln8k1z/martha_wash_brings_iconic_anthems_to_city_winery/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/256/29/ellaI4Ac.webp)
