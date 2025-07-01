@@ -1,0 +1,20 @@
+# SOUL-ED School Tour Launches in the Philippines, Bringing Mindfulness and Conscious Education to Classrooms
+
+METRO MANILA, PHILIPPINES, July 01, 2025 /24-7PressRelease/ -- A groundbreaking movement is rising in Philippine education with the official launch of the SOUL-ED School Tour, an initiative led by the visionary organization The Lighthouse Foundation. This bold and timely program aims to bridge the gap between science and spirituality by introducing mindfulness, meditation, and higher self-awareness into the academic experience of Filipino students.  At a time when students face increasing mental health challenges, distraction, and disconnection from purpose, the SOUL-ED Tour offers a holistic and experiential solution. Through interactive talks, guided meditations, and science-backed lessons on energy, emotions, and consciousness, the tour empowers youth to discover the five core pillars of awareness: actions, words, thoughts, emotions, and intentions.  "This is not just a lecture—it's a mass awakening," says Leshara Maniego, founder of The Lighthouse Foundation. "SOUL-ED is designed to activate the innate potential of every student and help them rise beyond anxiety, stress, or self-doubt by understanding how their inner world truly creates their outer reality."  Each session is delivered by trained facilitators and intuitive experts, with modules anchored on neuroscience, emotional intelligence, and spiritual development. Students are taught how to shift from victim mindset to creator mindset, regulate their emotions, and align their goals with purpose.  The Lighthouse Foundation, a rising force in education reform, is widely recognized for its mission to revolutionize learning by merging scientific knowledge with spiritual wisdom. Its core programs span retreats, community outreach, and higher learning platforms for intuitive and values-based education.  Participating schools in the SOUL-ED program will also receive the prestigious "Pioneer School for Higher Learning Education" award—an acknowledgment of their role in shaping a future-ready, conscious generation.  With over a dozen pilot schools already lined up across Luzon, Visayas, and Mindanao, the SOUL-ED movement is expected to expand rapidly in the coming months, with calls for partnership from public and private institutions alike.  "We believe the future of education is not just academic—it's conscious," adds Maniego. "By helping students master their inner world, we prepare them not only for exams, but for life."  About The Lighthouse Foundation  The Lighthouse Foundation is a pioneering organization committed to revolutionizing education in the Philippines and beyond. Dedicated to merging science and spirituality, the foundation designs transformative programs that integrate mindfulness, meditation, emotional intelligence, and self-awareness into learning environments.  Through initiatives like the SOUL-ED School Tour, The Lighthouse Foundation empowers individuals and communities to rise beyond traditional education, cultivating conscious, purpose-driven lives. Its vision is to create a future where students, educators, and leaders thrive both academically and spiritually, building a society grounded in wisdom, compassion, and inner mastery.  For school partnerships, demo bookings, or media inquiries, contact:  09560083777 www.thelighthousefoundationph.com thelighthousefoundationph@gmail.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524421/soul-ed-school-tour-launches-in-the-philippines-bringing-mindfulness-and-conscious-education-to-classrooms)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/soul-ed-school-tour-launches-to-revolutionize-philippine-education/857ac3663e0c1b1f1c07a3f691636e92) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1lovihz/souled_school_tour_launches_to_revolutionize/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/1/roamcdGz.webp)

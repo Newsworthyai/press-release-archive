@@ -1,0 +1,20 @@
+# Marvin Hamlisch International Music Awards Honors Composers from Around the World
+
+NEW YORK, NY, July 01, 2025 /24-7PressRelease/ -- The Avon Theatre Film Center is pleased to host the Marvin Hamlisch International Music Awards on Monday, July 14, 2025, celebrating outstanding global talent in youth and emerging composition. The awards ceremony will take place at the historic Avon Theatre in Stamford, Connecticut at 7:00 PM, preceded by a red‑carpet welcome reception.  The Marvin Hamlisch International Music Awards honors the legacy of EGOT-winning composer Marvin Hamlisch and support youth and emerging composers worldwide. The nominees of the 2025 Marvin Hamlisch International Music Awards can be found here: https://www.hamlischawards.org/2024nominees  Following the awards presentation, guests are invited to a special screening of Marvin Hamlisch: What He Did For Love — the acclaimed documentary chronicling Hamlisch's life and career — followed by an intimate Q&A with Terre Blair Hamlisch, Emmy-winning journalist and widow of composer Marvin Hamlisch, offering personal reflections on his legacy.  Evening Highlights: • Red‑carpet welcome reception • Presentation of awards across multiple music genres • Film screening of Marvin Hamlisch: What He Did For Love • Q&A with Terre Blair Hamlisch  Sponsors: The 2025 Marvin Hamlisch International Music Awards are made possible thanks to the generous support of Concord and Caroline's Cakes. A special thank you goes to Dori Berinstein from Dramatic Forces for the screening of the documentary.  Ticketing: Tickets are available at www.avontheatre.org.  More info at: www.hamlischawards.org www.marvinhamlisch.com www.avontheatre.org  About the Marvin Hamlisch International Music Awards: The Marvin Hamlisch International Music Awards discovers and champions youth and emerging composers from around the world. The awards were created to honor the late Marvin Hamlisch, paying tribute to his remarkable legacy as both an artist and an advocate for emerging talent. The awards first began as the Marvin Hamlisch Film Scoring Contest, presented by the Washington, DC-based nonprofit CINE since 2013. Hundreds of composers worldwide competed annually in this unique contest for emerging media composers. In 2019, the Marvin Hamlisch International Music Awards launched to continue and expand the contest's impact, adding three additional categories: composition for musical theatre, film scoring, classical composition and jazz composition. In 2021, categories were added for contemporary pop and R&B songwriters.  About the Avon Theatre: Founded in 1939, the Avon Theatre Film Center is a historic nonprofit cinema in downtown Stamford, CT. The Avon Theatre Film Center regards cinema as a uniquely effective vehicle for artistic expression and fulfills its mission by bringing the community together to share experiences that entertain, educate, touch and inspire audiences of all ages and backgrounds. In addition to presenting independent, art, foreign language and classic films and documentaries, the theater partners with other local and regional organizations to present programs that appeal to different audiences and deal with the critical issues of the day. Some of the most meaningful experiences provided at the Avon have been the moderated dialogues and panel discussions with filmmakers, actors and other subject experts that are frequently offered after our screenings. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524396/marvin-hamlisch-international-music-awards-honors-composers-from-around-the-world)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/avon-theatre-to-host-2025-marvin-hamlisch-international-music-awards/fce53584670985a5d5528e962c2cf7b3) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1lovnjw/avon_theatre_to_host_2025_marvin_hamlisch/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/1/yarnZHJd.webp)
