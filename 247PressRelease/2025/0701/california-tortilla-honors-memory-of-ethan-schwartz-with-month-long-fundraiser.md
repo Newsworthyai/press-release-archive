@@ -1,0 +1,20 @@
+# California Tortilla Honors Memory of Ethan Schwartz with Month-Long Fundraiser
+
+POTOMAC, MD, July 01, 2025 /24-7PressRelease/ -- California Tortilla, a unique fast-casual restaurant franchise that serves "California style" Mexican food, honors the memory of longtime fan Ethan Joshua Schwartz this July with a fundraiser benefiting Happy 2 Be Home. Participating locations will donate a portion of Chips & Queso sales throughout the month to support the organization in Ethan's name.  To celebrate the brand's 30th anniversary, California Tortilla invited fans to share their favorite memories of eating at the restaurant. Ethan's story stood out, prompting the team to turn a story into something bigger.  Ethan, who had a heart condition, used a wheelchair and communicated nonverbally, was a devoted California Tortilla fan. During a visit to the Royersford location, Ethan's dad, Eric, was enjoying his nachos, but noticed Ethan staring at him intently. He asked Ethan what was wrong, and he just responded with a subtle smirk. Eric used his smartphone in selfie mode to find that his chin was covered in queso! He groaned aloud as Ethan burst into a huge smile.  Ethan passed away nearly three years ago, but the queso memory continues to bring a smile whenever Eric visits the Royersford location and thinks of that day with his son.   "We feel deeply honored to celebrate Ethan through this fundraiser and to support Happy 2 Be Home and their incredibly valuable work," said Keith Goldman, President & CEO of California Tortilla. "At Cal Tort, we create spaces where people make memories. We feel grateful to Eric Schwartz for sharing his beautiful story with us. It warms our hearts to know we played a small part in such a cherished moment."  Chips & Queso For a Cause All July long, guests can visit any participating California Tortilla location to enjoy Chips & Queso while supporting a great cause. Available in small or large sizes, Chips & Queso make a perfect snack or addition to any meal. A portion of all Chips & Queso sales will benefit Happy 2 Be Home.  Happy 2 Be Home helps families create accessible living environments for children with chronic, long-term, and multiple disabilities. The nonprofit funds home improvements such as wheelchair lifts, generators, remodeled bedrooms and bathrooms, and doorway/stair access to allow children to live where they feel most comfortable and safe.  To learn more about how Happy 2 Be Home supports families www.happy2behome.org.  For more information about California Tortilla, visit www.californiatortilla.com or follow them on Instagram and Twitter @CalTort.  About California Tortilla®  California Tortilla® is a unique fast-casual restaurant concept that serves a chef-inspired menu of "California-style" Mexican food, including burritos, tacos, bowls, and salads. Since 1995, "Cal Tort," as it is affectionately known, has brought a fresh perspective to Mexican food by offering bold and exciting flavor profiles, high-quality, fresh ingredients, and an array of sauces and toppings. With 30 locations, the company has earned numerous accolades, including being named one of FastCasual.com's "Top 100 Movers & Shakers," Washington City Paper's "Best Fast Casual in D.C.," and Washingtonian's Best Mexican, Best Taco, Best Burrito, Best Kid Friendly Restaurant, and Best Vegetarian offering. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524468/california-tortilla-honors-memory-of-ethan-schwartz-with-month-long-fundraiser)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/california-tortilla-honors-fan-with-fundraiser-for-happy-2-be-home/ce3770330917fa4527e93a293bc0aecf) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1lp4kyc/california_tortilla_honors_fan_with_fundraiser/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/1/zealIJZo.webp)

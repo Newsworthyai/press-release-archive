@@ -1,0 +1,20 @@
+# PERKINS AMERICAN FOOD CO. OFFERS FREE BREAKFAST TO MILITARY ON JULY 4
+
+ATLANTA, GA, July 01, 2025 /24-7PressRelease/ -- Perkins American Food Co., a leading family-dining restaurant brand known for its homestyle meals and value all day, is honoring America's birthday with a free breakfast for military service members on Thursday, July 4. Active-duty and retired military personnel can enjoy a complimentary Magnificent Seven® breakfast when dining in and presenting a valid military ID at participating Perkins locations. All military personnel are eligible for the Free Magnificent Seven® breakfast on July 4.   The Magnificent Seven® platter features two eggs, two Applewood-smoked bacon strips, and three buttermilk pancakes. The offer is limited to one per customer.  "In honor of our military members who selflessly dedicate their time and effort to safeguard our nation, we are showcasing a small token of our appreciation," said Kimberly Bean, VP of Marketing for Perkins American Food Co. "This holiday presents a unique opportunity for us to connect with our community. To further enhance the festive spirit, we're introducing a special promotion on our classic Apple Pie, a beloved symbol of Americana. This allows our guests to share this iconic dessert with family and friends during their holiday gatherings, picnics, and summer celebrations, strengthening the bond between our brand and the cherished traditions of summer."  To sweeten the holiday, Perkins is offering a whole signature Apple Pie for just $9.99 with any $20 purchase. All pies and bakery treats are freshly baked and prepared daily to ensure the best flavors in every bite. The specially priced whole Apple Pie will be available from June 30 to July 4, 2025, at participating locations.   Snap and Win Perkins is offering fans a chance to win this Fourth of July. Guests who snap a photo of themselves under the famous Perkins flag at a restaurant and share on social media tagging @EatAtPerkins will be entered into a drawing for a chance to win a $10 Perkins gift card. Multiple winners will be selected, so be sure to upload photos between June 30 and July 4 for an opportunity to win.  Want to savor the Perks of good taste? Join the Perkins e-Club and receive 20% off your next visit just for signing up for the program. Plus, receive other exclusive offers sent directly to your inbox. Enjoy Perkins favorites, including all entrées and bakery treats, with dine-in, curbside pickup, or delivery by visiting www.PerkinsToGo.com. For more information, contact your local Perkins location or visit https://www.perkinsrestaurants.com/menu.  About Perkins American Food Co.  Perkins American Food Co., formerly Perkins Restaurant & Bakery®, is the latest evolution of the heritage brand that is as American as apple pie. Grounded in tradition and their key pillars of value, quality, and service, Perkins boasts the same heart and soul since its founding in 1958, but with a new attitude.   The brand serves up American classics of yesterday that meet the tastes of guests today, generously portioned and priced just right. Their hospitality, accentuated with a strong commitment to kindness, continues to shine through as a key differentiator along with innovation to continually evolve and offer guests what they want and crave.   Perkins currently operates nearly 300 company-owned and franchise locations across the U.S. and Canada. The company is owned by Ascent Hospitality Management. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524459/perkins-american-food-co-offers-free-breakfast-to-military-on-july-4)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/perkins-honors-military-with-free-breakfast-apple-pie-deal-for-july-4/27aaea91e360902bdd79472e6d71d76f) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1lp4l21/perkins_honors_military_with_free_breakfast_apple/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/1/fernpPNJ.webp)
