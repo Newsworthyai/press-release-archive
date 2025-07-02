@@ -1,0 +1,20 @@
+# Chicago Park District Teens to Race at Grant Park on NASCAR Chicago Street Race Grounds for 13th Annual Push Kart Derby
+
+CHICAGO, IL, July 02, 2025 /24-7PressRelease/  For more information: - Ken Chitester, Wyn-Win Communications; 773-858-5021, ken@wyn-win.com - Wynona Redmond, Wyn-Win Communications; 708-769-1768, wynona@wyn-win.com  WHAT: 13th Annual Teen X-Stream Push Kart Derby, sponsored by the Chicago Park District  WHO: Over 100 students, grades 8 to 10, from 20 Chicago Park District summer camps  WHEN: 11 a.m. Thursday, July 3 (opening remarks); competition begins at 11:10 a.m. Media Arrival Time: 10:30 a.m.  WHERE: Grant Park in downtown Chicago, at the corner of DuSable Lakeshore Drive and East Monroe Street. The Teen X-Stream Push Kart Derby, hosted by the NASCAR Chicago Street Race, will occur on the Chicago Street Race grounds, where NASCAR will hold its third annual street race July 5-6. Media Access: Grant Park is accessible on foot; please note vehicular road closures in the area. See maps for road closures: https://www.nascarchicago.com/local-info/  MORE INFO: Teens participating in the event have built their own push karts at Chicago Park District summer camps this year and will race them in a series of heats, leading to the finals later that day. Winners will receive tickets to the NASCAR Chicago Street Race. This is the first time in the Push Kart Derby's 13-year history that kids will be able to compete at Grant Park.  PHOTO OPS: Members of the media may take photos and video of the push kart races. On- camera interviews with event organizers and day camp participants will be available. Also, an ice cream truck will provide free refreshments to the day camp participants.  INTERVIEWS: On-camera interviews with event participants will be available. Onsite interviews also will be available with: - Chicago Park District Representative - Julie Giese, President, NASCAR Chicago Street Race  ABOUT CHICAGO PARK DISTRICT The Chicago Park District has served Chicago residents for more than 90 years, and is a Gold Medal Award-winning organization, which recognizes excellence in park and recreation management across the nation. For more information about the Chicago Park District's more than 9,000 acres of parkland, more than 600 parks, 26 miles of lakefront, 12 museums, two world-class conservatories, 16 historic lagoons, over 75 nature areas, thousands of special events, sports and entertainment programs, please visit www.chicagoparkdistrict.com.  ABOUT NASCAR CHICAGO STREET RACE The NASCAR Chicago Street Race is home to the first-ever NASCAR Cup Series street race in the history of the sport. Located in downtown Chicago, the 2025 NASCAR Cup and NASCAR Xfinity Series races will once again take competitors past and through many of the city's most renowned downtown landmarks on Michigan Avenue, South Columbus Drive, South DuSable Lake Shore Drive and the start-finish line near Buckingham Fountain. Southern rock superstars Zac Brown Band will headline the one-of-a-kind sports and entertainment experience, which will return to Grant Park July 5-6, 2025. For more information, visit NASCARChicago.com.  ADDITIONAL MEDIA CONTACTS  Chicago Park District  Zak Morched, Assistant Press Secretary  312-742-4791 (o), 312-568-6417 (m)  Zakaria.Morched@ChicagoParkDistrict.com  NASCAR Chicago Street Race Jake DiGregorio, NASCAR Communications 508-414-8853 (m) jdigregorio@nascar.com 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524494/chicago-park-district-teens-to-race-at-grant-park-on-nascar-chicago-street-race-grounds-for-13th-annual-push-kart-derby)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/teen-x-stream-push-kart-derby-revs-up-at-grant-park-with-nascar/757ebb9f49991ce5c77be3fafc1cca17) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Business_NewsRamp/comments/1lppk0g/teen_xstream_push_kart_derby_revs_up_at_grant/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/2/pearQBy_.webp)

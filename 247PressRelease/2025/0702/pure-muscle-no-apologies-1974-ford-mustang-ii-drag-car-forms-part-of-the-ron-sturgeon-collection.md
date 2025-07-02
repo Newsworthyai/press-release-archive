@@ -1,0 +1,20 @@
+# Pure Muscle, No Apologies: 1974 Ford Mustang II Drag Car Forms Part of the Ron Sturgeon Collection
+
+FORT WORTH, TX, July 02, 2025 /24-7PressRelease/ -- Roaring out of the golden age of grassroots drag racing, this 1974 Ford Mustang II Drag Car is a bold and unapologetic tribute to pure American horsepower—and now a highlight of the Ron Sturgeon Collection. Originally acquired as a body-in-white shell in the mid-1970s, this Mustang was built for one purpose: speed.  Fitted with a 468ci Chevrolet big-block V8 in 1976, the car spent the late '70s and early '80s lighting up drag strips before being retired to storage for decades. The power plant features a Holley 1050 CFM carburetor, Edelbrock intake manifold, HVH carb spacer, Accel ignition, and open long-tube headers—an uncompromising combo for quarter-mile domination. Cooling is managed by an aluminum radiator with electric fan, while Moroso valve covers add classic race-ready flair . Power is delivered through a rugged Powerglide two-speed automatic transmission to a rear end housed within tubbed wheel wells, supported by a fully modified drag racing suspension. Braking is handled by front disc and rear drum brakes, ensuring the Mustang stops as strong as it storms. Outside, the Mustang still wears its 1980s-era white and orange livery, complete with sponsor graphics—a visual time capsule from racing's most unfiltered era. Staggered-width Centerline alloy wheels and a full roll cage underscore the car's authentic track heritage.  Inside, it's all business: a B&M floor shifter, fire extinguisher, toggle switch panel, and a two-spoke wheel facing a column-mounted AutoMeter tachometer. An aluminum dash insert houses water temp, oil pressure, and ammeter gauges.  "This drag car isn't just loud—it's legendary," said Ron Sturgeon, founder of the DFW Car & Toy Museum. "You can feel the grit, the power, and the era it came from the moment you look at it."  Brash, brutal, and built for the strip, this 1974 Ford Mustang II Drag Car is a raw reminder of the horsepower wars that once ruled America's asphalt.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523080/pure-muscle-no-apologies-1974-ford-mustang-ii-drag-car-forms-part-of-the-ron-sturgeon-collection)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/1974-ford-mustang-ii-drag-car-joins-dfw-car-toy-museum-s-legendary-collection/c309dc2d12c1729b64d09708fd584c81) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1lppjz1/1974_ford_mustang_ii_drag_car_joins_dfw_car_toy/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/2/silke4Dn.webp)
