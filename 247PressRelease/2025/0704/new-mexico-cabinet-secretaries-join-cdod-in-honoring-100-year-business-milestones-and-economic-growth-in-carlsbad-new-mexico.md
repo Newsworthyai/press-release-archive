@@ -1,0 +1,20 @@
+# New Mexico Cabinet Secretaries Join CDOD in Honoring 100-Year Business Milestones and Economic Growth in Carlsbad, New Mexico
+
+CARLSBAD, NM, July 04, 2025 /24-7PressRelease/ -- New Mexico Cabinet Secretaries Rob Black (Economic Development) and Melanie A. Kenderdine (Energy, Minerals and Natural Resources) joined Carlsbad, New Mexico's business community to celebrate local economic success stories and honor longstanding industry contributions at the Carlsbad Department of Development's (CDOD) 2025 Annual Dinner. This year's theme, "Thrive", celebrated the region's resilience and legacy of innovation.  Among the evening's highlights were centennial recognitions for two key sectors: Intrepid Potash and Mosaic, marking 100 years of potash production in Eddy County, and Dunagan Associates and CENTURY 21 Dunagan Associates, celebrating 100 years of real estate service in Eddy County.  CDOD also announced their new 2025-2026 Executive Board Officers:  President – Susan Crockett Vice President – Ashley Switzer Secretary/Treasurer – Damian Capello Member-at-Large – Valerie Murrill Past President – Beverly Allen  Elected from the Board of Directors, each officer serves a one-year term aligned with the organization's fiscal year. City of Carlsbad Councilor Eddie Rodriguez and Eddy County Commissioner Ernie Carlson are also the designated municipal representatives on the CDOD Executive Board.   Several businesses were honored for their leadership and contributions:  Retail Impact Award– Dunkin Donuts Quality of Life Award– Blue House Bakery Corporate Investment Award– Guadalupe Mountain Brewery  The prestigious President's Thrive Award was presented to the Carlsbad Soil and Water Conservation District for its exceptional dedication to natural resource conservation.  "From invasive species treatment to conservation education, Carlsbad Soil and Water quietly and consistently shows what it means to invest in long term growth," said CDOD's outgoing board president, Beverly Allen.  Dunagan Associates and CENTURY 21 Dunagan Associates was recognized for its 100-year legacy in Eddy County, operated by three generations of the Dunagan family. Kerri Fowler, Qualifying Broker and Owner, a University of New Mexico alum, is a multi-million-dollar producer and has brought the firm to national distinction while maintaining personal service and community growth.  Secretary Kenderdine presented Mosaic and Intrepid Potash with the Community Impact Award, recognizing their century of contributions to Eddy County and the industry's national significance. Potash remains a vital component of the U.S. mineral reserve strategy, supporting agricultural and industrial stability.  "This year's event was about more than just celebrating milestones—it was about honoring the deep-rooted commitment that defines Carlsbad's business community," said CDOD Executive Director Kristen Gamboa. "From legacy industries like potash to emerging entrepreneurs, we are a region that thrives through resilience, innovation, and collaboration. I'm incredibly proud of where we've been and even more excited about where we're headed."  To view photos from the event, check out the CDOD website: Annual Banquet 2025 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524550/new-mexico-cabinet-secretaries-join-cdod-in-honoring-100-year-business-milestones-and-economic-growth-in-carlsbad-new-mexico)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/carlsbad-celebrates-economic-resilience-and-innovation-at-2025-cdod-annual-dinner/2d925045352b36043dc3b2c8aaf80118) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/RealEstate_NewsRamp/comments/1lrclmq/carlsbad_celebrates_economic_resilience_and/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/4/filoO6l4.webp)

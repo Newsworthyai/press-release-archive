@@ -1,0 +1,20 @@
+# Dale Jarrett's 1996 Daytona 500-Winning Thunderbird on Display at the Ron Sturgeon Collection
+
+FORT WORTH, TX, July 04, 2025 /24-7PressRelease/ -- A true relic of NASCAR royalty has taken its place in the Ron Sturgeon Collection—the very 1996 Ford Thunderbird driven by Dale Jarrett to victory at the Daytona 500. Wearing battle scars from 200 grueling laps at the sport's most iconic venue, this car is more than a machine—it's a piece of motorsports history.  Son of the beloved champion and broadcaster "Gentleman" Ned Jarrett, Dale Jarrett rose through the ranks with grit, skill, and championship pedigree. His legendary 1993 Daytona 500 win was just the beginning of a Hall of Fame career that reached its pinnacle in 1999 when he captured the NASCAR Winston Cup Series title—making the Jarretts the second father-son duo to each become national champions.  At the 1996 Daytona 500, Jarrett rolled off from the fourth row and found himself battling legends like Dale Earnhardt, Terry Labonte, Sterling Marlin, and Jeff Gordon. The final sprint to the finish became a showdown between Earnhardt and Jarrett—dubbed "The Dale & Dale Show" by broadcasters. In a key moment of strategy, Jarrett's team opted for four fresh Goodyear tires while Earnhardt took only two, giving the #88 Thunderbird a critical grip advantage. Lap after lap, Jarrett defended the lead and ultimately captured his second Daytona 500 win in thrilling fashion.  Following the race, the car was sent directly to the Victory Lane exhibit in Daytona for a year, then displayed for over 15 years at the International Motorsports Hall of Fame in Talladega. According to team owner Robert Yates, the car remains "untouched" since that win—complete with tire markings, bird strike damage on the front quarter, and grit-worn paint from hitting 190 mph on the high banks of Daytona.  "This isn't a replica or a tribute—it's the car that won Daytona," said Ron Sturgeon, founder of the DFW Car & Toy Museum. "It's raw, real, and carries every inch of history it earned on the track."  From its preserved battle scars to its unmatched legacy, Dale Jarrett's 1996 Ford Thunderbird is more than a race car—it's a time capsule of NASCAR greatness.  About Ron Sturgeon The visionary behind DFW Car & Toy Museum has been a dedicated car collector for over 30 years. His passion for automobiles began in his teenage years when he taught himself to repair Volkswagens, eventually leading to a successful career in the automotive industry. From building one of the largest auto salvage operations in the country to restoring and collecting classic and exotic cars, Ron's love for all things automotive has never wavered.  About DFW Car & Toy Museum DFW Car and Toy Museum, formerly known as DFW Elite Toy Museum, was founded by Ron Sturgeon in the 1980s collecting automobile toys and cars. Until recently, it was in Haltom City, TX, and its website DFW Elite Toy Museum is still the go-to source for toy and car lovers worldwide. The museum is now located in North Fort Worth at 2550 McMillan Parkway, Fort Worth, TX 76137. (at Meacham and I35w) The new facility is 150,000 square feet with free parking & admission. It promises an entertaining visit. They offer secure climate-controlled car storage and facilities for events, including car clubs, board meetings etc. The museum is also dog friendly and encourages pictures. Hours of operation are Tuesday-Saturday, 9:00 am- 6:00 pm, visit the museum's website at dfwcarandtoymuseum.com. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/523083/dale-jarretts-1996-daytona-500-winning-thunderbird-on-display-at-the-ron-sturgeon-collection)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/dale-jarrett-s-1996-daytona-500-winning-thunderbird-joins-ron-sturgeon-collection/b8bac0b86d5bca569a16633421741bdf) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1lrcloq/dale_jarretts_1996_daytona_500winning_thunderbird/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/4/lineXhfe.webp)
