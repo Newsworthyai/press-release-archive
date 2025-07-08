@@ -1,0 +1,20 @@
+# Benova Mouth Rinse Study Demonstrates 17% Reduction in Inflammatory Marker TNF-Alpha within 2 Minutes
+
+WASHINGTON, DC, July 08, 2025 /24-7PressRelease/ -- Results from a study conducted at the University of Alabama Capstone College of Nursing were presented by Daniel J. Gibson, PhD, at the 2025 Diabetic Limb Salvage (DLS) Conference, which took place April 10-12 in Washington, D.C. Dr. Gibson specializes in research on tissue fate determination, focusing on inflammation and bacterial biofilms. The study, titled A Mechanism of Action of an Inflammatory Cytokine Inhibiting Solution, demonstrates that the Benova Mouth Rinse System reduces levels of tumor necrosis factor-alpha (TNFα)—a key inflammatory marker—by 17% within just 2 minutes of application.  Millions of people worldwide suffer from painful and inflamed oral and cutaneous wounds. Oral mucositis occurs in approximately 51% of cancer patients undergoing chemotherapy. In the general population, canker sores, also known as recurrent aphthous stomatitis (RAS), are found in 25% of people. Unbeknownst to most of these people, TNFα is frequently responsible for driving immunological responses such as inflammation, cell damage, and cell death.  The University of Alabama Capstone College of Nursing research investigated the Benova Mouth Rinse System's mechanism of action in an in vitro model of inflamed oral mucosa, simulating the tissue damage commonly seen in patients undergoing cancer therapy or managing chronic inflammatory wounds. The findings reveal a fast-acting anti-inflammatory response without the use of lidocaine, steroids, or prescription medications.  "These results reflect Benova's potential to relieve pain and support healing through targeted cytokine reduction," said Dr. Gibson.  Bill Kling, co-founder of Benova, indicated that the company believed Dr. Gibson's research was especially exciting because of the results showing a reduction in TNFα. Users of the Benova Mouth Rinse System frequently comment that the pain and inflammation from their oral ulcers dissipate quickly and, after longer use, the sores heal. Mr. Kling believes the laboratory study and the anecdotal patient comments are correlated, and published literature suggests the same.  "We're proud to bring this innovation to the DLS Conference, where wound care and tissue regeneration are at the forefront," said Mr. Kling.  The Diabetic Limb Salvage Conference is a premier interdisciplinary event focused on the prevention and treatment of complex diabetic foot and limb wounds. Attendees include specialists in podiatry, surgery, wound care, and vascular medicine.  The full scientific rationale and poster findings are available here.  Benova is a bioinnovation company that makes products to improve people's lives. Our mission is to listen to people's needs and create products that fill those needs. We develop innovative, clinically informed products designed to promote healing and improve quality of life for patients facing a range of conditions.  The Benova Mouth Rinse System is formulated to provide fast relief for stomatitis and oral mucositis, as well as other conditions, without numbing agents or prescriptions. Oncologists, oncology nurses, dentists, periodontists, and many other groups of professionals use Benova to give their patients immediate, lasting relief from mouth sores. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524629/benova-mouth-rinse-study-demonstrates-17-reduction-in-inflammatory-marker-tnf-alpha-within-2-minutes)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/benova-mouth-rinse-system-shows-promise-in-reducing-inflammation-fast/629f19697c32bc4394c9e388a6ba4140) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/eventNews/comments/1luibg6/benova_mouth_rinse_system_shows_promise_in/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/8/chipba3H.webp)
