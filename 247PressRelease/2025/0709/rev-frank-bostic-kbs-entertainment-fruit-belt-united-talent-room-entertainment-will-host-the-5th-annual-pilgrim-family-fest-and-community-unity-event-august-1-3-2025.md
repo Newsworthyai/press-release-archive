@@ -1,0 +1,20 @@
+# REV. FRANK BOSTIC, KBS ENTERTAINMENT, FRUIT BELT UNITED &amp; TALENT ROOM ENTERTAINMENT will Host the 5th Annual PILGRIM FAMILY FEST and Community Unity Event August 1-3, 2025
+
+BUFFALO, NY, July 09, 2025 /24-7PressRelease/ -- On Friday, August 1, 2025 the 5th Annual Pilgrim Festival will get underway at Pilgrim Field in Buffalo NY. Gospel recording artist and songwriter Rev. Frank Bostic will debut his new hit single "PRAY FOR ME". Single is on all digital platforms. On Saturday, August 2, 2025 In Pilgrim Field The Ultimate DAZZ BAND will perform along with 803 FRESH & more...  About Reverend Frank Bostic  Talent Room Artist, Singer, and Songwriter, Reverend Frank Bostic grew up in Buffalo, New York, and has been singing before he could talk and write music from an incredibly young age. Through using visualization, it was easy for him to create music by connecting words and musical notes. Reverend Bostic began his spiritual journey in 1993 when he united with the Zion Missionary Baptist Church, located in Buffalo, under the leadership of the late Rev. Dr. Robert E. Baines Sr. Reverend Frank Bostic is a Certified Dean and Instructor & Treasurer of the National Baptist Convention U.S.A. Inc.; VP At Large of Empire State Baptist Convention; VP At large of Baptist Ministers Conference of Buffalo & Vicinity; Treasurer of the Great Lakes Missionary Baptist District Association and Chaplain of Western New York Law Enforcement. Over the past 13 years, Reverend Bostic's leadership of Pilgrim Missionary Baptist Church has helped the congregation grow spiritually and Physically. His motto "Keep Jesus First" has sincerely helped motivate them to change their lives.  About Talent Room Entertainment  Talent Room Entertainment (TRE) is an innovative and unique global entertainment company in Atlanta Georgia. With over 30 years of experience in the music industry, TRE has gained enormous success in the areas of music recording, publishing, distribution, and development. TRE is led by successful business executive and entrepreneur, Prince Levy and includes a list of nationally recognized recording, writers, producers, and artists including Singer and Songwriter, Reverend Frank Bostic, and Grammy Nominated Producer, Artist, and Actor, Glenn Jones. Join Rev. Bostic on Social Media.  About KBS Entertainment  KBS Entertainment has been around for 5 years. Our company's goal is to help promote and network upcoming artists to help them get recognized and release their music so it would be heard on all streaming platforms. KBS Entertainment also helped solidify National Recording Artist Rev. Frank Bostic of Buffalo, NY's Music to be heard in different countries. KBS first release was "GOTTA MAKE A CHANGE" By REV. FRANK BOSTIC. We do our best to show no matter what the situation is, all things are possible and never give up on what God has for you!   Related Links: Website: https://www.keepjesusfirst.com Facebook: https://www.facebook.com/people/KBS-Entertainment/100063987886379/ LinkedIn: https://www.linkedin.com/in/tomika-d-wright-9914a5116/ Twitter: https://twitter.com/kbsbuffalo YouTube: https://www.youtube.com/@kbsentertainment9891 https://www.youtube.com/watch?v=sC11MO422ec&list=RDsC11MO422ec&index=1 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524651/rev-frank-bostic-kbs-entertainment-fruit-belt-united-talent-room-entertainment-will-host-the-5th-annual-pilgrim-family-fest-and-community-unity-event-august-1-3-2025)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/rev-frank-bostic-to-debut-pray-for-me-at-5th-annual-pilgrim-festival/5fc568db2b084f54a26712a6c735bb2f) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1lvci8l/rev_frank_bostic_to_debut_pray_for_me_at_5th/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/9/nora4gss.webp)
