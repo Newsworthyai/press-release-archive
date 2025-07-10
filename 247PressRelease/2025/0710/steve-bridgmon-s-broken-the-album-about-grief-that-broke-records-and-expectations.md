@@ -1,0 +1,20 @@
+# STEVE BRIDGMON'S BROKEN: THE ALBUM ABOUT GRIEF THAT BROKE RECORDS AND EXPECTATIONS
+
+NASHVILLE, TN, July 10, 2025 /24-7PressRelease/ -- When Steve Bridgmon released Broken, many in the music industry quietly questioned the move. An album centered on grief, loss, and raw vulnerability didn't seem like the formula for chart success—especially in the upbeat, image-conscious world of modern country and Christian country music. But what Bridgmon delivered wasn't just an album. It was a healing journey that connected with thousands—and eventually, millions—on a deeply human level. And now, it's shattering expectations with record-breaking sales, streams, and accolades across the board.  Broken isn't just a collection of songs—it's a testimony. A personal, powerful chronicle of walking through pain, finding faith again, and emerging with a deeper voice and stronger message. And the numbers don't lie. Streaming and digital sales of Broken are at an all-time high, with listeners from multiple genres embracing its themes of hope through sorrow. Inspirational Country, Adult Contemporary, and even mainstream Christian radio have all welcomed the album with open arms.  Three singles from the project have defied genre boundaries—and all three climbed to the very top of the charts: • "Hit the Ground Praying" – #1 • "A Sign" – #1 (also an ISSA Song of the Year Nominee) • "Called You Back Home" – #1 (and a Hollywood Independent Music Award Nominee for Song of the Year)  Each release found success not by chasing trends, but by delivering truth. Listeners gravitated toward Bridgmon's authenticity—his willingness to bring his own grief and faith struggles into the spotlight at a time when the world, still recovering from loss and disconnection, needed exactly that.  The album itself has also received high praise from industry gatekeepers. Broken was nominated for Christian/Gospel Album of the Year at the prestigious Josie Music Awards, recognizing not just its lyrical content, but the excellence in its production and storytelling.  Taking a huge risk in 2021, Bridgmon switched producers mid-stream of his chart topping momentum. Teaming up with a younger, hip, producer Paul Bowen, Bridgmon wanted to put fresh eyes and ears on his music to bring a more modern country sound to Inspirational Country. The risk was worth it, proving you can truly follow your heart to success.   Steve Bridgmon's path hasn't been typical. But with Broken, he's proven that songs from a place of pain can still break through—and break records. In an industry that didn't initially understand the power of grief-centered music, Bridgmon has led the way, showing that faith and authenticity are still the most powerful tools in a songwriter's arsenal.  With songwriters like Jon Eborn (A Sign); Anthony Fiddler, David Borys, and Doug Folkins (Called You Back Home) his next endeavor might just be another step up, if that's even possible.   Bridgmon does not think it is a coincidence that the prestigious Hollywood Independent Music Awards will take place at the end of July, exactly five years to the date of his father's passing. "Win or lose, he will definitely be there with me, considering this song (Called You Back Home) was dedicated to him on the album."  As Broken continues to gain momentum and reach new audiences, one thing is clear: Steve Bridgmon didn't just survive the storm—he turned it into a soundtrack that's changing lives.  "Broken" is available on all music streaming platforms. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524713/steve-bridgmons-broken-the-album-about-grief-that-broke-records-and-expectations)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/steve-bridgmon-s-broken-album-shatters-records-with-heartfelt-authenticity/e55cd119bcc2e50a67e87a50d6d800fb) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/AwardsAndRecognition/comments/1lw6iit/steve_bridgmons_broken_album_shatters_records/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/10/harpePAh.webp)
