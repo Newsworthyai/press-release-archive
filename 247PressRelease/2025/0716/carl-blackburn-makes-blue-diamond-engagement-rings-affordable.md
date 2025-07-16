@@ -1,0 +1,20 @@
+# Carl Blackburn Makes Blue Diamond Engagement Rings Affordable
+
+SAN DIEGO, CA, July 16, 2025 /24-7PressRelease/ -- Fancy colored diamonds — especially fancy blue — have long been prized for their beauty and rarity. But for most couples shopping for an engagement ring, a natural fancy blue diamond was well outside their budget. That's starting to change.  According to La Jolla jewelry designer Carl Blackburn, couples are now creating custom engagement rings set with lab-grown fancy blue diamonds, thanks to their stunning look and far more affordable price.  "Blue diamonds have always been one of the most beautiful and romantic gems," says Blackburn, owner of C. Blackburn Jewelers in La Jolla. "But most natural fancy blue diamonds — even in smaller sizes — are priced in the hundreds of thousands, if not millions, of dollars. With lab-grown stones, we can now offer a 1 to 2 carat fancy blue diamond in a custom-made ring for under $3,000."  Blackburn says these lab-grown blue diamonds are physically identical to natural stones and come in a range of shades — from icy blue to deep teal — making them an ideal choice for couples who want a meaningful, one-of-a-kind engagement ring that stands out from the crowd.  At C. Blackburn Jewelers, each ring is individually designed with the customer, and can include handcrafted details such as filigree, hand-milgraining, or vintage-style settings. Blackburn often works with clients to create a design that reflects their unique love story or values.  "This is the kind of ring you simply won't find in a jewelry chain or mall store," says Blackburn. "And it fits within a budget that makes sense for most couples in San Diego."  The rising popularity of lab-grown fancy-colored diamonds — including blue, pink, and yellow — has made custom rings more accessible for younger couples who want something different. And with a designer like Carl Blackburn overseeing each project, clients benefit from 25 years of experience in fine jewelry design.  "This isn't a mass-produced item," Blackburn adds. "It's a piece of wearable art. The fact that couples can now afford to add a vivid blue diamond to their custom ring makes the process even more exciting."  Fancy blue lab-grown diamonds also provide a welcome alternative to sapphires. According to Blackburn, many couples who want a sapphire engagement ring discover that most sapphires come in darker shades — while the lighter ones often lack brilliance or contain noticeable imperfections. As a result, they opt for a fancy blue lab-grown diamond instead, which offers a beautiful lighter blue hue along with the clarity, shine, and brilliance of a diamond.  To schedule a consultation or learn more about designing a custom engagement ring with a lab-grown fancy blue diamond, visit CarlBlackburn.com or call (858) 251-3006.  About C. Blackburn Jewelers  C. Blackburn Jewelers is a boutique jewelry studio located in the seaside village of La Jolla, California. Founded by jewelry designer Carl Blackburn, the studio specializes in custom engagement rings, vintage-style jewelry, and heirloom restoration. Blackburn's work has appeared in top jewelry publications, and his personal approach has helped hundreds of couples bring their dream ring to life. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524874/carl-blackburn-makes-blue-diamond-engagement-rings-affordable)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/lab-grown-blue-diamonds-revolutionize-affordable-luxury-engagement-rings/243d339c4dfd1500128b015982ee4643) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/Lifestyle_Culture/comments/1m169x4/labgrown_blue_diamonds_revolutionize_affordable/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/16/jazzvWL3.webp)
