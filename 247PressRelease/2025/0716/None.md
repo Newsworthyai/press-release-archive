@@ -1,0 +1,18 @@
+# Mikaya Heart Launches Monthly Zoom Series: "The Art of Being Fully Alive"
+
+LAYTONVILLE, CA, July 16, 2025 /24-7PressRelease/ -- Spiritual mentor, shamanic guide, and award -winning author Mikaya Heart is now offering her most sought-after course, "The Art of Being Fully Alive," in a new monthly format via Zoom—bringing this deeply transformational experience to participants around the world.  This signature four-part series is an invitation to those ready to break free from limiting belief systems and align with their full life-force potential. Through deeply personal, guided sessions and experiential exercises, Mikaya cultivates a sacred space for profound emotional healing, energetic recalibration, and empowered transformation.  "This is not self-help—it's self-remembrance," says Heart. "We are not broken. We are becoming. And when we align with truth, we radiate the love and light that we are meant to embody."  Classes are capped at 10 participants, held weekly on Zoom—typically Saturdays at 11 AM Pacific Time (with flexible scheduling available).  Cost: $300 USD for all four classes, or $85 USD per single session.  Scholarships and customized consultations are available by request. Visit www.MikayaHeart.org to sign up.  A New Paradigm for a Shifting Planet  As the Earth's energetic grid evolves, so too must our personal alignment. Mikaya's work centers around helping individuals release internal restrictions and open themselves to the divine energy of creation. By accessing this flow, students move from survival into full-spectrum living.  "When energy flows freely through the body, we access our true power. We connect to source and learn how to manifest from a place of deep trust and alignment," Heart explains. "We no longer need to be driven by fear. We get to choose love—and joy—as our compass."  Course Highlights Include:  · Guided energy alignment and body awareness practices  · Liberation from outdated belief systems  · Exploration of personal sovereignty and sacred purpose  · Weekly guided visualizations by Mikaya herself  · A safe space for honest reflection, community, and awakening  Each course concludes with one of Mikaya's renowned visualizations—powerful guided journeys that integrate healing and activate higher states of consciousness.  "You're not here to play small," Mikaya affirms. "You're here to walk boldly in your brilliance, to shine so brightly that your presence uplifts the planet."  Praise from the Community  "Mikaya Heart is unique and insightful… she facilitates deep transformation and growth in her clients." — Dr. Sally Boyd, VitalityMedicine.org  "She speaks words of truth from the heart… with brilliant yet simple clarity."  — Dayana Jon, visionary, DayanaMag.org  "Humble, curious, and wise… she invites people to remember who they are." — Dr. Trish DeRocher, TransformativeConsciousness.com  Enrollment is now open for upcoming sessions. Those interested are encouraged to register early due to limited space.   Visit www.MikayaHeart.org for course dates, details, and additional offerings.  Direct inquiries and scholarship requests may be sent here.   This is your moment. Your YES.  Step into the joy that is your birthright.  Be fully, vibrantly alive—starting now. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524935/mikaya-heart-launches-monthly-zoom-series-the-art-of-being-fully-alive)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/mikaya-heart-launches-the-art-of-being-fully-alive-course-online/f2803b8823d0f33065215137cbe81d66) 
+
+ 
+
+ 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/16/knotOzOa.webp)
