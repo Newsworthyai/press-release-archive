@@ -1,0 +1,20 @@
+# KR New Materials Launches AluCore™ Decking, a Structural Innovation for Outdoor Projects
+
+XUANCHENG, CHINA, July 17, 2025 /24-7PressRelease/ -- KR New Materials Co., LTD (KR WPC), a trusted leader among composite decking manufacturers, proudly announces the launch of its latest innovation: KR AluCore™ Decking. This new product line is engineered to meet the structural and aesthetic demands of today's outdoor construction projects.  AluCore™ combines the natural look of wood plastic composite decking with the exceptional strength and stability of a reinforced aluminum core. The result is a decking product that outperforms traditional WPC in span, load capacity, and dimensional stability—ideal for commercial platforms, poolside installations, and high-traffic public spaces.  Reinforced Structure for Demanding Applications KR AluCore™ Decking delivers a host of technical advantages:  Extended Joist Span – With a high-strength aluminum interior, boards can span 60–80 cm without additional substructure reinforcement.  Near-Zero Thermal Expansion – The metal core resists temperature-induced warping or contraction, reducing unsightly gaps over time.  Enhanced Load-Bearing Capacity – While lighter than solid WPC boards, AluCore™ offers superior support for large-scale and load-heavy outdoor environments.  This innovation makes it an ideal solution for wholesale composite decking and composite wood fence projects worldwide.  Driven by Quality, Backed by Experience As a leading WPC composite decking manufacturer, KR WPC ensures every product is manufactured under strict quality control processes. Our materials—consisting of wood fiber, high-density polyethylene (HDPE), and advanced chemical additives—are extruded through custom molds using high-temperature extrusion technology. These WPC composite products are eco-friendly, fire- and water-resistant, UV-stable, and built to last over 20 years.  KR's capabilities include:  36 production lines running 24/7  In-house mold design with over 340 mold types  CE and FCS certifications  Global supply to 24+ countries, including the UK, Australia, Korea, Brazil, and more  More Than Decking – A Full Outdoor Living Solution KR WPC offers an extensive range of outdoor building materials beyond decking, including composite exterior cladding, composite fencing panels, and exterior composite wall panels. With flexible customization options—color, length, finish, and mold design—KR empowers clients to tailor each product to their unique vision.  Whether you are a designer, builder, or composite cladding supplier, KR WPC stands ready to deliver the materials and expertise you need to realize your project goals with precision and performance.  To explore more, visit KR WPC Official Website  About KR New Materials (KR WPC) KR New Materials Co., LTD is a leading WPC composite decking manufacturer and WPC fencing supplier based in Xuancheng, China. With over 8 years of experience, KR specializes in the design, production, and global export of high-performance wood plastic composite products, including decking, cladding, fencing, and more. KR holds CE and FCS certifications, operates 36 production lines 24/7, and serves customers in over 24 countries. With a strong focus on product innovation, mold development, and sustainable manufacturing, KR WPC delivers durable, customizable, and eco-friendly outdoor solutions trusted by architects, builders, and distributors worldwide. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524876/kr-new-materials-launches-alucore-decking-a-structural-innovation-for-outdoor-projects)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kr-wpc-launches-innovative-alucoretm-decking-for-superior-outdoor-spaces/5feea00ed7f09ddc3a2674e0c4dfab39) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/newsramp/comments/1m217z1/kr_wpc_launches_innovative_alucore_decking_for/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/17/beanpsI2.webp)
