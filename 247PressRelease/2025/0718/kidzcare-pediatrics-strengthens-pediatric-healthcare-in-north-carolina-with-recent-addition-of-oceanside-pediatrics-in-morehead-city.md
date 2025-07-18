@@ -1,0 +1,20 @@
+# KidzCare Pediatrics Strengthens Pediatric Healthcare in North Carolina with Recent Addition of Oceanside Pediatrics in Morehead City
+
+MOREHEAD CITY, NC, July 18, 2025 /24-7PressRelease/ -- KidzCare Pediatrics, a leading provider of pediatric healthcare throughout North Carolina, proudly announces the recent addition of Oceanside Pediatrics, which officially joined KidzCare in early June. Located at 3701 John Platt Dr. in Morehead City, Oceanside Pediatrics brings significant expertise and deep community connections to KidzCare Pediatrics.  Founded and led by Dr. Andrew Kiluk, Oceanside Pediatrics had served Carteret County families for over 17 years, earning recognition for exceptional pediatric care, particularly among military and underserved populations. Notably, Oceanside Pediatrics was also recognized regionally as a leader in pediatric mental health services, addressing critical community needs that intensified during the COVID-19 pandemic.  KidzCare Pediatrics remains dedicated to personal, convenient, and holistic care, a commitment that has earned the loyalty of its patients for more than 20 years in many communities across the state of North Carolina. Families have continued to receive exceptional care at the existing Morehead City location, now operating with adjusted office hours from Monday through Friday, 8:30 AM to 5:00 PM. In addition, families now have broader access to KidzCare's extensive statewide network of pediatric care providers.  "We've been thrilled with how seamlessly Oceanside Pediatrics has integrated into KidzCare's growing family of practices," stated Dr. Ashok Jain of KidzCare Pediatrics. "Dr. Kiluk and his team have demonstrated unwavering dedication to their patients. Their commitment aligns perfectly with our mission to provide comprehensive, compassionate, and accessible pediatric services."  The Morehead City practice is notably equipped with an advanced emergency generator system, safeguarding uninterrupted practice operations and critical vaccine protection during severe weather events.  "Becoming part of KidzCare Pediatrics allows us to further expand the resources and specialized services available to our patients," shared Dr. Andrew Kiluk. "We look forward to continuing the personalized and high-quality care that Oceanside Pediatrics is known for, with the enhanced support and extensive network provided by KidzCare."  For additional details on KidzCare Pediatrics and its mission to deliver inclusive, high-quality pediatric healthcare, please visit www.kidzcare.com.  About KidzCare Pediatrics  KidzCare Pediatrics is a trusted pediatric healthcare provider serving families across North Carolina for over 20 years. Committed to accessibility and affordability, KidzCare Pediatrics operates over twenty-five convenient locations throughout North Carolina and proudly participates in the National Health Service Corps, ensuring that no patient is denied access to care due to inability to pay. KidzCare's team of experienced board-certified pediatricians, nurse practitioners, and physician assistants focus on inclusive care by offering comprehensive pediatric services, including wellness visits, immunizations, behavioral health consultations, chronic condition management, and sick care. As a proud member of the US Pediatric Partners network, KidzCare shares a broader mission to offer medical services that support every stage of a child's development. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524981/kidzcare-pediatrics-strengthens-pediatric-healthcare-in-north-carolina-with-recent-addition-of-oceanside-pediatrics-in-morehead-city)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/kidzcare-pediatrics-welcomes-oceanside-pediatrics-to-expand-pediatric-care-in-nc/4083ccb0368e312ee4524903b8535217) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/HealthCareNewsInfo/comments/1m2vtil/kidzcare_pediatrics_welcomes_oceanside_pediatrics/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/18/hush72qm.webp)
