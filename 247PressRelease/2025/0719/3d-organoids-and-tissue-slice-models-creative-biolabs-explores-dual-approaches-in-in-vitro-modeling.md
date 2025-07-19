@@ -1,0 +1,20 @@
+# 3D Organoids and Tissue Slice Models: Creative Biolabs Explores Dual Approaches in In Vitro Modeling
+
+SHIRLEY, NY, July 19, 2025 /24-7PressRelease/ -- Unlike most "buzzwords," 3D organoid models no longer exist as mere concepts in the laboratory. These models are now being reliably derived from stem cells or tumor tissues from patients, creating mini organs with defined tissue structures and functions.  "Choice of experimental models is no longer an either-or choice of 'organoids or animal models;' instead, it is about more precise matching to specific research objectives," said a senior scientist at Creative Biolabs. "We are placing more focus on physiologic relevance and data translatability, which is exactly where organoids and precision-cut tissue slices (PCTS) are jointly useful."  Organoid models developed from cells remain more appealing than 2D cell cultures because of their three-dimensional architecture, connection to stem cells, and tissue-specific functions. Particularly, iPSC-derived organoid models can mimic patient-specific genetic backgrounds and are therefore ideal for disease modeling and targeted drug testing.  Creative Biolabs has established a range of organoid options to address varied research requirements, such as: 3D Tumor Organoid Models: used for assessing drug sensitivity and evaluation of tumor heterogeneity and resistance mechanisms. 3D Normal Organoid Models: assist studies on organ development, toxicity assessment, and functional validation. Customized 3D Organoid Models: developed from iPSCs or cells provided by the client to develop bespoke organoid systems.  Not all problems can be solved with modern methods, and organoids are certainly no exception. They do not replace the precision-cut tissue slice models when investigating short-term effects, structure-dependent responses, or distributing drugs within specific organs. These models utilize high-precision tissue slicers to quickly and uniformly cut fresh tissues into slices that preserve their anatomical architecture and cellular activity, thus providing an "ex vivo" platform that resembles "in vivo" conditions.  Creative Biolabs offers PCTS models covering key organs such as the heart and lung, with customizable slices sourced from healthy or diseased tissues as per project needs. "Many clients prioritize PCTS models for early drug screening to quickly assess efficacy and toxicity, then use organoids to explore mechanisms and long-term effects in depth, forming a scientific feedback loop," explained the scientist.  This adaptive modeling approach is critical to advancing precision medicine research from "model building" to "result translation." With the industry shifts toward human-relevant models, Creative Biolabs' 3D biology platform serves as a critical partner in advanced research for global research institutes and biopharma companies. By integrating organoid and PCTS systems, this dual-model approach enhances model development efficiency and bridge experimental data with clinical realities.  To learn more about 3D biological modeling, please visit https://www.creative-biolabs.com/3d-biology/.  About Creative Biolabs maintains a mature 3D biological modeling platform encompassing organoid models, iPSC technology, and precision tissue slice models, among other services. 
+
+---
+
+[Original/Source Press Release](https://www.24-7pressrelease.com/press-release/524998/3d-organoids-and-tissue-slice-models-creative-biolabs-explores-dual-approaches-in-in-vitro-modeling)
+                    
+
+[Newsramp.com TLDR](https://newsramp.com/curated-news/creative-biolabs-pioneers-3d-organoid-tissue-models-for-precision-medicine/80d24a3fee38b352e202f5de33ee9f8b) 
+
+ 
+
+
+
+[Reddit Post](https://www.reddit.com/r/technology_press/comments/1m3pxyj/creative_biolabs_pioneers_3d_organoid_tissue/) 
+
+
+
+![Blockchain Registration](https://cdn.newsramp.app/24-7PressRelease/qrcode/257/19/seek6SgM.webp)
